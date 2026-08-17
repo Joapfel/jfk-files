@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20288.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 1 - Mr. DeLoach
 1 - Mr. Bishop

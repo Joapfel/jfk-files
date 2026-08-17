@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27333.png
-
-Convert to MarkdownCUNHIDENTIAL
+CUNHIDENTIAL
 
 AAAA - Memo for Chief, Security Research Staff - 16 Oct 67 SECRET
 

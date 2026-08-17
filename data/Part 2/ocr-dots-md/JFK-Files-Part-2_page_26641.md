@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26641.png
-
-Convert to Markdown# TOP SECRET TRINE
+# TOP SECRET TRINE
 
 No Foreign Dissem
 

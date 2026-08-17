@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23689.png
-
-Convert to Markdownit doesn't.
+it doesn't.
 
 Senator Mathias. I think on page 36 and 39 it ought
 to refer to domestic operations.

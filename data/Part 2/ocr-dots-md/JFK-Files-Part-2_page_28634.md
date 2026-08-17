@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28634.png
-
-Convert to MarkdownDick:
+Dick:
 
 While the attached resume of Ms. Miriam Rudder does not reflect experience related to office duties, I know her well and certainly trust her. Therefore, I strongly recommend that she be hired for me to train as a mail clerk working along with Patricia Price. Again, as I indicated above, the most important thing to me in this instance is that I have the utmost trust in Miriam.
 

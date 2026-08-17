@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6020.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 (U) The DO provided an unclassified response to the ARRB staff's request for a brief explanation of how the Directorate of Operations processed cables in the 1963/1964 timeframe. We are unable to locate any Agency-wide definitive records on the subject for this time frame, and the information provided below is based solely on the memory of DO officers familiar with procedures in place at the time and in the specific offices in which they served.
 

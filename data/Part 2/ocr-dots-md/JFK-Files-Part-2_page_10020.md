@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10020.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 for Administration
 
 Chapter 732 of the Federal Personnel Manual instructs that before an agency issues a letter of charges under EO 10450, the Department of Justice shall be consulted to assure that the rights of the employees are fully considered. Section 13 of EO 10450 requests the Attorney General to render to the heads of departments and agencies such advice as may be requisite to enable them to establish and maintain an appropriate employee security program.

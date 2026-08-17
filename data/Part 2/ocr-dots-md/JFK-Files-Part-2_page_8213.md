@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8213.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>Stockely CARMICHEL<br/>Notre objectif final:<br/><b>Nous attaquer aux</b><br/><b>structures capitalistes des U.S.A.</b></td></tr><tr><td>Dans son numéro du Premier Mai, l'« Humanité Nouvelle », organes central du Parti Communiste Marxiste-Léniniste de France a publié une Interview de Stockely Carmic-HEL, leader du « Black Power » (Pouvoir Noir) Cette interview a été réalisée par un camarade africain lors du récent séjour de CarmicHEL à Paris.<br/><br/>Le Black Power est un mouvement de masse de Afro-américains. Certaines de ces positions peuvent ne pas toujours coïncider avec celles des marxistes-léninistes mais il est évident que le combat du Black Power est héroïque, courageusement anti-raciste,<br/><br/>C'est又是 qui est important. C'est pour cette raison que nous reproduisons ce remarquable document.</td></tr></table>
 

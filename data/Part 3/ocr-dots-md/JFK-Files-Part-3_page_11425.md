@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11425.png
-
-Convert to MarkdownTO: John A. Mintz, Assistant Director
+TO: John A. Mintz, Assistant Director
 Legal Counsel Division
 Federal Bureau of Investigation
 

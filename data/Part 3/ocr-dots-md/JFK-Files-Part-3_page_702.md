@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_702.png
-
-Convert to MarkdownGebhardt was asked if he felt the Cointelpro was a separate entity distinguished from the basic investigation and it was explained that the Cointelpro was a phase of the overall investigation in any particular organization or individual.
+Gebhardt was asked if he felt the Cointelpro was a separate entity distinguished from the basic investigation and it was explained that the Cointelpro was a phase of the overall investigation in any particular organization or individual.
 
 Gebhardt was asked if he felt Congress should enact legislation which would set forth specific investigative techniques that could or could not be utilized by the FBI or other Federal investigative agencies. He was advised in Gebhardt's opinion, such legislation should not be enacted, and in reply to the question as to why such legislation should not be enacted, it was pointed out that as an investigative agency, there must of necessity be allowed a certain flexibility because no two investigations are exactly alike and the circumstances of such investigations could possibly not be related to such Federal law.
 

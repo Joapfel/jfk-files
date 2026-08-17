@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8798.png
-
-Convert to MarkdownAMWORLD Operation
+AMWORLD Operation
 
 19-124-27
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13919.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In answer to a question from Mr. Clifford, Mr. Clark said that there have been no substantial new arrivals of Soviet personnel in Cuba. However, CIA does not get enough information on loadings and unloadings from vessels because of Cuban port security measures.
 

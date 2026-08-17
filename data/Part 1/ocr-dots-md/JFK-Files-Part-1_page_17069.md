@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17069.png
-
-Convert to Markdown# SOUT
+# SOUT
 
 ## Costs:
 

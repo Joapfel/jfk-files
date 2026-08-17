@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31184.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of the CFT's participation, funding and MI. Huid support could, once again be refined to the Agency although di Vanns would center itself inHarvey, his mostinitiated, Rescued and "Mussio."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2629.png
-
-Convert to Markdown2473
+2473
 
 Senator Baker. Mr. Kelley, Attorney General Levi, I believe, has already established some sort of agency or function within the Department that is serving as the equivalent, I suppose, of an Inspector General of the Justice Department, including the FBI.
 

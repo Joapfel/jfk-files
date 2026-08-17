@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_845.png
-
-Convert to MarkdownMr. William D. Ruckelshaus
+Mr. William D. Ruckelshaus
 The Deputy Attorney General - Designate
 
 Director, FBI

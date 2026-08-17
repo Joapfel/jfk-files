@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12177.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CABLE SEC BY: J. P</td><td>TOTAL COPY: S.7</td></tr><tr><td colspan="2">PERSON UNNOTIFIED: SE C R E T</td></tr><tr><td colspan="2">ADVANCE COPY PAID AT D.M. 0.85: ADVANCE COPY DELIVERED AS SHOWN<br/>ACTION UNIT: JAS<br/>N F O: FILE VR:<br/>DDC 3 AOC/DOC CHG1, CHG2 CHG 6<br/>DCH 14 DCHS/LGE 2 DCR 4</td></tr></table>
 

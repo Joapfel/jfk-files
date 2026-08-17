@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3967.png
-
-Convert to Markdowntwo months. Case officer recommends we go along
+two months. Case officer recommends we go along
 with him on this. at least for the time being, as
 it could be sticky legally and might antagonize
 him at the time when we most need his cooperation.

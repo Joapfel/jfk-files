@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1696.png
-
-Convert to MarkdownLA0373-041807Z
+LA0373-041807Z
 
 PP HQ
 DE LA

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3848.png
-
-Convert to MarkdownE. **Option Four -- Setting Standards for Domestic Intelligence**
+E. **Option Four -- Setting Standards for Domestic Intelligence**
 
 The FBI should be authorized by statute to conduct
 domestic intelligence investigations only if Congress finds

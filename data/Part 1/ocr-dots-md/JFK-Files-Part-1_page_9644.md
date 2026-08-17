@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9644.png
-
-Convert to Markdown5 November 1946
+5 November 1946
 
 Lt. Col. Al R. Wichtrich (Inactive)
 3444 Gunster Road,

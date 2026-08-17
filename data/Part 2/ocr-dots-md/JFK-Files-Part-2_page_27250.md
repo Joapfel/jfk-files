@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27250.png
-
-Convert to MarkdownA. Memo of Visit to Mr. William Ledee - 1 June 64 (CONFIDENTIAL)
+A. Memo of Visit to Mr. William Ledee - 1 June 64 (CONFIDENTIAL)
 
 B. Memo for Record, Subj: William Ledee - 29 Apr 75 (SECRET)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26000.png
-
-Convert to Markdownthat up originally, I don't know. I was
+that up originally, I don't know. I was
 rather surprised--he seemed to have seen
 copies of lectures and other things that
 I had given on the subject, but who had

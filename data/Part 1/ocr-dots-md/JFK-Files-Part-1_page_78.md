@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_78.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SDVM: 84635</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17904.png
-
-Convert to MarkdownMAR 25 '70 10:44 PM '75
+MAR 25 '70 10:44 PM '75
 
 RECEIVED
 TELETYPE UNIT

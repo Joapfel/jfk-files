@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34497.png
-
-Convert to MarkdownREOUEST
+REOUEST
 
 I, Yurly Ivanovich Kosenko, request the Government of
 the United States of America to grant me political asylum

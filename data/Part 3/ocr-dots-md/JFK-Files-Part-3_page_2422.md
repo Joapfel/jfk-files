@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2422.png
-
-Convert to Markdownduring the Democratic National Convention at Chicago in August, 1968; and the demonstrations during the Presidential Inauguration ceremonies in January, 1969. Its officers include David Debinger, who has travelled to the Soviet Union, North Vietnam, Czechoslovakia, Cuba and Sweden in furtherance of opposition to the war in Vietnam.
+during the Democratic National Convention at Chicago in August, 1968; and the demonstrations during the Presidential Inauguration ceremonies in January, 1969. Its officers include David Debinger, who has travelled to the Soviet Union, North Vietnam, Czechoslovakia, Cuba and Sweden in furtherance of opposition to the war in Vietnam.
 
 ## Republic of New Africa (RNA)
 

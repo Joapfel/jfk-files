@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13783.png
-
-Convert to MarkdownHavana broadcasts to Latin America continue to take the line that Cuba "is not exporting revolution," but to stress the necessity and inevitability of internal armed left-wing revolution in individual Latin American countries - calling for a "solid front" of the masses in support of such revolutions throughout the hemisphere, and indeed throughout the world.
+Havana broadcasts to Latin America continue to take the line that Cuba "is not exporting revolution," but to stress the necessity and inevitability of internal armed left-wing revolution in individual Latin American countries - calling for a "solid front" of the masses in support of such revolutions throughout the hemisphere, and indeed throughout the world.
 
 The Dominican Republic and Venezuela continue to receive special emphasis in these Havana broadcasts. Broadcasts of 23 and 26 December called the Dominican elections a "farce", and made the point that such elections are no substitute for armed revolutions - such as "the heroic Venezuelan revolution which has stirred the whole continent."
 

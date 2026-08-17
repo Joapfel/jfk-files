@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30392.png
-
-Convert to Markdownabout that.
+about that.
 
 Mr. Goldsmith. However, would the Agency make any effort
 to interview Osald while Oswald was entroute from the Soviet

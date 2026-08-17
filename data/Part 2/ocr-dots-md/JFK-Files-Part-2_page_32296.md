@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32296.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DOD has a program providing for enlistment in the U. S. Army of those Cuban nationals between the ages of 18 and 30 who pass entrance requirements. (A similar program for the Navy covers ages 18-26). The program provides 20-22 weeks of training at the conclusion of which they are transferred as individuals to U. S. Reserve status. They are not required to know English. A two week period for resettlement is also provided at the termination of the training.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18619.png
-
-Convert to Markdown# Memorandum for Messrs. Tolson, Belmont,
+# Memorandum for Messrs. Tolson, Belmont,
 DeLoach, and Sullivan
 
 August 24, 1965

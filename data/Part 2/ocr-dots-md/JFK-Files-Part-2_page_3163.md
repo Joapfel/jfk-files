@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3163.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of the Guatemalan training bases, the contradiction
 in positions between State and the Agency was obvious. 11/

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5484.png
-
-Convert to MarkdownSECRET
+SECRET
 SECRECY AGREEMENT
 
 1. I, JOHN M. WHITTEN, understand that by virtue of my duties in the Central Intelligence Group, I may be the recipient of information and intelligence which concerns the present and future security of the United States and which belongs to the United States. This information and intelligence, together with the methods of collecting and handling it, are classified according to standards set in the State, War, and Navy Departments. I have read and understand the provisions of the Act of Congress of June 15, 1917 (Espionage Act), as amended, concerning the disclosure of information relating to the National Defense and I am familiar with the penalties provided for violation thereof.

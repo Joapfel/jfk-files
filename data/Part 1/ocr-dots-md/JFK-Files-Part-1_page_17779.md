@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17779.png
-
-Convert to Markdown..3-
+..3-
 
 ... HIGMOM en un carro, HF que está bien. Tanto dice que vino el doctor CÓRREGUA - dominicano- quien se va para la patria y anda vendiendo el auto en mil dolares y que vale como 30 mil, y que es una Ford. HF se interesa y pregunta a dende hablar con CABALLA. Tiene que al 19-56-52 y 19-56-53, y que sale mañana a lachuca y el domingo se va a Miami para después a Santo Domingo.- 216-
 

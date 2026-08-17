@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3137.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 things they were doing, because they were considered indispensable, which was probably correct. It was on that basis, I think, that when people like Dick Drain came back home from -- in Dick's case, I think he came in from Greece -- where he had a pretty good record -- but he was not returning to Headquarters to go into an assignment, and Dick Bissell put him in the operation with us. Gerry Droller had been around Headquarters for a long time, had been quite a bit of a replacement problem. He was very bright, he was a German specialist, had a pretty good political background; and Gerry and Howard Hunt, for whatever reason, were sort of selected, not by us, but they were told they were going to be the people who would handle the political aspects of the operation. 114/
 

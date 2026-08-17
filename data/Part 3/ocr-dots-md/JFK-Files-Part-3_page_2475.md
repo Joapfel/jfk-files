@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2475.png
-
-Convert to Markdown4. One Master Padlock No. X 22813 (used to lock above-listed file cabinet).
+4. One Master Padlock No. X 22813 (used to lock above-listed file cabinet).
 
 5. One 3' x 2' wood table with one drawer.
 

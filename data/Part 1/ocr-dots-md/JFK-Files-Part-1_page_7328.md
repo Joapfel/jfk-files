@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7328.png
-
-Convert to Markdown14.02 When his wife and family are away, he is:
+14.02 When his wife and family are away, he is:
 obviously very lonely and at loose ends
 unlikely to vary his routine
 likely to become more active and socially aggressive ✓

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28539.png
-
-Convert to MarkdownNOTIFICATION OF PERSONNEL ACTION lv1
+NOTIFICATION OF PERSONNEL ACTION lv1
 
 <table><thead><tr><th>1. NAME (last, first) (as written in Personnel file)</th><th>2. DATE OF BIRTH</th><th>3. JOURNAL OR ACTION NO.</th><th>4. DATE</th></tr></thead><tbody><tr><td>Mr. Bennett H. Dagley</td><td>11 Nov 1925</td><td></td><td>11 May 1956</td></tr></tbody></table>
 

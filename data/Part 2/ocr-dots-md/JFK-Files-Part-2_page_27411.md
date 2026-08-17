@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27411.png
-
-Convert to MarkdownMarch 18, 1975
+March 18, 1975
 
 John A. Rockefeller,
 Chairman

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14286.png
-
-Convert to Markdownusage sense and not necessarily in the technical sense unless
+usage sense and not necessarily in the technical sense unless
 Justice Department or the FBI. Thus, words such as . . .
 other materials" refer to all documents relating to
 matter requested and are to include (but are not limited

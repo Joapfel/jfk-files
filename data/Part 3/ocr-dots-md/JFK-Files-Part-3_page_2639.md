@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2639.png
-
-Convert to Markdown1. smn 6
+1. smn 6
 2. Phone (Area 202) 544-6000
 3. 
 4. informants. We'll discuss techniques, we'll discuss our present activities. I think this is the only way that we can exchange our opinions and get accomplished what you want to accomplish and what I want to accomplish.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10089.png
-
-Convert to MarkdownNR 010 SE PLAIN
+NR 010 SE PLAIN
 
 FEBRUARY 20, 1976 GFFR 21 1976
 

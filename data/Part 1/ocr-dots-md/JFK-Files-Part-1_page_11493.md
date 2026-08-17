@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11493.png
-
-Convert to Markdownreplied that he felt it quite possible to arrange something for LIRING/3 and for that reason had brought up the idea at this point.
+replied that he felt it quite possible to arrange something for LIRING/3 and for that reason had brought up the idea at this point.
 
 Rowton told LIRING/3, in reply to his query, that such a trip to PERU would be interesting to him only if LIRING/3 was offered a position in the cultural field with good access to PERUAN intellectuals and government officials. LIRING/3 agreed, commenting that he knew Iden D and such young rebels/well enough to develop good contact with them, provided he was given a reasonably serious job. In any case he promised to work on LIRING/4 in the hope of persuading her to go along with him, when and if Iden B's proposal materialized.
 

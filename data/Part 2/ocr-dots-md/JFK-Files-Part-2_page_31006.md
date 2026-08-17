@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31006.png
-
-Convert to MarkdownDaniel A. Parsons
+Daniel A. Parsons
 
 32 [Air Forced] Cover
 

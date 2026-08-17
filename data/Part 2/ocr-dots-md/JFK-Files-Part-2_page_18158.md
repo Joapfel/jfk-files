@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18158.png
-
-Convert to MarkdownJuly 14, 1975
+July 14, 1975
 
 6. All materials which reflect what transpired between the Director's approval of Mr. Sullivan's October 15, 1963 memorandum, and the transmission of Mr. Sullivan's October 18, 1963 memorandum to Mr. Belmont.
 

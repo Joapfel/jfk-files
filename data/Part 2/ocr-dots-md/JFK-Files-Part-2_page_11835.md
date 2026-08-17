@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11835.png
-
-Convert to Markdown(1) Contact, full name
+(1) Contact, full name
 
 (2) All aliases, code names, and symbol numbers
 

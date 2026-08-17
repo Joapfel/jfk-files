@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1599.png
-
-Convert to Markdown14-00000
+14-00000
 
 2) Reads de n. f.t. he ever employed in any capacity on
 but records do show Henry has finally cleared asset

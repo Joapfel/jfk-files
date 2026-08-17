@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26398.png
-
-Convert to Markdownsuch as removal of key personalities or relay of information.
+such as removal of key personalities or relay of information.
 
 In such actions, however, U. S. authorities will strenuously avoid
 appearance of pressure on either side. It is not in the interest

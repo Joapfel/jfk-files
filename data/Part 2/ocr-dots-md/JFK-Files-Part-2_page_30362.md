@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30362.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 knowledge about him. He never was before in the Soviet Union.
 

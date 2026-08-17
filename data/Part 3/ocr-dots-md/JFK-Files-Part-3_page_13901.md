@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13901.png
-
-Convert to Markdown**Board Report of July 2, 1961**
+**Board Report of July 2, 1961**
 
 Rec. #4: That the U. S. Intelligence Board create the means for assessing and reporting early warning indications of developing "cold war" crisis situations in any part of the world (such early warning to be handled separately from "hot war" indications dealt with in the National Indications Center of the U. S. Intelligence Board's Watch Committee).
 

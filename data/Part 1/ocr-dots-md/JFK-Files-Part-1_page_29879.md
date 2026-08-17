@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29879.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>096700</td><td>MURPHY, DAVID E</td></tr><tr><td>94.040</td><td>V</td></tr></thead><tbody><tr><td colspan="2">INVOICE</td></tr><tr><td>GS 171</td><td>$18,000 09/15/87</td></tr><tr><td>GS 172</td><td>$18,500 09/15/87</td></tr></tbody></table>
 

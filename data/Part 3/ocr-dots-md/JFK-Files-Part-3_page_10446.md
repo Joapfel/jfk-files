@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10446.png
-
-Convert to MarkdownNR 014 BA CODE
+NR 014 BA CODE
 
 10:14PM NITEL 3/25/75 JAN
 

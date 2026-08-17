@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26023.png
-
-Convert to Markdownmeeting in the Pentagon in the secretary of
+meeting in the Pentagon in the secretary of
 Defences office, and there were a mob of
 people there. There were, --I can't
 quite recall now what prompted the meeting,

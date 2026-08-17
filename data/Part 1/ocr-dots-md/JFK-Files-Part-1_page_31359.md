@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31359.png
-
-Convert to MarkdownEXTRA SHEET
+EXTRA SHEET
 
 The following material is meant to serve as a form for recording the information given in this Form 38-1 under Item #14. Please use it first.
 

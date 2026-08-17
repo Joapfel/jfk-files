@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5132.png
-
-Convert to Markdown8. All memoranda and any other materials which pertain to the establishment of a special unit to handle Communist influence in racial matters in 1963 or 1964.
+8. All memoranda and any other materials which pertain to the establishment of a special unit to handle Communist influence in racial matters in 1963 or 1964.
 
 9. All memoranda and other materials which pertain to the assignment of Special Agent Seymour Philips to head the unit identified in item 7 above.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20754.png
-
-Convert to Markdown10 January 1972
+10 January 1972
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27117.png
-
-Convert to MarkdownSECRET, SENSITIVE
+SECRET, SENSITIVE
 
 Deputy Chief of the Soviet Division, even though he was the first contact of Nosenko's in the field; and his chief associates in the Division. In favor of Nosenko's bona fides have been the Office of Security and certain other members of the Soviet Division. The most persuasive detractor of Nosenko has been the KGB defector, Golitsyn. He is regarded to be the most knowledgeable KGB defector to come our way.
 

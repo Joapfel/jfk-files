@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23617.png
-
-Convert to Markdownand receive further specific instructions for any specific covert activity. At the present time we are unable to transfer arms to dissidents. Tell them that this is because of our suspicion that method of transfer may be unsafe. In actual fact we feel that the transfer of arms would serve very little purpose and expose the United States to great danger of [illegible] attention with disclosure of participation in assassination attempt. The basic policy is to continue to hold open offer of covert help, while carefully examining and clearing the specific help requested.
+and receive further specific instructions for any specific covert activity. At the present time we are unable to transfer arms to dissidents. Tell them that this is because of our suspicion that method of transfer may be unsafe. In actual fact we feel that the transfer of arms would serve very little purpose and expose the United States to great danger of [illegible] attention with disclosure of participation in assassination attempt. The basic policy is to continue to hold open offer of covert help, while carefully examining and clearing the specific help requested.
 
 This is feasible because, in actual fact, the covert help is very slight except for verbal encouragement and exchange of information.
 

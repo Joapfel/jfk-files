@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17726.png
-
-Convert to MarkdownReel 39-BUS-3
+Reel 39-BUS-3
 4 June 1966
 
 6.5 contd.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26379.png
-
-Convert to MarkdownVisión de Hispanoamérica
+Visión de Hispanoamérica
 
 CONFRENCIA DE VICTO RICO GALÁN
 

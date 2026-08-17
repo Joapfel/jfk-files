@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25210.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Conein<br>Huan<br>Gen. Harkins<br>Ambassador Lodge</td><td>Oct. 17, '63</td><td>DIEM</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Conein<br>Huan<br>Gen. Harkins<br>Ambassador Lodge</td><td>Oct. 17, '63</td><td>DIEM</td></tr></table>
 
 TOP SECRET
 

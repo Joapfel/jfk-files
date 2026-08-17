@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35352.png
-
-Convert to Markdown(Continue page No.4)
+(Continue page No.4)
 
 | | CTA. NO. | TOTAL |
 | :--- | :---: | ---: |

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18768.png
-
-Convert to MarkdownSF 65-4257
+SF 65-4257
 JTK/lp
 
 "U.S. Naval Intelligence figures were cited for March, 1956. Out of 183 'non-communist registered vessels' grossing 1,130,560 tons in trade to and from the Chinese Mainland, 59 were British vessels, 15 Japanese and the rest European, BOYD pointed out. By October, 1956 the number of ships had grown to 214 a month, he said. Of these, 43 vessels were British, 24 Japanese and the rest European.

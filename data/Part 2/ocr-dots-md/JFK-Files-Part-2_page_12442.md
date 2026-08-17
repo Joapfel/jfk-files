@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12442.png
-
-Convert to Markdown"SECRET - NO FOREIGN DISSEMINATION"
+"SECRET - NO FOREIGN DISSEMINATION"
 
 16. Reliability of assets
 Reliability of all assets must be constantly checked. If any doubt exists concerning asset, give consideration to use of various investigative techniques to insure asset is completely reliable and is furnishing accurate information.

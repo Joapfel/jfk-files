@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5356.png
-
-Convert to MarkdownJ. C. Farrington to Mr. McDermott Memo
+J. C. Farrington to Mr. McDermott Memo
 
 REQUEST BY U. S. SENATOR WALTER D. HUDDLESTON
 SENATE SELECT COMMITTEE MEMBER

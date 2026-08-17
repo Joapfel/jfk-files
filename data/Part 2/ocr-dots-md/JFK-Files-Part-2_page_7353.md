@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7353.png
-
-Convert to Markdownfunds and equipment provided to such foreign services;
+funds and equipment provided to such foreign services;
 
 d. Information on the objectives, key personnel, strength, budget and methods of operation of such services, provided that such data will be drawn from open sources or penetrations and not from the details of liaison arrangements with the services themselves;
 

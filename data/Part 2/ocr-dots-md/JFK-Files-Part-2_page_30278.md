@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30278.png
-
-Convert to Markdownwill show by his behavior, by his action.
+will show by his behavior, by his action.
 
 Mr. Klein. They purposely don't speak to him; is that your testimony?
 

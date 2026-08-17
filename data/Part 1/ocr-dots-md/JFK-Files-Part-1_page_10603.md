@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_10603.png
-
-Convert to MarkdownThis agency does not currently have any relationship with Rolando Marfener. It would be appropriate for your organization's staff and could involve a meeting or conference, if any member of your organization has been in contact with the subject. Any appropriate personnel should be retained along with this copy.
+This agency does not currently have any relationship with Rolando Marfener. It would be appropriate for your organization's staff and could involve a meeting or conference, if any member of your organization has been in contact with the subject. Any appropriate personnel should be retained along with this copy.

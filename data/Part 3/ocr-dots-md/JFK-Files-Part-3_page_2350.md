@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2350.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The
 CPUSA-ML in its initial stage proposed to conduct guerrilla

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1331.png
-
-Convert to MarkdownMEMORANDUM FOR: Secretary, Claudestino Servico Career Service Board
+MEMORANDUM FOR: Secretary, Claudestino Servico Career Service Board
 
 SUBJECT: Recommendation for the Promotion of Mr. Robert P. Wheeler to GS-17
 

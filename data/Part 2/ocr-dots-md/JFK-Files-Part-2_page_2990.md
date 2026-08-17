@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2990.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in 1964. SR/CI/Research Branch responded to many of these requests for information working through CI Staff which assumed managerial control for CIA communications with the commission. The branch furnished information to the commission on a wide variety of topics concerning the RIS, Lee Harvey Oswald, and Oswald's associates in the USSR.*
 

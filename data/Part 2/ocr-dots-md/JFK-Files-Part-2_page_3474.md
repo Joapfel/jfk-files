@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3474.png
-
-Convert to MarkdownI added that the more responsible military were trying to work out with the [Guido] government and the non-[Peronist] political parties a formula which would prevent the [Peronistas] from making large gains on the national level.
+I added that the more responsible military were trying to work out with the [Guido] government and the non-[Peronist] political parties a formula which would prevent the [Peronistas] from making large gains on the national level.
 
 4. On the subject of [Haiti], Mr. Murphy felt that in so small a country action should be possible to remove [Duvalier] and wondered why it had not been done. I pointed out that we had as yet no policy approval for such action but that we were active in identifying and making contact with opposition elements both within [Haiti] and in exile. I described some of the difficulties, such as [Duvalier's] control of the arms in the palace and his widespread penetration of opposition plotting that had just resulted in the rolling up of a coup attempt by Haitian army officers.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3013.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The SIM report is nothing more than a summary of allegations and accusations made against Fidel Castro during the period 1948-1950. This summary has apparently been slanted in an effort to make Castro a "Rojo," but the result is a rather poor one. 2/
 

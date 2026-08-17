@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13057.png
-
-Convert to MarkdownNY·100-149194
+NY·100-149194
 
 The, "Source and Disposition of Income", is listed
 as:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3999.png
-
-Convert to MarkdownUnder Separate Cover attachment to UFGA-21947
+Under Separate Cover attachment to UFGA-21947
 
 Iden A - Rolando MERUKLO Alfonso, A 12 829 707 (AMOT subsource)
 

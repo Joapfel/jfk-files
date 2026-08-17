@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17342.png
-
-Convert to Markdownviernes 10 mayo 1963.
+viernes 10 mayo 1963.
 
 que no esواقanarie que solamente se les de por teléfono.
 ADRIANA indica que se necesitan dos salones, uno para teatro

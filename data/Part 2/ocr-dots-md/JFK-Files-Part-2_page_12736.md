@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12736.png
-
-Convert to Markdown(6) Character
+(6) Character
 
 (a) Top functionaries
 Internal Security (or Racial Matters if subject is a black nationalist) - followed by letters designating organizational affiliation or nationalistic tendencies. Examples:

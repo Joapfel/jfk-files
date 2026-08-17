@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20816.png
-
-Convert to MarkdownWOMENS NATIONAL ABORTION ACTION COALITION
+WOMENS NATIONAL ABORTION ACTION COALITION
 
 The above source advised that in addition to attendance
 at the Solidarity Meeting, some YSA/SWP members will remain

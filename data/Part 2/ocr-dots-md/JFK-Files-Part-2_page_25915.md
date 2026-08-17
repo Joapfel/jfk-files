@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25915.png
-
-Convert to MarkdownI.G. Report indicates that Roselli's man, Orta, had "easy access" to Castro, and that he was involved in a "rake-off on gambling profits."
+I.G. Report indicates that Roselli's man, Orta, had "easy access" to Castro, and that he was involved in a "rake-off on gambling profits."
 
 I.G. Report has Roselli giving the pills to Trafficante, rather than directly to the Cuban?
 

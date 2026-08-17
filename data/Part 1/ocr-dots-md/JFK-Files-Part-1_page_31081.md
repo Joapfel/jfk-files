@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31081.png
-
-Convert to Markdown2 September 1959
+2 September 1959
 
 MEMORANDUM FOR: Chief, SR/30
 SUBJECT : Promotion Request,

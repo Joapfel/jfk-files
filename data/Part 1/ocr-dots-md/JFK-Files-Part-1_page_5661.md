@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5661.png
-
-Convert to MarkdownPort-au-Prince, le 8 Novembre 1963
+Port-au-Prince, le 8 Novembre 1963
 
 Excellence,
 

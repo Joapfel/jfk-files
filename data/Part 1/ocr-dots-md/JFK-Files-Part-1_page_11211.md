@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11211.png
-
-Convert to MarkdownLA LIBERTAD, 16 de Mayo de 1966
+LA LIBERTAD, 16 de Mayo de 1966
 
 "ALO DE LA COMUNICACIÓN"
 

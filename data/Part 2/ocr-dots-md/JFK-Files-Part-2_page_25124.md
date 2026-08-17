@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25124.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td colspan="3">(CARD 3 of 4)</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td colspan="3">(CARD 3 of 4)</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

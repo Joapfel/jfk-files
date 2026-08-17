@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_196.png
-
-Convert to Markdown-3-
+-3-
 
 21. American Committee for Cultural Freedom - Manhattan, New York (8) 08
 

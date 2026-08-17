@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6078.png
-
-Convert to MarkdownPassados três meses, a Lei Organica ainda não apareceu. O que resolveu na veredal é que os advogados do I.N.R.A., NÃO-ALTA OUTRA ALTERNATIVA.
+Passados três meses, a Lei Organica ainda não apareceu. O que resolveu na veredal é que os advogados do I.N.R.A., NÃO-ALTA OUTRA ALTERNATIVA.
 
 E o que a mais inclusiva: o completo controle do mercado, que convierte o agricultor em vendedor forçoso do I.N.R.A., acaba de delinear a situação atual do agricultor cunhado; usufrutuário das terras estatais, sob o seu controle completo.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6746.png
-
-Convert to MarkdownHEARING
+HEARING
 before the
 SENATE COMMITTEE ON GOVERNMENTAL AFFAIRS
 on

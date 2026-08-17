@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17214.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Harry Moody, Negro male, age 23, residence
 6715 South Oglesby;

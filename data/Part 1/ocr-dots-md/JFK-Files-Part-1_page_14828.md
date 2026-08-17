@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14828.png
-
-Convert to MarkdownThe economic blockade of Cuba has not only affects that island but hurts the ordinary American by bonding monopoly prices on a number of items, including the steel and nickel that goes into his car and refrigerator. Winston pointed out: Cuba has 50 percent of the world's nickel deposits, he noted.
+The economic blockade of Cuba has not only affects that island but hurts the ordinary American by bonding monopoly prices on a number of items, including the steel and nickel that goes into his car and refrigerator. Winston pointed out: Cuba has 50 percent of the world's nickel deposits, he noted.
 
 Winston gave his views to a press conference at Communist Party headquarters here a few days after his return from Cuba. He led a Communist-Party delegation that visited every province in Cuba in August.
 

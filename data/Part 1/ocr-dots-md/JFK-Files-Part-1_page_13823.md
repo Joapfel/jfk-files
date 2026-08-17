@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13823.png
-
-Convert to Markdown19. Record of arrests.
+19. Record of arrests.
 
 Disarmed by Mexican judicial police when
 became involved with emigration agent over

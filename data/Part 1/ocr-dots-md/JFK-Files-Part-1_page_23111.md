@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23111.png
-
-Convert to MarkdownDr. J. B. Redlich
+Dr. J. B. Redlich
 
 In the 2nd. year, we explain General Psychology in order to give
 the necessary preparation for an adequate application of Medical Psycholog-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_563.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 Memphis Division forwarded anonymous letter to
 headquarters of Kimberly-Clark Company concerning efforts

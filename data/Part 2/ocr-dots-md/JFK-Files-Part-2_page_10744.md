@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10744.png
-
-Convert to MarkdownDate August 24, 1973
+Date August 24, 1973
 
 At approximately 4:35 a.m., August 22, 1972, Selective Service space and surrounding area located on the fifth floor of U.S. Post Office, 401 Market Street, Camden, N.J., was entered by Special Agents of the Federal Bureau of Investigation. Agents deBraudt, S. Dremant, and Thomas E. Tignon entered the area andaset surrounding the Selective Service Office by way of the building fire escape. Special Agents ROBERT H. WALLER and JOL R. GINGERICH entered the Selective Service Office through the front door, which entered on to the fifth floor corridor.
 

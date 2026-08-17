@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2492.png
-
-Convert to MarkdownJun 29 1976
+Jun 29 1976
 
 SECRET 291430Z JUN 76 STAFF
 

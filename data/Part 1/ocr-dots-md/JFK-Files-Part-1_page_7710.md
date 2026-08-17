@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7710.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>CC</td><td>DISPATCH SYMBOL AND NUMBER</td><td>DATE</td></tr></thead><tbody><tr><td>CROSS REFERENCE TO</td><td>HMMA-36581</td><td>25 February 1969</td></tr><tr><td></td><td>CLASSIFICATION</td><td>HCS THE INFORMATION</td></tr><tr><td></td><td>SECRET</td><td>✓ 201-285412</td></tr></tbody></table>
 

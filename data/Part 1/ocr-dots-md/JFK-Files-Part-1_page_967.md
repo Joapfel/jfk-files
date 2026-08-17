@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_967.png
-
-Convert to Markdown104-10078-10020
+104-10078-10020
 
 <table><thead><tr><th colspan="3">ASSUED MESSAGE</th></tr></thead><tbody><tr><td>G. A. LANE, B. O'HANNOY</td><td>OFFICE</td><td>SAGAR</td></tr><tr><td>5909</td><td>DISTRICT</td><td>BSENT INCS PILL NO.</td></tr><tr><td>16 DECEMBER 1963</td><td colspan="2">RETURN TO CIA<br/>Background Use Only<br/>Do Not Reproduce</td></tr><tr><td>TO: JGDAVE</td><td colspan="2"></td></tr><tr><td>FROM: DIRECTOR</td><td colspan="2"></td></tr><tr><td>CONF.: SAS 8</td><td colspan="2"></td></tr><tr><td>INFO : DOP, OS 2, VR</td><td colspan="2"></td></tr></tbody></table>
 

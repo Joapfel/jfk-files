@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15646.png
-
-Convert to Markdown/12/
+/12/
 
 40. When he was jailed by the French police he was somewhat de-pressed by the fact that he had greatly disappointed his close relatives and because he was looked upon as a noisy and rash fellow rather than as a man capable of carrying out a crime.
 

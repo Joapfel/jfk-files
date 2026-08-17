@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11991.png
-
-Convert to Markdownfor continuation and no additional manpower or expenditure requests are needed at this time for the continuation of these two programs.
+for continuation and no additional manpower or expenditure requests are needed at this time for the continuation of these two programs.
 
 ## 5. Frequency of Evaluation and Date of Last Justification
 

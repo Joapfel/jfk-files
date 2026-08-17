@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_30.png
-
-Convert to Markdownget back to it. In Bromley Smith's view, the PDB should be of a
+get back to it. In Bromley Smith's view, the PDB should be of a
 
 length which the President could whip through quickly. It would be
 

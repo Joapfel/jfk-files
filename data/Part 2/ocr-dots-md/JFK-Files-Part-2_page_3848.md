@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3848.png
-
-Convert to MarkdownG. NOVEL is polygraphed by Lloyd FURR on Garrison's Charges.
+G. NOVEL is polygraphed by Lloyd FURR on Garrison's Charges.
 
 A Gordon Boone NOVEL, already a fugitive witness in the Garrison inquiry, is reported in the Washington press of 27 June 1964 as having been polygraphed the previous day on the case under investigation by Garrison. According to the press reports, NOVEL submitted to a polygraph examination conducted at McLean, Virginia by Lloyd FURR. In statements to the press, FURR indicated there was no indication of deception to NOVEL's charges that Garrison's case is a "fraud."
 

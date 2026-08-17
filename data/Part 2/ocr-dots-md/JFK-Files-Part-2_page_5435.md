@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5435.png
-
-Convert to MarkdownSUBJECT: Proposal for Dealing with Employees' Names
+SUBJECT: Proposal for Dealing with Employees' Names
 
 IMS/RPG Fwickham:mjk (29 July 1996)
 

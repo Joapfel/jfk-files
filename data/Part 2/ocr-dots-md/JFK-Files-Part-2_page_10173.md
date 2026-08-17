@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10173.png
-
-Convert to Markdown94TH CONGRESS
+94TH CONGRESS
 2D SESSION
 
 H. RES. 1073

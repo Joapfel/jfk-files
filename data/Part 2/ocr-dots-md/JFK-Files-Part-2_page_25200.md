@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25200.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th></tr></thead><tbody><tr><td>BUNDY</td><td rowspan="2">10/8/63</td></tr><tr><td>COLBY</td></tr><tr><td>JOHNSON</td><td rowspan="4">DIEM<br>SPECIAL GROUP</td></tr><tr><td>KILPATRICK</td></tr><tr><td>MCCONE</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th></tr></thead><tbody><tr><td>BUNDY</td><td rowspan="2">10/8/63</td></tr><tr><td>COLBY</td></tr><tr><td>JOHNSON</td><td rowspan="4">DIEM<br>SPECIAL GROUP</td></tr><tr><td>KILPATRICK</td></tr><tr><td>MCCONE</td></tr></tbody></table>
 
 ## OCCURRENCE:
 

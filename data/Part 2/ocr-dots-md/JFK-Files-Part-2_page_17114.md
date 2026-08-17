@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17114.png
-
-Convert to MarkdownD. Officers of
+D. Officers of
 Joliet Branch BPP
 
 Source advised during October, 1969, that JAMES DAVID STUBBS who resides at 528 South Water Street, Joliet, Illinois, would be considered the organizer of the branch in Joliet. Source said there are four members of this branch, with STUBBS being the only officer.

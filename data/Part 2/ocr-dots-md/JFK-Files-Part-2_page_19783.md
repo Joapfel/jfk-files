@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19783.png
-
-Convert to Markdown<table><tr><td>FD-66 (Rev. 5-22-84)</td></tr></table>
+<table><tr><td>FD-66 (Rev. 5-22-84)</td></tr></table>
 
 FBI
 

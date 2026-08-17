@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29978.png
-
-Convert to MarkdownDATE      08/03/78
+DATE      08/03/78
 REPORT ID  D01.00.00
 
 U. S. HOUSE OF REPRESENTATIVES

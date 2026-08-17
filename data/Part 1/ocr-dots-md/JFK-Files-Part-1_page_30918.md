@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30918.png
-
-Convert to Markdown# 6. Report of Cover Earnings
+# 6. Report of Cover Earnings
 
 BENADUM's contract provides that he will submit a report of cover earnings each six months. The last report covered the period through 30 April 1969.
 

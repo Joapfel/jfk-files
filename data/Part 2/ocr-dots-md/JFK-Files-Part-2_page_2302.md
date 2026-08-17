@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2302.png
-
-Convert to Markdown2 July 1947
+2 July 1947
 
 TO : FBT
 

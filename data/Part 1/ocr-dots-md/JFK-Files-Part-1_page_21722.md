@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21722.png
-
-Convert to MarkdownAs previously indicated, the conclusion is there are a sufficient number of unresolved questions in the BELITSKIY case so that discrepancies between information from NOSENKO and the actual record in the BELITSKIY case cannot at present be considered as a reflection against NOSENKO, and there is a distinct possibility the KGB actually did not know the true facts of the BELITSKIY case.
+As previously indicated, the conclusion is there are a sufficient number of unresolved questions in the BELITSKIY case so that discrepancies between information from NOSENKO and the actual record in the BELITSKIY case cannot at present be considered as a reflection against NOSENKO, and there is a distinct possibility the KGB actually did not know the true facts of the BELITSKIY case.
 
 The previous summary noted on page 106 that Nataliya SHULGINA was an Intourist interpreter recruited by NOSENKO in 1955. It also noted that NOSENKO had stated Boris BELITSKIY "reported to the KGB that CIA had warned BELITSKIY against SHULGINA." The previous summary stated BELITSKIY reported to CIA that SHULGINA was a KGB agent and "CIA did not warn BELITSKIY."
 

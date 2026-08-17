@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31724.png
-
-Convert to Markdown# HOURLY BROADCASTING BREAKDOWN
+# HOURLY BROADCASTING BREAKDOWN
 
 | Language | Original Programming Hours | | Total Broadcast Time | |
 |---|:---:|:---:|:---:|:---:|

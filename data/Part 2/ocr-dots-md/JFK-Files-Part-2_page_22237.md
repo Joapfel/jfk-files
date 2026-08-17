@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22237.png
-
-Convert to Markdown<table><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>Mr. Merchant<br>Mr. Mann ✓<br>Mr. Douglas<br>General Lansdale</td><td>Nov. 19, 1960</td><td>Mongoose<br>Special Group</td></tr></table>
+<table><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>Mr. Merchant<br>Mr. Mann ✓<br>Mr. Douglas<br>General Lansdale</td><td>Nov. 19, 1960</td><td>Mongoose<br>Special Group</td></tr></table>
 
 **OCCURRENCE:** The Special Group heard Mr. Merchant state his opinion that the only solution is to move the Guatemalan train activities to the United States even though the U. S. could probably not get away with this either. A number of alternative base sites for the training of the Cubans was considered both in the United States, in Puerto Rico, at the CIA site on Saipan or in the Panama Canal zone. Mr. Douglas felt the "U. S. capability for intervention in Cuba will probably not be effective enough unless there is more overt participation than has been contemplated to date." "Mr. Grey supported this general position, stating that when the current Cuban plan was approved, the situation in that country was different than it is now. Since then, the Cubans have received sizeable amounts of bloc arms and have organized a malitia. Mr. Gray wondered how a few hundred exiles could be." "Mr. Mann expressed the opinion that the way to proceed is to seal Cuba off from the rest of Latin America and settle down for a one- or two-year wait..."
 

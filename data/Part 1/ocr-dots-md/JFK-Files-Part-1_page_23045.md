@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23045.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">WASSAGE II &amp; III<br/>TOTAL COPY 29</td>
     <td colspan="2">ROUTING AND/OR INITIALS - SEEN BY</td>

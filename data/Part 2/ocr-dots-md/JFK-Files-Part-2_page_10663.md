@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10663.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Memorandum from M. V. Hale to Mr. S. M. McWeeney
 Re: Senate Select Committee on Intelligence (SSCI)

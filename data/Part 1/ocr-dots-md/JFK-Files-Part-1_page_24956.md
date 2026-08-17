@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24956.png
-
-Convert to MarkdownAttachment E to HSSW-2742
+Attachment E to HSSW-2742
 
 Dr. LUST M. GUTIERREZ
 ECONOMISTA

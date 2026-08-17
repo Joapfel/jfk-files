@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23663.png
-
-Convert to MarkdownNow my question is this. Assuming that we were to achieve all of the measures in the recommendations that we have here for the DCI budget and all the rest, it seems to me that that is an awful lot of work without having to be concerned with the day to day operations of the CIA.
+Now my question is this. Assuming that we were to achieve all of the measures in the recommendations that we have here for the DCI budget and all the rest, it seems to me that that is an awful lot of work without having to be concerned with the day to day operations of the CIA.
 
 I don't know. I first raise the question.
 

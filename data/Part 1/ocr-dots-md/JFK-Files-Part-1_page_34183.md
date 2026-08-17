@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34183.png
-
-Convert to MarkdownTABLE NO. 2
+TABLE NO. 2
 CUBAN SUGAR DEFICIT
 (1965)
 

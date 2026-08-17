@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14622.png
-
-Convert to Markdown# PENDING PROSECUTION - CASES DEVELOPED
+# PENDING PROSECUTION - CASES DEVELOPED
 PRIOR TO APRIL 1, 1960
 
 **JULIUS G. STAFF**, employed by J. G. Shoes, New York,

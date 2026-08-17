@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7251.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="4">CABLE SEC DISSEM BY ________ PER ________ TOTAL COPIES ________ F. BY ________</td>

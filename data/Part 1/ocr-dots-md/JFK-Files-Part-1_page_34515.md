@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34515.png
-
-Convert to Markdown# DEFECTORS
+# DEFECTORS
 
 | TAB | TITLE | DATE |
 |---|---|---|

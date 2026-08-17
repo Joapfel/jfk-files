@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11016.png
-
-Convert to MarkdownSECRET
+SECRET
 
 GROUP 1
 EXCLUDED FROM AUTOMATIC DOW-

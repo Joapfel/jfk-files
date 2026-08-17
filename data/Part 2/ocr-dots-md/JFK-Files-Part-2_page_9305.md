@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9305.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 VIRON REDWINE, a Detroit NCCF member is currently in BPP Headquarters Oakland, California, possibly performing some tasks for HUEY NEWTON.
 

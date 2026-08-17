@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22009.png
-
-Convert to MarkdownQ: Who kept a record of these three?
+Q: Who kept a record of these three?
 
 A: The case officers.
 

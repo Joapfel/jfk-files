@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34355.png
-
-Convert to MarkdownMEMORANDUM 1076
+MEMORANDUM 1076
 
 TO: Dr. Mario Seiglie Montoro
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27305.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A - Project PARAGON SECRET
 

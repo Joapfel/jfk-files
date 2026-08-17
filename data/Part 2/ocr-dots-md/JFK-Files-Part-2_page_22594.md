@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22594.png
-
-Convert to Markdownsince 1954. Other than Wiley's comment concerning Pennington and Sweany, previously mentioned, there is nothing else from Wiley concerning Sweany.
+since 1954. Other than Wiley's comment concerning Pennington and Sweany, previously mentioned, there is nothing else from Wiley concerning Sweany.
 
 ### HOWARD HUNT
 

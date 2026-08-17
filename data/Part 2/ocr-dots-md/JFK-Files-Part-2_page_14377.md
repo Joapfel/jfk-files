@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14377.png
-
-Convert to Markdown5/2/75
+5/2/75
 
 TO SACS ALEXANDRIA
 BALTIMORE

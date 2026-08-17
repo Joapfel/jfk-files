@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15300.png
-
-Convert to Markdown-2-
+-2-
 
 Germany before the father went. David's sister went to Berlin probably in 1941/1942 (no clear statement about this). In 1944 Simon, his wife and their daughter moved from Berlin to Vienna, Austria. In 1946 they came back to Paris, together with their son-in-law. In 1948, after the mother had died, Simon, together with the daughter and the son-in-law returned to USSR.
 

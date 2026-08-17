@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4936.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">ADVANCE COPY ISSUED/SLOTTED</th><th rowspan="2"></th><th rowspan="2">STAFF</th></tr><tr><td>ACTION UNIT</td><td>RF.</td><td>FILE</td><td>VR</td></tr></thead><tbody><tr><td>LAB</td><td></td><td></td><td>18/AN, D003, A2/5000,<br/>OR/ITB 4, NEB, CI 9, P5/EG2 056,<br/>S08 SIAZ,</td><td>1<br/>2<br/>3</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">ADVANCE COPY ISSUED/SLOTTED</th><th rowspan="2"></th><th rowspan="2">STAFF</th></tr><tr><td>ACTION UNIT</td><td>RF.</td><td>FILE</td><td>VR</td></tr></thead><tbody><tr><td>LAB</td><td></td><td></td><td>18/AN, D003, A2/5000,<br/>OR/ITB 4, NEB, CI 9, P5/EG2 056,<br/>S08 SIAZ,</td><td>1<br/>2<br/>3</td></tr></tbody></table>
 
 T 328732 EIA147
 

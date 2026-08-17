@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15993.png
-
-Convert to Markdownit seems that everyone associated with WerBell takes gun in hand for target
+it seems that everyone associated with WerBell takes gun in hand for target
 practice at one time or another. Bennett Bintliff, chairman of the board of
 Defense Systems International, plays marksman with a handgun
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27959.png
-
-Convert to Markdown# Confidential
+# Confidential
 
 ATTACHMENT B
 

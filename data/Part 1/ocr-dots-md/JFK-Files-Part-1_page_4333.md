@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4333.png
-
-Convert to Markdown# PROVINCIA DE CHICLAVO
+# PROVINCIA DE CHICLAVO
 
 ## Parque de Antigua de Oca
 

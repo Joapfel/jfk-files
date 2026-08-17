@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26310.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>SECRET<br/>(When Filled In)</td>
     <td>CLASSIFICATION - DISSEMINATION CONTROLS<br/>NO FOREIGN DISSEM/BACKGROUND USE ONLY/NO DISSEM ABROAD</td>

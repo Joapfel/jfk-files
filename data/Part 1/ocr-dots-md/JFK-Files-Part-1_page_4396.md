@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4396.png
-
-Convert to MarkdownSan Pedro Sula, Honduras . Cntro America.
+San Pedro Sula, Honduras . Cntro America.
 
 Marzo 18-1966.-
 

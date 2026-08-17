@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29226.png
-
-Convert to MarkdownOswald stated that he has two brothers, who reside, like his mother, in Fort Worth, Texas. He stated that his father, John Lee Oswald, is deceased.
+Oswald stated that he has two brothers, who reside, like his mother, in Fort Worth, Texas. He stated that his father, John Lee Oswald, is deceased.
 
 Oswald's mother: <u>Margarette Oswald</u>, resides by herself in
 Fort Worth, Texas.

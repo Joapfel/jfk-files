@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13349.png
-
-Convert to MarkdownOLSEN: Were you in Dallas at any time in November 1963?
+OLSEN: Were you in Dallas at any time in November 1963?
 
 STURGIS: I don't recall, sir, but I do know one thing I was not in Dallas on November--I believe it was--November 22, 1963, when President Kennedy was assassinated.
 

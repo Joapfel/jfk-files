@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30382.png
-
-Convert to MarkdownIUP SECRET
+IUP SECRET
 
 the current policy was then.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21910.png
-
-Convert to Markdownfrom UN custody and that he had no foreknowledge of Lumumba's plan (Hedgman, 8/21/75, pp. 63-64). He stated that he consulted with Congolese officers about the possible routes Lumumba might take to Stanleyville, but he was "not a major assistance" in tracking down Lumumba prior to his capture (Hedgman, 8/21/75, p. 65).
+from UN custody and that he had no foreknowledge of Lumumba's plan (Hedgman, 8/21/75, pp. 63-64). He stated that he consulted with Congolese officers about the possible routes Lumumba might take to Stanleyville, but he was "not a major assistance" in tracking down Lumumba prior to his capture (Hedgman, 8/21/75, p. 65).
 
 Despite the fact that (O'Donnell) had planned to draw Lumumba out of UN custody and turn him over to Congolese authorities, he insisted that Lumumba escaped by his own devices and was not tricked by the CIA (O'Donnell, 9/11/75, p. 22).
 

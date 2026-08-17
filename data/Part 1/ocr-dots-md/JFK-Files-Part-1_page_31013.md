@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31013.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table> <table><tr><td>MARSHALL, T. J.</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table> <table><tr><td>MARSHALL, T. J.</td></tr></table>
 
 <table><tr><td>MOBILE CHIEF OF RATION</td></tr></table>
 

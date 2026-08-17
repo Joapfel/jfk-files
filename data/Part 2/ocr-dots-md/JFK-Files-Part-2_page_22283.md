@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22283.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Schwarz. November 1961?
 2. Mr. Breckinridge. I think that is probably correct. It

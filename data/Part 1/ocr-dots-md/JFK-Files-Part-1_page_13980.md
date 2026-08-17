@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13980.png
-
-Convert to MarkdownSECRET
+SECRET
 AIDAT
 
 the Cuban Tobacco in Moscow, 1967/1968. In introducing PEREIRA, REYES stressed that VUHABIT/1 should feel free to discuss any subject with him, and in turn told PEREIRA that he should call upon VUHABIT/1 whenever PEREIRA needed advice or help. While AVRGOX trades did not reveal any intelligence affiliation for PEREIRA, the Base and local INLRCO strongly suspect that PEREIRA is a DGI officer. His behavior in the future months will undoubtedly confirm or deny this.

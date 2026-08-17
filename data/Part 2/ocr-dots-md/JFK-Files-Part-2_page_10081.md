@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10081.png
-
-Convert to MarkdownOFFICE OF THE DIRECTOR
+OFFICE OF THE DIRECTOR
 
 SECRET
 

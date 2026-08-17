@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2732.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (when filled in)
 
 MANAGEMENT BY OBJECTIVES SEMINAR

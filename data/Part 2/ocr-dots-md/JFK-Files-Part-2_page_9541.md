@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9541.png
-
-Convert to MarkdownIt seems that the Government is attempting to destroy the Black Panther Party by involving them and their supporters in legal fighting and keeping their members in jail with high Bails.
+It seems that the Government is attempting to destroy the Black Panther Party by involving them and their supporters in legal fighting and keeping their members in jail with high Bails.
 
 The Police say that after they harassed attempted to brutalize the NCOF members 14th and Myrtle, the brothers ran into the Police headquarters on 16th Street. The Police had the same excuse to justify their assault the New Bethel Church on March 29, of last
 

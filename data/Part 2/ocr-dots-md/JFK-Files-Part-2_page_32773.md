@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32773.png
-
-Convert to Markdownand increased dependability inherent in a joint
+and increased dependability inherent in a joint
 program.
 
 - The General Dynamics proposal reflected a more

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10820.png
-
-Convert to MarkdownDr. J. McKenzie
+Dr. J. McKenzie
 
 **CUENCA.** De la Batería, can que el Pepe Largo alecia el mes結果 La forma masculina de dejarse crear al pepe causa la baja de trabajos. 15 barberías del S.W. (mayoría latinas) son los principales. Si se cambiará la costumbre se solucionará a normar los pelazgos. Parece que les barbersías elevan el precio de $2.25 a $2.75. Eso si es grave.
 

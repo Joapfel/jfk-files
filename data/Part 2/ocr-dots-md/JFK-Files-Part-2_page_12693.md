@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12693.png
-
-Convert to Markdown(2) Security index subjects considered for priority II. All individuals who are considered to be of second level leadership of basic revolutionary organizations and other subversive organizations and individuals who present significant threat but are in less influential positions than those in priority I
+(2) Security index subjects considered for priority II. All individuals who are considered to be of second level leadership of basic revolutionary organizations and other subversive organizations and individuals who present significant threat but are in less influential positions than those in priority I
 
 (3) All other security index subjects will be tabbed priority III.
 

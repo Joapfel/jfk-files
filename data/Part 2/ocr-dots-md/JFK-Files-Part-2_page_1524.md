@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1524.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEMORANDUM FOR: Director of Personnel
 VIA: Director of Security Attn: Chief, Policy Staff

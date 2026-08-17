@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22837.png
-
-Convert to MarkdownPhone (Area 202) 544-8000
+Phone (Area 202) 544-8000
 
 WARD & PAUL
 

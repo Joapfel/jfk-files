@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7390.png
-
-Convert to MarkdownADMI...STRATIVE INTERNAL USE OF...
+ADMI...STRATIVE INTERNAL USE OF...
 
 House Armed Services
 Subcommittee on

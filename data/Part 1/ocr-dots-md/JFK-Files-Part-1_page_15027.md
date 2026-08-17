@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15027.png
-
-Convert to Markdown1630
+1630
 
 Chris called to inform us that CARAVEL had called to inform him
 that Subject was not listed under the two names we had given him and

@@ -1,4 +1,2 @@
-# JFK-Files-Part-1_page_3561.png
-
-Convert to MarkdownOffice of Security Investigative
+Office of Security Investigative
 Reports

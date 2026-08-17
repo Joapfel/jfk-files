@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14815.png
-
-Convert to MarkdownFailed to appear in Federal Court for commitment to prison on July 2, 1951. He remained a fugitive until his surrender on March 6, 1956, as a result of which he received an additional three-year sentence for contempt of court. Winston remained in prison until his sentence was commuted by President Kennedy, on June 30, 1957, for reason of health.
+Failed to appear in Federal Court for commitment to prison on July 2, 1951. He remained a fugitive until his surrender on March 6, 1956, as a result of which he received an additional three-year sentence for contempt of court. Winston remained in prison until his sentence was commuted by President Kennedy, on June 30, 1957, for reason of health.
 
 On August 3, 1961, the Department of Justice, in view of Winston's physical condition, dismissed the defendant against Winston which had been placed because of his indictment under the Smith Act. Winston's indictment under the Smith Act was dismissed on May 29, 1963.
 

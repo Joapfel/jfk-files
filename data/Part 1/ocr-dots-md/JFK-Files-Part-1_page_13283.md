@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13283.png
-
-Convert to Markdown<table><tr><td>INS. YES NO</td></tr><tr><td>CL 11 A FILE NO.</td></tr><tr><td>A-REF FILE NO.</td></tr><tr><td>FILE ID</td></tr><tr><td>DESTROY</td></tr></table>
+<table><tr><td>INS. YES NO</td></tr><tr><td>CL 11 A FILE NO.</td></tr><tr><td>A-REF FILE NO.</td></tr><tr><td>FILE ID</td></tr><tr><td>DESTROY</td></tr></table>
 
 CLASSIFIED MESSAGE TOTAL COPIES 19
 

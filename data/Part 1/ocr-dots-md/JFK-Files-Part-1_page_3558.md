@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3558.png
-
-Convert to MarkdownAMWORLD Meeting in New Orleans, 29 Feb to 1 March 1964
+AMWORLD Meeting in New Orleans, 29 Feb to 1 March 1964
 
 SUBJECT: Galley Proofs of Book, "Bay of Pigs"
 

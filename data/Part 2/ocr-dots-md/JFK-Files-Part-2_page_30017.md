@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30017.png
-
-Convert to MarkdownDATE      01/06/78      U. S. HOUSE OF REPRESENTATIVES          PAGE      1212
+DATE      01/06/78      U. S. HOUSE OF REPRESENTATIVES          PAGE      1212
 REPORT ID   D01.00.00      PAYROLL CERTIFICATION                  MIN
 ACCOUNTING PERIOD   12/01/77 TO 12/31/77      MAX
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17277.png
-
-Convert to Markdown(9/18/69)
+(9/18/69)
 
 These doctors are involved in some manner
 with the BPP medical center; however, the extent of

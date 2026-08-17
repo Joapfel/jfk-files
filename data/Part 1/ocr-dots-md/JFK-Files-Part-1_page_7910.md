@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7910.png
-
-Convert to MarkdownJanuary 187
+January 187
 
 SUBJECT: Progress Report/ E.C.27-5 (2 November 1966 - 15 January 1967)
 

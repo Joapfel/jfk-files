@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9716.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 was determined that ROBERTSON's office maintains for distribution
 1/1000 scale maps of the entire District of Columbia sewer system

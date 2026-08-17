@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9456.png
-
-Convert to MarkdownOne more warning before placing bottle with gas and acid into soapy water make sure outside of bottle is clear and is not contaminated with a acid.
+One more warning before placing bottle with gas and acid into soapy water make sure outside of bottle is clear and is not contaminated with a acid.
 
 PEOPLE'S HANDGRENADE
 

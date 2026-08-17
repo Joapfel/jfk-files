@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25804.png
-
-Convert to Markdown# Flash from Dallas
+# Flash from Dallas
 
 Just as Secret Service men reacted instinctively, rushing to protect the presidential party, reporters reacted instinctively to get the news—sketchy as it was at first—to the world. United Press International's Merriman Smith, dean of the White House correspondents, describes on pages 32–33 his frantic rush to call the Dallas UPI bureau. Reproduced here is the result of Smith's first efforts—the actual Teletype copy that almost immediately clacked out of hundreds of UPI machines in newsrooms, radio and television stations, pressrooms, and business offices all over the world.
 

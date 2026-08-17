@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18319.png
-
-Convert to MarkdownSeptember 18, 1975
+September 18, 1975
 
 I. Democratic National Convention 1968
 

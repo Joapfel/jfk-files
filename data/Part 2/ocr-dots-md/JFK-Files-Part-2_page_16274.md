@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16274.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 WALTER ALLEN
 

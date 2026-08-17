@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7504.png
-
-Convert to Markdown14-0000
+14-0000
 
 CONFIDENTIAL
 51-9

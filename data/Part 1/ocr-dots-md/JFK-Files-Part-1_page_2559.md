@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2559.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ANNEX C - THE CHEREPANOV PAPERS
 

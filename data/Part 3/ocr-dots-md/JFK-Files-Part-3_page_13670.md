@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13670.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 that part of it, Senator. Again, only from the record that I
 read afterwards, I think a couple of drops were made to him.

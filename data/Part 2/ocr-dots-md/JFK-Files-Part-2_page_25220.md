@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25220.png
-
-Convert to Markdown<table><tr><td colspan="2">PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>MCCONE</td><td>NHU</td><td>Oct.25, 1963</td><td>DIEM ✓</td></tr><tr><td>KENNEDY, JOHN F.</td><td></td><td></td><td></td></tr><tr><td>LODGE</td><td></td><td></td><td></td></tr><tr><td>DIEM</td><td></td><td></td><td></td></tr></table>
+<table><tr><td colspan="2">PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>MCCONE</td><td>NHU</td><td>Oct.25, 1963</td><td>DIEM ✓</td></tr><tr><td>KENNEDY, JOHN F.</td><td></td><td></td><td></td></tr><tr><td>LODGE</td><td></td><td></td><td></td></tr><tr><td>DIEM</td><td></td><td></td><td></td></tr></table>
 
 ## OCCURRENCE:
 

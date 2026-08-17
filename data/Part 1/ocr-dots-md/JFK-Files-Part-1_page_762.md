@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_762.png
-
-Convert to Markdown104-10072-10013
+104-10072-10013
 
 CENTRAL INTELLIGENCE AGENCY
 

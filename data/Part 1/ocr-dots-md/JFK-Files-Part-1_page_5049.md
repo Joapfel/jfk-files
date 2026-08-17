@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5049.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">ADVANCE COPY PROD/SOLD BY</th><th>BY</th><th>AT</th><th>STAFF</th></tr></thead><tbody><tr><td>ACTION UNIT</td><td rowspan="3">INFO</td><td rowspan="3">RF. FILE</td><td rowspan="3">VR.</td><td>1</td><td>4</td></tr><tr><td></td><td>2</td><td>3</td></tr><tr><td></td><td>3</td><td>6</td></tr></tbody></table>
 

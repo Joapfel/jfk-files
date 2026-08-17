@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2373.png
-
-Convert to Markdown# B. Diplomatic Establishments and Intelligence Operations
+# B. Diplomatic Establishments and Intelligence Operations
 
 ## 1. Soviet and Satellite
 

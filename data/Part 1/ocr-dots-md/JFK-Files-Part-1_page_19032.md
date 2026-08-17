@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19032.png
-
-Convert to MarkdownSECRET
+SECRET
 
 served to block NPD growth, has now become even less acceptable than before to the SPD, which would have lost three-fifths of its Baden-Wuerttemberg seats under this system.
 

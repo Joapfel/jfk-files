@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9280.png
-
-Convert to Markdown15 Sept. 1990
+15 Sept. 1990
 
 To BORIS SHOB.
 

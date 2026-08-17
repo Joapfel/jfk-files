@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6304.png
-
-Convert to Markdownslain by Cook County States Attorney Officers, December 4,
+slain by Cook County States Attorney Officers, December 4,
 1969, who at the time were executing a search warrant in
 Chicago, Illinois.
 

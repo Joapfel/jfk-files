@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15574.png
-
-Convert to MarkdownLR:
+LR:
 
 At the Trinity church, two small boys and six teen-agers waited outside for more than an hour but nobody came with the key to open the building. One of the boys finally went to a nearby grocery and purchased a bag of potato chips which he shared with his companion.
 

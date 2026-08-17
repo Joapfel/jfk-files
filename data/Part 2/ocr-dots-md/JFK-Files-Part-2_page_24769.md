@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24769.png
-
-Convert to Markdownat the February 10 or February 15 meetings included poisoning Trujillo's food or medicines, ambushing his automobile, and attacking him with firearms and grenades. (CIA memo for the record, 2/13/61; 2/16/61)*
+at the February 10 or February 15 meetings included poisoning Trujillo's food or medicines, ambushing his automobile, and attacking him with firearms and grenades. (CIA memo for the record, 2/13/61; 2/16/61)*
 
 The dissidents' "latest plot", as described in the February CIA memoranda, was said to involve the planting of a powerful bomb, which could be detonated from a nearby electric device, along the route of Trujillo's evening walk. (Id.)
 

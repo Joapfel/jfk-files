@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22597.png
-
-Convert to MarkdownPage (Area 207) 544-4088
+Page (Area 207) 544-4088
 
 TESTIMONY OF
 James Angleton

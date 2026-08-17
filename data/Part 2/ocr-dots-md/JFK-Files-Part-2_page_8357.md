@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8357.png
-
-Convert to Markdown9 May 1951
+9 May 1951
 
 MEMORANDUM FOR THE RECORD
 

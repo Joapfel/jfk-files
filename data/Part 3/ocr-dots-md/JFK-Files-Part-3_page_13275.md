@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13275.png
-
-Convert to MarkdownTelephone Items from Diary of Mr. Dulles
+Telephone Items from Diary of Mr. Dulles
 
 22 November 1963 - 3 P.M.
 

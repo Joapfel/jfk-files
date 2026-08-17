@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3046.png
-
-Convert to MarkdownC.A.O.: RINCO
+C.A.O.: RINCO
 SUBC.50: MIGUEL
 RILL 12
 LA 7

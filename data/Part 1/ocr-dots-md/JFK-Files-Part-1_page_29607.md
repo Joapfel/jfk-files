@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29607.png
-
-Convert to MarkdownUNITED STATES CIVIL SERVICE COMMISSION
+UNITED STATES CIVIL SERVICE COMMISSION
 
 Bureau of Retirement, Insurance, and Occupational Health
 Washington, D.C. 20415

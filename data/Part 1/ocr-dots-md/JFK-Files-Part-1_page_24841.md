@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24841.png
-
-Convert to Markdown# IDENTITIES
+# IDENTITIES
 
 Edward G. TICHBORN
 Henry R. Lopez

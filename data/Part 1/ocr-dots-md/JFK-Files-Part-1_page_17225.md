@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17225.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr><tr><td>TO : Chief, WII Division</td></tr><tr><td>INFO</td></tr><tr><td>FROM : Chief of Station, Mexico City</td></tr><tr><td>SUBJECT: LIEMPTY Project Renewal</td></tr><tr><td>ACTION REQUIRED: Renewal of Project.</td></tr><tr><td>REFERENCES</td></tr></table>
+<table><tr><td>DISPATCH</td></tr><tr><td>TO : Chief, WII Division</td></tr><tr><td>INFO</td></tr><tr><td>FROM : Chief of Station, Mexico City</td></tr><tr><td>SUBJECT: LIEMPTY Project Renewal</td></tr><tr><td>ACTION REQUIRED: Renewal of Project.</td></tr><tr><td>REFERENCES</td></tr></table>
 
 Attached are the requisite number of copies of the Request for Renewal of Project LIEMPTY.
 

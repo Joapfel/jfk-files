@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31415.png
-
-Convert to MarkdownMEMORANDUM COPY
+MEMORANDUM COPY
 
 CARRIER FURNISHED
 DELIVERY-

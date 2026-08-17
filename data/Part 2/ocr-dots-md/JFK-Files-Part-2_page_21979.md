@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21979.png
-
-Convert to MarkdownDate:10/08/93
+Date:10/08/93
 Page:1
 
 JFK ASSASSINATION SYSTEM

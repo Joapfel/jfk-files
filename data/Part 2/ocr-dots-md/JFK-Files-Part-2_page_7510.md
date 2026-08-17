@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7510.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Juriy Ivanovich MOSKALEV
 

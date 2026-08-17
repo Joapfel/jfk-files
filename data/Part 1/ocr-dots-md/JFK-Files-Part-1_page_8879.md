@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8879.png
-
-Convert to MarkdownResimler
+Resimler
 Eskişehir City Hall
 
 Office of Finance

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33926.png
-
-Convert to Markdown- 14 -
+- 14 -
 
 CHICAGO, ILLINOIS
 

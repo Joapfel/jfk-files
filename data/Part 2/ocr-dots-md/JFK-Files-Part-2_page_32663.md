@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32663.png
-
-Convert to Markdownwere flown each month, weather permitting, until September, 1962, when the number of flights was increased.
+were flown each month, weather permitting, until September, 1962, when the number of flights was increased.
 
 Also, even before 1962, regular electronic reconnaissance and photographic flights were flown by the military on a regular basis over international waters but not over the Island of Cuba itself.
 

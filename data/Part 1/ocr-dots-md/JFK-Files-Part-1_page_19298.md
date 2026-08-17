@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19298.png
-
-Convert to MarkdownDATE 12/6/1949
+DATE 12/6/1949
 
 TO : Mrs. Firmin, Contact
 FROM: Personnel Officer

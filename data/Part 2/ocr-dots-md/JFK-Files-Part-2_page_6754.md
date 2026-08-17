@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6754.png
-
-Convert to Markdown13-00000
+13-00000
 
 CIA SPECIFICATIONS
 REDACTED

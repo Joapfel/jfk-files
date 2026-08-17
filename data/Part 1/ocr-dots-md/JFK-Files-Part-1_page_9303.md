@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9303.png
-
-Convert to MarkdownMR. BRYAN:
+MR. BRYAN:
 
 a given to Jia Jensen,
 

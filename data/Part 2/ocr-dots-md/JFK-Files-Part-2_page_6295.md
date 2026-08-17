@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6295.png
-
-Convert to MarkdownTHE ASSASSINATION RECORDS
+THE ASSASSINATION RECORDS
 
 In identifying relevant records, we have followed the definitions in the 1992 Act and the related rules which were published in the Federal Register.
 

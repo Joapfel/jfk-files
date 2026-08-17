@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2212.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 OPTIONAL FORM NO. 10
 5010-104

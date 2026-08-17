@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23892.png
-
-Convert to MarkdownHe is in contact with Grippa and with Maspero but very unhappy about the political line of Maspero's paper.
+He is in contact with Grippa and with Maspero but very unhappy about the political line of Maspero's paper.
 
 She went to Albania (anniv of Albanian rev.) and some other people from the October group. Went to reproach them for the aid they had given Billiard Denver. Guillard. His wife does many things he can't do because he is a foreigner. She would act as his agent - did not go in her own - size. He doesn't have much to do with Albanians. Her trip gave him a better impression. But she thought the Albanians were better informed about Europe and party in Europe than the Chinese.
 

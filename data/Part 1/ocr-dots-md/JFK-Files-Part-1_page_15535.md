@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15535.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **Languages and Dialects:**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6952.png
-
-Convert to Markdown# The Rise and Decline of Fidel Castro
+# The Rise and Decline of Fidel Castro
 
 by Maurice Halperin
 (University of California Press; $12.95)

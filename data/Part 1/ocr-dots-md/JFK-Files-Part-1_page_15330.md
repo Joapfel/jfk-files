@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15330.png
-
-Convert to MarkdownC. 76. a. Give as many names and addresses of people for whom you prepared false documentation as you remember.
+C. 76. a. Give as many names and addresses of people for whom you prepared false documentation as you remember.
 
 b. Have you prepared documents for mass-transportation except those for your parents and sister from Berlin to Vienna?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23212.png
-
-Convert to Markdown(4) Special groups to be contacted: While subject will be concerned principally with the local Communist party, it is not necessary for him to have personal access to any special group.
+(4) Special groups to be contacted: While subject will be concerned principally with the local Communist party, it is not necessary for him to have personal access to any special group.
 
 (5) Approximate annual income to be attributed to cover: $10,000 (including allowances).
 

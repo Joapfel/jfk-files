@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6258.png
-
-Convert to Markdown# LIBERADOS" POR LOS COMUNISTAS
+# LIBERADOS" POR LOS COMUNISTAS
 
 ## Pruebas graficas de las mentiras marxistas sobre los verdaderos sucesos del Congo
 

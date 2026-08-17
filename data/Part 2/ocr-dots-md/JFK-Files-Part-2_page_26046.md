@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26046.png
-
-Convert to Markdown-76-
+-76-
 
 O'BRIEN: Is this terrorism campaign on the local officials as serious as some of the people have written, about it?
 

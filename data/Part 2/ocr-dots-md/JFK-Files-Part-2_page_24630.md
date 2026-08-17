@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24630.png
-
-Convert to Markdown# 4. The Plot to Assassinate Lumumba
+# 4. The Plot to Assassinate Lumumba
 
 In the fall of 1960, a scientist from CIA headquarters delivered to the Chief of Station in Leopoldville lethal biological substances to be used to assassinate Patrice Lumumba.
 

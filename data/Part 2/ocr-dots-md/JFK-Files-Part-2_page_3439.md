@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3439.png
-
-Convert to Markdownc. Exclude routine travel information and CI/CS information from SOS and CS reports; and,
+c. Exclude routine travel information and CI/CS information from SOS and CS reports; and,
 
 d. Use the cable channel only for reports that are perishable or are of special intelligence interest.
 

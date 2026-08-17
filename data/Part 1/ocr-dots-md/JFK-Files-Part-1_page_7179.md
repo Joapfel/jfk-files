@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7179.png
-
-Convert to MarkdownIn the contact report of 12 April, Subject reported that LOGINOV had visited his store during the evening of 6 April and made a long-distance phone call to Cuernavaca. At our meeting on 1 June he produced the phone bill with the phone number on it. According to the bill, the call was made to phone number 2-50-65 which agrees with the number given to us by Subject in April. Mike F. checked this number and found it listed to
+In the contact report of 12 April, Subject reported that LOGINOV had visited his store during the evening of 6 April and made a long-distance phone call to Cuernavaca. At our meeting on 1 June he produced the phone bill with the phone number on it. According to the bill, the call was made to phone number 2-50-65 which agrees with the number given to us by Subject in April. Mike F. checked this number and found it listed to
 
 Moses Gamero de la Fuente
 Callejon H. Preciado Numero 4

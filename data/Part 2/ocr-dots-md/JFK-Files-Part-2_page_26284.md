@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26284.png
-
-Convert to MarkdownSECRET
+SECRET
 
 possibility that the Geneva Conference will be prolonged indefinitely and that meanwhile the PL will take over Southern Laos piece by piece and bit by bit as it appears to be doing. I wonder whether you want to check again with Alexis Johnson on the status of contingency planning? I wonder whether it isn't about time to have the NSC and the President review the Laos situation?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2150.png
-
-Convert to Markdown# POSITION CONTROL REGISTER
+# POSITION CONTROL REGISTER
 
 <table>
     <tbody>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24464.png
-
-Convert to Markdownwas, that there were those pills in that restau-
+was, that there were those pills in that restau-
 rant in Cuba and Castro was about to die, I cer-
 tainly would have talked to McCone about it.
 And this never was that clear, I am sorry to say,

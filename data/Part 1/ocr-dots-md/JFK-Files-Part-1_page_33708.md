@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33708.png
-
-Convert to MarkdownMiss Augustin advised that
+Miss Augustin advised that
 
 3. so far as she knew the Socialist Union of Central and Eastern Europe (founded in June, 1951) has never a, preached PCI for support and for recognition. In October 1951 the Central European Federation of Christian Trade Unions was formed and soon after a, preached PCI for support.
 

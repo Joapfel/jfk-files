@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18889.png
-
-Convert to Markdown<table><thead><tr><td colspan="2"><table><tbody><tr><td>Position</td><td>Clerk-Stono LV30 CAF-5 $2320 per annum BI</td></tr><tr><td>Grade and salary</td><td>CAF-5 $2320 per annum BI</td></tr><tr><td>Branch</td><td>CAF-5 $2320 per annum BI</td></tr><tr><td>Division</td><td>CAF-5 $2320 per annum BI</td></tr><tr><td>Section</td><td>CAF-5 $2320 per annum BI</td></tr><tr><td>Headquarters</td><td>Shanghai, China Washington, D.C.</td></tr><tr><td>Departmental or Field</td><td>Field Washington, D.C. Field*</td></tr></tbody></table></td></tr></thead><tfoot><tr><td>REMARKS:</td><td>*Not to exceed 90 days within continental U.S.</td></tr></tfoot></table>
+<table><thead><tr><td colspan="2"><table><tbody><tr><td>Position</td><td>Clerk-Stono LV30 CAF-5 $2320 per annum BI</td></tr><tr><td>Grade and salary</td><td>CAF-5 $2320 per annum BI</td></tr><tr><td>Branch</td><td>CAF-5 $2320 per annum BI</td></tr><tr><td>Division</td><td>CAF-5 $2320 per annum BI</td></tr><tr><td>Section</td><td>CAF-5 $2320 per annum BI</td></tr><tr><td>Headquarters</td><td>Shanghai, China Washington, D.C.</td></tr><tr><td>Departmental or Field</td><td>Field Washington, D.C. Field*</td></tr></tbody></table></td></tr></thead><tfoot><tr><td>REMARKS:</td><td>*Not to exceed 90 days within continental U.S.</td></tr></tfoot></table>
 
 * [ ] Subject to 5% deduction for the Civil Service Retirement and Disability Fund.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31265.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
   <caption>CAREER SERVICE QUESTIONNAIRE</caption>

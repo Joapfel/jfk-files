@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12652.png
-
-Convert to Markdown7-71 WFC. 10/75
+7-71 WFC. 10/75
 
 CABLE SEC DIBSEM BY __6__ PER LA6 TOTAL COPIES 33-2 RUN BY2
 

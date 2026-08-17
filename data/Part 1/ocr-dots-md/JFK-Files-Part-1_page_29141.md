@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29141.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 FORM 1273

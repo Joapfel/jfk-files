@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3335.png
-
-Convert to MarkdownSECRET/EXHAT
+SECRET/EXHAT
 
 UNDER SEPARATE COVER ATTACHMENT TO令073063, dated 29 June 84
 

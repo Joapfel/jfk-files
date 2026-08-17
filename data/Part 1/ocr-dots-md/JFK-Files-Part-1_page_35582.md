@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35582.png
-
-Convert to MarkdownCUSTOMER RECEIPT - MONEY ORDER
+CUSTOMER RECEIPT - MONEY ORDER
 
 7-002577
 

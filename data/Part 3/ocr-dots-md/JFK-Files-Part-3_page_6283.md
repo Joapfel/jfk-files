@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6283.png
-
-Convert to Markdownd. The document which was the "current revision of the previous analysis captioned 'Communism and the Negro Movement - A Current Analysis'." and which document was enclosed with Mr. Brennan's April 10, 1967 memorandum to Mr. Sullivan captioned "Communist Influence in Racial Matters - A Current Analysis."
+d. The document which was the "current revision of the previous analysis captioned 'Communism and the Negro Movement - A Current Analysis'." and which document was enclosed with Mr. Brennan's April 10, 1967 memorandum to Mr. Sullivan captioned "Communist Influence in Racial Matters - A Current Analysis."
 
 e. The "current study" entitled "Martin Luther King, Jr. - A Current Analysis" which was enclosed with Director Hoover's March 14, 1968 letter to Mrs. Mildred Stegall.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25049.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 little different view of this. I think he had a view that
 the press looked on the President as someone who was not in

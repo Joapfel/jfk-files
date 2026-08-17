@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23463.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 12 August 1960

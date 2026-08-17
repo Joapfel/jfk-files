@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15562.png
-
-Convert to MarkdownV. EVIDENCE OF NATIONAL
+V. EVIDENCE OF NATIONAL
 UNITY
 
 On August 12, 1969, SAM NAPIER, from the National Office of the BPP, was informed by LIDA HARRISON, from the Illinois BPP Office, that LIDA had $700 for the National BPP Office and NAPIER indicated that she should send it to the National Office at once by telegram. NAPIER also indicated that he would send 5,000 papers to the Illinois BPP headquarters next time instead of the 10,000 copies that had been sent previously.

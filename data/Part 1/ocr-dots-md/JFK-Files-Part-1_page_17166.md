@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17166.png
-
-Convert to MarkdownC. As in the past, Raymond H. GERINDE will submit semi-monthly accountings for all Project expenditures with appropriate receipts or certifications. There will be no requirements for foreign currency beyond the Station's capability to provide.
+C. As in the past, Raymond H. GERINDE will submit semi-monthly accountings for all Project expenditures with appropriate receipts or certifications. There will be no requirements for foreign currency beyond the Station's capability to provide.
 
 ### 8. EMERGENCY CONDITIONS
 

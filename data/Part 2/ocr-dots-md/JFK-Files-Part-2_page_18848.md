@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18848.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 that he had read this also. JAFFE expressed considerable concern about receiving action on his proposal and then asked if SMIRNOVSKY knew of any place in the U. S. where one could buy Russian vodka and SMIRNOVSKY said he did not.
 

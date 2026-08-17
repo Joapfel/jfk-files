@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33706.png
-
-Convert to Markdown-6-
+-6-
 
 As the new President of NUT, it might be the time to take up the matter again with a new personality fresh on the scene, and that in such a way it could reasonably be possible to get over the hump of the present duplicative situation.
 

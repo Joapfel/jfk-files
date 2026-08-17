@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22541.png
-
-Convert to Markdownthe Foreign Ministry of that country. The Vietnamese Government will pay all his transportation and living costs while on the trip and the invitation resulted from urgings by Nguyen Quoc Ten, press officer of the Vietnamese mission to the U.N. in New York City. Wiley was certain that his reputation as a friend of the Vietnamese triggered the invitation.
+the Foreign Ministry of that country. The Vietnamese Government will pay all his transportation and living costs while on the trip and the invitation resulted from urgings by Nguyen Quoc Ten, press officer of the Vietnamese mission to the U.N. in New York City. Wiley was certain that his reputation as a friend of the Vietnamese triggered the invitation.
 
 Approval was given him to make the trip; however,
 his request to extend the trip through other places

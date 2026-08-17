@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_24.png
-
-Convert to Markdownthat Ceausescu and Maurer had complained to Shelepin that the USSR acts on
+that Ceausescu and Maurer had complained to Shelepin that the USSR acts on
 the international scene without consulting its allies, just as in Stalin's time.
 
 The Rumanians cited the 1962 missile adventure in Cuba and Soviet positions

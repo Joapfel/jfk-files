@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4493.png
-
-Convert to Markdown10 SEP 1965
+10 SEP 1965
 
 TO: Director
 Federal Bureau of Investigation

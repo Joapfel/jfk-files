@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11349.png
-
-Convert to Markdownselecting key figures in the labor field, give consideration to the critical nature of the industry or trade involved and the fact that certain industries, such as transportation and communication, are particularly vulnerable to Communist infiltration and sudden disruptive action.
+selecting key figures in the labor field, give consideration to the critical nature of the industry or trade involved and the fact that certain industries, such as transportation and communication, are particularly vulnerable to Communist infiltration and sudden disruptive action.
 
 V. Editors, publishers and business managers of generally recognized Communist publications or Communist publishing houses and operators of the important Communist bookstores
 

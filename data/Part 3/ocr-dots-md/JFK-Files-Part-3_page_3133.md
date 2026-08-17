@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_3133.png
-
 s at the time, said that they took it to mean a
 suggestion that he take his own life.
 

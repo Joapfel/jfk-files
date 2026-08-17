@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19480.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TRAINING REPORT
 

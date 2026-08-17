@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8179.png
-
-Convert to Markdown13-00000
+13-00000
 
 MAGAZINE OF
 STUDENTS FOR A DEMOCRATIC SOCIETY

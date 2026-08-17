@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8242.png
-
-Convert to MarkdownINTERVIEW TECHNIQUES, COVER, ETC.
+INTERVIEW TECHNIQUES, COVER, ETC.
 
 At the first meeting and the one the next day before I made the main trip, my principal local political contact presented a possible cost of operations in the coming election. I asked him if it were a realistic figure and whether his analysis were realistic. He admitted that it really wasn't and I told him to go back and sharpen his pencil and sit down and talk sense. It was therefore agreed that when I came back from my trip we would sit down and go over it district by district, and problem by problem. He and his political cohort tried to lay out an itinerary for me and they recommended the people I would see in each town. Our boy there dutifully wrote down all these names for me and then we very dutifully threw the list away when it was all over and we started making up our own list. Some of the people you gave me I included in the list and saw. Also, our boy had a number of people. We both agreed that this trip would have to be played by ear, since after you arrive you have a better idea of what you are doing. The only strategy that we really agreed on was that I would take a plane and fly from the south up.
 

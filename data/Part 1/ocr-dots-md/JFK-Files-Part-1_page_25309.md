@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25309.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MARTINEZ, Carlos (mz)
 Cerradode Vallarta no. 10

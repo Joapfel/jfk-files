@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6685.png
-
-Convert to Markdown13-00000
+13-00000
 
 view, therefore, condition number (3) has been satisfied. Accordingly, with the exception of the case of Hurwitz v. United States, there appear to be no ongoing court cases relating to MHCHAOS or HTLINGUAL files that necessitate the retention of those materials. All HTLINGUAL materials relating to Leo T. Hurwitz, therefore, should be retained. In addition, any records pertaining to Dr. Sidney M. Peck (Peck v. CIA) should be retained. I am not aware of any other matters that would require retention of the files at the present time, but you should contact the Agency's FOIA Coordinator to determine if there are any outstanding FOIA or Privacy Act requests relating to MHCHAOS or HTLINGUAL that should not be destroyed. If so, materials should be retained in accordance with the requirements of the Records Disposal List. Finally, of course, information that the Agency must maintain that is of foreign intelligence value also should not be destroyed.
 

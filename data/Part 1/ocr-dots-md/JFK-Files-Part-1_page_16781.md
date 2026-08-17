@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16781.png
-
-Convert to Markdown13 March 1958
+13 March 1958
 
 The Rapacki Plan
 

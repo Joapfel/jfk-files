@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31972.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="3">AGENCY REPORT<br/>(AR 381-130; FM 30-17)</td>
     <td>amr</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34587.png
-
-Convert to MarkdownEMERGENCY DISTRACTIONS
+EMERGENCY DISTRACTIONS
 
 (Continued)
 

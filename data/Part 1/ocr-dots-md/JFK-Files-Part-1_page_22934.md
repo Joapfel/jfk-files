@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22934.png
-
-Convert to MarkdownSECRET
+SECRET
 
 45. If subject's duties are to be other than intelligence gathering, explain.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22234.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Lansdale<br/>Greeves</td><td>31 Oct 1962</td><td>Operation Mongoose</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Lansdale<br/>Greeves</td><td>31 Oct 1962</td><td>Operation Mongoose</td></tr></tbody></table>
 
 NO OBJECTION
 NATIONAL SECURITY COUNCIL

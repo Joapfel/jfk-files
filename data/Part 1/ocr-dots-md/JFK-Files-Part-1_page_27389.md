@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27389.png
-
-Convert to MarkdownARTICLE VI. **Retirement.** The employee obtains a separation with the Union, without notice, if the Government requires it, and the employee agrees to leave the United States with all his property, liabilities and other charges, except those of service.
+ARTICLE VI. **Retirement.** The employee obtains a separation with the Union, without notice, if the Government requires it, and the employee agrees to leave the United States with all his property, liabilities and other charges, except those of service.
 
 No notice is given in writing of this kind to the Government until the end of the year in which the order of separation is given, and no notice is given at all before that time.
 

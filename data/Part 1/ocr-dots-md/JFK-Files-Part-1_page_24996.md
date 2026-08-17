@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24996.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="3">Vol. I</td>
     <td>STATE DEPT (Moscow #19074,</td>

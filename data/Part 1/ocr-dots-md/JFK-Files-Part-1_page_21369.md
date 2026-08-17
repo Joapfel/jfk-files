@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21369.png
-
-Convert to MarkdownFBI document
+FBI document
 
 10 May 1974 (NY)
 Subject: Helen Mary Winter

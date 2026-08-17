@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20938.png
-
-Convert to MarkdownDN 100-10985
+DN 100-10985
 
 In a letter from Denver to Sacramento dated 12/7/70, status RUC, indicated local sources within the Denver Division have been contacted and advised that to their knowledge, BROWN was not currently working in the Denver area nor do they know for whom BROWN was working for in 1966.
 

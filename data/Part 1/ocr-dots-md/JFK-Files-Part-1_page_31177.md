@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31177.png
-
-Convert to Markdown# Fitness Report - Wigren, Lee H.
+# Fitness Report - Wigren, Lee H.
 \# 006198
 
 ## Reviewing Official Comments (continued)

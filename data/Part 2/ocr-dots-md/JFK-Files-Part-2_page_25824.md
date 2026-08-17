@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25824.png
-
-Convert to Markdown(9) Sheffield Edwards, witness produced by CIA as its Director of Security, was a spurious substitution to deceive the Committee and the American electorate. Recruited from organized crime, CIA coached him to appear as the Edwards or Colonel Edwards who directed the early alleged attempts to assassinate Fidel Castro.
+(9) Sheffield Edwards, witness produced by CIA as its Director of Security, was a spurious substitution to deceive the Committee and the American electorate. Recruited from organized crime, CIA coached him to appear as the Edwards or Colonel Edwards who directed the early alleged attempts to assassinate Fidel Castro.
 
 The real Edwards who collaborated with organized crime's hit man John Rosselli, his boss Sam Giancana and Robert Mahue, agent of Howard Hughes, oil tool billionaire, was E. Howard Hunt, Watergate burglar. Edwards was Hunt's CIA name. The CIA poisoned Sheffield Edwards after his appearance to prevent his recall and possible exposure as a fraud.
 

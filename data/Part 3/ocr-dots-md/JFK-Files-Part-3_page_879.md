@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_879.png
-
-Convert to Markdownalthough certain conversations of Ivanov were overheard, he was not the subject of the electronic surveillance reflected on those logs (14a, 20a). These logs were submitted to the Court for an in camera inspection, along with an affidavit of Attorney General Mitchell, designated Government Exhibit B. A copy of the affidavit was made available to Ivanov. Upon review of these materials, the District Court made the following findings:
+although certain conversations of Ivanov were overheard, he was not the subject of the electronic surveillance reflected on those logs (14a, 20a). These logs were submitted to the Court for an in camera inspection, along with an affidavit of Attorney General Mitchell, designated Government Exhibit B. A copy of the affidavit was made available to Ivanov. Upon review of these materials, the District Court made the following findings:
 
 1. that the surveillances here under attack were expressly authorized by the Attorney General shown in the exhibits;
 

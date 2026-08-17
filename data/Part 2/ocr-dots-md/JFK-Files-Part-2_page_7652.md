@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7652.png
-
-Convert to MarkdownThis does put a big burden of investigation and judgment on the Secret Service, one which they have not heretofore presumably had placed on their shoulders.
+This does put a big burden of investigation and judgment on the Secret Service, one which they have not heretofore presumably had placed on their shoulders.
 
 Mr. BELMONT. I think you are correct.
 

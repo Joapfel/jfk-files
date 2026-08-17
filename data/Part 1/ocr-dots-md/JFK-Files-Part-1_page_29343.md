@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29343.png
-
-Convert to Markdown3 March 1976
+3 March 1976
 
 Mr. Jeffroy M. Pearson
 Chief Investigator

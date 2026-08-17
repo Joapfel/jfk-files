@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9220.png
-
-Convert to MarkdownVII. MISCELLANEOUS
+VII. MISCELLANEOUS
 
 DE T-6 advised that the office building purchased for the BPP office was paid for by a Detroit Real Estate agent, and this agent guaranteed all payments, and handled the sale of the office when the BPP vacated and relocated in California.
 

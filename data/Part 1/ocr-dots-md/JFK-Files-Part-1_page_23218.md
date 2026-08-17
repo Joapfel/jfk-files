@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23218.png
-
-Convert to Markdown possibility of an agreement with or support for FIGUERRES." (HRSA-212). On
+possibility of an agreement with or support for FIGUERRES." (HRSA-212). On
 
 29 May a careful selection of the more compromising documents obtained by
 

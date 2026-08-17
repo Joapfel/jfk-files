@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5400.png
-
-Convert to Markdown27 September 1995
+27 September 1995
 
 Note to: HRG and DO reviewers
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25187.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Source: AEWICKAG/2
 Date acquired: September 1966

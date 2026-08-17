@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2736.png
-
-Convert to Markdown1932
+1932
 
 everyone is concerned about the murder of the civil rights
 workers, the Linio Kent case, the Viola Liuzzo case, the

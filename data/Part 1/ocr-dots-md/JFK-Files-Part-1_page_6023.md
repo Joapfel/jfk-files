@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6023.png
-
-Convert to Markdown3. While AMSPILL [2] is now PRIME, he will determine AMSBILL policy as approved by the AMSBILL Executive Committee. However, the activities of the last four months were planned and controlled by AMRNT-2 and assisting him were AMHNT-5 and Bernabe FENA, who were present at that meeting. After the ARBARS discussion, the meeting turned into a long discussion of the International Communist situation, ODOKE, KUBARK and AMSBILL policies as related to this situation. Some of the noteworthy items revealed:
+3. While AMSPILL [2] is now PRIME, he will determine AMSBILL policy as approved by the AMSBILL Executive Committee. However, the activities of the last four months were planned and controlled by AMRNT-2 and assisting him were AMHNT-5 and Bernabe FENA, who were present at that meeting. After the ARBARS discussion, the meeting turned into a long discussion of the International Communist situation, ODOKE, KUBARK and AMSBILL policies as related to this situation. Some of the noteworthy items revealed:
 
 a. AMSBILL had the 24 August Havana attack plan for six months, but had shelled it for the "right time" and a considered decision not to embark upon a course independent of KUBARK approval. The Sov/bleo buildup changed that decision.
 

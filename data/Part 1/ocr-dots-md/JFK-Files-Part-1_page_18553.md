@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18553.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SECURITY OFFICE
 Investigation Report

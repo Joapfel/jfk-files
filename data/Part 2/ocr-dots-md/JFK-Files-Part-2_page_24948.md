@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24948.png
-
-Convert to MarkdownCOS recalls raising the subject of assassination with Gottlieb on subsequent occasions outside the Congo only in the context of his (COS's) feeling: "Thank God I never had to use it."
+COS recalls raising the subject of assassination with Gottlieb on subsequent occasions outside the Congo only in the context of his (COS's) feeling: "Thank God I never had to use it."
 
 COS did not remember if Gottlieb mentioned Richard Bissell as a source of authority or approval for the assassination operation. COS does not recall that anyone other than the President and the DCI were indicated as the source of authority for the assassination operation.
 

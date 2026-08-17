@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6370.png
-
-Convert to Markdown14-0000
+14-0000
 
  regulations after considering public comment received in writing and through testimony at public hearings convened by the Review Board.
 

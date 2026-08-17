@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9654.png
-
-Convert to MarkdownCODE
+CODE
 
 TO SACS NEW YORK
 BOSTON

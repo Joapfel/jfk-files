@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10679.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>INDEX: [x] YES [ ] NO</td></tr><tr><td>CLASSIFY TO FILE NO. [x] 201-041 [ ]</td></tr><tr><td>N-REF TO FILE NO. [ ]</td></tr><tr><td>FILE RID [ ] REF. [ ] TO BRANCH [x] Duranyuk</td></tr><tr><td>DESTROY [ ] SIC. [x]</td></tr><tr><td colspan="3">DSSM B/1 28</td></tr><tr><th>Action</th><th>[X] RID COPY</th><th>ADVANCE COPY<br/>☐ ........ ☐ ........ ☐ .......</th><th>UNIT<br/>CSDC</th><th>TIME<br/>02052</th><th>BY<br/>D</th></tr><tr><td>WH 8</td><td colspan="4"></td><td></td></tr><tr><td>INFO VR.</td><td>FILE.</td><td>ADDP.</td><td>CA 2, CA/PEG.</td><td>CA/PROP.</td><td>CI/OPS.</td><td>CI/IC 2.</td><td>F1.</td><td>F1/D</td><td>. FI/INT</td><td>CS/DO</td></tr></table>
 

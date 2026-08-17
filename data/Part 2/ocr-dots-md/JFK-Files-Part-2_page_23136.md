@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23136.png
-
-Convert to Markdownone reason or another and may have ended up in Alpha 66.
+one reason or another and may have ended up in Alpha 66.
 
 Senator Schweiker. We realize that one of the other
 Intelligence agencies might have had a liaison or working

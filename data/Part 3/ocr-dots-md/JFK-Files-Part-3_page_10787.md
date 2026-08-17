@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10787.png
-
-Convert to MarkdownIn the letter President Roosevelt clearly limited Donovan's jurisdiction with the following statement: "I should like to emphasize that Colonel Donovan's work is not intended to supersede or duplicate or involve any direction of the activities of established agencies already obtaining and interpreting defense information."
+In the letter President Roosevelt clearly limited Donovan's jurisdiction with the following statement: "I should like to emphasize that Colonel Donovan's work is not intended to supersede or duplicate or involve any direction of the activities of established agencies already obtaining and interpreting defense information."
 
 The Presidential order dated September 11, 1941, established the position of COI with clear cut authority to collect and analyze information bearing on national security; correlate and make such information available to the President and other Government officials as the President may determine. COI was finally authorized to carry out, when requested by the President, supplementary activities as might facilitate the securing of information not then available to the Government.
 

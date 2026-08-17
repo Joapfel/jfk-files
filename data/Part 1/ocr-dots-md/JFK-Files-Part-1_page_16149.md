@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16149.png
-
-Convert to MarkdownLondon clubman. And that's just what he is: Robert Hamilton, Baron of Belhaven and Stenton, a distinguished member of the House of Lords.
+London clubman. And that's just what he is: Robert Hamilton, Baron of Belhaven and Stenton, a distinguished member of the House of Lords.
 
 In fact, a good look at the legendary Mitch WerBell—millionaire firearms tycoon, designer of the world’s best muzzle silencer, adventureurer, friend of dictators and C.I.A. agents, manipulator of the luck of small nations—and at the seven men who are his luncheon guests today reminds us that, in real life, the strategy of private wars demands, first of all, finesse.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8688.png
-
-Convert to MarkdownIII. COMPORTAMIENTO SOCIAL
+III. COMPORTAMIENTO SOCIAL
 
 7. Impresión General. (Marque la más apropiada.)
 

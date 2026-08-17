@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6400.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 July 31, 1963
 

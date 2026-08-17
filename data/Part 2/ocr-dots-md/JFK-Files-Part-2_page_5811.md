@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5811.png
-
-Convert to MarkdownDeclaration of EDMUND COHEN
+Declaration of EDMUND COHEN
 
 7. Based upon the foregoing and Attachments I through VI, I believe that the CIA is in full compliance with the President John F. Kennedy Assassination Records Collection Act of 1992.
 

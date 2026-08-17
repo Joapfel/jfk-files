@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4778.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 MM T-2 advised on September 12, 1968, that ROTHMAN is extremely close to one ARMANDO, who reportedly is business organizer for Local 255 of the Hotel, Restaurant and Bartenders Union and is the one largely responsible for obtaining jobs for Cubans in the hotels and restaurants in the Miami area.
 

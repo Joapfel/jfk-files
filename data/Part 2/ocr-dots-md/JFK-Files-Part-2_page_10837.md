@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10837.png
-
-Convert to MarkdownNK 89-56
+NK 89-56
 
 of assault, 8/27/71.
 

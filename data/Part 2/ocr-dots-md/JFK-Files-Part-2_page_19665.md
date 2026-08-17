@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19665.png
-
-Convert to MarkdownAttorney General
+Attorney General
 JUSTICE DEPT.
 
 U.S. ATTORNEY OFFICE OF THE ATTORNEY GENERAL

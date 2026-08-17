@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11994.png
-
-Convert to Markdown12. **Bull. 316:** Submit by informant
+12. **Bull. 316:** Submit by informant
 
 When an .source submits bulky material other than a statement and . . . that is so bulky and important to a specific investigative matter, bulky material may be f. in the . . . case file, together with a copy of executed form ...-306 or . . channelizing memorandum containing all applicable items set forth on for . FD-306. In such a case, the original form FD-305 or channelizing memorandum should be filed in the subfile of the informant or source and the file and serial number where the bulky material is located should be noted thereon.
 

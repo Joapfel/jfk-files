@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12720.png
-
-Convert to Markdown14,000.00
+14,000.00
 
 OUTGOING MESSAGE
 

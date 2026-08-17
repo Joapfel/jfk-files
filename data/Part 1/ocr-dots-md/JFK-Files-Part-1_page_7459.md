@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7459.png
-
-Convert to MarkdownNovember 24, 1931.
+November 24, 1931.
 
 Copied by E.B.
 Compared with H. H. HA

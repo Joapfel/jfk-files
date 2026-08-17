@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16342.png
-
-Convert to Markdown5 A. Box containing number of MAO TSE-TUNG books, Selective Service records and other political books and address cards.
+5 A. Box containing number of MAO TSE-TUNG books, Selective Service records and other political books and address cards.
 
 6 A. One black brief case containing books, calander book, assorted periodicals and papers.
 

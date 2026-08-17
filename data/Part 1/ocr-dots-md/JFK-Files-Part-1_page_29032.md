@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29032.png
-
-Convert to Markdown8 March 1964
+8 March 1964
 
 MEMORANDUM FOR: Deputy Director of Plans
 

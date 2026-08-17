@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20022.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 TO COME TO WASHINGTON ON JANUARY 85
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4877.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>FOR: EMILY BROWN</td><td></td><td>BOSCH</td><td>SENT COPY</td></tr></thead><tbody><tr><td colspan="2">P.O. BOX 678</td><td colspan="2">SECRET</td></tr><tr><td colspan="3">ADDRESSING PROBLEM</td><td>SEE P.</td></tr><tr><td>FROM UNIT</td><td>A</td><td>TO AT</td><td>136</td></tr><tr><td>NAME</td><td>D</td><td>FIL. FILE</td><td>V</td></tr><tr><td>PHONE NO</td><td>O</td><td></td><td>1</td></tr><tr><td>TOTAL COPY (NOTES + SEAT)</td><td></td><td>STEP'S %</td><td></td></tr><tr><td></td><td></td><td></td><td>8</td></tr></tbody></table>
 

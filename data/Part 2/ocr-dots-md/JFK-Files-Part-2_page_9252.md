@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9252.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 On December 20, 1972, LONNIE DARDEN, BPP-NF
 leader at Detroit, was interviewed under suitable pretext

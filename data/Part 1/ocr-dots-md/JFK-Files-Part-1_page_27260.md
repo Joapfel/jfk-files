@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27260.png
-
-Convert to Markdown<table><tr><td>1 Send To</td><td>2 Name</td><td>3 Cost Center Number</td><td>4 LWOP Hours</td></tr><tr><td>056739</td><td>NBOE WILLIAM V</td><td>56 380 CF</td><td>11</td></tr><tr><td colspan="2">OLD SALARY RATE</td><td colspan="2">NEW SALARY RATE</td><td colspan="3">7. TYPE ACTION</td></tr><tr><td>Grade</td><td>Step</td><td>Salary</td><td>Last En Date</td><td>Grado</td><td>Step</td><td>Salary - Effective Date</td></tr><tr><td>GS 17 2</td><td>318,900</td><td>10/14/62</td><td></td><td>GS 17 3</td><td>319,000</td><td>10/13/63</td></tr></table>
+<table><tr><td>1 Send To</td><td>2 Name</td><td>3 Cost Center Number</td><td>4 LWOP Hours</td></tr><tr><td>056739</td><td>NBOE WILLIAM V</td><td>56 380 CF</td><td>11</td></tr><tr><td colspan="2">OLD SALARY RATE</td><td colspan="2">NEW SALARY RATE</td><td colspan="3">7. TYPE ACTION</td></tr><tr><td>Grade</td><td>Step</td><td>Salary</td><td>Last En Date</td><td>Grado</td><td>Step</td><td>Salary - Effective Date</td></tr><tr><td>GS 17 2</td><td>318,900</td><td>10/14/62</td><td></td><td>GS 17 3</td><td>319,000</td><td>10/13/63</td></tr></table>
 
 Form 9-61 S60
 

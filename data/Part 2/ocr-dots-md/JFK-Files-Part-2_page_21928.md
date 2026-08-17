@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21928.png
-
-Convert to Markdowntherefore, he knew it could be done. (Station to Hqs cable,
+therefore, he knew it could be done. (Station to Hqs cable,
 3/21/61) Two days later, Headquarters cabled that the pistols
 and ammunition were being pouched. However, the Station
 Chief was instructed not to advise Dearborn. (Hqs. to Station

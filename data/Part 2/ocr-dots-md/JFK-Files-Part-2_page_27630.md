@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27630.png
-
-Convert to MarkdownTHE WHITE HOUSE
+THE WHITE HOUSE
 WASHINGTON
 
 February 3, 1977

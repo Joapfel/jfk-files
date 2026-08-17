@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25362.png
-
-Convert to Markdown# Rosselli's Body Found in Floating Drum
+# Rosselli's Body Found in Floating Drum
 
 The body was found on April 15, 1964, in a floating drum, which had been bobbing helplessly in the sea off the coast of Florida. The cause of death is not known, but it is thought to have been caused by a stroke.
 

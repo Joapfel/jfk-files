@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7860.png
-
-Convert to MarkdownQ: When he gave it to you, was it done while you were alone or was someone else present?
+Q: When he gave it to you, was it done while you were alone or was someone else present?
 
 A: I do not recall. I feel it occurred in Mr. BELTER's office which did not offer a good deal of privacy. If anyone else was present, however, it was probably Mr. CAMPBELL.
 

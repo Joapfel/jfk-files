@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6920.png
-
-Convert to MarkdownI forecast, in other words, that new evidence will not dispel conspiracy theories. At most, it will curb some of the more adventurous theorizing.
+I forecast, in other words, that new evidence will not dispel conspiracy theories. At most, it will curb some of the more adventurous theorizing.
 
 I also forecast that, if release of the evidence is managed as this bill proposes, one of two results will follow.
 

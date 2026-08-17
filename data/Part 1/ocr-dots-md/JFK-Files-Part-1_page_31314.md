@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31314.png
-
-Convert to Markdown30 December 1963
+30 December 1963
 
 MEMORANDUM FOR THE RECORD
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22373.png
-
-Convert to MarkdownSECRET
+SECRET
 
 There are no more paramilitary operations, that type of thing.
 

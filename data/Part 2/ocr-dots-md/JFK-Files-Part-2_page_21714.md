@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21714.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 And he seemed a little startled. I have already indicated
 that. What I'm trying to do now is to refine my thoughts more

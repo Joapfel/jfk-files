@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7743.png
-
-Convert to MarkdownExecutive instructions concerning broad, sweeping authority for the FBI, which cannot now be found for one reason or another. Certainly there is indication that at least President Roosevelt had more than one conversation with Mr. Hoover concerning the necessity for the FBI to conduct investigations beyond the statutory authority it normally used.
+Executive instructions concerning broad, sweeping authority for the FBI, which cannot now be found for one reason or another. Certainly there is indication that at least President Roosevelt had more than one conversation with Mr. Hoover concerning the necessity for the FBI to conduct investigations beyond the statutory authority it normally used.
 
 ## DIRECTIVES SUPPLEMENTED OR SUPERSEDED BY STATUTES
 

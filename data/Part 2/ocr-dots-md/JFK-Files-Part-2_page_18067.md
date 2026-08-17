@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18067.png
-
-Convert to MarkdownK. William O'Connor
+K. William O'Connor
 
 July 14, 1975
 

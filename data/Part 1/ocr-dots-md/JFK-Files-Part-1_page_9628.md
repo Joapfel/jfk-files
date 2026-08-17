@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9628.png
-
-Convert to MarkdownSECRET
+SECRET
 
 start payment the figure will be something less than $150.00 a month and it will probably be placed into some sort of a savings account. This plan may be placed into effect at any time.
 

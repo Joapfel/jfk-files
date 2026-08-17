@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11588.png
-
-Convert to Markdown## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 Included in the index may be individuals in Government, business, or industry. Do not include law enforcement officers unless they are usually cooperative or furnish special types of information. Set up the index alphabetically, geographically by states and towns; alpha-betically in the subdivisions; and alphabetically by AEA facility, or by type of information.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3461.png
-
-Convert to Markdown7. According to Maagdenberg, the Dutch engineer, the ship is in fairly good condition and should require no more than five days in drydock. A-1 casually mentioned that the Dutchman had to be dissuaded from going on the operation itself.
+7. According to Maagdenberg, the Dutch engineer, the ship is in fairly good condition and should require no more than five days in drydock. A-1 casually mentioned that the Dutchman had to be dissuaded from going on the operation itself.
 
 8. A-1 was reminded we must have a firm statement from him as to when the operation is to take place if we are to be of assistance to his organization during the critical period. A-1 stated he had promised to break the heads of the commo people aboard the ship if they fail to advise him as to when the Swift departs from the mothership.
 

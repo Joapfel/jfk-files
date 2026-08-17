@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17062.png
-
-Convert to Markdown10/30/69
+10/30/69
 
 TO: DIRECTOR, FBI
 

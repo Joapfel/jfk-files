@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27378.png
-
-Convert to MarkdownMEMORANDUM FOR: Mr. William E. Broe
+MEMORANDUM FOR: Mr. William E. Broe
 
 SUBJECT: Appreciation of Participation in the Personnel Officer Training Course.
 

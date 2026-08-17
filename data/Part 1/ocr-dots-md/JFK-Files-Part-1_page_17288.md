@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17288.png
-
-Convert to Markdownopportunity, foreign official installations and personnel of intelligence interest operating in Mexico.
+opportunity, foreign official installations and personnel of intelligence interest operating in Mexico.
 
 c. To exploit operational leads through recruitments, debriefings and surveillances.
 

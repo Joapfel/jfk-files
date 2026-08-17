@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18874.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>STANDARD FORM 30 (8 PART)<br/>UNITED STATES<br/>CIVIL SERVICE COMMISSION<br/>OCTOBER 1946</td>
     <td>FORM APPROVED<br/>BUDGET BUREAU NO 30-ROA</td>

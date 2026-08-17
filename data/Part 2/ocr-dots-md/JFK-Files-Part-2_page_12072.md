@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12072.png
-
-Convert to Markdown2. Communications - use of symbols
+2. Communications - use of symbols
 
 a. After Bureau is advised of the permanent symbol, in subsequent communications true name of informant should not be set forth; use symbol number.
 

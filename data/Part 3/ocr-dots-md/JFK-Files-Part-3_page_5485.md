@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5485.png
-
-Convert to MarkdownJune 13, 1975
+June 13, 1975
 
 Mr. K. William O'Connor
 Page -2-

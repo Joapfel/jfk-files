@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13860.png
-
-Convert to MarkdownField Comment. These people probably attended the celebration in observance of the fourth anniversary of the Castro regime. It is possible that some of them may remain in Cuba for the Latin American Women's Congress.
+Field Comment. These people probably attended the celebration in observance of the fourth anniversary of the Castro regime. It is possible that some of them may remain in Cuba for the Latin American Women's Congress.
 
 Headquarters Comments
 

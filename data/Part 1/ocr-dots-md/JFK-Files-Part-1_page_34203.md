@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34203.png
-
-Convert to Markdownthe Soviet Ministry of Agriculture, warned that winter wheat seedings throughout the country were endangered as a result of the dry fall.
+the Soviet Ministry of Agriculture, warned that winter wheat seedings throughout the country were endangered as a result of the dry fall.
 
 Says one Radio Free Europe report: "Thus it seems conservative to submit that only if 'Cyrano' weather conditions prevail throughout the Soviet Union could the ambitious 1968 farm campaign be achieved, which is highly unlikely."
 

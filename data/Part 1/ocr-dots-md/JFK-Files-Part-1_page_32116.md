@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32116.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">OFFICE OF CULTURAL COORDINATOR<br/>NEW YORK UNIVERSITY<br/>1001 KNOX AVENUE<br/>P.O. BOX 743</td>

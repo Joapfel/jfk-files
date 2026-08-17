@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13053.png
-
-Convert to MarkdownNY 100-149194
+NY 100-149194
 
 MARTIN LUTHER KING movement could be organized in
 Louisiana, the State Senatorial District where CAULFIELD

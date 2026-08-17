@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15032.png
-
-Convert to Markdown# UNITED STATES GOVERNMENT
+# UNITED STATES GOVERNMENT
 Memorandum
 
 **TO:** : Mr. Sullivan

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8225.png
-
-Convert to MarkdownO) Legal Counsel, Community Service Organization
+O) Legal Counsel, Community Service Organization
 
 II) Unsuccessful candidate (Democrat) for Secretary of State,
 California, 1958

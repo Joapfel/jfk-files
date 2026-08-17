@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14771.png
-
-Convert to MarkdownMemorandum to Mr. C. D. Brennan
+Memorandum to Mr. C. D. Brennan
 
 Re: Stockholm Conference on Vietnam
 100-453546

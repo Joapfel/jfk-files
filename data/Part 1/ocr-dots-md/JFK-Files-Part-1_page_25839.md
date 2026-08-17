@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25839.png
-
-Convert to Markdown# APPENDIX I
+# APPENDIX I
 ## PROJECT LIPSTICK
 ### SCHEDULE OF INSTRUCTION
 

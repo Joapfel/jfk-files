@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6557.png
-
-Convert to Markdownunderstood, actions can be developed to achieve that objective. The extent of the U. S. commitment, as reflected by the determination of the objective, is an important factor in the determination of the commitment of U. S. resources and has great significance in the motivation of recruited Cuban participants.
+understood, actions can be developed to achieve that objective. The extent of the U. S. commitment, as reflected by the determination of the objective, is an important factor in the determination of the commitment of U. S. resources and has great significance in the motivation of recruited Cuban participants.
 
 It must be understood that the creation of a resistance under the situation currently obtaining in Cuba probably envisages an ultimate U. S. commitment to direct military action. There can be no advanced guarantee of the success or the security of such an operation, nor is there any realistic brake upon the ultimate outcome which may be susceptible to rapid escalation. Current intelligence estimates indicate little likelihood of the success of a Cuban inspired revolt without significant external support.
 

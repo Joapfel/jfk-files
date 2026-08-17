@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25467.png
-
-Convert to MarkdownFS: ...where you and your husband worked where he was manager, you were the first people to live in that place?
+FS: ...where you and your husband worked where he was manager, you were the first people to live in that place?
 
 ML: 250 East 87th Street, the Newberry, owned by Glenwood Management, which are crooked, and that's on the corner of 2nd Avenue, it's called the Newberry.
 

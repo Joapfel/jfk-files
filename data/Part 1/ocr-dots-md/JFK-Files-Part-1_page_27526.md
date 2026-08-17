@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27526.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILED IN)
 
 STANDARD FORM 30 (F PART)

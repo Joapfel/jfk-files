@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19552.png
-
-Convert to Markdown# THE JEANNETTE RANKIN BRIGADE
+# THE JEANNETTE RANKIN BRIGADE
 ## QUESTIONS FOR CONGRESSMEN
 
 Prepared by The Legislative Office

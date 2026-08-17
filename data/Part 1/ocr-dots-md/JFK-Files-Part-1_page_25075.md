@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25075.png
-
-Convert to MarkdownTIPSY DIPLOMATS
+TIPSY DIPLOMATS
 
 by Alonso Fonseca G.
 

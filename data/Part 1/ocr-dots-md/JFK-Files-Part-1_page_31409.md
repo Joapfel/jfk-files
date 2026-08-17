@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31409.png
-
-Convert to Markdown<table><tr><td>DF 1371</td></tr></table>
+<table><tr><td>DF 1371</td></tr></table>
 
 21 November 1952
 

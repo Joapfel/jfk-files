@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2464.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SAC, WFO (65-8479)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13863.png
-
-Convert to Markdown3.
+3.
 
 In connection with the above authorizations it was explained that as soon as Mr. Gray was named as the new Director Mr. Felt brought him to the Director's office to afford him an idea of the office set-up; that Mr. Gray indicated a very special interest in the files in my office; that their contents were explained to him and that he was invited to view the contents. He did glance thru a drawer and obviously was satisfied that they contained personal correspondence only, and was also satisfied that the Bureau material had been delivered to Mr. Felt. One of the questioners remarked that there appeared to be more o.c. files than had been indicated; that a larger number had been given to Attorney General Levi...I remarked that I would not know whether other files had been added to the group after they had been delivered to Mr. Felt. Mr. Gitenstein then attempted to show me a pamphlet indicating what appeared to be testimony of the Attorney General describing certain of the files in question and asked questions re specific cases which were contained in the o.c. files. I told him I would not presume, after three years, to try to remember specifics. He asked if there were a file containing reports from the Washington Field Office. I told him certainly I would not remember such a file, if one existed.
 

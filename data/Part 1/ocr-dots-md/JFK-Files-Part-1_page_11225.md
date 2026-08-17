@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11225.png
-
-Convert to MarkdownLa Habana, 12 de Agosto 2: 1966
+La Habana, 12 de Agosto 2: 1966
 
 "ANO DE LA SOLIDARIDAD"
 

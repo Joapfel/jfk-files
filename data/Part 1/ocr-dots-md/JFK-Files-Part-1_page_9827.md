@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9827.png
-
-Convert to Markdown4 February, 1968
+4 February, 1968
 
 1. LIRING/4 signed contract with Rowton (alias) effective 15 February through 30 April, 1968, providing payment for information and services. No obligations specified other than financial (total $750.00 for period specified). LIRING/4 also signed acknowledgement of alias "Maria Barra-gán" which was used in contract and receipts for funds.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28976.png
-
-Convert to Markdown# PART I - Renter's Credit - All questions must be answered
+# PART I - Renter's Credit - All questions must be answered
 
 35. Did you, on March 1, 1976, live in rented property which was your principal residence? ☐ Yes ☑ No If no, you may not claim this credit
 

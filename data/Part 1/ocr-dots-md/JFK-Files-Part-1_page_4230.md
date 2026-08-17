@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4230.png
-
-Convert to Markdown14-0000d
+14-0000d
 
 <table><tr><td colspan="2">CLASSIFIED MESSAGE TOTAL COPIES</td></tr><tr><td>ISSUE: ☐ YES ☐ NO</td><td>ZC</td></tr><tr><td>CLASSIFY TO FILE NO.</td><td>SECRET</td></tr><tr><td>B-REF TO FILE NO.</td><td>PERSON/UNIT NOTIFIED</td></tr><tr><td>FILE DATED ☐ REY. TO BE DEEMED ☐</td><td>REPORCTION PROHIBITED</td></tr><tr><td>DESTROY ☐ SIC.</td><td></td></tr><tr><td>FROM</td><td></td></tr><tr><td>ACTION</td><td>WH8</td></tr><tr><td>INFO</td><td>FILE VR WHLCS Cl. CILAPS, FI</td></tr><tr><td>RID COPY</td><td>ADVANCE COPY ☐ ⚫⚫⚫ ⚫⚫⚫ ⚫⚫⚫</td></tr><tr><td>PERMIT TIME BY</td><td></td></tr></table>
 

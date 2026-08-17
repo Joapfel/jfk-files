@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28095.png
-
-Convert to MarkdownMEMORANDUM IN LIEU OF FITNESS REPORT
+MEMORANDUM IN LIEU OF FITNESS REPORT
 
 **NAME:** Frederick C. Randall
 

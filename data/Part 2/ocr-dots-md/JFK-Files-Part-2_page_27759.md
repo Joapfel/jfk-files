@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27759.png
-
-Convert to MarkdownThe Plaza Apt.
+The Plaza Apt.
 18th & Parkway
 Phila., Pa. 19103
 

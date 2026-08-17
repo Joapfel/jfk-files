@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4616.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 On April 18, 1961, NK T-1 advised that the subject was still working at the Ye Cottage Inn, Keyport, New Jersey, and in recent conversation with her, she has made no further mention concerning their conversation in January, 1961, whereby she had stated she would introduce him to a friend of hers from Cuba or Miami. Upon viewing photographs of MANUEL ARQUES, he said this person was unknown to him.
 

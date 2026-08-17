@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30336.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. story makes no sense.
 

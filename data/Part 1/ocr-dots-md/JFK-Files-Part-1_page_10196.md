@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10196.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>PERSONAL RECORD QUESTIONNAIRE<br/>PART I - BIOGRAPHICAL INFORMATION</td><td style="text-align:right;">P.P. NO.</td></tr></table>
 

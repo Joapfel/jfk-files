@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14315.png
-
-Convert to Markdown<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td>B-201-866054.</td><td>UFAA-2231</td><td>Aug 10 1970<br/>5 August 1970</td></tr><tr><td></td><td>CLASSIFICATION<br/>SECRET</td><td>PDS FILE NUMBER<br/>201-735296</td></tr></tbody></table>
+<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td>B-201-866054.</td><td>UFAA-2231</td><td>Aug 10 1970<br/>5 August 1970</td></tr><tr><td></td><td>CLASSIFICATION<br/>SECRET</td><td>PDS FILE NUMBER<br/>201-735296</td></tr></tbody></table>
 
 <table><tr><td>DISPATCH</td></tr><tr><td>TO</td></tr><tr><td>Chief, Western European Division</td></tr><tr><td>FROM</td></tr><tr><td>Chief of Station, WJ/Miami</td></tr><tr><td>Forward</td></tr><tr><td>ANAUTO/Follow-up Interview with Alexander SAMKO</td></tr></table>
 

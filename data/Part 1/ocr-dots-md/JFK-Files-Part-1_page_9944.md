@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9944.png
-
-Convert to MarkdownEstudillo Sr. Harris:
+Estudillo Sr. Harris:
 
 Estas líneas para scalarle
 y deseare bien croire.

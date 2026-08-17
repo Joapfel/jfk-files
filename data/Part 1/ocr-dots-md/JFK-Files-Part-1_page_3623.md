@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3623.png
-
-Convert to Markdown<table><tr><td colspan="4">PERSON/UNIT NOTIFIED</td></tr><tr><td colspan="2">ADVANCE COPY IS IMPORTANT SLOTTED BY AT Z</td><th colspan="2">STAFF</th></tr><tr><td rowspan="3">ACTION UNIT<br>INFO</td><td rowspan="3">RF. FILE . VR .<br></td><th>1</th><td>4</td></tr><tr><th>2</th><td>5</td></tr><tr><th>3</th><td>6</td></tr><tr><td>ACTION #</td><td colspan="3"></td></tr></table>
+<table><tr><td colspan="4">PERSON/UNIT NOTIFIED</td></tr><tr><td colspan="2">ADVANCE COPY IS IMPORTANT SLOTTED BY AT Z</td><th colspan="2">STAFF</th></tr><tr><td rowspan="3">ACTION UNIT<br>INFO</td><td rowspan="3">RF. FILE . VR .<br></td><th>1</th><td>4</td></tr><tr><th>2</th><td>5</td></tr><tr><th>3</th><td>6</td></tr><tr><td>ACTION #</td><td colspan="3"></td></tr></table>
 
 T V45167
 

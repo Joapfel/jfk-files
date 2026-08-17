@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9781.png
-
-Convert to Markdown6 May, 1958
+6 May, 1958
 
 Subject: LILING/4 Report of Contacts with LILING Office.
 

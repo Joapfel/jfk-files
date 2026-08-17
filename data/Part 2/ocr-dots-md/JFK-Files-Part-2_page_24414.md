@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24414.png
-
-Convert to MarkdownCuba after the overthrow of Castro (I.G., p. 29). The Report speculated that Varona was interested in the assassination scheme as a means of financing the purchase of arms and communications equipment (I.G., p. 31).
+Cuba after the overthrow of Castro (I.G., p. 29). The Report speculated that Varona was interested in the assassination scheme as a means of financing the purchase of arms and communications equipment (I.G., p. 31).
 
 Varona claimed to have a contact inside a restaurant frequented by Castro (Roselli, p. 21). As a prerequisite to the deal, he demanded cash and $1,000 worth of communications equipment (I.G., pp. 31-32; O'Connell, p. 23). O'Connell recalls that Colonel J. C. King, head of the Western Hemisphere Division, gave him $50,000 in Bissell's office to pay Varona if he successfully assassinated Castro (O'Connell, pp. 17-21). O'Connell stated that Bissell also authorized him to give Varona the electronics equipment that he requested (O'Connell, pp. 20-24).
 

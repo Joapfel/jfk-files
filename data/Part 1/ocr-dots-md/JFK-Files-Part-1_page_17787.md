@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17787.png
-
-Convert to Markdown458- Entrada.- 1310. hrs.- CARRILLO GAMES pregunta a GUZMAN el se van a ver porque ella ya sale del trabajo y se va para su casa. GUZMAN entonces le llamará mas tarde a su casa porque tiene mucho trabajo y que sobre el dinero del cobrador lo xНАУНА resuelve el lunes pero hoy de todos modos se han de ver.- 481-
+458- Entrada.- 1310. hrs.- CARRILLO GAMES pregunta a GUZMAN el se van a ver porque ella ya sale del trabajo y se va para su casa. GUZMAN entonces le llamará mas tarde a su casa porque tiene mucho trabajo y que sobre el dinero del cobrador lo xНАУНА resuelve el lunes pero hoy de todos modos se han de ver.- 481-
 
 481- Salida sin contestación.- 512-
 

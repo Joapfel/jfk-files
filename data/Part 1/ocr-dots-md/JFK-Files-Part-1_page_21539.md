@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21539.png
-
-Convert to Markdownissue, it is eminently reasonable to conclude that the encounter took place but that NOSENKO simply has no recollection of it. There is no reason to attach significance to this lapse of memory.
+issue, it is eminently reasonable to conclude that the encounter took place but that NOSENKO simply has no recollection of it. There is no reason to attach significance to this lapse of memory.
 
 The previous opinion that NOSENKO did not hold the claimed position of Deputy Chief, First Section, First Department, during 1960 - 1961 has had the most merit in the controversy over his statements relative to his KGB career. This particular aspect will be covered in detail in another section, but of note at this time is the controversy over what duties the position of Deputy Chief of Section in the SCD, KGB, entails or does not entail. It is a fruitless exercise to attempt to judge whether NOSENKO was Deputy Chief of the First Section in 1960 - 1961 on the basis of whether his knowledge of the total activities of the First Section was commensurate with the knowledge of a Deputy Branch Chief in CIA in regard to the activities of the entire Branch.
 

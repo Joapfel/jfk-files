@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26940.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 3 March 1976
 

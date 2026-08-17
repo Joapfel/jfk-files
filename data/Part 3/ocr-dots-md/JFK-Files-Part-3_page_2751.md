@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2751.png
-
-Convert to Markdownsmn 8
+smn 8
 
 1947
 

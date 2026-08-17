@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9353.png
-
-Convert to MarkdownEnolosure to HICOC Frankfurt
+Enolosure to HICOC Frankfurt
 
 Despatch , July 26, 1930
 

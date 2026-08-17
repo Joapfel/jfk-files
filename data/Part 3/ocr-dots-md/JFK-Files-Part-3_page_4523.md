@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4523.png
-
-Convert to MarkdownRECD-11-93R
+RECD-11-93R
 
 SEP 17 1978
 

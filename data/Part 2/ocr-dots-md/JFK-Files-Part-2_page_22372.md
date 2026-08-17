@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22372.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Station running any operations against Cuba?
 

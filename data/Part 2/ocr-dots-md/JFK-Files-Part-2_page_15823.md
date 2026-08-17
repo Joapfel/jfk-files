@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15823.png
-
-Convert to MarkdownThe Black Panther Party became a response to renewed instances of police violence in the black community. The party was inspired by the Black Panther Party of Lowndes County Alabama (The Lowndes County Freedom Organization) which organized black neone in the South to obtain basic rights such as the right to vote. The symbol of the Lowndes County Freedom Organization was the Black Panther.
+The Black Panther Party became a response to renewed instances of police violence in the black community. The party was inspired by the Black Panther Party of Lowndes County Alabama (The Lowndes County Freedom Organization) which organized black neone in the South to obtain basic rights such as the right to vote. The symbol of the Lowndes County Freedom Organization was the Black Panther.
 
 The Black Panther, as explained by Minister of Defense Huey P. Newton, is an animal who will not attack. If attacked, the black panther backs up until he has no more room to back. Then, the black panther will strike out at his assailant and wine him out. Newton says that the Black Panther Party will not attack unless rushed un against the wall where nothing else is possible but to attack its assailants - in order to live. This principle of armed self-defense which is basic to the Black Panther Party, will be explained in a document below.
 

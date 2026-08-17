@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26497.png
-
-Convert to MarkdownCordial Abrazo... Página de la Primera Pág. A
+Cordial Abrazo... Página de la Primera Pág. A
 
 Mexicanos y salvadoreños, han coincidido en su favor por la libertad y en la fecha por conquistarla. Si hemos condenado en el pasado con mayor ránzor deberán estar unidos en el porvenir para acPersonalizar la solidaridad y la cooperación entre sus pueblos...
 

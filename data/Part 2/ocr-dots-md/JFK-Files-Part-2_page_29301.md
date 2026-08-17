@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29301.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td rowspan="4">UNIT<br/>EXT.<br/>DATE: 30-Oct-1963</td>

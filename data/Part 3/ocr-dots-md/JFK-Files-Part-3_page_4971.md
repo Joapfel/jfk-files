@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4971.png
-
-Convert to MarkdownSAC, Denver (105-4151)
+SAC, Denver (105-4151)
 
 12/1/78
 

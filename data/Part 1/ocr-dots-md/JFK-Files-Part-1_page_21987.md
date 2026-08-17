@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21987.png
-
-Convert to Markdown## b. Statements to CIA
+## b. Statements to CIA
 
 On the basis of the FBI interviews of NOSENKO and the similar information which he had previously provided CIA, further debriefings were conducted by CIA on 3 and 27 July 1964. New and explanatory information received during these debriefings is presented below.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20292.png
-
-Convert to MarkdownTeletype to SAC, St. Louis
+Teletype to SAC, St. Louis
 RE: DEMONSTRATIONS PROTESTING U.S.
 POLICY IN VIETNAM
 100-448475

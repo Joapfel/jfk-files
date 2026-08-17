@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11064.png
-
-Convert to MarkdownEspionage - 18 U. S. Code, Section 792 et seq.
+Espionage - 18 U. S. Code, Section 792 et seq.
 
 Sabotage - 18 U. S. Code, Section 2151 et seq.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3198.png
-
-Convert to Markdown1810
+1810
 
 Senator Hart of Colorado. Every group that was placed under the efforts of the COINTELPRO supported the violent overthrow of this country?
 

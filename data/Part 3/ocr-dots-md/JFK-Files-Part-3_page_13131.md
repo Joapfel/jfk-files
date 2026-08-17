@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13131.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Rudolph Fernandez (protect identity), a cotton broker of Atlanta, Georgia who was closely associated with Francisco Gualberto Cajigas y Garcia Del Prado, Miami, Florida, civilian leader of the Cuban Unity of Liberation (UCL) (105-88041), furnished information to Miami Office Agents on 9/12/60. Cajigas had told Fernandez that Father Medina, Rector of Villanueva University, Havana, arrived in Miami from Havana, on 9/5/60, for the purpose of contacting Cajigas and offering him the help and resources of the Catholic Church in Cuba in his fight against Castro. Fernandez said that, according to Cajigas, Father Medina advised that the Catholic Church in Cuba was opposed to Manuel Antonio Varona of the FRD. Father Medina also disclosed to Cajigas that Manuel Artime, one of the five leaders of the FRD, had visited Medina and had confided that the FRD was divided and unhappy.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4872.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 MM T-7 is MM 673-C.
 

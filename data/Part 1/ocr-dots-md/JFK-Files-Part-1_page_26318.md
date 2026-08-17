@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26318.png
-
-Convert to Markdown- 14 -
+- 14 -
 
 | N°. | MAY. | CONFERENCIAS | MOTIVO |
 |---|---|---|---|

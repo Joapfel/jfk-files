@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15057.png
-
-Convert to MarkdownEdeStr #52
+EdeStr #52
 
 Lt. William D. Zirkle
 U. S. Army Trans Center

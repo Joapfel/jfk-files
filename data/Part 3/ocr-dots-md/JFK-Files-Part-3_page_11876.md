@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11876.png
-
-Convert to Markdown**ASSISTANT DIRECTOR C. D. BRENNAN,**
+**ASSISTANT DIRECTOR C. D. BRENNAN,**
 
 The following are my comments requested in
 

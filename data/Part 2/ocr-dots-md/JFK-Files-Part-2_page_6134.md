@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6134.png
-
-Convert to Markdown56 Md. L. Rev. 1, *7
+56 Md. L. Rev. 1, *7
 
 (concluding that Sirhan Sirhan assassinated Robert F. Kennedy to prove "that he still had his nerve"); William W. Turner & John G. Christian, The Assassination of Robert F. Kennedy (1978) (claiming that there was a conspiracy); Weisberg, supra note 6 (concluding that James Earl Ray was framed for the assassination of Martin Luther King, Jr.).
 

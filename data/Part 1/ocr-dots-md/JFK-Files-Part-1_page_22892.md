@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22892.png
-
-Convert to MarkdownInformation on Vehicle Consigned to Soviet National
+Information on Vehicle Consigned to Soviet National
 
 G840sulin/bm
 DCS/Operational Support Staff

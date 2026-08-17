@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23317.png
-
-Convert to Markdown5
+5
 
 (5) Approximate Annual Income to Be Attributed to Cover Organization
 $10,000 (including allowances)

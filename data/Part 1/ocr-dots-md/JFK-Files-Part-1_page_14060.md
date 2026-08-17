@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14060.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 0623582
 DIR INFO MEX1 CITE WAVE 7727

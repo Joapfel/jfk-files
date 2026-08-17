@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8850.png
-
-Convert to Markdown29 June 1965
+29 June 1965
 
 MEMORANDUM FOR: Chief, WH Division
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1513.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="7">VERIFIED RECORD OF OVERSEAS SERVICE</th></tr><tr><td colspan="7">TO: Office of Personnel, Statistical Reporting Branch, ROOM 5 E 2506 Headquarters</td></tr><tr><th rowspan="2">EMPLOYEE SERIAL NO.</th><th colspan="3">NAME OF EMPLOYEE</th><th rowspan="2">OFFICE/COMPONENT</th><th rowspan="2"></th><th rowspan="2"></th></tr><tr><th>LAST</th><th>FIRST</th><th>MIDDLE</th></tr></thead><tbody><tr><td>1-8<br/>060947</td><td>Colecker</td><td>B Albert</td><td></td><td>29-28</td><td></td><td>43</td></tr></tbody></table>

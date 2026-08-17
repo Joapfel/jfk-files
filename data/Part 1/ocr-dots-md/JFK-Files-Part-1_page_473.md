@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_473.png
-
-Convert to Markdown16/06/77
+16/06/77
 
 <table>
    <thead>

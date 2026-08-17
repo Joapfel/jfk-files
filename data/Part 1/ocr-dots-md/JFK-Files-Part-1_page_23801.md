@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23801.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET/CONFIDENTIAL</td><td>DISPATCH SYMBOL AND NUMBER<br/>OELA-43,294</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET/CONFIDENTIAL</td><td>DISPATCH SYMBOL AND NUMBER<br/>OELA-43,294</td></tr></table>
 
 able to provide a great deal of information despite his having been pushed aside from active and direct participation in recent months.
 

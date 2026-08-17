@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3535.png
-
-Convert to MarkdownDRAFT
+DRAFT
 MEMORANDUM
 
 December 4, 1975.

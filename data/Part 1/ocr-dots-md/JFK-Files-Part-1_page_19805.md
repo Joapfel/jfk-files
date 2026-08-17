@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19805.png
-
-Convert to MarkdownADMINISTRATIVE INTERNAL USE ONLY
+ADMINISTRATIVE INTERNAL USE ONLY
 
 <table><thead><tr><th colspan="2">SECTION V<br>GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</th><th colspan="4">KNOWLEDGE ACQUIRED BY CHECK (N)</th></tr><tr><th>NAME OF REGION OR COUNTRY</th><th>TYPE OF SPECIALIZED KNOWLEDGE</th><th>DATES OF TRAVEL OR RESIDENCE</th><th>DATE & PLACE OF STUDY</th><th>RESIDENCE</th><th>TRAVEL</th><th>STUDY</th><th>WORK ASSIGNMENT</th></tr></thead><tbody><tr><td>1.</td><td></td><td>Had a permit or visa for the trip. May have been in the U.S. since 1978.</td><td>Mar. '63 - Jun. '75</td><td></td><td></td><td></td><td></td></tr><tr><td>2.</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

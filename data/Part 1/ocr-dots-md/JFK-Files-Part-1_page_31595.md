@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31595.png
-
-Convert to Markdownthe balloons, although only two hits were observed by border police.
+the balloons, although only two hits were observed by border police.
 
 On Wednesday, July 15, at 1400 hours, two Migs flew along the frontier over the site and were clearly observed by the working party. Subsequently that afternoon the theodolite was moved to a hilltop point (from which, incidentally, the hills around Pilsen could be discerned) and Migs attempting to shoot down balloons were viewed by members of the party as well as by the German border patrol. As many as 7 Migs were observed at one time. Three hits were witnessed, two of which appeared to cause the balloons to explode and one of which simply caused the balloon to disappear. On Wednesday night additional planes were reported by border police. Searchlights were also seen. On Thursday, 5 Messeramiths 109Fs replaced the Migs and succeeded in destroying three balloons. No air action was observed on Friday, although at 1000 hours a jet vapor trail materialized directly above the Launching site and was headed into Czechoslovakia. However, it was impossible to see the aircraft or to say for certain that this was a border violation.
 

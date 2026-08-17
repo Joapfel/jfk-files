@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32543.png
-
-Convert to MarkdownSUBJECT: Request for permission to marry Miss Virginia Lobo, a Cuban citizen.
+SUBJECT: Request for permission to marry Miss Virginia Lobo, a Cuban citizen.
 
 In compliance with FR-20-5b(1), the writer hereby requests permission to marry Miss Virginia Lobo, a Cuban citizen, and permission to remain in the employ of the Organization after marriage.
 

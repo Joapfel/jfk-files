@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21214.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 other officers of 7th Department examined the document to assess the effect its disclosure to the Americans by GOLITZYN would have on 7th Department cases.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7337.png
-
-Convert to MarkdownSource: Lienvoy/2
+Source: Lienvoy/2
 Rec'd: 9 9 Dec. 1968.
 
 Dillon

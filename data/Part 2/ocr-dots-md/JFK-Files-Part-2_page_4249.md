@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4249.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 4 June 1964

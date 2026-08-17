@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13986.png
-
-Convert to MarkdownMr. Pace asked what are the priority intelligence objectives which are assigned for coverage by CIA agents sent into Cuba. Mr. Fitzgerald said that the agents are targeted against the strategic military situation.
+Mr. Pace asked what are the priority intelligence objectives which are assigned for coverage by CIA agents sent into Cuba. Mr. Fitzgerald said that the agents are targeted against the strategic military situation.
 
 In answer to a query about the question of the use of Cuban caves, Mr. Fitzgerald said that this question had been pretty well resolved but CIA is keeping at it.
 

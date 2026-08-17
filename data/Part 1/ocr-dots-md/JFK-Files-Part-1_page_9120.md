@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9120.png
-
-Convert to Markdown# TOYS AND ACCESSORIES
+# TOYS AND ACCESSORIES
 
 Carrocer Hispánica S.A. produced 12,700 in 1955
 I.M.O.S.A. produced 16,434 in 1955

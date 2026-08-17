@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33435.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">CABLE S&C DISSENT BY</th><th rowspan="2">TOTAL COPIES</th><th rowspan="2"></th><th rowspan="2">CHILL PIN BY</th></tr><tr><th>CADLRS DISSEM BY</th><th>PER</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td>PERSON/UNIT NOTIFIED</td><td></td><td>SECRETS</td><td>20/12/84<br/>HARW THORRERG, J. E. G.</td><td></td><td>REPRODUCTION BY OTHER THAN INSUING OFFICE IS PROHIBITED</td></tr><tr><td colspan="5">ADVANCE COPY ISSUED NO<br/>ACTION UNIT C/W H 8<br/>INFO</td><td>AGENCY MESSAGE</td></tr><tr><td>ACTION #</td><td>RF. FILE</td><td>VR.</td><td>(1) HARW THORRERG, J. E. G.</td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="3">CABLE S&C DISSENT BY</th><th rowspan="2">TOTAL COPIES</th><th rowspan="2"></th><th rowspan="2">CHILL PIN BY</th></tr><tr><th>CADLRS DISSEM BY</th><th>PER</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td>PERSON/UNIT NOTIFIED</td><td></td><td>SECRETS</td><td>20/12/84<br/>HARW THORRERG, J. E. G.</td><td></td><td>REPRODUCTION BY OTHER THAN INSUING OFFICE IS PROHIBITED</td></tr><tr><td colspan="5">ADVANCE COPY ISSUED NO<br/>ACTION UNIT C/W H 8<br/>INFO</td><td>AGENCY MESSAGE</td></tr><tr><td>ACTION #</td><td>RF. FILE</td><td>VR.</td><td>(1) HARW THORRERG, J. E. G.</td><td></td><td></td></tr></tbody></table>
 
 T 551709
 

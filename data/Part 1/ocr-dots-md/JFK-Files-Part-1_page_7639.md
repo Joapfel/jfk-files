@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7639.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Research vessel MINIMILIO GONZÁLEZ (3 photos enclosed) arrived February 26, giving Cristobal as her last port, and is expected to leave late February 28. On February 25, the merchant vessels VITILLUM S and H.C.V.S.K. arrived in ballast from Mexico, Cuba, and Gabon, respectively. The force is to land an estimated 5,000 metric tons of corn and the latter an estimated 11,000. Crew lists of the three ships last mentioned are enclosed. Mexican authorities mounted a guard around the L.GONZÁLEZ and refused to let anyone on or off. Soviet Consul and Third Secretary Valentin L. LOGVINOV, in town in connection with the visiting Russian ships, called the Consulate on February 27, wanting to talk to the Consul, who was out of town, but showed no interest in talking to the Vice Consul. On February 29, a local shipping agent introduced Logvinov to the Vice Consul. Logvinov complained of the lack of hospitality shown to the Soviet scientific ship by Mexican authorities, comparing this with the magnificent reception the ship had received in San Francisco; he even asked if the American Consulate didn't have some relationship with Mexican immigration authorities, implying that we might be able to help them. Logvinov, who was very cordial, said he had been in Mexico City a year and half and lived there with his family. He seemed about six feet tall, with short, reddish-blonde hair, and spoke fluent Spanish with Russian accent.
 

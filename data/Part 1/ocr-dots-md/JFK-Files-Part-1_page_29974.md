@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29974.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>From date assignment to theater to 11. May 1941 until, Soviet operations</td></tr><tr><td>Section, MCB. Direct all operations into USHK mounted by section.</td></tr><tr><td>From 12 May 1941 to present, unit, Combined Ocn (U) Soviet operations</td></tr><tr><td>MCO. Directed all activities aimed at work within the USHK including that involving USCH enigro groups.</td></tr></table>
 

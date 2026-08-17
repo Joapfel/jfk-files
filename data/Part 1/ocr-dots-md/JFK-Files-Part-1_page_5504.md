@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5504.png
-
-Convert to Markdown14-00000
+14-00000
 
 A l'occasion des fêtes manifesteront oncor-
 tives ou d'un grand incident, les forces vues

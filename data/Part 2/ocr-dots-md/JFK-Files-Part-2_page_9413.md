@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9413.png
-
-Convert to MarkdownDE T-1
+DE T-1
 November, 1970
 
 The NCCF opened a new office at 3595 17th Street,

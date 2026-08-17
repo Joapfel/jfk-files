@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5188.png
-
-Convert to Markdown# AGENT PARTICIPATION
+# AGENT PARTICIPATION
 
 You have indicated Special Agents JAMES P. MALOY, CARLTON H. WOLFARTH and GARY N. MAVITY have spent 50% or more of their time on criminal type investigative matters during the past year but do not currently have assigned a qualified CI personally developed by them. Further comment is being set forth later in this addendum concerning these Agents.
 

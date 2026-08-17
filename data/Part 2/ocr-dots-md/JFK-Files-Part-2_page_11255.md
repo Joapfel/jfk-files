@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11255.png
-
-Convert to Markdownfellow office territory, the name and title of each Negro included in this total who maintains a national level position, and the name and title of each Negro included in this total who maintains a district level position above the status of "club chairman." Members of the Communist Party, USA, who are now carried as unidentified but who are known to be members of the Negro race should be included in the total number of Negroes.]
+fellow office territory, the name and title of each Negro included in this total who maintains a national level position, and the name and title of each Negro included in this total who maintains a district level position above the status of "club chairman." Members of the Communist Party, USA, who are now carried as unidentified but who are known to be members of the Negro race should be included in the total number of Negroes.]
 
 When possible, totals should be broken down as to nationality, sex, employment, veterans, and membership in unions. Auxiliary offices which, due to lack of Communist Party activity in their divisions, have been authorized to submit data by quarterly letter should include membership figures in these letters to the Bureau and office of origin. These letters to be submitted by auxiliary offices prior to first day of month in which quarterly report is due. Office of origin responsible to obtain complete figures from its auxiliary offices.
 

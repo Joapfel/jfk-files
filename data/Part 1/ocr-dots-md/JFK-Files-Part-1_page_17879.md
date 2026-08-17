@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17879.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CLASSIFIED MESSAGE</td>
    </tr>

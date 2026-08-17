@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21450.png
-
-Convert to Markdown32, Hartswood Road
+32, Hartswood Road
 Stamford Brook
 London, W.12
 

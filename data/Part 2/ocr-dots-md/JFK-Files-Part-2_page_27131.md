@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27131.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 counterintelligence personnel should be allocated to the
 counterintelligence unit in Headquarters. This 10 per cent,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35075.png
-
-Convert to MarkdownHoja No. 2
+Hoja No. 2
 
 Gastos Varios (Miscellaneous)
 

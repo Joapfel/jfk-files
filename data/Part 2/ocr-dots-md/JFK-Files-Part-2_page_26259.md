@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26259.png
-
-Convert to Markdown<table><tr><td>SECRET</td></tr></table>
+<table><tr><td>SECRET</td></tr></table>
 
 CIA INFORMATION REPORT
 

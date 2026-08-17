@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27551.png
-
-Convert to MarkdownNancy S. Jenkins
+Nancy S. Jenkins
 
 REFERENCES: Honorable Thomas N. Downing
 U.S. House of Representatives

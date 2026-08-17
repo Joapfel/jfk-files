@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7241.png
-
-Convert to MarkdownSECRET
+SECRET
 
 attention and what steps could be taken, if the President
 directed, to provide the maximum possible coverage of these

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30435.png
-
-Convert to Markdown4. (Name and Chapter) (St. and Number) (City) (State) (Country)
+4. (Name and Chapter) (St. and Number) (City) (State) (Country)
 
 DATES OF MEMBERSHIP:
 

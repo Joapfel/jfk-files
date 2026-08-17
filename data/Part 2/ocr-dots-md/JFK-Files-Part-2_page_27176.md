@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27176.png
-
-Convert to Markdown# Belin-Gray-Greene Files
+# Belin-Gray-Greene Files
 
 ## I. Commission Meetings
 

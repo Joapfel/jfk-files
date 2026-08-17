@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_948.png
-
-Convert to MarkdownBy the establishment of effective liaison contacts, we recognize and solve minor problems before they become major problems, requiring protracted and expensive negotiations between the Federal Bureau of Investi- gation and other Agencies. These objectives are achieved by placing experience FBI representatives in contact with officials at the highest levels of other Government Agencies where the Federal Bureau of Investigation either needs assistance or has concurrent interests. The Federal Agencies with which the Federal Bureau of Investigation currently maintains direct personal liaison are:
+By the establishment of effective liaison contacts, we recognize and solve minor problems before they become major problems, requiring protracted and expensive negotiations between the Federal Bureau of Investi- gation and other Agencies. These objectives are achieved by placing experience FBI representatives in contact with officials at the highest levels of other Government Agencies where the Federal Bureau of Investigation either needs assistance or has concurrent interests. The Federal Agencies with which the Federal Bureau of Investigation currently maintains direct personal liaison are:
 
 (a) The White House
 

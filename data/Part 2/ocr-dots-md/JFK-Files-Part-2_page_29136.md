@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29136.png
-
-Convert to MarkdownNWK-88326 DocID:32245535 Page 182
+NWK-88326 DocID:32245535 Page 182
 
 <table>
    <tr>

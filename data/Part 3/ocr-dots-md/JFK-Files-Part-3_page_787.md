@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_787.png
-
-Convert to Markdown# COMMENTS ON PROPOSED PROCEDURES
+# COMMENTS ON PROPOSED PROCEDURES
 
 1. 48 hour lead time is very short and may create problems; 24 hour reaction time may be unreasonable for Attorney General.
 

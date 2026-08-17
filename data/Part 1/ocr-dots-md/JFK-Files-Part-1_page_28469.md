@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28469.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="2">STANDARD FORM 52<br>PROPRIETY OF THE<br># &amp; THE NAME OF THE<br>MEMBERSHIP FOR PERSONNEL<br>DEPARTMENT</td>
         <td rowspan="2">SECRET</td>

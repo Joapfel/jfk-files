@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3140.png
-
-Convert to Markdown201-236701
+201-236701
 Argentina 01 Sep 70
 
 2 2 23 21 25 2

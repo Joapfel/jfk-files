@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10418.png
-
-Convert to Markdown12 July, 1968
+12 July, 1968
 
 Subject: LIRING/4 Report of Activities.
 

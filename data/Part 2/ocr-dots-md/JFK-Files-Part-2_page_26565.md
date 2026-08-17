@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26565.png
-
-Convert to Markdownc. The USSR may repeat last year's performance of multiple firings from a prototype operational complex at Tyuratam. Three such launchings were attempted at five-minute intervals in May 1963; two succeeded.
+c. The USSR may repeat last year's performance of multiple firings from a prototype operational complex at Tyuratam. Three such launchings were attempted at five-minute intervals in May 1963; two succeeded.
 
 d. We also do not rule out the possibility of firings from operational sites as opposed to the test center at Tyuratam. We observed the first such firing on 22 October from the Plesetsk site, roughly 400 miles northeast of Moscow. (Includes INTERCEPTS)
 

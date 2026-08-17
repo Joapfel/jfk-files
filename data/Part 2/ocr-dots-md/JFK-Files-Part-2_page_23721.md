@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23721.png
-
-Convert to Markdownis that human collection projects would go to the operations
+is that human collection projects would go to the operations
 advisory group for approval. That is, for operational approval.
 
 As you know from our testimony these kinds of projects

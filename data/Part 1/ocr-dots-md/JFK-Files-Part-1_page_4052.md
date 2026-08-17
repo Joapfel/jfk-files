@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4052.png
-
-Convert to MarkdownESTUDIO PARE ININAR
+ESTUDIO PARE ININAR
 
 VARADERO - ASTILLERO
 

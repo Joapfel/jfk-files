@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32983.png
-
-Convert to Markdown3. Miguel has begun to US as a citizen on several occasions to inquire if the delay in giving him (and his wife and daughter) their US citizenship. He has always been told that "nothing is wrong," and that he will be called soon. Put over a year's wait is not normal and something must be wrong.
+3. Miguel has begun to US as a citizen on several occasions to inquire if the delay in giving him (and his wife and daughter) their US citizenship. He has always been told that "nothing is wrong," and that he will be called soon. Put over a year's wait is not normal and something must be wrong.
 
 4. In view of Miguel's past relationship with us we wonder if this is holding up his citizenship. He asks us to inquire with the responsible authorities and for him to know the present status of the case.
 

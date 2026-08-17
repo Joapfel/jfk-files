@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23249.png
-
-Convert to Markdown14-00090
+14-00090
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>ORIG: H. G. MACAULEY<br/>UNIT: WH/III<br/>EXT: 2056<br/>DATE: 10 FEBRUARY 1958</td><td><table><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr><tr><td colspan="2">TO - HABANA</td></tr><tr><td colspan="2">FROM - DIRECTOR</td></tr><tr><td colspan="2">CONF - WH 5</td></tr><tr><td colspan="2">INFO : COP, CI, CI/OPS, CI/IC, FI, FI/OPS 2, PP 2, PP/OPS,<br/>S/C 2</td></tr></tbody></table>
 

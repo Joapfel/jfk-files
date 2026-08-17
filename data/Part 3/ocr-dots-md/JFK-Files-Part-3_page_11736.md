@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11736.png
-
-Convert to MarkdownLEGAL ATTACHE OFFICES
+LEGAL ATTACHE OFFICES
 FOREIGN LIAISON
 
 4-H-1

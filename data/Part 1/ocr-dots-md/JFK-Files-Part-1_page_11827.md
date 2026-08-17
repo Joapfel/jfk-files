@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11827.png
-
-Convert to Markdown"CS" RECORD MATERIAL
+"CS" RECORD MATERIAL
 
 FORM
 12-62

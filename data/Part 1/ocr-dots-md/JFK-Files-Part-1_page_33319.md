@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33319.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 of Chile and a leading shareholder and board chairman of the Papelera) had made a deal with Allende to give the Government control over the Papelera to weaken the will of private shareholders and their supporters. That the Papelera still withstands these combined pressures a year later is a tribute to a determined defense of the firm by an opposition Congress, to the loyalty of the bulk of the Papelera employees, and to an aroused and alerted opposition media.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25458.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="10" style="text-align:center; font-weight:bold;">PROCESS SHEET FOR DOMESTIC CONTACT SERVICE COLLECTIONS</td>

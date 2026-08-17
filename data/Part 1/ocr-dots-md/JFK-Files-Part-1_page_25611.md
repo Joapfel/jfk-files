@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25611.png
-
-Convert to MarkdownSECRET
+SECRET
 (If not filled in)
 
 EXTRACT AND CROSS REFERENCE

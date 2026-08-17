@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1193.png
-
-Convert to Markdown12 October 1976
+12 October 1976
 
 MEMORANDUM FOR: Director of Security
 

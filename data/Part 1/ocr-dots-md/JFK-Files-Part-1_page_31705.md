@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31705.png
-
-Convert to Markdown26 February 1953
+26 February 1953
 
 MEMORANDUM TO: Acting Director, Central Intelligence Agency
 

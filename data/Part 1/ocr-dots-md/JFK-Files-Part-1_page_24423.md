@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24423.png
-
-Convert to MarkdownSecret
+Secret
 
 LISTEN REPORT 228, Kairo
 

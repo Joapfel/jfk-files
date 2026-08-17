@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20130.png
-
-Convert to Markdown14-00000
+14-00000
 
 THIS DUPLICATE WILL BE RETURNED TO YOU
 

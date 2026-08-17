@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17868.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 
 CRIG : JAMES G. JUNO: dms
 UNIT : EE/YA

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25455.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Chief, Los Angeles Office
 

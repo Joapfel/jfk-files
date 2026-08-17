@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29582.png
-
-Convert to MarkdownMedia oper C.M. 10 MP:
+Media oper C.M. 10 MP:
 
 Parachutist
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3563.png
-
-Convert to Markdown<table><tr><td rowspan="2">MESSAGE FORM<br/>TOTAL COPIES: 151</td><td>SECRET</td></tr><tr><td></td></tr></table>
+<table><tr><td rowspan="2">MESSAGE FORM<br/>TOTAL COPIES: 151</td><td>SECRET</td></tr><tr><td></td></tr></table>
 
 <table><tbody><tr><td>R.G. NO.</td><td>C-82064</td></tr><tr><td>N.B.</td><td></td></tr><tr><td>F.O.B.</td><td></td></tr><tr><td>M.F.</td><td></td></tr></tbody></table>
 

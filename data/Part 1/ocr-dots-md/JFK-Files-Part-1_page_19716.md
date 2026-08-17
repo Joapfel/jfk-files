@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19716.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 (When Filled In)
 
 MEMORANDUM FOR: Chief, Transactions & Records Branch/OP

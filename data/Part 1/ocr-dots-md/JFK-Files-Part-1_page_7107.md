@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7107.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, SR Division
 

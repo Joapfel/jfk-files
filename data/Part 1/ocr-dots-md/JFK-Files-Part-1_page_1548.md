@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1548.png
-
-Convert to Markdown**RETURN TO CIA**
+**RETURN TO CIA**
 **Background Use Only**
 **Do Not Reproduce**
 

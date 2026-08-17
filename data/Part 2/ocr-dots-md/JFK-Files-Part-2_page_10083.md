@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10083.png
-
-Convert to Markdown# Memorandum for the Attorney General
+# Memorandum for the Attorney General
 
 Interception will be made without trespass and maximum security will be guaranteed. Because of extensive contacts of the organizations involved, it cannot be anticipated whether individuals who are or may be placed under an active investigation for possible criminal violations will be over-heard by this coverage.
 

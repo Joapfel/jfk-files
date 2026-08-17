@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9135.png
-
-Convert to MarkdownPÁGINAS FALTANTES
+PÁGINAS FALTANTES
 
 ALBADA POCINO, Leandro.
 Director Ingeniero de Industrias Textiles, E.T.S. de Ingenieros Industriales de Tarragona.

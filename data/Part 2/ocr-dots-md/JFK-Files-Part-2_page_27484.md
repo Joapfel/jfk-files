@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27484.png
-
-Convert to MarkdownSelect Committee on Assassinations
+Select Committee on Assassinations
 U.S. House of Representatives
 
 WASHINGTON, D.C. 20515

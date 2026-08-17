@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8727.png
-
-Convert to Markdownmore a statement of mood or feeling rather than fact.
+more a statement of mood or feeling rather than fact.
 
 ## AMEMBER Operation 19-6-116/2,3,4
 

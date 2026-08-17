@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25354.png
-
-Convert to Markdownthat log.
+that log.
 
 2. A new analysis of all the long distance toll calls of Jack Ruby in the days around Nov. 22. Warren Comm. records show he made calls to Chicago O.S. figure Barney Baker, and Teamster heavy Dusty Miller, plus others. Does the explanation for these calls really wash (i.e. Ruby's union troubles in re his nightclub). Has this whole $&amp; subject been exhausted by Warren Comm. or not. Is there more (interviews, etc.) that should be done here?
 

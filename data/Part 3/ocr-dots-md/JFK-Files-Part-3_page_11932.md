@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11932.png
-
-Convert to Markdown4-E
+4-E
 
 # 4. Foreign Agents Registration Act (FARA) and Other Prosecutive Action
 

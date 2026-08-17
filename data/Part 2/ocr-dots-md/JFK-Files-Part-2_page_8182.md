@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8182.png
-
-Convert to Markdown13-00000
+13-00000
 
 Weiner Bastian
 1415 Kearny St

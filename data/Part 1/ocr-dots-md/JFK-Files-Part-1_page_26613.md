@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26613.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ACTION AGAINST HIM.
 

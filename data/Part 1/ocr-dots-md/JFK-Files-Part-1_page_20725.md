@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20725.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filed In)
 
 BWS: 31 AUG 1961

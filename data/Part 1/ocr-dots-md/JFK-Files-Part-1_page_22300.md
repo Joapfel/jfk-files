@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22300.png
-
-Convert to Markdownthe section's operations, to supervise in particular opera-
+the section's operations, to supervise in particular opera-
 tional activity against American diplomatic personnel assigned
 to the U.S. Embassy. NOSENKO had been specifically instructed
 by GRIBANOV and American Department Chief KLYPIK to concentrate

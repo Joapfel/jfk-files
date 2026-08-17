@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9275.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 of the Liberation School are to enlighten the children with
 the aims of the BPP. ALVIN BROWN is currently in charge

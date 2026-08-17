@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20923.png
-
-Convert to MarkdownWomen's Bail Fund
+Women's Bail Fund
 
 "I've been real impressed with what women in the group are willing to commit themselves to do and that they fulfill those commitments. And that atmosphere of responsibility affects new members too. This is real important. It helps me through the rough times and all the ideological hassles and struggles we go through. You really have a sense that everyone really wants to work things through, search for solutions, wants to hold together because we feel responsible for the work. Even the way people ask for leaves of absence when they are sick or too busy, that they feel they want to explain why they have to stop doing work for a while, shows people's commitment and responsibility."
 

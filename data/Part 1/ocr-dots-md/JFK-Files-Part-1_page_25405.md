@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25405.png
-
-Convert to MarkdownC-O-M-T-I-D-E-N-T-I-A-L
+C-O-M-T-I-D-E-N-T-I-A-L
 
 FILE.
 

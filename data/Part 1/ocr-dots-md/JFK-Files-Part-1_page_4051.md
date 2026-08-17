@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4051.png
-
-Convert to MarkdownDIAGRAM No. 3 - S-TRIPOD CRADLE
+DIAGRAM No. 3 - S-TRIPOD CRADLE
 
 **Specifications:**
 

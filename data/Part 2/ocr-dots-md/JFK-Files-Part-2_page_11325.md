@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11325.png
-
-Convert to Markdownb. Information should be reported according to the following outline. All main headings denoted by Roman numerals must be accounted for. If there is no information to report under a particular main heading, the heading should appear, followed by a statement "No information developed."
+b. Information should be reported according to the following outline. All main headings denoted by Roman numerals must be accounted for. If there is no information to report under a particular main heading, the heading should appear, followed by a statement "No information developed."
 
 ## I. COMMUNIST STRATEGY
 

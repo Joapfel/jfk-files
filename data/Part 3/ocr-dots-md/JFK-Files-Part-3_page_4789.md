@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4789.png
-
-Convert to MarkdownCI 92-1084
+CI 92-1084
 ACH/jr
 1
 

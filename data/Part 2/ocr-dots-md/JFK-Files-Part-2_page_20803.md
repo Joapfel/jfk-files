@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20803.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 part of a nationwide campaign sponsored by WONAAC. Dr. BARBARA ROBERTS, WONAAC National Coordinator, and SHARON NAIMAN, WDC local YSA member, were among the conveners of the Commission.
 

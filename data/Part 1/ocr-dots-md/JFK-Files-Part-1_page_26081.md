@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26081.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 2 CARACAS 3748 SECRET
 

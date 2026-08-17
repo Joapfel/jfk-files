@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2966.png
-
-Convert to Markdowndaddy was doing. As relations between the United
+daddy was doing. As relations between the United
 States and Cuba deteriorated the station concentrated
 on support for the Cuban invasion then being planned,
 and on developing stay-behind assets. Frank Belsito

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28389.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 TO: Tom Howarth and Becky Martin
 FROM: Steve Fallis

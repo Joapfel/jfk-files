@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8680.png
-
-Convert to MarkdownCorp. and two BABUN employees, Oscar FERNANDEZ Veigo and Eliseo GOMEZ Fernandez; also, Jose "Pepin" BOSCH, Julio LOBO Olavarria and Eduardo GARCIA of the Garcia Lines, New York City. One of the ship owners allegedly had contacts with the underworld through his partner, a former police officer from St. Louis with tie-in to elements of the "Cosa Nostra."
+Corp. and two BABUN employees, Oscar FERNANDEZ Veigo and Eliseo GOMEZ Fernandez; also, Jose "Pepin" BOSCH, Julio LOBO Olavarria and Eduardo GARCIA of the Garcia Lines, New York City. One of the ship owners allegedly had contacts with the underworld through his partner, a former police officer from St. Louis with tie-in to elements of the "Cosa Nostra."
 
 **DBA 92798 dated 7 December 1964 (FBI)**
 

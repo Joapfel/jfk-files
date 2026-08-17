@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32588.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the U.S. Southern Command Intelligence Center and took under consideration the problem of an increase in the billet structure in the Center. The Commander-in-Chief, U.S. Southern Command together with his intelligence officer visited Honduras and Nicaragua and determined that no significant problems existed which would interfere with effective operations in those countries.
 

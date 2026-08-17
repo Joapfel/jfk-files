@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5810.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 Enclosed for your approval and forwarding to the SSC
 is the original of a memorandum which constitutes the Bureau's

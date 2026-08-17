@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13438.png
-
-Convert to Markdown NW 78141
+NW 78141
 
 DocId:32201382 Page 45
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24746.png
-
-Convert to MarkdownBundy testified that he believed that neither of these conditions had been fulfilled (Bundy, p. 7).
+Bundy testified that he believed that neither of these conditions had been fulfilled (Bundy, p. 7).
 
 Bundy recalled the conversation as taking place "sometime in the early months of 1961." (Bundy, p. 4). When questioned about the dates in Harvey's notes, Bundy rated the chance that the conversation about executive action took place before January 25 -- when Harvey was already discussing the project at the CIA pursuant to Bissell's directive -- as "near zero" because the new Administration had been in office less than a week and he had been preoccupied with other problems, including the Berlin crisis and reorganizing the National Security staff (Bundy, p. 9).
 

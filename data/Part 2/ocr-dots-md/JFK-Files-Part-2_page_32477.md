@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32477.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">CLASSIFICATION — DISSEMINATION CONTROLS</th></tr></thead><tbody><tr><td>SECRET<br/>(When Filled In)</td><td>NO FOREIGN DISSEM</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23602.png
-
-Convert to Markdown# GOODWIN (TRUJILLO)
+# GOODWIN (TRUJILLO)
 
 The papers produced by Mr. Goodwin on 7/16/75 contained some Trujillo-related material. Certain documents were selected from this material and are produced herein under Tabs S and T. All of the attached Trujillo-related documents have been produced before the Committee, and Mr. Goodwin has been questioned concerning them. They are attached again herein for possible use in connection with questions concerning handwritten notations appearing on the documents.
 

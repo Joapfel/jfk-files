@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8926.png
-
-Convert to MarkdownFebruary-March 1964
+February-March 1964
 
 According to a sensitive source:
 

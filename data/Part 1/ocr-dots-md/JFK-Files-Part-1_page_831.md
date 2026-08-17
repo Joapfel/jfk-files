@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_831.png
-
-Convert to Markdown14-00000
+14-00000
 
 87. Wednesday, 20 November, was spent on the same key. A very long radio message was received during the day. AMFAUNA-14 and AMWEB-2 both helped the radio man to decipher it, and their combined efforts took about three hours. Then they put out again for the Cayo Megano rendezvous point. By this time their drinking water was all gone. The boat was overloaded, so much of the food and equipment was left behind on the key. Again no ship appeared. This time, instead of returning to their original hiding place, the crew took the boat to Cayo Mosquito.
 

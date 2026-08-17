@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12281.png
-
-Convert to Markdown2 October 1964
+2 October 1964
 
 **MEMORANDUM FOR:** ~~FREEMAN~~
 **SUBJECTS:**

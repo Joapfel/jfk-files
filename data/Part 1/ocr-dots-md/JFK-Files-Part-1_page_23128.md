@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23128.png
-
-Convert to MarkdownGeorgia 123
+Georgia 123
 México 18, D.P.
 
 Hízense a Notar

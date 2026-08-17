@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28528.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td colspan="2">096043 BAGLEY TENNENT M</td><td>48 200 CF</td><td colspan="3">7 TYPE ACTION</td></tr><tr><td rowspan="2">Grade</td><td rowspan="2">Step</td><td colspan="2">OLD SALARY RATE</td><td rowspan="2">Grade</td><td rowspan="2">Step</td><td rowspan="2">Salary. [Handwritten: 116.06]</td><td rowspan="2">(Original Effective Date)</td><td rowspan="2">PSI</td><td rowspan="2">LSI</td><td rowspan="2">ADJ.</td></tr><tr><td>Salary</td><td>(Handwritten: 116.06) (Handwritten: 09/15/63)</td></tr></thead><tbody><tr><td>G3 15 2</td><td></td><td>116.06</td><td>$10,180</td><td>09/15/63</td><td>G3 15 3</td><td>316.7695</td><td>09/13/64</td><td></td><td></td><td></td></tr></tbody></table>
 

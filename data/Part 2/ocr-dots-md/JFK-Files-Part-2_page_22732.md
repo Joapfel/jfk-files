@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22732.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 asset inhibit you in any way from using the asset or the Agency
 from utilizing it?

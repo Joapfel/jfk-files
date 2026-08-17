@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_389.png
-
-Convert to Markdown**Option 2:** Same as Option 1, except that a xerox of the documents as excised is delivered to the Senator.
+**Option 2:** Same as Option 1, except that a xerox of the documents as excised is delivered to the Senator.
 
 ____ Approved
 

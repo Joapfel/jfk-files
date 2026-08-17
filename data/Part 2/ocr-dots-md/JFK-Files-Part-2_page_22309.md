@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22309.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. **enforcement authorities in Los Angeles, and who resembled the Russian female agent.**
 

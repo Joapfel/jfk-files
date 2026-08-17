@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5573.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 DOWNGRADED TO
 

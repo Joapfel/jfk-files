@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35204.png
-
-Convert to MarkdownDr. Aureliano Sanchez Arango.
+Dr. Aureliano Sanchez Arango.
 
 Entry #3 in the name of Dr. Manuel Antonio de Varona in the amount
 of $931.49, according to a "statement" in our possession does not consist

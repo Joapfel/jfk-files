@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27382.png
-
-Convert to MarkdownMay 7, 1953
+May 7, 1953
 
 Mr. William H. Dulles
 Director, Central Intelligence Agency, Washington D. C.

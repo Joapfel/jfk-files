@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24935.png
-
-Convert to MarkdownC. The need for a statute. Commendable and welcome as they are, these CIA directives are not sufficient. Administrations change, CIA directors change, and someday in the future what was tried in the past may once again become a temptation. Assassination plots did happen. It would be irresponsible for us not to do all that we can do to prevent their happening again. Laws express our society's values; they deter those who might be tempted and stiffen the will of those who want to resist.
+C. The need for a statute. Commendable and welcome as they are, these CIA directives are not sufficient. Administrations change, CIA directors change, and someday in the future what was tried in the past may once again become a temptation. Assassination plots did happen. It would be irresponsible for us not to do all that we can do to prevent their happening again. Laws express our society's values; they deter those who might be tempted and stiffen the will of those who want to resist.
 
 The statute we recommend, which is printed as an appendix to this report, makes it a criminal offense for persons subject to the jurisdiction of the United States 1) to conspire, within or outside the United States, to assassinate a foreign official; 2) to attempt to assassinate a foreign official, or 3) to assassinate a foreign official.
 

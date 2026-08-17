@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23000.png
-
-Convert to Markdown1 we did work out through the entire state, and I did not want
+1 we did work out through the entire state, and I did not want
 2 you to feel that I was being less than candid with you, and
 3 you keep saying south Florida, I want to say to you that we
 4 operated in the state of Florida, men moving around armed under

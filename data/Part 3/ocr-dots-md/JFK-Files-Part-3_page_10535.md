@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10535.png
-
-Convert to MarkdownTHE FOLLOWING REPRESENTS SAS IN RAS:
+THE FOLLOWING REPRESENTS SAS IN RAS:
 
 |       | IS   | CI   |
 | :---- | :--- | :--- |

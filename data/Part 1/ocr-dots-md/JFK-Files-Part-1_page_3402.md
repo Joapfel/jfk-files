@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3402.png
-
-Convert to MarkdownA. - Yes. We dream of independence with liberty, liberty with culture, culture with bread, bread for honest work, honest work with respect for the dignity of the human being; and all this in a democratic regime of Latin American character and Christian morality.
+A. - Yes. We dream of independence with liberty, liberty with culture, culture with bread, bread for honest work, honest work with respect for the dignity of the human being; and all this in a democratic regime of Latin American character and Christian morality.
 
 Q. - Would your group favor keeping some laws of the Revolution if it is proved that they correspond to some need, or do you think that the Fidel epoch should be swept out completely and a fresh start made?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6123.png
-
-Convert to MarkdownF-77-025 - EK
+F-77-025 - EK
 
 Pls acknowledge
 

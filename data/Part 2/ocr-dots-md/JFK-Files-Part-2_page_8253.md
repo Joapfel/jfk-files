@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_8253.png
-
-Convert to MarkdownDuring this period of time, DIMITROV was the principal agent in an ill-fated operation which resulted in a major expose and trial in Sofia during 1951. The agents used were those selected by DIMITROV, at least one of whom was probably an operative of the Bulgarian Militia and acted as the betrayer of his colleagues.
+During this period of time, DIMITROV was the principal agent in an ill-fated operation which resulted in a major expose and trial in Sofia during 1951. The agents used were those selected by DIMITROV, at least one of whom was probably an operative of the Bulgarian Militia and acted as the betrayer of his colleagues.

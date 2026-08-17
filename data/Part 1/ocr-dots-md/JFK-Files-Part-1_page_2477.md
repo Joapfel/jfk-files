@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2477.png
-
-Convert to Markdownnear the site which was maintained for three months and that he was
+near the site which was maintained for three months and that he was
 informed on a daily basis of the results of this stake out (always
 negative). To take this statement literally would raise a further problem
 since, in addition to his transfer from the First Department to the

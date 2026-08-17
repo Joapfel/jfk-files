@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9238.png
-
-Convert to MarkdownDavid Hilliard
+David Hilliard
 
 Free Busing to Prison Program
 

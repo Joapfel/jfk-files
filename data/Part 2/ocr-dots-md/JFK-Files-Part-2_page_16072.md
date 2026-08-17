@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16072.png
-
-Convert to MarkdownDate: 6/10/69
+Date: 6/10/69
 
 On June 4, 1969, Special Agent (SA) GORDON S. BROOKS and SA HERMAN H. SCOTT arrested PATRICK KEEN at the headquarters of the Black Panther Party (BPP), 2350 West Madison Street.
 

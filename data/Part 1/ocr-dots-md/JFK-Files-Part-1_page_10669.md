@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10669.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 Bureau's position, both then and now, apparently is that Souza has little potential as an asset for internal security matters and therefore would not justify any substantial financial obligation. In very low key, it was made clear to O'Brien that the Agency was interested in Souza's Positive Intelligence potential (his access in Havana should be good, given his long friendship with Roa and his closeness to María Celia Girona Fernández (201-327421), cousin of Celia Sánchez Manduley) and well might find justification for providing modest security for Souza's old age.
 

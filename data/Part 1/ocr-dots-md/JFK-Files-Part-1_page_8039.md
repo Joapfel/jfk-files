@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8039.png
-
-Convert to MarkdownSECRET
+SECRET
 
 flow in, in quantity, from Guatemala, which has been the great center for the accumulation of arms. From a place in British Honduras named Middleshoe, many rifles were secured with the connivance of British officers stationed there, then passed across the border.
 

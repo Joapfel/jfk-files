@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17343.png
-
-Convert to Markdown10:20
+10:20
 
 ACUDIMI EN SABATO, deslъ la hora del LIO. F. A. K. VILLAR, 14
 10:45 A. M. por el MAESTRÓ. Es especially for the

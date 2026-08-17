@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9145.png
-
-Convert to MarkdownRH 157-1558
+RH 157-1558
 
 On August 17, 1966, Mr. JOSE WILLIAMS, Probation Officer, Mercer County Probation Office, Trenton, New Jersey, advised SA NORMAN A. HENDRICKS that subject had been arrested on various burglary charges in Trenton, New Jersey, during 1963 and 1964. He stated that DRAGER had Trenton Police Department Number 20118, and New Jersey State Identification Number 758412. Mr. WILLIAMS stated that as to a sentence on March 6, 1964, for nine months for assault with a deadly weapon, this particular crime was committed by DRAGER in a service station on May 12, 1963. The owner of the station surprised him committing a larceny at the station at 1:00 a.m., and DRAGER shot at the owner, firing through a window, and thus making his escape. He was later arrested and identified as the burglar by the owner of this station. The subject later claimed he had fired the pistol in the air. He received a two-year probation sentence after the nine months for assault, and his probation ended on March 6, 1966.
 

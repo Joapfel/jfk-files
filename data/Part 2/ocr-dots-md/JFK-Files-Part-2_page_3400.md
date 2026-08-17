@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3400.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 25. MR from Jacob D. Esterline, 13 Aug 60, op. cit.
 

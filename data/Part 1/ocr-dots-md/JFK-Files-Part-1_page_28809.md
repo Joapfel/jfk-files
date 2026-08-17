@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28809.png
-
-Convert to MarkdownWashington, D.C.
+Washington, D.C.
 
 April 20, 1961
 

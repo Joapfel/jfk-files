@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2729.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. Mr. Kent has a first rate mind, a unique flair for SA operations, and unusual language capabilities. During the Chilean crisis period he demonstrated his dedication to duty, working eleven or twelve hours a day without complaint, and his ability to make effective use of his exceptional professional talents and experience while simultaneously exercising sound judgment and leadership in his management of Branch affairs.
 

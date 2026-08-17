@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32704.png
-
-Convert to Markdownregulations after reasonable efforts had been made to communicate with the vessel or craft, or in self-defense.
+regulations after reasonable efforts had been made to communicate with the vessel or craft, or in self-defense.
 
 In the days immediately following, twelve other American republics offered assistance in support of the quarantine operation: Argentina, Dominican Republic, Venezuela, Costa Rica, Colombia, Ecuador, El Salvador, Guatemala, Haiti, Honduras, Panama, and Nicaragua. Several of these offers included naval units, posing the problem of coordination of forces. Consequently, on November 5, the C.O.A.S./O.C. recommended that the contributing member states take among themselves the technical measures necessary to establish an efficient and coordinated action. Pursuant to this recommendation, the governments of Argentina, the Dominican Republic and the United States on November 9 notified the C.O.A.S./O.C. of the establishment of an Inter-American Combined Quarantine Force into which they were integrating their respective naval units and placing officers of the participating navies on the staff of the Commander of the Combined Quarantine Force.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4392.png
-
-Convert to Markdown**Memorandum for the Attorney General**
+**Memorandum for the Attorney General**
 
 Since this surveillance has been established it has furnished information concerning identification of the leadership and membership of the White Panther Party, both nationally and in the State of Michigan. It has further developed information that a national conference of this organization will not be held until after a current trial involving John Sinclair, John W. Forrest and Lawrence Plamondon is finished in Ann Arbor. It has also furnished information that the White Panther Party is still in desperate need of funds and that this organization received the most current communication from the Weatherman underground entitled "New Morning - Changing Weather." It advised that a current White Panther Party leader has been placed in a semi-purged state because of suspicion he is a police informant. It should be noted that this individual is not an informant.
 

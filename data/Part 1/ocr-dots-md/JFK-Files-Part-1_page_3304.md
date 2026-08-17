@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3304.png
-
-Convert to Markdown17-1976
+17-1976
 
 Date: October 1, 1964.
 

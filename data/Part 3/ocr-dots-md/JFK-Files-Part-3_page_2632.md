@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2632.png
-
-Convert to Markdownin many cases it has gone beyond what would appear to have been necessary to have addressed the original threat.
+in many cases it has gone beyond what would appear to have been necessary to have addressed the original threat.
 
 How do we keep within the proper balance there?
 

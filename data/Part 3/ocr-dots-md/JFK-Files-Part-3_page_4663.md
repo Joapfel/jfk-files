@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4663.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 subject was from FRANK CHAPPELL of the Miami, Florida Intelligence Unit, who indicated to him that subject was observed in Miami with other individuals who were interested in opening some new restaurant. He advised that as of November 15, 1962, it had been agreed upon by the various Intelligence Unit representatives from Miami, Orlando, St. Petersburg, and Tampa, that they were going to advise one another as to subject's appearance and location should he leave one city and go to another.
 

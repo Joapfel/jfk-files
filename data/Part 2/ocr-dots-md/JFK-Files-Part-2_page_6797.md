@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6797.png
-
-Convert to Markdown13-00000
+13-00000
 
 The Honorable John Glenn
 The Honorable William V. Roth, Jr.

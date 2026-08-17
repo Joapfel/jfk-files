@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21592.png
-
-Convert to MarkdownFILE: SECRET
+FILE: SECRET
 
 In 1943-45, the government began looking toward a worldwide intelligence system. The alternatives were the military, OSS, State, and FBI. FDR allegedly assured Hoover that he would be responsible for setting up the post-war system. Papich never saw any documents showing that Hoover wanted this job. The Latin American operation was successful but Hoover never understood or had a feel for the problems. He felt insecure. He never traveled outside the U. S., and only saw things from Washington, D. C.
 

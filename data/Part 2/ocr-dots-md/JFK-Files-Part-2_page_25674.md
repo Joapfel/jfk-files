@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25674.png
-
-Convert to Markdownsome "high rollers" in would be more profitable — it was Rosselli who patched things up.
+some "high rollers" in would be more profitable — it was Rosselli who patched things up.
 
 Hughes eventually bought the Desert Inn, as well as the Frontier.
 

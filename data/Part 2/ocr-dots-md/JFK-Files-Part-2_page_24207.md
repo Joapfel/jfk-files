@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24207.png
-
-Convert to Markdownunable to raise by January 20, 1973, the additional funds required for the original purchase price of $5.9 million, including the Air America debt, that the Agency proceed with liquidation plans and dismissal of SAT employees not later than February 1, 1973.
+unable to raise by January 20, 1973, the additional funds required for the original purchase price of $5.9 million, including the Air America debt, that the Agency proceed with liquidation plans and dismissal of SAT employees not later than February 1, 1973.
 
 On January 11, 1973, Mr. Williams submitted a new proposal to purchase SAT for a total price of $5,605,000. Mr. Williams cited a tentative commitment for a loan of $4.0 million and his offer was contingent upon an additional loan. The offer called for a total payment of $5,605,000 broken down as follows:
 

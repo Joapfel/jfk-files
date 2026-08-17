@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18308.png
-
-Convert to MarkdownSEP 24 1975
+SEP 24 1975
 
 NR003 BS CODE
 TELETYPE

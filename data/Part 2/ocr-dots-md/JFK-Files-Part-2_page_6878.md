@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6878.png
-
-Convert to MarkdownF.A.S.
+F.A.S.
 
 Carl Kaysen
 Chairman

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3077.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Keys, in some Caribbean country, or elsewhere.
 

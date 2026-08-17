@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24211.png
-
-Convert to Markdownoperating authority.
+operating authority.
 
 On October 1, 1973, the DCI agreed to entertain the proposal
 to continue the sale of SAT to Mr. Williams as a Part 121 operator,

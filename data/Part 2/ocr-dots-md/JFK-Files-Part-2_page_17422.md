@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17422.png
-
-Convert to MarkdownHAMPTON was paid $900.00 and JONES was paid $2,500.00 for their appearances at the campus according to PAUL WADE, and this money came from parties and dances at the campus.
+HAMPTON was paid $900.00 and JONES was paid $2,500.00 for their appearances at the campus according to PAUL WADE, and this money came from parties and dances at the campus.
 
 There is a party which will be held tonight in Maywood to celebrate the birthday of HUEY NEWTON. There will be a meeting tomorrow night (2/18/69) at ROBERT BRUCE's house.
 

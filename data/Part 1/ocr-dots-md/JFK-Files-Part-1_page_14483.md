@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14483.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>(class, location)</th></tr></thead><tbody><tr><td>SECRET</td><td>2300 01ZMAR70</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>(class, location)</th></tr></thead><tbody><tr><td>SECRET</td><td>2300 01ZMAR70</td></tr></tbody></table>
 
 CITE DIRECTOR
 

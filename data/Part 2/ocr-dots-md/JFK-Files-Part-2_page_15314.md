@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15314.png
-
-Convert to MarkdownCOMMUNICATIONS TO
+COMMUNICATIONS TO
 STATE
 OF
 D. C.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31506.png
-
-Convert to MarkdownDRAFT
+DRAFT
 SECRET
 
 21 July 1952

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24726.png
-
-Convert to Markdown(b) Testimony of Eisenhower White House Officials That They Knew of No Presidential Consideration of Assassination
+(b) Testimony of Eisenhower White House Officials That They Knew of No Presidential Consideration of Assassination
 
 The two members of President Eisenhower's staff who were responsible for national security affairs--Gordon Gray and Andrew Goodpaster--both made general disclaimers of any knowledge of Presidential consideration of assassination during their tenure.
 

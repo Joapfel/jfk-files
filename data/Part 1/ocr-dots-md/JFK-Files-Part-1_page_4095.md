@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4095.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TDCS 03-
 315/02467-65 PAGE 2

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_282.png
-
-Convert to Markdown14-00000
+14-00000
 
 22.96 Employee Restricted
 23. N.R.

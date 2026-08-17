@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14912.png
-
-Convert to MarkdownSECRET
+SECRET
 
 33 Court record - Court date, arrests, charges, punishments, sentences, acquittals, denials, etc.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8808.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>TS (CODE WORD) ANNEX</td>
    </tr>

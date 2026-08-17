@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9823.png
-
-Convert to Markdown25 February, 1968
+25 February, 1968
 
 Subject: LIVING/4 Report of Conversation with LIVING/2.
 

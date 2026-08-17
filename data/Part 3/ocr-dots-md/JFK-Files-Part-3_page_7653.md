@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7653.png
-
-Convert to MarkdownMemo for Mr. Felt
+Memo for Mr. Felt
 
 Re: Reorganization of C.R.D.
 

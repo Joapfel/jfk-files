@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_446.png
-
-Convert to Markdown104.
+104.
 
 155. S. M. & 14237.-1045.- Chichay pregunta: ¿El... hasta... el día de la embajada?... no se puede llevar color para enviar a Cuba y Olocau a la embajada el 18 de 1964...- 182.--
 

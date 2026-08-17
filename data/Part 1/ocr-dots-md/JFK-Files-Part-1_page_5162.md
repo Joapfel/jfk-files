@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5162.png
-
-Convert to Markdown14-00000
+14-00000
 
 CAUTION - Blank form requires secure storage in field.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22080.png
-
-Convert to Markdownthen after two months I gave them to BELOGLAZOV. I immediately went on vacation after I came.* After two weeks I went on leave for a month. I took over the files either before or after the leave.”** NOSENKO was asked why he had assumed responsibility only for the Naval Attaches and replied: It was decided by KOVSHUK. I should take only the Navy while I was getting acquainted with the section. At the same time, the case officer DRANOV was retiring and he handled only Naval officers. I didn't take the Army or Air Force.”
+then after two months I gave them to BELOGLAZOV. I immediately went on vacation after I came.* After two weeks I went on leave for a month. I took over the files either before or after the leave.”** NOSENKO was asked why he had assumed responsibility only for the Naval Attaches and replied: It was decided by KOVSHUK. I should take only the Navy while I was getting acquainted with the section. At the same time, the case officer DRANOV was retiring and he handled only Naval officers. I didn't take the Army or Air Force.”
 
 NOSENKO was asked again on 25 October 1966 why he
 was responsible only for the Naval Attaches during early

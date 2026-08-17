@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_728.png
-
-Convert to Markdown# General Comments. (continued.)
+# General Comments. (continued.)
 
 5. A very good project has recently been launched. It is called The Delhi Training and Orientation Centre for Foreign Technicians in India. This is the second time it has been held, I think. It begins today, Jan. 24. Continues for two weeks. (The first one worked out a fine short bibliography on India; and a little brochure on Foods available in North India.) This second course covers the Indian village, with visits out to villages; Indian art, architecture, dance; Indian history; religion; Islam in India; other religions and philosophies; Indian family life and customs; health problems and resources; educational problems; urban problems; rural unemployment and aid; the role of foreign aid in India; discussion of the Five Year Plan.
 

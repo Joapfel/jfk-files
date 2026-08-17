@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16876.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CLASSIFICATION</td>
     <td>CISKATCH SYMBOL AND NUMBER</td>

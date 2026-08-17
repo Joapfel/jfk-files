@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2404.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 A report of the Working Group on Action of this conference set forth seven proposals to be used to undermine support of the United States position in Vietnam. These were:
 

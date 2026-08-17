@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12094.png
-
-Convert to Markdown4. Four-month evaluation of informants not paid on Bureau authority
+4. Four-month evaluation of informants not paid on Bureau authority
 If the informant is not being paid on Bureau authorization, a communication must be transmitted to the Bureau every four months after the date of designation containing the same information set out above in subsection 3b except those items concerning payments. Recommendation of SAC regarding continuance of informant should also be set forth [UACB.] In espionage and foreign nationality cases comment is necessary regarding only those applicable items in subsection 3b.
 
 5. Receipts

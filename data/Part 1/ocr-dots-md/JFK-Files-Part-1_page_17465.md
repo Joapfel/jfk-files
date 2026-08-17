@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17465.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>[REDACTED]</td><td>SECRET</td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>[REDACTED]</td><td>SECRET</td></tr></table>
 
 TE : 505
 2 JAN 62

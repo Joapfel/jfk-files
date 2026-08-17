@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33940.png
-
-Convert to Markdown6. On 28 January, John Hughes wrote a letter to Mr. Dulles asking CIA's view of the problem of the evacuation of RFE employees in Munich and elsewhere in the event of war. He said he thought this problem was extremely important and there had been no answer to the letter.
+6. On 28 January, John Hughes wrote a letter to Mr. Dulles asking CIA's view of the problem of the evacuation of RFE employees in Munich and elsewhere in the event of war. He said he thought this problem was extremely important and there had been no answer to the letter.
 
 Action
 

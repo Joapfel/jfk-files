@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12257.png
-
-Convert to MarkdownSECRET TELEPOUCH
+SECRET TELEPOUCH
 
 RYPAT
 DISP NO - UFAA-4533

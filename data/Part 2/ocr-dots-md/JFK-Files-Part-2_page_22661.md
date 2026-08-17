@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22661.png
-
-Convert to Markdown those cases which were perishable, the French, the British,
+those cases which were perishable, the French, the British,
 and ourselves, etcetera. And we had never had a second Chief
 Director, which means the FBI type of Soviet, defector in our
 lives, and all of this out of the blue, and no contact as in

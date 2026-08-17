@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15490.png
-
-Convert to MarkdownSAC, New York
+SAC, New York
 
 3-26-84
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25039.png
-
-Convert to Markdownhandle this case for the time being. If he is unable to reestablish contact, he will be given another lead to follow up. LIEMPTY-3 is a very active person who has an extremely full business day, with many contacts. The Station believes that within this busy "cover" life, LIEPTY-3 can handle selected operational tasks without coming to hostile attention. As long as proper security precautions are taken by him in his operational activities, and by him and the Station officer (who meets him in alias) in their meetings, there is no reason why LIEPTY-3 cannot be a useful part-time contributor to the Station's REDTOP program for the foreseeable future.
+handle this case for the time being. If he is unable to reestablish contact, he will be given another lead to follow up. LIEMPTY-3 is a very active person who has an extremely full business day, with many contacts. The Station believes that within this busy "cover" life, LIEPTY-3 can handle selected operational tasks without coming to hostile attention. As long as proper security precautions are taken by him in his operational activities, and by him and the Station officer (who meets him in alias) in their meetings, there is no reason why LIEPTY-3 cannot be a useful part-time contributor to the Station's REDTOP program for the foreseeable future.
 
 e. LIROCKET-1:
 

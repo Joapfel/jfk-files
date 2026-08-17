@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25784.png
-
-Convert to Markdowntive." Second question: What does the American gov-ernment expect to gain from the blockade? Is the economic isolation of Cuba a punishment or a political maneuver?
+tive." Second question: What does the American gov-ernment expect to gain from the blockade? Is the economic isolation of Cuba a punishment or a political maneuver?
 
 Kennedy's reply: "Are you suggesting that the polit-ical effectiveness of the blockade is uncertain [smile]? You will see when you go to Cuba whether it is or not. In any case, we can't let Communist subversion win in the other Latin American countries. Two dikes are needed to contain Soviet expansion: the blockade on the one hand; a tremendous effort toward progress on the other. This is the problem in a nutshell. Both battles are equally difficult." (Silence.) Then, a last comment: "The continuation of the blockade depends on the con-tinuation of subversive activities."
 

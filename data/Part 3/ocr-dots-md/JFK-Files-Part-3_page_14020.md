@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14020.png
-
-Convert to MarkdownJOE SECRET
+JOE SECRET
 
 Mr. Clifford asked whether this situation should cause the U. S. to furnish less information to the foreign governments involved. Mr. Helms said that CIA is recommending to the USIB that there be less distribution of sensitive papers placed in the hands of foreign recipients, but that these foreign governments be provided more counterintelligence information to protect themselves against Soviet espionage penetrations (for example, West Germany is crawling with hundreds of East German agents).
 

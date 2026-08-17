@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15709.png
-
-Convert to Markdown# PROGRAM OF THE BLACK PANTHER PARTY
+# PROGRAM OF THE BLACK PANTHER PARTY
 (WHAT WE WANT AND "WHAT WE BELIEVE")
 
 The program is usually divided into one section of ten points entitled "What We Want" and then ten paragraphs explaining these points in a section entitled "What We Believe". For the sake of clarity, we have put each one of the ten points in "What We Want" immediately above its corresponding paragraph in "What We Believe":

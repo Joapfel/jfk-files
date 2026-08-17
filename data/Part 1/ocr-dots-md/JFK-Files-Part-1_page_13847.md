@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13847.png
-
-Convert to Markdownfrom HOY
+from HOY
 
 17 May 1964
 

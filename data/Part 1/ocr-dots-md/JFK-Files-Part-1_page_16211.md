@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16211.png
-
-Convert to Markdown158 126
+158 126
 7 July 1965
 
 # BIOGRAPHICAL DATA

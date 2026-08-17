@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24408.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 him to the jail. Balletti called Maheu in Miami, tying "Maheu into this thing up to his ear" (O'Connell, pp. 71-72; File R-505, FBI memorandum). Balletti's bail was paid by Roselli (Roselli, p. 52).
 

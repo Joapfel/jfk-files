@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2235.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6 August 1951
 

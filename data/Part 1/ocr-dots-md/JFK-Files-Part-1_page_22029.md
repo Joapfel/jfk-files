@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22029.png
-
-Convert to Markdown**KOSENKO:** It was the idea of the group.
+**KOSENKO:** It was the idea of the group.
 
 **Question:** Did you advise KOSOLAPOV on what his role was to be before he left--what he was to do?
 

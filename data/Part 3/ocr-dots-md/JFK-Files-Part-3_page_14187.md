@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14187.png
-
-Convert to Markdown(136. 10/2-3/62 Continued)
+(136. 10/2-3/62 Continued)
 
 "to intensify surveillance of the delivery of arms and implements of war and all other items of strategic importance to the communist regime of Cuba, in order to prevent the secret accumulation in the island of arms that can be used for offensive purposes against the Hemisphere."
 

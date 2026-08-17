@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17205.png
-
-Convert to MarkdownKENNETH EARL BELL
+KENNETH EARL BELL
 
 stress "Quotations From Chairman MAO Tse-tung."
 

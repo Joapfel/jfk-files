@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27005.png
-
-Convert to MarkdownHe mentioned as examples what the U.S. response should be in the event of a revolt and whether or not a naval blockade should be mounted.
+He mentioned as examples what the U.S. response should be in the event of a revolt and whether or not a naval blockade should be mounted.
 
 The Group agreed that such planning, in addition to the military contingent plans already prepared, must be pursued.
 

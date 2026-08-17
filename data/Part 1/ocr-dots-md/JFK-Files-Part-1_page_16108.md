@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16108.png
-
-Convert to Markdown Mitch "WerBell and two aides look over route on map prior to a night delivery of weapons somewhere in the Caribbean.
+Mitch "WerBell and two aides look over route on map prior to a night delivery of weapons somewhere in the Caribbean.
 
 on the East River, WerBell finally opened his valise and displayed its contents: a half-dozen missile guns, both hand and shoulder weapons, which fire a small, self-guided rocket instead of the conventional ballet. WerBell had designed and built some of them himself.
 

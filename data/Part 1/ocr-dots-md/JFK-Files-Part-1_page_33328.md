@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33328.png
-
-Convert to MarkdownWorkers occupying a plant outside of Santiago pro-claim their intention to hold it to the death. The initials of the Unidad Popular (Popular Unity) are painted on the wall by the gate.
+Workers occupying a plant outside of Santiago pro-claim their intention to hold it to the death. The initials of the Unidad Popular (Popular Unity) are painted on the wall by the gate.
 
 —Photo by Maggi Castelloe.
 

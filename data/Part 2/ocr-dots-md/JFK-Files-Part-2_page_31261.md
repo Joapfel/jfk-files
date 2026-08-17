@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31261.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. 3 May '61
 

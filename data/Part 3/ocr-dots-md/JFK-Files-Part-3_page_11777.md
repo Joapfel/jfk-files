@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11777.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 ASSISTANT DIRECTOR ROSEN: (AR:ige)
 
 The following comments are equally applicable whether the Domestic Intelligence Division remains intact or is reorganized into two divisions.

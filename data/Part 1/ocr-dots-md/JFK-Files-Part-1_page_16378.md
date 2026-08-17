@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16378.png
-
-Convert to Markdown5. With reference to the [AIAA case] because of the developments and plans in El Salvador, I explained briefly the status of the DALTON case and the possibility, of his being transferred to Guatemala. (This was in line with the discussion in El Salvador which included our Chief of Station, the President and the President's intelligence 08/06 advisor, Colonel ElBRAN). I asked that the Guatemalan government take no action unless requested by President PIVERA or Colonel ElBRAN and said that, if DALTON is transferred, one of our people probably would talk to [DALTON in Guatemala].
+5. With reference to the [AIAA case] because of the developments and plans in El Salvador, I explained briefly the status of the DALTON case and the possibility, of his being transferred to Guatemala. (This was in line with the discussion in El Salvador which included our Chief of Station, the President and the President's intelligence 08/06 advisor, Colonel ElBRAN). I asked that the Guatemalan government take no action unless requested by President PIVERA or Colonel ElBRAN and said that, if DALTON is transferred, one of our people probably would talk to [DALTON in Guatemala].
 
 6. The Chief of State Peralta made a rather impassioned speech in which he covered the following points:
 

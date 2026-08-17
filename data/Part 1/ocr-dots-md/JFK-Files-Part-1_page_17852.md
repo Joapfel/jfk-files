@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17852.png
-
-Convert to Markdown# AGENT EVALUATION
+# AGENT EVALUATION
 
 DATE: 10 May 1967
 

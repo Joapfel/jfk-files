@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30422.png
-
-Convert to MarkdownNormally whenever a witness has an opportunity to testify before the Committee at a hearing, the Committee gives him five minutes at the end to make a statement. This is not a hearing.
+Normally whenever a witness has an opportunity to testify before the Committee at a hearing, the Committee gives him five minutes at the end to make a statement. This is not a hearing.
 
 However, if you would like to make a statement for the record, feel free to do so. If not, you will be given a chance to verify the record for accuracy.
 

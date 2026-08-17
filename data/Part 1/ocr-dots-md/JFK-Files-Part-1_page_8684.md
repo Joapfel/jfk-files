@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8684.png
-
-Convert to Markdown4.13.03 Cuando justifica, sus movimientos son
+4.13.03 Cuando justifica, sus movimientos son
 
 Agraciados ___ Promedio ✓ Nuestro ___
 

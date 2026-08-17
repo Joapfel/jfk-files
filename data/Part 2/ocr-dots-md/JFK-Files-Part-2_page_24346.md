@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24346.png
-
-Convert to MarkdownEQUITY S. E. S TO DATE
+EQUITY S. E. S TO DATE
 
 | Date of Sale | Stocks | No. of Shares | Total Purchase Price | Net Sale Price | Gain or (Loss) on Sale |
 |---|---|---|---|---|---|

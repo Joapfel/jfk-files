@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14595.png
-
-Convert to MarkdownSECRET
+SECRET
 
 From: H. Kille Report 180, Apr 2, 1970
 Sent: J. R. Sturr (Assistant Pilot). Has he got the

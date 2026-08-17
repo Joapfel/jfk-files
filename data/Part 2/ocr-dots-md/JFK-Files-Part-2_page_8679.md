@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8679.png
-
-Convert to MarkdownCHRONOLOGY OF FINDINGS
+CHRONOLOGY OF FINDINGS
 
 Anti-Castro Activities - Cuba 19-9-9
 

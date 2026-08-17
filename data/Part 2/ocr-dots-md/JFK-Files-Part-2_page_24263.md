@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24263.png
-
-Convert to MarkdownSo I think for the last, oh, fifteen, eighteen
+So I think for the last, oh, fifteen, eighteen
 years, the proprietary management system was on
 the whole pretty effective from the Agency point
 of view. I think we knew what was going on. I

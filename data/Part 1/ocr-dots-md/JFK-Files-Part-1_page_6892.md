@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6892.png
-
-Convert to Markdown14-00000
+14-00000
 
 DATE : 22 NOV 58
 

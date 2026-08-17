@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7446.png
-
-Convert to MarkdownParty has failed to translate the realities of everyday
+Party has failed to translate the realities of everyday
 events into its program and tactics.
 
 I cannot here go into the many-faceted problems and

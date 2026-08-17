@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5879.png
-
-Convert to MarkdownI, Barbara Blufer, declare and state based on my personal knowledge and the information made available to me in my official capacity that:
+I, Barbara Blufer, declare and state based on my personal knowledge and the information made available to me in my official capacity that:
 
 1. I am the Information Review Officer for (IRO) for the Directorate of Intelligence (DI) of the Central Intelligence Agency (Agency). I was appointed to this position on 6 October 1987 and have held various administrative and professional positions within the Agency since (1980). I am responsible for the review of records maintained by offices in the DI that may contain JFK Assassination records and may be responsive to Assassination Records Review Board (ARRB) requests.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19029.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to the Free Democratic Party, which has assumed the role of respectable opposition. The connection between this left-liberal criticism and the NPD gains on 28 April is not immediately apparent.
 

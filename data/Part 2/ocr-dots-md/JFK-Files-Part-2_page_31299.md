@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31299.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 TO: Mr. Blakey
 

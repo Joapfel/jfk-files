@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35221.png
-
-Convert to MarkdownANEXO 5
+ANEXO 5
 
 # PRZENTE REVOLUCIONARIO DEMOCRATICO
 ## Comunicaciones

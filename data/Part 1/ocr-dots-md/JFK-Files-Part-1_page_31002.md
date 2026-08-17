@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31002.png
-
-Convert to MarkdownS-E-C-R-S-T
+S-E-C-R-S-T
 
 P. JEREMY I. EHRADEN
 

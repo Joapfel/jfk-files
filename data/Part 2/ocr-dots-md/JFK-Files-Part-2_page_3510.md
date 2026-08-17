@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3510.png
-
-Convert to MarkdownTOP SECRET DINAR
+TOP SECRET DINAR
 
 THE PRESIDENT'S ASSASSINATION:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30412.png
-
-Convert to MarkdownSECRET
+SECRET
 (when filled in)
 
 <table><thead><tr><th colspan="5">SECTION V</th></tr><tr><td colspan="5">GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</td></tr><tr><th>NAME OF REGION OR COUNTRY</th><th>TYPE OF SPECIALIZED ENGLISH PROFiciency</th><th>DATE OF ARRIVAL ON STATION</th><th>ASSIGNED TO GROUP (IF APPLICABLE)</th><th>STUDY/WORK PERIOD (IF APPLICABLE)</th></tr></thead><tbody><tr><td>1.</td><td></td><td>MAY - NO. 6</td><td></td><td></td></tr><tr><td>2.</td><td></td><td>N.</td><td></td><td></td></tr></tbody></table>

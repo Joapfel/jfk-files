@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6603.png
-
-Convert to MarkdownChief, San Francisco Office
+Chief, San Francisco Office
 
 Chief, Washington Office
 

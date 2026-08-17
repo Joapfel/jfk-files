@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25236.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td></tr><tr><td>GENERAL DINH</td></tr><tr><td>OCCURRENCE:</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td></tr><tr><td>GENERAL DINH</td></tr><tr><td>OCCURRENCE:</td></tr></table>
 
 <table><tr><td>DATES:</td></tr><tr><td>11/1/63<br/>21 AUG. thru<br/>16 SEPT. '63</td></tr></table>
 

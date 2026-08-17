@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4492.png
-
-Convert to MarkdownNO 87-14835
+NO 87-14835
 
 Mrs. POLIZZI stated that the following day, ROSSI came to her office, asked her to Xerox a bill of sale and dictated to her a letter to his insurance company in which he requested a refund of his automobile insurance premium due to the fact that he had sold his automobile.
 

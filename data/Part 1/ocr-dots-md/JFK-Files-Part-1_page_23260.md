@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23260.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 02 JANUARY 1958</td><td>S F C R E T</td></tr><tr><td>TO : DIRECTOR</td><td rowspan="3">JAN 3 (Sat) 7-7.50<br/>DEC'D CAN BE SEEN<br/><br/><u>Routine</u></td></tr><tr><td>FROM : HAVANA</td></tr><tr><td>ACTION : WH 5</td></tr><tr><td>INFO : COP, CI, CI/OPS, FI, FI/OPS 2, PP 2, PP/OPS, S/C 2</td><td>IN 13410</td></tr></tbody></table>
 

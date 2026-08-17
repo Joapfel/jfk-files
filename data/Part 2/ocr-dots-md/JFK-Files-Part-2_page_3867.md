@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3867.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 describes Double Chek as a cover and funding mechanism for recruiting
 and paying American flyers who participated at the Bay of Pigs. The

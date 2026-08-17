@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16448.png
-
-Convert to MarkdownHMH
+HMH
 1
 
 # MILITARY TRAINING SCHEDULE

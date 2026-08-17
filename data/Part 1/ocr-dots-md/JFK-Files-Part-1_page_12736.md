@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12736.png
-
-Convert to Markdown17 April 1974
+17 April 1974
 
 MEMORANDUM FOR: Chief WII
 ATTENTION : Edward A. Cahill

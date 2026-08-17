@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33965.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, JMAWAVE
 

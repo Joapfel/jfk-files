@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27325.png
-
-Convert to MarkdownA - Ltr from Knoche to Olsen - 8 May 75 SECRET
+A - Ltr from Knoche to Olsen - 8 May 75 SECRET
 
 B - Summary and Analysis of Domestic Surveillance 8 May 75 SECRET
 

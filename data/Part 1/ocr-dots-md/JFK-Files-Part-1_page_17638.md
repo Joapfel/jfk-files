@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17638.png
-
-Convert to Markdown2 February 1958
+2 February 1958
 
 MECHANICAL FOR: F1/3P5 - Projects Branch
 SUBJECT: 3. Amendment to Project LIFET

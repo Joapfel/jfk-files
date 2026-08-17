@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20635.png
-
-Convert to Markdown<table><tr><td>CO. 9-42091</td></tr></table>
+<table><tr><td>CO. 9-42091</td></tr></table>
 
 8 AUG 1959
 

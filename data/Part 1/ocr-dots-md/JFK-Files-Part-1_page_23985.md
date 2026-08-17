@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23985.png
-
-Convert to MarkdownI know that's one of the things in back of their minds, in Paris. about, Every French delegation to Havana, even one just recently, I heard that Fidel went around saying- why doesn't De Gaulle come and visit us.
+I know that's one of the things in back of their minds, in Paris. about, Every French delegation to Havana, even one just recently, I heard that Fidel went around saying- why doesn't De Gaulle come and visit us.
 
 xThere is a Gaullist group, France -Cuba (?) , not the Communist, but there is a Communist organization, There is also one inside of the concerned with Cuba government party, and they have made recommendations for increasing trade. One of the things also encouraged is the increase of Spanish trade.
 

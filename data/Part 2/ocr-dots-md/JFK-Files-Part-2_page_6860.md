@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6860.png
-
-Convert to MarkdownGATES: No, ma'am, what I would appoint that panel to do is examine all the redactions that we had made, and to examine all of the documents that we decided could not be declassified, and then provide a report to the American people on whether or not any of those redactions or those withheld documents had a bearing on the assassination.
+GATES: No, ma'am, what I would appoint that panel to do is examine all the redactions that we had made, and to examine all of the documents that we decided could not be declassified, and then provide a report to the American people on whether or not any of those redactions or those withheld documents had a bearing on the assassination.
 
 They would not make the decision to declassify.
 

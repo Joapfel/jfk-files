@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26777.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Phone (Area 202) 541-6000
 

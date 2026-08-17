@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3886.png
-
-Convert to Markdown13-00000
+13-00000
 
 DA SAYS STATE
 FUNDS PLEDGED

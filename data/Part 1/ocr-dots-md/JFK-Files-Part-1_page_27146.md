@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27146.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 2 July 1974
 

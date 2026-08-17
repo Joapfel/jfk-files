@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1595.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SR/DOA/59/ 1735
 

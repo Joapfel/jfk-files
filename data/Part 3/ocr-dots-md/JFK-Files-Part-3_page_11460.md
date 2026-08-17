@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11460.png
-
-Convert to Markdownand the former city manager both deny making such statement to Williams. Williams claims he told Councilman Morrow at the time and Morrow claims he recalls being so advised.
+and the former city manager both deny making such statement to Williams. Williams claims he told Councilman Morrow at the time and Morrow claims he recalls being so advised.
 
 SAC Ronald L. Maley, San Diego, telephonically contacted by Intelligence Division Night Supervisor F. Anthony Tansey, stated San Diego FBI personnel knowledgeable of facts do not recall any such incident or notice to former officials or Williams; and, if FBI had knowledge of such a plot, all knowledgeable employees believe Williams, himself, would have been notified directly.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24083.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><thead><tr><th colspan="2">CLASSIFICATION</th><th colspan="2">PROCESSING ACTION</th></tr><tr><td colspan="2">SECRET/RY BAT</td><td colspan="2"></td></tr></thead><tbody><tr><td>TO</td><td>Chief, WOLIMP<br/>Chief of Station, Bern</td><td>XX</td><td>NO INDEXING REQUIRED<br/>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>INFO.</td><td>Chief of Station, London; Chief of Base;<br/>Geneva; Chief, EUR Division</td><td colspan="2"></td></tr><tr><td>FROM</td><td>Chief, LCPIPIT/London 1BM</td><td colspan="2"></td></tr><tr><td>SUBJECT</td><td>DTDORIC/MHPROBE/Operational<br/>QRPHONE/Switzerland</td><td colspan="2">MICROFILM</td></tr><tr><td>ACTION REQURED - REFERENCES</td><td colspan="3"><strong>References:</strong> A. GENEVA-2464<br/>B. LCPIPIT-1711</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1910.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="4">NOTIFICATION OF ESTABLISHMENT OR CANCELLATION<br>OF OFFICIAL COVER BACKSTOP</td><td></td><td>DATE</td><td>1 SEP 71</td></tr><tr><td rowspan="3">TO:<br>(Check)</td><td>X CHIEF, CONTROL DIVISION</td><td></td><td></td><td></td><td>FILE NUMBER</td><td>3543</td></tr><tr><td></td><td>X CHIEF, CONTRACT PERSONNEL DIVISION</td><td></td><td></td><td>EMPLOYEE NUMBER</td><td>083365</td></tr><tr><td></td><td>X CHIEF, OPERATING COMPONENT (For action)<br>FE</td><td></td><td></td><td>ID CARD NUMBER</td><td></td></tr><tr><td colspan="2">ATTN:</td><td colspan="4"></td><td>X BACKSTOP ESTABLISHED</td></tr><tr><td colspan="2">REF:</td><td colspan="4"></td><td>DISCONTINUED</td></tr><tr><td colspan="2">SUBJECT</td><td colspan="4"></td><td>UNIT</td></tr><tr><td colspan="2"></td><td colspan="4">MCK MORALES, David S.</td><td>US ARMY STAFF GROUP</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8241.png
-
-Convert to Markdownany other projects relating to "surveillance, telephone tap,
+any other projects relating to "surveillance, telephone tap,
 surreptitious entry or other action" taken on behalf of the
 Agency against U.S. citizens in the United States).
 

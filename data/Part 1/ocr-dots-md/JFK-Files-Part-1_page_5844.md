@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5844.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>CONTRIBUTION OF<br/>DISPATCH</td>
         <td>KAPOLSECRET</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29699.png
-
-Convert to MarkdownSECRET
+SECRET
 
 THE WHITE HOUSE
 WASHINGTON

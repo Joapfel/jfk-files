@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7417.png
-
-Convert to Markdownto provide Mr. Hunt from his private funds. Mr. Richards of the Inspector General Staff opined that if the Agency had sponsored the St. John books, it was likely that Mr. Hunt had so informed Senator Baker.
+to provide Mr. Hunt from his private funds. Mr. Richards of the Inspector General Staff opined that if the Agency had sponsored the St. John books, it was likely that Mr. Hunt had so informed Senator Baker.
 
 4. Adding possible weight to this line of speculation is the fact that subsequent to publishing the last St. John novel, Mr. Hunt published a novel entitled, *Eduardo*, using his old Agency issued alias, Edward J. Hamilton. The suggestion is that this writing effort was done by Mr. Hunt free of any fiduciary relationship with the Agency involved in the use of the St. John pen name.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24833.png
-
-Convert to Markdown-2-
+-2-
 
 ~~TICHBORN~~ concurs in this estimate of the lack of security problems within the office.
 

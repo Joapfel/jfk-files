@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19012.png
-
-Convert to MarkdownSECRET/NO FOREIGN DISSEM
+SECRET/NO FOREIGN DISSEM
 
 CS-311/08556-69
 

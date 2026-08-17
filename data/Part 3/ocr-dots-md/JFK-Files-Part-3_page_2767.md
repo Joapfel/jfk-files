@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2767.png
-
-Convert to Markdownmemorandum to the Department of Justice the problem.
+memorandum to the Department of Justice the problem.
 
 And here we were--the FBI--in a position where we had no
 authority in the absence of an instruction from the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22377.png
-
-Convert to MarkdownDATE
+DATE
 
 LOST/MISSING MATERIAL
 

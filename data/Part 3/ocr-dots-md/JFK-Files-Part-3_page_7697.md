@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7697.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3791 (6-75)
 

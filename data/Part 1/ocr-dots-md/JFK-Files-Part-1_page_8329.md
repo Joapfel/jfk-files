@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8329.png
-
-Convert to Markdown# CONTACT REPORT
+# CONTACT REPORT
 
 SUBJECT : BESABER (P-8777)
 

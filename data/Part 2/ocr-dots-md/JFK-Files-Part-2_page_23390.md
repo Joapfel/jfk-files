@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23390.png
-
-Convert to Markdown1. Mr. Bissell to keep him orally informed on a thing like this.
+1. Mr. Bissell to keep him orally informed on a thing like this.
 
 2. He did not want any more paper floating around in those days.
 3. Mr. Dulles was in even another building. Now, we were all down at the Reflecting Pool at that point, were we not, and Mr.

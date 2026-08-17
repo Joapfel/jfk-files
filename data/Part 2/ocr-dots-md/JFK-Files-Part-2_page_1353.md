@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1353.png
-
-Convert to Markdown<table><tr><td>00/18 1-46.7 V</td></tr></table>
+<table><tr><td>00/18 1-46.7 V</td></tr></table>
 
 30 August 1961
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12470.png
-
-Convert to Markdown[107F - G SECTION 107. SECURITY INFORMANTS[AND CONFIDENTIAL SOURCES]
+[107F - G SECTION 107. SECURITY INFORMANTS[AND CONFIDENTIAL SOURCES]
 
 ## [12. Requests of informant to help defend others]
 

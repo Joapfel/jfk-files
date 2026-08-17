@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6892.png
-
-Convert to Markdown13-00000
+13-00000
 
 STATEMENT OF ARIHAN G. THECHARIS
 

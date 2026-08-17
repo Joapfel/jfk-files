@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3793.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EMM 1985
 

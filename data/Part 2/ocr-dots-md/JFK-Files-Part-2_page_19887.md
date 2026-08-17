@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19887.png
-
-Convert to MarkdownNO. 903 CV CODE:
+NO. 903 CV CODE:
 
 E:05 PM
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21230.png
-
-Convert to Markdownfrom whom he had heard about the [COLLETTE SCHWARZENBACH] case.
+from whom he had heard about the [COLLETTE SCHWARZENBACH] case.
 
 **COMMENT:** On March 5, 1968, (N-155), NOSENKO stated he saw the file on this case. The file was still in the 1st Section, 1st Department, in 1960.
 

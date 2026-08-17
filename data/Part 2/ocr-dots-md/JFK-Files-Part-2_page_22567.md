@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22567.png
-
-Convert to MarkdownOn 1 October 1964, Morse Allen wrote a memorandum for the record reporting an interview with Wiley as follows:
+On 1 October 1964, Morse Allen wrote a memorandum for the record reporting an interview with Wiley as follows:
 
 "On 30 September 1964, the writer talked with Wiley at the writer's apartment in Washington, D.C., for several hours. The conversation was general and part of it was devoted to the discussion of financial matters, routine operational problems, and comments primarily on the local New York scene.
 

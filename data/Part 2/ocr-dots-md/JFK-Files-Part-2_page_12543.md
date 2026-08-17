@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12543.png
-
-Convert to MarkdownIn all instances, advise FBIHQ concerning any possible subversive contacts or derogatory information developed concerning military personnel, including local dissemination made. Enclose four copies of LHM or report setting out pertinent data.
+In all instances, advise FBIHQ concerning any possible subversive contacts or derogatory information developed concerning military personnel, including local dissemination made. Enclose four copies of LHM or report setting out pertinent data.
 
 b. **Aliens and naturalized citizens**
 

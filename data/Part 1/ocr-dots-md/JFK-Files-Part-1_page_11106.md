@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11106.png
-
-Convert to MarkdownSUBJECT: ALBERTO ALBERU-SOUTO
+SUBJECT: ALBERTO ALBERU-SOUTO
 
 DPOB: 1915 in Oviedo, Spain
 

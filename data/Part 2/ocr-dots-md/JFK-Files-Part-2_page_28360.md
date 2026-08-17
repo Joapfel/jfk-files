@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28360.png
-
-Convert to MarkdownForm CA-17
+Form CA-17
 Nov. 1974
 
 <table>

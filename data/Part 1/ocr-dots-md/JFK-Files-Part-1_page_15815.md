@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15815.png
-
-Convert to MarkdownParis, March 25, 1960
+Paris, March 25, 1960
 
 Dear "Eduardo,"
 

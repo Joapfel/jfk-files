@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25281.png
-
-Convert to Markdown# How an Invasion of the Canal Zone Was Foiled
+# How an Invasion of the Canal Zone Was Foiled
 
 By PAUL NESHIL
 

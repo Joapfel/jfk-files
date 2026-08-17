@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19271.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## W. E. B. DU BOIS CLUBS OF AMERICA (DCA)
 

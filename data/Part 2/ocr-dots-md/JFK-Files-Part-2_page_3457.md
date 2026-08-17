@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3457.png
-
-Convert to MarkdownSECRET SENSITIVE NOFORN
+SECRET SENSITIVE NOFORN
 
 the staff, on its own and without coordination with the
 division, had passed to [foreign liaison] a copy of a FISS

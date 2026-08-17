@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15051.png
-
-Convert to MarkdownResults of our investigation have been furnished
+Results of our investigation have been furnished
 to the Central Intelligence Agency, AEC, and the Department
 of Justice.
 

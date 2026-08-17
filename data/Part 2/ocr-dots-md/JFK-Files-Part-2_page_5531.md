@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5531.png
-
-Convert to MarkdownNames of Russians we should try to track down about Lee Harvey Oswald, Yuri Nosenko and the JFK assassination:
+Names of Russians we should try to track down about Lee Harvey Oswald, Yuri Nosenko and the JFK assassination:
 
 1. General Oleg M. Gribanov, head of the Second Chief Directorate of the KGB in the early 1960s where Nosenko says he worked, primarily against American tourists, as deputy chief of the Seventh Department. Nosenko described himself as sort of favored by Gribanov and he said Gribanov instructed him, after the JFK assassination, to retrieve the Oswald file from the Minsk KGB right away.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12201.png
-
-Convert to Markdown14-0000
+14-0000
 
 IN 093663
 TOFIX DB-315/11216-76

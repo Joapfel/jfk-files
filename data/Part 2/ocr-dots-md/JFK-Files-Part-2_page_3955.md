@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3955.png
-
-Convert to MarkdownNovember 1968
+November 1968
 
 MEMORANDUM FOR THE RECORD:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32488.png
-
-Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+CENTRAL INTELLIGENCE AGENCY
 
 <table>
    <tr>

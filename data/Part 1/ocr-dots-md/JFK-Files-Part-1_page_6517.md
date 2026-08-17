@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6517.png
-
-Convert to MarkdownSECRET CIRCULATION
+SECRET CIRCULATION
 
 P 76 STAFF
 

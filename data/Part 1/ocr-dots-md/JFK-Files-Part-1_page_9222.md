@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9222.png
-
-Convert to Markdown23 January 1951
+23 January 1951
 
 Mr. Richards (Legal) phoned, on behalf of Mr. Kelley, re the
 contract between HEDLEY & CIA re disposition of royalties.

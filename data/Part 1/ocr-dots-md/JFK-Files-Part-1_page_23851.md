@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23851.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>NAME<br/>RICHARD THOMAS GIBSON</td>
     <td>PASSENGER<br/>CALIFORNIA</td>

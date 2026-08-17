@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33276.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td rowspan="4">01F</td><td colspan="5" style="text-align:center;">SIGNAL CENTER USE ONLY</td></tr><tr><td>ALL</td><td>CUT</td><td>ACP</td><td>FOR</td><td>MEM</td><td>OCT</td></tr><tr><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="6"></td></tr></table>
 

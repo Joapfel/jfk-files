@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24409.png
-
-Convert to MarkdownThe Inspector General's Report accepted Edwards' assertion that "the Agency was first unwitting and then a reluctant accessory after the fact", but offered no further evidence to support that contention (I.G., p. 67).
+The Inspector General's Report accepted Edwards' assertion that "the Agency was first unwitting and then a reluctant accessory after the fact", but offered no further evidence to support that contention (I.G., p. 67).
 
 The Committee also received conflicting evidence concerning whether the tap had been placed to keep Giancana in Miami or to check on security leaks. O'Connell testified that during the early stages of negotiations with the gambling syndicate, Maheu informed O'Connell that a girl friend of Giancana was having an affair with Rowan. Giancana wanted Maheu to bug Rowan's room; otherwise, Giancana threatened to fly to Las Vegas himself. Maheu was concerned that Giancana's departure would disrupt the negotiations, and secured O'Connell's permission to arrange for a bug to ensure Giancana's continued presence and cooperation.
 

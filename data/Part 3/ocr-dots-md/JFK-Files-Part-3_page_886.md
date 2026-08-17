@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_886.png
-
-Convert to MarkdownAs stated by the United States Court of Appeals for the Second Circuit in United States v. Griswold, 247 F.2d 850, 864 (1957):
+As stated by the United States Court of Appeals for the Second Circuit in United States v. Griswold, 247 F.2d 850, 864 (1957):
 
 > Wiretap evidence is excluded by the federal courts in order to discourage persons from undertaking the proscribed activities in an effort to obtain evidence for use in those courts. Where exclusion would not serve this purpose, the evidence is admitted.
 

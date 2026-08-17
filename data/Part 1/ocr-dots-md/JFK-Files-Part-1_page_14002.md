@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14002.png
-
-Convert to Markdown<table><tr><td>CASLE SECRETARIAT DISSEMINATION</td></tr><tr><td>ASSIFIED MESSAGE</td></tr><tr><td>TOTAL COPIES</td></tr></table>
+<table><tr><td>CASLE SECRETARIAT DISSEMINATION</td></tr><tr><td>ASSIFIED MESSAGE</td></tr><tr><td>TOTAL COPIES</td></tr></table>
 
 FING AND/OR REPRODUCTION OF THIS COPY IS PROHIBITED.
 

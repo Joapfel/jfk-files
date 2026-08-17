@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20986.png
-
-Convert to MarkdownSECRET
+SECRET
 
 with the Station, the Station requests a Memorandum of Oral
 Commitment to be effective for the period CASASIN remains in

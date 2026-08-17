@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22205.png
-
-Convert to MarkdownNSA Deter bracketed phrase RMG 3/1/94 see 6 (J)
+NSA Deter bracketed phrase RMG 3/1/94 see 6 (J)
 
 NO OBJECTION
 NATIONAL SECURITY COUNCIL

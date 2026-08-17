@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13180.png
-
-Convert to Markdown# UNITED STATES DEPARTMENT OF JUSTICE
+# UNITED STATES DEPARTMENT OF JUSTICE
 FEDERAL BUREAU OF INVESTIGATION
 
 Copy to: 1 - U. S. Attorney, Miami (ATTN: Departmental Attorney WILLIAM EARLE)

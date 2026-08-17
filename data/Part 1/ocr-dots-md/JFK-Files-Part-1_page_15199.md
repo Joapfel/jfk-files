@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15199.png
-
-Convert to MarkdownAs far as "hers" are concerned, you know that I still have a pic-
+As far as "hers" are concerned, you know that I still have a pic-
 ture of my Flack (moreover, it's my only family album) but she must
 have changed and must be a happy mother of many children, bitch that
 she was,

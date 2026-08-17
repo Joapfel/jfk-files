@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7629.png
-
-Convert to MarkdownMemo for Mr. Felt
+Memo for Mr. Felt
 Re: Reorganization of G
 
 matters of FBI jurisdiction; distribution of Uniform Crime Reports Bulletin;

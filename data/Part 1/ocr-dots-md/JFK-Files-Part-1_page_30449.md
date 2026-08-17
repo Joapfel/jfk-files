@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30449.png
-
-Convert to MarkdownMr. Newton S. Miler
+Mr. Newton S. Miler
 
 Dear Mr. Miller:
 

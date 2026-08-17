@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6891.png
-
-Convert to Markdown... and called in letters to Mr. David J. SALPETER, 9411 South University Ave., CHICAGO, ILL.
+... and called in letters to Mr. David J. SALPETER, 9411 South University Ave., CHICAGO, ILL.
 
 Hill & Dr. Hillel CANEER, 4 de Kalt Place, MORRISTOWN N.J.
 

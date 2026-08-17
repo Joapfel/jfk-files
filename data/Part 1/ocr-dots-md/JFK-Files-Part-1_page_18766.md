@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18766.png
-
-Convert to MarkdownFORM NO. 37-3
+FORM NO. 37-3
 
 JUL 1950
 

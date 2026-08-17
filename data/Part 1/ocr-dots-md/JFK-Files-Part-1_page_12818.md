@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12818.png
-
-Convert to Markdown<table><thead><tr><td colspan="2">ADVANCE COPY ISSUED SLOTTED</td></tr><tr><td>BY</td><td>AT</td></tr></thead><tbody><tr><td>I</td><td>A</td></tr><tr><td>E</td><td>T</td></tr><tr><td>F</td><td>L</td></tr><tr><td>O</td><td>R</td></tr><tr><td>N</td><td>O</td></tr></tbody></table>
+<table><thead><tr><td colspan="2">ADVANCE COPY ISSUED SLOTTED</td></tr><tr><td>BY</td><td>AT</td></tr></thead><tbody><tr><td>I</td><td>A</td></tr><tr><td>E</td><td>T</td></tr><tr><td>F</td><td>L</td></tr><tr><td>O</td><td>R</td></tr><tr><td>N</td><td>O</td></tr></tbody></table>
 
 T 133753
 

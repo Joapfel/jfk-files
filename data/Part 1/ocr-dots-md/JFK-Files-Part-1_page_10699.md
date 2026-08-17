@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10699.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>FOR: JMWAVE</td></tr><tr><td>ACTION: WH 8 [X] RID COPY (ADVANCE COPY TUBED CS/DO, TIME 2:58, BY D)</td></tr><tr><td>INFO: CS/DO, VR. FILE, ADDP, CA 2, CA/PEG, CA/PROP, CT/OPS, CI/C 2, F, R/D, R/INT, IM, SOD 4, RI/AN, WH/C 8.</td></tr><tr><td>D/OCI 2.</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>FOR: JMWAVE</td></tr><tr><td>ACTION: WH 8 [X] RID COPY (ADVANCE COPY TUBED CS/DO, TIME 2:58, BY D)</td></tr><tr><td>INFO: CS/DO, VR. FILE, ADDP, CA 2, CA/PEG, CA/PROP, CT/OPS, CI/C 2, F, R/D, R/INT, IM, SOD 4, RI/AN, WH/C 8.</td></tr><tr><td>D/OCI 2.</td></tr></tbody></table>
 
 SECRET
 

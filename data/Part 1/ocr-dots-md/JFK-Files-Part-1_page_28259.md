@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28259.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="4">GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</th></tr><tr><th>NAME OF REGION OR COUNTRY</th><th>TYPE OF SPECIALIZED KNOWLEDGE</th><th>DATES OF TRAVEL OR RESIDENCE</th><th>DATE & PLACE OF STUDY APR<br>(2ND-9TH) LEAVE 1ST-6TH WORK ASSIGNED WENT</th></tr></thead><tbody><tr><td></td><td></td><td></td><td>MARCH - JUN</td></tr></tbody></table>
 

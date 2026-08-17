@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2273.png
-
-Convert to MarkdownJames Clarence Bishop
+James Clarence Bishop
 
 DOB : (11 November) 1912
 

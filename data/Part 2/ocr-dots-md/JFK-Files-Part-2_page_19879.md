@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19879.png
-
-Convert to MarkdownWomens National Abortion
+Womens National Abortion
 Action Coalition (WONAAC)
 
 The "Guardian" is self-described as an

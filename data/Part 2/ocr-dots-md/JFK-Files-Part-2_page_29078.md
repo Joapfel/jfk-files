@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29078.png
-
-Convert to MarkdownNAME SAMUEL L HYLLIS RUBY I.D. NO.
+NAME SAMUEL L HYLLIS RUBY I.D. NO.
 OR
 SOC. SEC. NO.
 

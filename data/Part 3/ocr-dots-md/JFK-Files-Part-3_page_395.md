@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_395.png
-
-Convert to MarkdownPage 9, Paragraph C. A summary of procedures for mail covers has been provided by my recent letter to you. In addition to that, a statistical summary of mail covers on closed matters will be made available to you in Room 4171, together with access to the underlying documentation requesting the individual mail covers.
+Page 9, Paragraph C. A summary of procedures for mail covers has been provided by my recent letter to you. In addition to that, a statistical summary of mail covers on closed matters will be made available to you in Room 4171, together with access to the underlying documentation requesting the individual mail covers.
 
 Documentation relating to the opening of mail will be withheld at present, due to ongoing investigations.
 

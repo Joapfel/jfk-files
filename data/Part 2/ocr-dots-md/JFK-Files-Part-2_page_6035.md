@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6035.png
-
-Convert to MarkdownIn 1966 Graff received City College's coveted Townsend Harris Medal in recognition of distinguished post-graduate achievement in his chosen field. He has been honored with Columbia's Great Teacher Award and with the Mark Van Doren Award, bestowed by the student body of Columbia College for distinguished teaching and scholarship. In 1990 he received the Kidger Award of the New England History Teachers Association for distinction as teacher and author.
+In 1966 Graff received City College's coveted Townsend Harris Medal in recognition of distinguished post-graduate achievement in his chosen field. He has been honored with Columbia's Great Teacher Award and with the Mark Van Doren Award, bestowed by the student body of Columbia College for distinguished teaching and scholarship. In 1990 he received the Kidger Award of the New England History Teachers Association for distinction as teacher and author.
 
 Graff was honored with a Senior Fellowship at the Freedom Forum Media Studies Center (formerly the Gannett Foundation Media Center) at Columbia for the academic year 1991-1992, in order to work on his book of essays on the Presidency, tentatively entitled "The Role of the Press in Shaping the Persona of the Presidency."
 

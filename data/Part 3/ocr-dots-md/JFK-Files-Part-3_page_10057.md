@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10057.png
-
-Convert to Markdown42-116395-SL
+42-116395-SL
 
 DATE: March 03 CTR:
 

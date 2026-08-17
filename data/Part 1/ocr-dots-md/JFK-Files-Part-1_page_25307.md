@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25307.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 ALVARADO, Hector
 Zua 17 (100% de la lechería)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_392.png
-
-Convert to MarkdownJuly 15, 1975
+July 15, 1975
 
 inquiry; the FBI shall at that time designate specific portions of such documents which might jeopardize particularly sensitive sources or methods; with respect to such specifically designated portions of documents, the Committee staff will prepare appropriate excisions or summaries of the information; the summaries will be checked at that time with senior Bureau executives to ensure the protection of particularly sensitive FBI sources or methods; thereafter, the excised documents and summaries will be removed to the Committee's offices; the Committee staff may check back to the original documents as extensively as necessary; staff notes on the designated specific portions of documents will not be removed from FBIHQ; and Committee members may, of course, at any time see the documents which the staff has seen.
 

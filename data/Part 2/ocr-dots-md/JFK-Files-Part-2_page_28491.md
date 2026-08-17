@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28491.png
-
-Convert to MarkdownJune 16, 1977
+June 16, 1977
 
 Thomas M. Gannon, S.J.
 Jesuit Community

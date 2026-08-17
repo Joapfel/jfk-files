@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32580.png
-
-Convert to MarkdownSECRET
+SECRET
 
 14 OCT 1963
 

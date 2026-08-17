@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9578.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 Director, FBI
 

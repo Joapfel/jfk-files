@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24338.png
-
-Convert to MarkdownCOMMON STOCK
+COMMON STOCK
 
 Date of
 Purchase

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19931.png
-
-Convert to MarkdownWOMEN'S INTERNATIONAL LEAGUE FOR PEACE AND FREEDOM (CWI)
+WOMEN'S INTERNATIONAL LEAGUE FOR PEACE AND FREEDOM (CWI)
 
 In a leaflet dated January, 1962, WILPF described
 itself as follows:

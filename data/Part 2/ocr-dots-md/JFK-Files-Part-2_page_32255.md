@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32255.png
-
-Convert to Markdownopportunities present themselves or can be created. The actions listed below are those requiring immediate approval and would be initiated in the sequence set forth below. Recommendations= for further actions based upon the re-examination of existing programs and upon the development of new programs related to the foregoing objectives will be forthcoming.
+opportunities present themselves or can be created. The actions listed below are those requiring immediate approval and would be initiated in the sequence set forth below. Recommendations= for further actions based upon the re-examination of existing programs and upon the development of new programs related to the foregoing objectives will be forthcoming.
 
 1. In addition to current covert program, such as intelligence collection, recruitment of Cuban officials as agents, radio broadcasts, support of the Cuban Revolutionary Council (CRC) and other exile group activities and infiltration of propaganda materials:
 

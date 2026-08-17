@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12139.png
-
-Convert to MarkdownUNIT CHIEF HOWARD H. WALLACE, JR. The Inspector's comments
+UNIT CHIEF HOWARD H. WALLACE, JR. The Inspector's comments
 
 HHW:bcw
 

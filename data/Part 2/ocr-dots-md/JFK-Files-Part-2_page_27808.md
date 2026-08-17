@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27808.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 To: G. Robert Blakey, Chief Counsel and Staff Director
 From: Robin Lindley

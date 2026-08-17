@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26060.png
-
-Convert to Markdownto rewrite almost all of it, and recast it,
+to rewrite almost all of it, and recast it,
 and retell it in a somewhat different form.
 I'm about half-way through that, but it'll be
 a fair-size book even so.

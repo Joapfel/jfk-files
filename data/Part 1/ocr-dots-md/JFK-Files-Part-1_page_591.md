@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_591.png
-
-Convert to Markdown20 September 1965
+20 September 1965
 
 # MEMORANDUM RE:STESTICALADE
 

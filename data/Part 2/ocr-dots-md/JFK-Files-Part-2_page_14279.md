@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14279.png
-
-Convert to MarkdownCODE
+CODE
 TO SAC REMARK
 FROM DIRECTOR FBI (62-116395)
 SECRETariat 75

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9627.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 8. No.
 

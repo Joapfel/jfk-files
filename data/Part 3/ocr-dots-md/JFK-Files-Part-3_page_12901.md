@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12901.png
-
-Convert to MarkdownQ. Who served in a supervisory capacity before Charles Harding?
+Q. Who served in a supervisory capacity before Charles Harding?
 
 A. Henry Rouse.
 

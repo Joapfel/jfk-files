@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2677.png
-
-Convert to Markdown2522
+2522
 
 That is all I have.
 

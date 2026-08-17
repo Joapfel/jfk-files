@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6677.png
-
-Convert to MarkdownSECRET
+SECRET
 
 k. Federal Bureau of Investigation report dated
 3 July 1961 from Dallas, Texas

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13723.png
-
-Convert to MarkdownEl Ministerio de Relaciones Exteriores,
+El Ministerio de Relaciones Exteriores,
 Pasaporte Diplomático a favor de
 
 Dra. Esther Gilván Rosales

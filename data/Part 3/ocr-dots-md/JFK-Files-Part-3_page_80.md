@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_80.png
-
-Convert to MarkdownPOLAND
+POLAND
 
 SECRET
 

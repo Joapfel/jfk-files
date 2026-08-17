@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16445.png
-
-Convert to MarkdownHMH
+HMH
 2
 
 Execution of: (All hit at same time)

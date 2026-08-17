@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3470.png
-
-Convert to Markdown9 May 1964
+9 May 1964
 
 **MEMORANDUM FOR:** Chief, WE/SA/External Operations Branch
 **SUBJECT:** AMWORLD—Ottilia Buena

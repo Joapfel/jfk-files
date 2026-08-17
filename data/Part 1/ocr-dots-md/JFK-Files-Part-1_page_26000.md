@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26000.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">19. TRAVEL OUTSIDE COUNTRY OF PRESENT RESIDENCE (Countries, dates and purposes)</td>

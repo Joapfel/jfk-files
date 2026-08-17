@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15123.png
-
-Convert to Markdown-5-
+-5-
 
 14. SPRACHEN: Georgische Sprache - Muttersprache
 

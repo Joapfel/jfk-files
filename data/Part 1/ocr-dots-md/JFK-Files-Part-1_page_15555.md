@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15555.png
-
-Convert to Markdown<table><thead><tr><th>DATE</th><th>TO</th><th>FROM</th><th>ACTION</th><th>INFO</th></tr></thead><tbody><tr><td>7 APR 6</td><td>DIRECTOR</td><td>LEOPOLDVILLE</td><td>C/AF 3 (TEMPO COPY SLOTTED FOR AF AT 0835, 7 AFR.61)</td><td>CGP, C/CA, C/C1, C/F1 2, S/C-2</td></tr></tbody></table>
+<table><thead><tr><th>DATE</th><th>TO</th><th>FROM</th><th>ACTION</th><th>INFO</th></tr></thead><tbody><tr><td>7 APR 6</td><td>DIRECTOR</td><td>LEOPOLDVILLE</td><td>C/AF 3 (TEMPO COPY SLOTTED FOR AF AT 0835, 7 AFR.61)</td><td>CGP, C/CA, C/C1, C/F1 2, S/C-2</td></tr></tbody></table>
 
 CLASSIFIED MESSAC
 

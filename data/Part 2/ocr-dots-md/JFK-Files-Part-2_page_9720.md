@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9720.png
-
-Convert to MarkdownIf you are of a true "Rightist" Revolutionary nature, do not hesitate to form an IRA cell of your own. Commit Revolutionary Acts, Rob Banks and if it was done in the spirit of the White Racial Movement, we will accept credit for it and in all probability contact and recruit you into the "inter-circle" of our Movement.
+If you are of a true "Rightist" Revolutionary nature, do not hesitate to form an IRA cell of your own. Commit Revolutionary Acts, Rob Banks and if it was done in the spirit of the White Racial Movement, we will accept credit for it and in all probability contact and recruit you into the "inter-circle" of our Movement.
 
 It will be rather difficult from this point on to contact us because we are already in permanent hideouts which we refer to as Camps. We don't mix with the public and only leave our Camps to commit a Revolutionary act.
 

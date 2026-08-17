@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16810.png
-
-Convert to Markdowncopper-colored steel fragment and three very small lead fragments. The steel fragments are from Norma and Winchester..30 Carbine bullets respectively. They both have general rifling characteristics like those on test bullets obtained from the K27 Carbine, but neither have suitable marks for identification purposes. It was not possible to establish the specific source of the lead fragments.
+copper-colored steel fragment and three very small lead fragments. The steel fragments are from Norma and Winchester..30 Carbine bullets respectively. They both have general rifling characteristics like those on test bullets obtained from the K27 Carbine, but neither have suitable marks for identification purposes. It was not possible to establish the specific source of the lead fragments.
 
 From area #14 - One copper-colored steel fragment and three lead fragments. The steel fragment has several land impressions comparable in size to those on test bullets obtained from the K27 Carbine. but there are insufficient marks of value for identification. One piece of lead is from the lead core of a jacketed bullet. The specific source or sources of the other two lead fragments could not be established.
 

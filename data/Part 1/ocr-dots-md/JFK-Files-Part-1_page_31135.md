@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31135.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PLW: 15 JUL 68
 

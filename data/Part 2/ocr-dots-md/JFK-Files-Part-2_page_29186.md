@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29186.png
-
-Convert to MarkdownCOMMITMENT OF OFFICE (see instruction 12)
+COMMITMENT OF OFFICE (see instruction 12)
 
 <table>
   <thead>

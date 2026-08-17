@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21356.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Director
 Central Intelligence Agency [x] RE

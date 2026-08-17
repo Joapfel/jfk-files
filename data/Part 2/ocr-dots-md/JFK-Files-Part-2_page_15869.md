@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15869.png
-
-Convert to MarkdownSource advised the National BPP, Berkeley, California, sent, on November 15, 1969, 23 cartons of newspapers to Chicago. The charges were $158.60.
+Source advised the National BPP, Berkeley, California, sent, on November 15, 1969, 23 cartons of newspapers to Chicago. The charges were $158.60.
 
 11/14/69)
 

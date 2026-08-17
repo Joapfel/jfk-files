@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20537.png
-
-Convert to MarkdownMemorandum to Mr. E. S. Miller
+Memorandum to Mr. E. S. Miller
 
 RE: DEMONSTRATIONS, WASHINGTON, D. C., AND SAN FRANCISCO, CALIFORNIA, NOVEMBER 20, 1971, SPONSORED BY THE WOMEN'S NATIONAL ABORTION ACTION COALITION.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5828.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 OF CALL
 
 <table><tr><td>MEMORANDUM<br/>OF CALL</td></tr><tr><td>Chris</td><td>my agent by phone</td></tr><tr><td>[x] YOU WERE CALLED BY-</td><td>[ ] YOU WERE VISITED BY-<br/>MURPHY</td></tr></table>

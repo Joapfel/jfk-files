@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22002.png
-
-Convert to Markdown22. A memorandum for the Special Group dated April 26, 1963, (02853) which discusses a paper on "new covert policy and programs toward Cuba" states that decisions have been made regarding certain of the item numbers in that paper.
+22. A memorandum for the Special Group dated April 26, 1963, (02853) which discusses a paper on "new covert policy and programs toward Cuba" states that decisions have been made regarding certain of the item numbers in that paper.
 
 23. The Minutes of the Special Group meeting on April 25 (02855) refer to a paper on a "proposed new policy and program toward Cuba."
 

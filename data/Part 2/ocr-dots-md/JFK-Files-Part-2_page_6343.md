@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6343.png
-
-Convert to Markdown**MEMORANDUM FOR:** J. Barry Harrelson @ DA
+**MEMORANDUM FOR:** J. Barry Harrelson @ DA
 
 **FROM:** Jane C. Heishman
 

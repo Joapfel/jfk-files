@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16195.png
-
-Convert to Markdowna. A Memorandum for the Record signed by T. Flores reports that WER BELL called Flores on 13 August 1959 to discuss Cuban activities in Miami. This memorandum also records that WER BELL phoned Flores again on 26 August 1959 at which time activities in the Dominican Republic and Cuban activities in Miami were discussed. WER BELL also asked about the status of his clearance, and was told it had not yet come through.
+a. A Memorandum for the Record signed by T. Flores reports that WER BELL called Flores on 13 August 1959 to discuss Cuban activities in Miami. This memorandum also records that WER BELL phoned Flores again on 26 August 1959 at which time activities in the Dominican Republic and Cuban activities in Miami were discussed. WER BELL also asked about the status of his clearance, and was told it had not yet come through.
 
 b. A letter signed "W" addressed to "Tom" gave "W's" location and some information concerning Batista and Castro. (This letter is probably in the 1959 time frame.)
 

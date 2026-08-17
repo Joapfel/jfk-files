@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11010.png
-
-Convert to MarkdownPART II
+PART II
 SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 13. Additional persons to be contacted shortly after the arrival of the SAC include:

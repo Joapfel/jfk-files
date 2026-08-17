@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3262.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>102319Z</td></tr><tr><td>CIA/D90</td></tr></table>
 

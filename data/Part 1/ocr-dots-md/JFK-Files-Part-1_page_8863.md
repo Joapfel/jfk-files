@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8863.png
-
-Convert to Markdown19. Indique todos los carnots de identidad que tione, con fechas, números, lugar: donde fueron expedidos y fecha hasta que sean válidos.
+19. Indique todos los carnots de identidad que tione, con fechas, números, lugar: donde fueron expedidos y fecha hasta que sean válidos.
 
 20. Religión. Es miembro de alguna orden religiosa?
 

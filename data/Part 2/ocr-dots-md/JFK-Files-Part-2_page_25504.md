@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25504.png
-
-Convert to MarkdownML: So, I was as surprised, I was very surprised. (contd.)
+ML: So, I was as surprised, I was very surprised. (contd.)
 
 FS: How long was it did you leave New York to go to Havana?
 

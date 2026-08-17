@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19098.png
-
-Convert to MarkdownSubject: Comité D'Action et de Défense des Immigres
+Subject: Comité D'Action et de Défense des Immigres
 
 Report #: WFI-235
 Date of information: See below

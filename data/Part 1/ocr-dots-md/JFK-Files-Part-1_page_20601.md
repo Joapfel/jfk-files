@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20601.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C. Use of less than first loss at travel accommodations
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2627.png
-
-Convert to Markdown# Photographic
+# Photographic
 Science
 
 23 WEST MAIN STREET

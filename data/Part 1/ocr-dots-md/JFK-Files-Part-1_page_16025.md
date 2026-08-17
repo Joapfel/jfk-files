@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_16025.png
-
 of the Eglin Armament Laboratory, is under investigation for his role in the gun shipments. The Air Force has not yet released a report on findings of its investigation.
 
 Werbell is vice president of Sionics, an Atlanta weapons research and manufacturing company.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2390.png
-
-Convert to Markdown(Continued on next page)
+(Continued on next page)
 
 <table><tr><td colspan="3">APPLICATION FOR FEDERAL EMPLOYMENT<br/>Form approved.<br/>Budget Bureau No. 50-8046.</td></tr><tr><td colspan="3"><table><tr><td>INSTRUCTIONS - Answer every question. By end of completely. Type write or else in INK. If you are answering for the United States Civil Service exam, enter the name of the organization and position you are applying for. (i.e., Civilian Flight Control) Month a residence is being used. Name of the state where the person lives. Enter the announcement number. Be sure to mail this application to the correct office with which you file this application so that your address will be updated.)</td></tr></table></td></tr><thead><tr><th>OPTION</th><th>GRADE</th><th>EARNED RATING</th><th>PREFERENCE</th><th>AUGM RATING</th></tr></thead><tbody><tr><td></td><td></td><td></td><td>☐ 5 points (best)</td><td></td></tr><tr><td></td><td></td><td></td><td>☐ 10 points</td><td></td></tr><tr><td></td><td></td><td></td><td>☐ Wile or Widow</td><td></td></tr><tr><td></td><td></td><td></td><td>☐ Illness</td><td></td></tr><tr><td></td><td></td><td></td><td>☐ Being invested</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td>INITIALS AND DATE</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

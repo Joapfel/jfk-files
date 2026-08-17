@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12702.png
-
-Convert to Markdownlocate subjects are not to be submitted. The Bureau will closely follow investigative action to locate missing security index subjects.
+locate subjects are not to be submitted. The Bureau will closely follow investigative action to locate missing security index subjects.
 
 II. If you receive indications that the subject went to Mexico or Canada, request the Bureau to alert other appropriate Government agencies to this possibility and to determine any available verifying information through liaison channels.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29087.png
-
-Convert to MarkdownSchedule D-1(540)
+Schedule D-1(540)
 
 # PART II Sales or Exchanges of Property Used in Trade or Business and/or Involuntary Conversions
 (Section 18181-82) see Instruction E

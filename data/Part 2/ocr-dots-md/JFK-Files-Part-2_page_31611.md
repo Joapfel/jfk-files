@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31611.png
-
-Convert to Markdown1
+1
 
 SF 100-53462
 STUDENT COMMITTEE FOR TRAVEL TO CUBA

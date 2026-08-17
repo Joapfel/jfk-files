@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13798.png
-
-Convert to Markdown...3.--
+...3.--
 
 107-
 

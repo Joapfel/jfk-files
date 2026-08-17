@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30572.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a "Mr. Hanklin"
 

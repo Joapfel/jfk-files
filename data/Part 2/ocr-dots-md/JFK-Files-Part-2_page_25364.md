@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25364.png
-
-Convert to MarkdownFour and a half years ago, I broke a story that now is belatedly rocking Washington. I reported that the Central Intelligence Agency had recruited two Mafia figures, John Roselli and Sam Giancana, to assassinate Cuban Premier Fidel Castro.
+Four and a half years ago, I broke a story that now is belatedly rocking Washington. I reported that the Central Intelligence Agency had recruited two Mafia figures, John Roselli and Sam Giancana, to assassinate Cuban Premier Fidel Castro.
 
 I tracked down Roselli and questioned him about the story. He had nothing to say. He promised me, however, that he would give me his exclusive story if he should ever be free to talk.
 

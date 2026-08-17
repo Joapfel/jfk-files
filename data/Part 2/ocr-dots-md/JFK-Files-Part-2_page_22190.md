@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22190.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>JOHNSON<br>KILPATRICK ✓<br>MCCONE</td><td>Sept.16,1963</td><td>MONGODB<br>SPECIAL GROUP</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>JOHNSON<br>KILPATRICK ✓<br>MCCONE</td><td>Sept.16,1963</td><td>MONGODB<br>SPECIAL GROUP</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

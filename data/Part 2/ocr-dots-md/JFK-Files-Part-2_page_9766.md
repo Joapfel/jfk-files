@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9766.png
-
-Convert to MarkdownDC 709 (1)
+DC 709 (1)
 
 UNITED STATES CIVIL SERVICE COMMISSION
 

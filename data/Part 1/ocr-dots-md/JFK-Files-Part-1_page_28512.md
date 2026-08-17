@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28512.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 26 JUN 1972
 

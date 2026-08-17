@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17039.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FAN ACCOUNT TREND REPORT
 30 NOV 1972

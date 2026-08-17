@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4668.png
-
-Convert to MarkdownSECRET
+SECRET
 
 when we got into discussions about operations or what have you, they seemed to be more concerned about when they were going to become a division chief, a station chief, and when they were going to become DDP and then eventually, "how do I get to be DCI?" And finally after all of that is over, "What about my pension rights?"
 

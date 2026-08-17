@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4653.png
-
-Convert to MarkdownDate 10/31/62
+Date 10/31/62
 
 Records of the General Telephone Company of Florida reveal below listed telephone toll calls have been charged to telephone number 255-2175, which is listed to FRANCES CACCIATORE of 1915 Carmen:
 

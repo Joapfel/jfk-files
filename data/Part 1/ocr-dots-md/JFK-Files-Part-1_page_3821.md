@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3821.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>Yes ☐ do</td>
     <td></td>

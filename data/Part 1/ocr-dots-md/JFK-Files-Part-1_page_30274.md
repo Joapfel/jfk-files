@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30274.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Fitness Report - McCORD, James W., Jr. - Emp. Ser. No. 058124
 Reporting Period 1 April 1967 - 31 March 1968

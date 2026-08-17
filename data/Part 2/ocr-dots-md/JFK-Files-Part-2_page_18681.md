@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18681.png
-
-Convert to MarkdownAugust 5, 1975
+August 5, 1975
 
 REQUEST FOR FBI MATERIALS
 

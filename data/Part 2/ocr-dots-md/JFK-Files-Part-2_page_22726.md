@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22726.png
-
-Convert to Markdown1 being contacted perhaps by nine different intelligence services
+1 being contacted perhaps by nine different intelligence services
 
 2 Now, there is no one who has supported the question of his mala fides. In other words, everyone, to a man, has
 

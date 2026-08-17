@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_26181.png
-
-Convert to Markdown-85-
+-85-
 
 LANSDALE: Oh yes, they were being trained actually to meet the challenge that the Vietnamese and American top officials foresaw, and they were thinking that this--and incidentally, the French General [Paul] Ely before he left was thinking the same way--just in terms of contingency planning; they saw a lot of artillery and armor being given the North Vietnamese army. So, being given that information, they saw any attack or military trouble in Vietnam as consisting of divisions of North Vietnamese with a lot of artillery and armor coming across the border. So they built up an army to meet the foreseeable thing that was happening, that they thought might happen. Instead of this, of course, it was more of the same old story again, and there were many of the officers in the Vietnamese armed forces who had formerly been guerrillas themselves, who had formerly had been Viet Minh in the old days of fighting the French, who had broken with the Communists and wanted no part of the Communists and were very sincere, patriotic Nationalists. But

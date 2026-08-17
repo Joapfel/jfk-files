@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7959.png
-
-Convert to MarkdownAttachment to: OIRT-06783
+Attachment to: OIRT-06783
 
 16 Nov 64
 

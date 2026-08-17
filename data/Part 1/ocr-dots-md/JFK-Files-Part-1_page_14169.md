@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14169.png
-
-Convert to Markdown14-0000
+14-0000
 
 SEPARATE COVER ATTACHMENT TO: UFG-W-642 dated 17 NOV 1981
 

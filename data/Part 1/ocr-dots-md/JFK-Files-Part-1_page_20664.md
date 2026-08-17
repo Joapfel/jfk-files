@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20664.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (I'WHEN FILLE'D (IN)
 

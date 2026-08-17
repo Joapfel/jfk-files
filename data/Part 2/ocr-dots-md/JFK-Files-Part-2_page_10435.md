@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10435.png
-
-Convert to Markdown7 May 1973
+7 May 1973
 
 MEMORANDUM FOR: Deputy Director for Intelligence
 SUBJECT: DCS Domestic Activity

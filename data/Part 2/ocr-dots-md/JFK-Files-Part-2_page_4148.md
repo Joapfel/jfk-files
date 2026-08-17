@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4148.png
-
-Convert to MarkdownI pointed out that copies of the Memorandum had been sent
+I pointed out that copies of the Memorandum had been sent
 to the Attorney General and the Department of Justice but there had been
 no conversation on the subject.
 

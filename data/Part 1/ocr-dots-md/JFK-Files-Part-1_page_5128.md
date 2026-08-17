@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5128.png
-
-Convert to MarkdownU.S. NEWS & WORLD REPORT, Dec. 6, 1978
+U.S. NEWS & WORLD REPORT, Dec. 6, 1978
 
 ## CUBAN EXTREMISTS
 (continued from preceding page)

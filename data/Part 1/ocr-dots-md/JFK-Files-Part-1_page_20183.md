@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20183.png
-
-Convert to MarkdownSEC. 9. MOTHER-IN-LAW
+SEC. 9. MOTHER-IN-LAW
 
 FULL NAME HARRIETTE BELL CASWELL DRISCOLL
 First Middle Last

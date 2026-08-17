@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6010.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 and 1968. Because these two documents are the subject
 of a FOIA request, they are not included in this

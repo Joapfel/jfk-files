@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20573.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. As I was leaving my office, Mr. Tegethoff called Mr. Franklin a second time to say that in the evening of 20 June 1972, Mr. John King, Department of State's Press Office, and Mr. John Unumb of CIA had discussed press inquiries in regard to Mr. Hunt which were made to the Department of State in the afternoon of 20 June 1972. These inquiries had particular reference to Mr. Hunt's biography in WHO'S WHO IN AMERICA showing him as Department of State employee since 1968 and listing his office at the Department of State. Messrs. Unumb and King agreed the press should be informed that he was not on the State Department's payroll during the period. Mr. Unumb confirmed this arrangement when I called him and said that he had added that Mr. Hunt retired in good standing from CIA in April 1970. I also cleared the proposed guidance with Mr. Ted Shackley, Chief, WH Division.
 

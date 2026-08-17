@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1388.png
-
-Convert to Markdownc. A/2 may also attempt to contact the following operational asset if he has an opportunity to make contact.
+c. A/2 may also attempt to contact the following operational asset if he has an opportunity to make contact.
 
 (Lester RODRIGUEZ) age late 30s early 40s, married, former member of the Partido Pueblo Cubano. He fought with Raul Castro in the Sierra Cristobal Area. Following the Castro takeover he served as head of one of the military zones within Havana province. Eventually he was given lesser assignments and A/2 thinks he is now working in INRA in Oriente Province. He claims RODRIGUEZ assisted his underground group during 1961 by supplying trucks for transporting weapons and materials.
 

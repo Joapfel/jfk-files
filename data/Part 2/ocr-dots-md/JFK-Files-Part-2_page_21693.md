@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21693.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 chart it looked very complicated. In operation it was quite
 simple. It was handled really as one entity with various faces

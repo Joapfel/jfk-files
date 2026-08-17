@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15046.png
-
-Convert to Markdownthe BfW out of the case will inform it that Cebj is of
+the BfW out of the case will inform it that Cebj is of
 continuing operational interest to A1C. He requested that
 C should send him a cable stating that Cebj is of ops interest and
 that it is contented that he will be resettled outside of

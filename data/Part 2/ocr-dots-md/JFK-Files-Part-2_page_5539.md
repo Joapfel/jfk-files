@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5539.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 17 April 1997
 

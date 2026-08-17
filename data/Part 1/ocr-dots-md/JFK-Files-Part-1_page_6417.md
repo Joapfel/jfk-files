@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6417.png
-
-Convert to Markdown-3-
+-3-
 
 afterall, was working for German propagandists. However, he calumniated, vilified that he had a bad press in his country. In further detail it is said that he had serious differences of opinion with Paul Ehrlich, Alister's former price chief. Vice Chairman was just Chancelier of West Germany, but only included as the Parliamentary Committee, so was really put under pressure to interview Alister during his sales conference. He had never forgiven him for this.
 

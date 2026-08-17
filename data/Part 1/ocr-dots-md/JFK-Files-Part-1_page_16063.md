@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16063.png
-
-Convert to Markdown# TO BE FILMED IN 10 DAYS
+# TO BE FILMED IN 10 DAYS
 
 List 1. Operational Schedule (CTAF)
 

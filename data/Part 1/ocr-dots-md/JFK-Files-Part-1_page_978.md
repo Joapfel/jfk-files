@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_978.png
-
-Convert to MarkdownHSCA Chron, page 11
+HSCA Chron, page 11
 
 3 May 78 C/CI Memo to DCI re Continued Agency Responsibility for Welfare and Protection of PL 110 Cases.
 

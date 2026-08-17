@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2583.png
-
-Convert to Markdownand/or counterintelligence matters, operations,
+and/or counterintelligence matters, operations,
 or activities.
 
 b. The policies and procedures of the FBI for the

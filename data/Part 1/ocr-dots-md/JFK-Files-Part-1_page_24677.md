@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24677.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>12/3/75</td>

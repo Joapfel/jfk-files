@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10797.png
-
-Convert to MarkdownThere is tacit acknowledgement in Section 403 (e) of the National Security Act of 1947 that the FBI gathers information affecting the national security. This section provides:
+There is tacit acknowledgement in Section 403 (e) of the National Security Act of 1947 that the FBI gathers information affecting the national security. This section provides:
 
 (e) To the extent recommended by the NSC and approved by the President, such intelligence of the departments and agencies of the Government, except as hereinafter provided, relating to the national security shall be open to the inspection of the Director of Central Intelligence, and such intelligence as relates to the national security and is possessed by such departments and other agencies of the Government, except as hereinafter provided, shall be made available to the Director of Central Intelligence for correlation, evaluation, and dissemination: Provided, however, That upon the written request of the Director of Central Intelligence, the Director of the FBI shall make available to the Director of Central Intelligence such information for correlation, evaluation, and dissemination as may be essential to the national security.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6989.png
-
-Convert to MarkdownSECRET
+SECRET
 
 November - December, 1960. Halperin, "an identified Soviet agent who left the US in 1950," has now in the Soviet Union," was to be head of one of the two new organizations founded during a Moscow conference of communist leaders: "Office for permanent studies and cooperation with Latin American parties" to be organized by the Communist Parties of Argentina, Brazil, and Cuba, and to be located inasing. [This presumably never happened.) (SRS, TRU-3/267, 130, 13 January 1961, info Nov-Dec 60, from an official Swedish service from usually-reliable source who Polish official with high-level contacts)
 

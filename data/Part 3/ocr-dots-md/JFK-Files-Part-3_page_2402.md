@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2402.png
-
-Convert to Markdownfrom the United States were in attendance at this conference. Discussion centered on such subjects as how to wage a campaign against war and for social change throughout the world, how to deal with the Okinawa issue and the United States - Japan. Security Pact, how to assist United States deserters and draft evaders and how to coordinate antiwar movements around the world.
+from the United States were in attendance at this conference. Discussion centered on such subjects as how to wage a campaign against war and for social change throughout the world, how to deal with the Okinawa issue and the United States - Japan. Security Pact, how to assist United States deserters and draft evaders and how to coordinate antiwar movements around the world.
 
 ## 6. International Assembly
 

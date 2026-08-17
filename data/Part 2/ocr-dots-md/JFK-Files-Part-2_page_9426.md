@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9426.png
-
-Convert to MarkdownPEOPLES FREE PIONEER Picnic
+PEOPLES FREE PIONEER Picnic
 
 Sunday - August 9, 1970
 — Belle Isle Park

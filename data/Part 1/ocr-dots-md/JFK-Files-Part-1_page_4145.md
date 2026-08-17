@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4145.png
-
-Convert to Markdownto father the bedrock of his political convictions. I am reluctant to accept his writings and the program of the AMI as a valid base for judgement in this regard. In the final analysis, it may turn out that what animates AMBIOD-1 in his unwavering opposition to Castro is the fact that as long as Castro is "in" AMBIOD-1 is likely to remain "out." That for purposes of justifying our support to him, may suffice.
+to father the bedrock of his political convictions. I am reluctant to accept his writings and the program of the AMI as a valid base for judgement in this regard. In the final analysis, it may turn out that what animates AMBIOD-1 in his unwavering opposition to Castro is the fact that as long as Castro is "in" AMBIOD-1 is likely to remain "out." That for purposes of justifying our support to him, may suffice.
 
 10. Our methods of handling AMBIDAY-1 will have to remain cloaked ascribed by the imperatives of autonomy. He cannot be treated as a controlled agent without making a moody of autonomy.
 

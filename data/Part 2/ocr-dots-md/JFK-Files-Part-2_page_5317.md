@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5317.png
-
-Convert to MarkdownSECRET
+SECRET
 
 * Cuban Revolutionary Council (CRC) financial records.
 

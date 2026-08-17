@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6105.png
-
-Convert to Markdown# PUBLICATIONS
+# PUBLICATIONS
 
 "The Importance of Foreign Policy Process: Eisenhower and the National Security Council," in *Eisenhower: A Centenary Assessment*, LSU Press, (forthcoming).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34045.png
-
-Convert to MarkdownU.S. OFFICIALS Saturday announced that two Cuban refugee flights for Monday, May 1, will be suspended at the request of the Cuban government. Communist May Day activities are scheduled on the island that day.
+U.S. OFFICIALS Saturday announced that two Cuban refugee flights for Monday, May 1, will be suspended at the request of the Cuban government. Communist May Day activities are scheduled on the island that day.
 
 The U.S. financed flights, which have brought more than 60,000 refugees to this country since they were initiated 17 months ago, will resume May 2 on a twice-a-day, five-day-a-week basis.
 

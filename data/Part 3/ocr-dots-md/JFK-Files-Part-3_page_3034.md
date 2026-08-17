@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3034.png
-
-Convert to MarkdownMR. ADAMS: We did not tell him to participate in violent activities.
+MR. ADAMS: We did not tell him to participate in violent activities.
 
 QUESTION:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33243.png
-
-Convert to Markdown9 May 1968
+9 May 1968
 
 MENORANDUM FOR: Chief, WHB&F
 SUBJECT : Request for Extension of Due Date for Accounting of Operational Advance for AMSTALK-1

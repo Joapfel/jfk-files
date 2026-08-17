@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32570.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 in the hands of private individuals, however; and the number of those having access to shortwave receivers is estimated to be constantly decreasing due to Soviet efforts to increase group listening by means of wired networks. Nevertheless, it would appear that there will be a sizeable potential audience for foreign broadcasts in all three wave bands for some time to come. One indication of this is the fact that at present the USSR is broadcasting approximately 900 hours per day over 160 transmitters in 26 or more languages to its own people. Many of these transmissions are to areas and over frequencies which lie within our transmitting capabilities.

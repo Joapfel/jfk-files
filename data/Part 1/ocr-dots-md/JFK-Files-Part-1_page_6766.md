@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6766.png
-
-Convert to MarkdownTHIRD AGENCY DOCUMENTS - 201-128561 (HALPERIN)
+THIRD AGENCY DOCUMENTS - 201-128561 (HALPERIN)
 
 Document
 Date

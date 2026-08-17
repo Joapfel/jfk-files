@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12131.png
-
-Convert to MarkdownVENCEREMOS BRIGADE
+VENCEREMOS BRIGADE
 
 ASSISTANT DIRECTOR C.D. BRENNAN: The Inspector's keen analysis and thoughtful suggestions in regard to the investigation of the Venceremos Brigade (VB) is sincerely appreciated. In connection with the above, the following observations by this Division are set forth:
 

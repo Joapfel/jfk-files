@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11735.png
-
-Convert to MarkdownADDENDUM OF THE INSPECTION DIVISION E.S.MILLER:wmj 8/26/71
+ADDENDUM OF THE INSPECTION DIVISION E.S.MILLER:wmj 8/26/71
 
 You are requested to clarify and document your
 observations "that any future expansion abroad will be resisted by

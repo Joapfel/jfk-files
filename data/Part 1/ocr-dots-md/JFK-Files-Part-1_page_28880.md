@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28880.png
-
-Convert to Markdown14-0000
+14-0000
 
 # NBC Claims Diem Death Inside Story
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15452.png
-
-Convert to Markdown<table><tr><td rowspan="2">DISCH</td><td>CLASSIFIED</td><td>FORM</td></tr><tr><td>ACCR. REG. NO.</td><td>10-57 SS<br/>L40</td></tr></table>
+<table><tr><td rowspan="2">DISCH</td><td>CLASSIFIED</td><td>FORM</td></tr><tr><td>ACCR. REG. NO.</td><td>10-57 SS<br/>L40</td></tr></table>
 
 <table><tbody><tr><td colspan="3">TO Chief, AP</td></tr><tr><td colspan="3">CCS, Brussels</td></tr><tr><td colspan="3">CCS, Munich</td></tr><tr><td colspan="3">FROM Chief of Station, Leopoldville</td></tr><tr><td colspan="3">SUBJECT Major Peter DE GROEVE</td></tr><tr><td>ACTION REQUIRED</td><td colspan="2"></td></tr></tbody></table>
 

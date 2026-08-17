@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4171.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">CLASSIFIED MESSAGE</th></tr><tr><td>20</td><td>SECRET</td><td rowspan="3"><table><tbody><tr><td>A-1</td><td>201</td></tr><tr><td colspan="2">DESIGNATED SECRET</td></tr><tr><td colspan="2">RYAN/ANWORLD/TYPIC/YOBITE</td></tr></tbody></table></td><td>8</td><td>B1 ☐ copy ☑ draft</td></tr><tr><td>FROM<br/>SAN Jose</td><td>PERSON/UNIT NOTIFIED</td><td>ADVANCE COPY ☐ issued ☐ plotted ☐ future</td><td>FORward CI</td><td>TIME SI</td><td>BY [STAMP]</td></tr><tr><td>ACTION<br/>DCLWH/SO 3<br/>DDP c/WH VR</td><td></td><td></td><td></td><td></td><td></td></tr></thead><tfoot><tr><td colspan="6">SECRET 2203AZ<br/>DIR INRS HANA PACY VALLE CITE SJOS 7813<br/>RYAN/ANWORLD/TYPIC/YOBITE</td></tr></tfoot></table>
+<table><thead><tr><th colspan="4">CLASSIFIED MESSAGE</th></tr><tr><td>20</td><td>SECRET</td><td rowspan="3"><table><tbody><tr><td>A-1</td><td>201</td></tr><tr><td colspan="2">DESIGNATED SECRET</td></tr><tr><td colspan="2">RYAN/ANWORLD/TYPIC/YOBITE</td></tr></tbody></table></td><td>8</td><td>B1 ☐ copy ☑ draft</td></tr><tr><td>FROM<br/>SAN Jose</td><td>PERSON/UNIT NOTIFIED</td><td>ADVANCE COPY ☐ issued ☐ plotted ☐ future</td><td>FORward CI</td><td>TIME SI</td><td>BY [STAMP]</td></tr><tr><td>ACTION<br/>DCLWH/SO 3<br/>DDP c/WH VR</td><td></td><td></td><td></td><td></td><td></td></tr></thead><tfoot><tr><td colspan="6">SECRET 2203AZ<br/>DIR INRS HANA PACY VALLE CITE SJOS 7813<br/>RYAN/ANWORLD/TYPIC/YOBITE</td></tr></tfoot></table>
 
 22SEP.64 MIN 78499
 

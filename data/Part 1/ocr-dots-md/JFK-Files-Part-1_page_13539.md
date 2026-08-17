@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13539.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CLASSIFIED MESSAGE</td>
     <td>1967, 16.11.</td>

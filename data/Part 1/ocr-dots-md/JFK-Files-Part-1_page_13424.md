@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13424.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>19 FEB 68 IN 77077</td></tr></table>
 

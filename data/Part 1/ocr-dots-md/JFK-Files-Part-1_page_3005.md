@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3005.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td rowspan="2">14-00000<br/>104-10161-10096</td>
     <td colspan="7">OUTGOING ASSASSINATION RECORDS ACT OF 1992</td>

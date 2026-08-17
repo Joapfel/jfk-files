@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28780.png
-
-Convert to MarkdownJ O A N
+J O A N
 
 T A L B E R T
 

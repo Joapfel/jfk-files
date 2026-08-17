@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18067.png
-
-Convert to MarkdownREQUEST FOR PROJECT RENEWAL
+REQUEST FOR PROJECT RENEWAL
 
 Project LIONION
 Station Mexico City

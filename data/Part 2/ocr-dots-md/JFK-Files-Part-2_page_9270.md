@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9270.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 F. Philosophy of the BPP
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7851.png
-
-Convert to Markdown12. BADRIN was absent from class from 10 August to 19 September. During this period he was on home leave.
+12. BADRIN was absent from class from 10 August to 19 September. During this period he was on home leave.
 
 13. On 19 September, BADRIN returned to class and commented that he had not looked at his English lessons since August. BADRIN related that he had spent most of his vacation in the Leningrad area which is his home as well as his wife's.
 

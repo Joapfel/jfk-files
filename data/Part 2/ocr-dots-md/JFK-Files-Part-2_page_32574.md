@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32574.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 Security Information
 
 techniques for the penetration of enemy domestic radio broadcasting services might well enable us to overcome the handicaps imposed by the jamming of our conventional broadcasts to the Soviet orbit and seize the cold war initiative in the radio sphere. It is a field which has been neglected thus far.

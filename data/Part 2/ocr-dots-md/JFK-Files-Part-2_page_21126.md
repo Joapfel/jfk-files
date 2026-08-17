@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21126.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 # I. New Cases and New Information
 

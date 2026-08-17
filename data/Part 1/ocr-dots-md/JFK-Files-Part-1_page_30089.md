@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30089.png
-
-Convert to MarkdownHerman Edward Elinsey
+Herman Edward Elinsey
 37 Massachusetts Ave., N. Y.
 Washington 16, D. C. (20016)
 Telephone: Federal 8-6400

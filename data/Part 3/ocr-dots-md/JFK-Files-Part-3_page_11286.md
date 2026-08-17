@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11286.png
-
-Convert to MarkdownNR 005 CV CODE
+NR 005 CV CODE
 8:25PM NITEL 3/25/75 RJB
 
 TO: DIRECTOR

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25733.png
-
-Convert to Markdownthe Senate committee, "developed a close friendship."
+the Senate committee, "developed a close friendship."
 
 Another CIA official who worked with Rosselli, James P. O'Connell, was asked if he knew whether the agency transmitted information to the mobster on possible Cuban involvement in the Kennedy assassination. He replied that he was out of the country at the time Kennedy was killed, and had no further comment.
 

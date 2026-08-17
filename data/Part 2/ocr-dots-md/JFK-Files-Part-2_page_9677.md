@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9677.png
-
-Convert to MarkdownSI 187-4275
+SI 187-4275
 
 he had previously issued 300 membership cards. He again declined comment concerning the names of any of the organization's leadership or its membership. He did state that the majority of him members were disillusioned members of other right wing organizations. He advised the uniform of WJF consists of military fatigues with a pistol belt with a half swastika徽徽 on the collar. This is the uniform he usually wears during his speaking engagements.
 

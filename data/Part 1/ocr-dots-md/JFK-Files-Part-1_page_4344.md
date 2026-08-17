@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4344.png
-
-Convert to MarkdownPatricio Lomaba, No. 581, Habana, Cuba.
+Patricio Lomaba, No. 581, Habana, Cuba.
 Puerto Correos No. 223, Habana, Cuba.
 Bolivia No. 49, Habana, Cuba
 Pope Conas Marquemort., ll. No. 808, Virgen, Habana, Cuba.

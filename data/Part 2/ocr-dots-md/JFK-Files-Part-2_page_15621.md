@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15621.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 advised on the same date, Reverend Ralph Abernathy of the Southern Christian Leadership Conference (SCLC) and the Reverend Jesse Jackson, director of Operation Breadbasket, the economic arm of SCLC, delivered eulogies at the service. Abernathy told those present the nation (United States), which had conquered Nazi Germany was now following the same course. He also stated he would establish a Fred Hampton scholarship for those Panthers who wanted to study law. Abernathy also said if the government succeeds in destroying the BPP, the SCLC and other black organizations are next.
 

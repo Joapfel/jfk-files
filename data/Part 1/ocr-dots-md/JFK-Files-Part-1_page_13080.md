@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13080.png
-
-Convert to Markdown28 June 1967
+28 June 1967
 
 NOTE FOR THE RECORD
 

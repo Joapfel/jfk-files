@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1529.png
-
-Convert to MarkdownSECRET
+SECRET
 
 House Select Committee on Assassinations
 

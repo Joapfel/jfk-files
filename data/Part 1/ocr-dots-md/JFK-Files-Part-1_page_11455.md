@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11455.png
-
-Convert to MarkdownLIRING-3
+LIRING-3
 
 Vol. VI
 

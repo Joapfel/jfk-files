@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9782.png
-
-Convert to Markdown2.
+2.
 
 of 34,000.00 for information on the situation in PEMEX. LIKING/4 told Rowton that she was badly shaken by these comments but attempted to assume as non-chalant an air as possible and did not question Sergio Valdez to determine the exact source. She noted that Sergio Valdez had mentioned Rowton several times to her, always apparently in passing, with the obvious hope that LIKING/4 would reveal his presence in Mexico and arrange an introduction to him for Sergio Valdez. LIKING/4 agreed with Rowton that Valdez was probably provoking her since at all times he appeared to be well disposed toward Sr. Harris from what he knew of him from LIKING/3. Rowton commented to L/4 that the last report concerning Carmen Lozada appeared to have been fabricated either by Sergio Valdez or one of his friends, simply on the basis of the fact that Sr. Harris had been in touch with Carmen Lozada while she was in Mexico.
 

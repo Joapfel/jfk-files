@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23457.png
-
-Convert to Markdown# 9. Dominican Republic
+# 9. Dominican Republic
 
 Mr. Merchant explained the feeling of the Department of State that limited supplies of small arms and other materiel should be made available for dissidents inside the Dominican Republic. Mr. Parrott said that we believe this can be managed securely by CIA, and that the plan would call for final transportation into the country being provided by the dissidents themselves. The Group approved the project.
 

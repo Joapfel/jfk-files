@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13541.png
-
-Convert to Markdown13:07
+13:07
 
 13:25 FAVIO QUIZ, de la Universidad Latinoamericana de La Habana, pre-junto a ROGELIO ANDRIGUEZ por el companero VIDOPIA. ROGELIO informó que hoy salió para Cuba en el vuelo regular de Cubana.
 

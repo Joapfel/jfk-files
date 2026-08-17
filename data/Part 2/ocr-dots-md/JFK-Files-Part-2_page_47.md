@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_47.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="7"> SECTION IX MARITAL STATUS </td>
    </tr>

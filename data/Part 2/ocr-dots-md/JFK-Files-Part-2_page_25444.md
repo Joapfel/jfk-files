@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_25444.png
-
-Convert to MarkdownBook V, P. 80 A client of Morgan's had informed him that the United States had attempted to assassinate Castro in the early 1960's and that Castro had decided to retaliate. This information was passed to Drew Pearson who in turn attempted to have Chief Justice Warren look into it but he declined.
+Book V, P. 80 A client of Morgan's had informed him that the United States had attempted to assassinate Castro in the early 1960's and that Castro had decided to retaliate. This information was passed to Drew Pearson who in turn attempted to have Chief Justice Warren look into it but he declined.

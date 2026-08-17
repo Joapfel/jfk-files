@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_395.png
-
-Convert to Markdown14-00000
+14-00000
 
 Pencil in address & phone #: 
 1. Beckman, Gunnar (Ret. 1972) 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10806.png
-
-Convert to MarkdownLIBERTAD
+LIBERTAD
 
 Mayo 30, 1969. Página 3
 

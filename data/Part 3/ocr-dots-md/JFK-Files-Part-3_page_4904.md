@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4904.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 In December, 1957, MM T-13 advised that NORMAN ROTHMAN controlled all of the slot machines in Cuba with the exception of those in Havana.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33792.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 Security Information
 
 ER-2-8556

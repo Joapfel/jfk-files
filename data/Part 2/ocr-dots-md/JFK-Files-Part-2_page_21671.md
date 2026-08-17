@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21671.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 trouble come see you?
 

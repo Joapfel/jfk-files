@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9953.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 Memorandum
 

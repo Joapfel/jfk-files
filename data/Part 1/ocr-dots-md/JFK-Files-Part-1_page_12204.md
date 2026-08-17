@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12204.png
-
-Convert to Markdown3015 OLBITTI PREVIOUS
+3015 OLBITTI PREVIOUS
 EDITIONS
 
 SECRET

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8674.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 June 1977
 

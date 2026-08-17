@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5584.png
-
-Convert to Markdownstatement of some employee or something. He was designated by the present Direc-
+statement of some employee or something. He was designated by the present Direc-
 tor to come here and present the story because he was supposed to be the most
 familiar with it since he had reviewed it for the CIA.
 

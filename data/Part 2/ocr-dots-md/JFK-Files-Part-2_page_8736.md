@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8736.png
-
-Convert to Markdown13-00000
+13-00000
 
 # AMLEO Operation 19-6-75/2,3,4
 

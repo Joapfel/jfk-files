@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9944.png
-
-Convert to Markdown(4) All other alleged violations of subsection 844(f) -- offenses involving use of explosives against United States property or federally financed organizations, and (g) -- offenses involving possession of explosives in buildings owned, leased, used, etc., by the United States - The FBI will immediately initiate a full investigation of all violations of subsection 844(g) over which it has primary jurisdiction hereunder, and those violations of 844(f) which are directed at federal property (e.g., a military facility) or a federal function (e.g., a Selective Service or ROTC facility). In other violations of 844(f) the FBI will develop and disseminate background information as indicated in paragraph 6 below.
+(4) All other alleged violations of subsection 844(f) -- offenses involving use of explosives against United States property or federally financed organizations, and (g) -- offenses involving possession of explosives in buildings owned, leased, used, etc., by the United States - The FBI will immediately initiate a full investigation of all violations of subsection 844(g) over which it has primary jurisdiction hereunder, and those violations of 844(f) which are directed at federal property (e.g., a military facility) or a federal function (e.g., a Selective Service or ROTC facility). In other violations of 844(f) the FBI will develop and disseminate background information as indicated in paragraph 6 below.
 
 3. Bureau of Alcohol, Tobacco and Firearms Division (ATF) Jurisdiction in General
 

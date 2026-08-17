@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18856.png
-
-Convert to MarkdownSAC, Washington Field
+SAC, Washington Field
 
 July 19, 1954
 

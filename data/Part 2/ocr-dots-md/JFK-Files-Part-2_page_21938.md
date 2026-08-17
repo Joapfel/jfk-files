@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21938.png
-
-Convert to Markdownfact, we feel that the transfer of arms would serve very little purpose and expose the United States to great danger of association with assassination attempt."
+fact, we feel that the transfer of arms would serve very little purpose and expose the United States to great danger of association with assassination attempt."
 
 The cable, as revised by Goodwin and approved by President Kennedy, was sent to Dearborn on May 29, 1961. (State Dept. to Dearborn cable, 5/29/61)
 

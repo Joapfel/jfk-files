@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13761.png
-
-Convert to MarkdownSECRET
+SECRET
 
 such targets has a primarily political and propaganda value to Castro in that it tends to show public opposition to US policy. It is also relatively easy for Castro to promote attacks against official US installations in a crisis situation and to get help from all the various elements which are opposed to American influence in the area. Future attacks may be anticipated in situations in which Castro feels that the public resentment of US policy exists or can be stirred up.
 

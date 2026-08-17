@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32005.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>19 May 1970</td>
     <td></td>

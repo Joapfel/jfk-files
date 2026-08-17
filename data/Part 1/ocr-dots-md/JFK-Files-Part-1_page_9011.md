@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9011.png
-
-Convert to Markdown15 NOVEMBER 1968
+15 NOVEMBER 1968
 
 SUBJECT: Enabling of Social Security Tax Credits of Former Contract Agents, Edward G. TICHPOORN, which are on file with the Agency.
 

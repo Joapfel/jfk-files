@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16312.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TOCS-514/0278-84
 

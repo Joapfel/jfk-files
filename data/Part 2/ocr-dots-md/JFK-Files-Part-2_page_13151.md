@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13151.png
-
-Convert to Markdown<table><tr><td colspan="2">DECODED COPY</td></tr><tr><td>☐ AIRGRAM</td><td>☐ CABLEGRAM</td><td>☐ RADIO</td><td>XX TELETYPE</td></tr></table>
+<table><tr><td colspan="2">DECODED COPY</td></tr><tr><td>☐ AIRGRAM</td><td>☐ CABLEGRAM</td><td>☐ RADIO</td><td>XX TELETYPE</td></tr></table>
 
 Tolson
 

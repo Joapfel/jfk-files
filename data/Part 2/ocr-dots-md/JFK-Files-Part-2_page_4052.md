@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4052.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 intend to take any money. He has refused to talk to a psychiatrist and fired two court appointed attorneys. His court room appearances have convinced all that he is intelligent and competent mentally but extremely confused and disturbed. He files motions and writs almost daily, which are well written and lawyer like.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6806.png
-
-Convert to Markdown- Options available: substitute language e.g., "Northern European station"
+- Options available: substitute language e.g., "Northern European station"
 
 - Also, summary of a record
 

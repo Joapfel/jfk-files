@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_25440.png
-
-Convert to MarkdownBook V, p. 79 CIA had FBI files on Espinosa detailing his involvement with anti-Castro exiles and underworld figures who were operating the guerrilla training camps in New Orleans in July 1963.
+Book V, p. 79 CIA had FBI files on Espinosa detailing his involvement with anti-Castro exiles and underworld figures who were operating the guerrilla training camps in New Orleans in July 1963.

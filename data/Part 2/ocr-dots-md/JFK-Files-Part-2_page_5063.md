@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5063.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MHFNO: 92-0800754 SENSIND:
 

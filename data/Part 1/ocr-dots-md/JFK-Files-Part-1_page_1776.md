@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1776.png
-
-Convert to Markdown# Organization and Activities of the Intelligence Community
+# Organization and Activities of the Intelligence Community
 
 ## National Indications Center - Watch Committee
 

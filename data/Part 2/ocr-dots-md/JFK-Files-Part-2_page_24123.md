@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24123.png
-
-Convert to Markdownfor the proprietary are compatible and consistent with normal practices
+for the proprietary are compatible and consistent with normal practices
 and requirements for the type of instrumentality being established.
 The Director of Finance representative is the Chief of the Commercial
 Systems and Audit Division, a position normally occupied by a certi-

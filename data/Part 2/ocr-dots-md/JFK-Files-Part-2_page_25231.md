@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25231.png
-
-Convert to Markdown# PERSONS/ENTITIES:
+# PERSONS/ENTITIES:
 
 DUONG VAN MINH
 TRAN VAN MINH

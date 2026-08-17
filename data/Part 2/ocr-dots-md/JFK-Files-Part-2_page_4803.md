@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4803.png
-
-Convert to MarkdownSECRET
+SECRET
 
 can't stop this thing. It should have never been printed.
 The point was made that this thing should never have been

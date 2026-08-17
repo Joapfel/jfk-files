@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32610.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>STANDARD FORM 52<br/>FOR PERSONNEL ACTION</td>
         <td style="text-align: right;">SECRET</td>

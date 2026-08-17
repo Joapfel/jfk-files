@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24947.png
-
-Convert to Markdownthink I agreed to use it." Although he also said that he did not tell Gottlieb that he would refuse to use it.
+think I agreed to use it." Although he also said that he did not tell Gottlieb that he would refuse to use it.
 
 COS said that even though Gottlieb had told him that clearance for the assassination of Lumumba had come from the President and the DCI, he wanted verification from Headquarters of an assignment of such magnitude. COS said: "I responded to Headquarters with a double-talk message, saying that I had met the messenger and requesting confirmation. I then received a cable containing double-talk confirmation, something like 'your assumption confirmed.'"
 

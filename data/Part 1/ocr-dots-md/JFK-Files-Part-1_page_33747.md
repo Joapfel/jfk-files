@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33747.png
-
-Convert to Markdown5 January 1952
+5 January 1952
 
 Dear Abbott:
 

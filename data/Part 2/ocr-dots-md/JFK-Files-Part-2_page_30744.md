@@ -1,4 +1,2 @@
-# JFK-Files-Part-2_page_30744.png
-
-Convert to MarkdownTHIS COPY IS NOT
+THIS COPY IS NOT
 FOR RELEASE.

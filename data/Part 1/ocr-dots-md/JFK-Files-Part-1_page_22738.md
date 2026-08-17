@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22738.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TERMINATION SECRECY OATH
 

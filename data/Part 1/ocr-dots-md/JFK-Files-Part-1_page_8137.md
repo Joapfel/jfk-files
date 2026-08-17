@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8137.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. The operational potential of ICAP Iberia, S.A., other than non-official commercial cover, must necessarily depend upon the activities, personnel, and contacts of Banif. As may be noted in the descriptive note on Banif attached as Tab B, the activities of Banif include research, consulting, securities, new business, underwriting, and investment. These activities cut across most aspects of economic and political life in Spain. Banif's personnel have impressive backgrounds and its clients and references are of a very high level.
 

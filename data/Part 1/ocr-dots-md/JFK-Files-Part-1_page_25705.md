@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25705.png
-
-Convert to MarkdownDate:
+Date:
 
 WHD AGENT BOARD
 

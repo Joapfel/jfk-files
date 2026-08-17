@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32493.png
-
-Convert to Markdown# Peruvian Communist Elements Coordinating Their Activities
+# Peruvian Communist Elements Coordinating Their Activities
 
 Orthodox Communists in Peru are apparently putting aside their differences and moving toward closer co-operation with the extremist Trotskyist faction, believed to be leading the recent outbreak of disorders. The groups are reportedly co-ordinating previously random plans to carry out extensive destruction of industrial and agricultural installations and to provoke uprisings. Cubans and other Latin American nationals as well as Havana and Moscow-trained Peruvians are said to be instrumental in this latest development.
 

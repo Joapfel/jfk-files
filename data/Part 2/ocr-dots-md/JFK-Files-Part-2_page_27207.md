@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27207.png
-
-Convert to MarkdownV. KENNEDY ASSASSINATION
+V. KENNEDY ASSASSINATION
 
 A. FBI Lab Report (Hunt and Sturgis Photos)
 

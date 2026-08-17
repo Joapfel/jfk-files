@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26864.png
-
-Convert to MarkdownMay 25, 1965
+May 25, 1965
 
 To whom it may concern:
 

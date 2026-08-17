@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16191.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 particularly Cuba, but terminated its consideration of his
 possible use in October 1959. From December 1965 to November

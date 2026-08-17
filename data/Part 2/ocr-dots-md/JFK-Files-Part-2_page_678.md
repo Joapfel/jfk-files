@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_678.png
-
-Convert to Markdown2.
+2.
 
 a sort of stringer in reporting on economic developments. Subject replied that he understood and did not see that such a task would be too difficult.
 

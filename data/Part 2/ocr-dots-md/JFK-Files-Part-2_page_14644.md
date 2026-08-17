@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14644.png
-
-Convert to MarkdownM.A. Jones to Bishop Memo
+M.A. Jones to Bishop Memo
 
 RE: BRIEF FOR DIRECTOR'S USE
 

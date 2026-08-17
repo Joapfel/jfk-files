@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16157.png
-
-Convert to Markdown25 January 1975
+25 January 1975
 
 SUBJECT: Mitchell Livingston WerBell III (201-259910)
 

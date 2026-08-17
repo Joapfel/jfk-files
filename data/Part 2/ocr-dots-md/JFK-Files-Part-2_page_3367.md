@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3367.png
-
-Convert to Markdown13-00000
+13-00000
 
 8 March 1960
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30779.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Date: 30 December 1948
 

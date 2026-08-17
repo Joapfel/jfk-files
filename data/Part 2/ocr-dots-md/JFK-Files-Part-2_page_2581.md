@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2581.png
-
-Convert to Markdown<table><thead><tr><th>Serial No</th><th>Name</th><th>Organization</th><th>Funds</th><th>LWOP HOURS</th></tr></thead><tbody><tr><td>059198</td><td>KENT WILLIAM</td><td>UO 125</td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th>Serial No</th><th>Name</th><th>Organization</th><th>Funds</th><th>LWOP HOURS</th></tr></thead><tbody><tr><td>059198</td><td>KENT WILLIAM</td><td>UO 125</td><td></td><td></td></tr></tbody></table>
 
 <table><thead><tr><th colspan="4">OLD SALARY RATE</th><th rowspan="2">Grade<br/>Step</th><th rowspan="2"> Salary</th><th rowspan="2"> New Salary Rate<br/>Step</th><th rowspan="2"> Old Salary Rate<br/>Step</th><th colspan="3">NEW ACTION</th></tr><tr><th>Grade</th><th>Step</th><th>Salary</th><th>Low EEP Date</th><th>WGI</th><th>QSI</th><th>ADJ</th></tr></thead><tbody><tr><td>GS 19 4</td><td></td><td>$39,789</td><td>05/23/76</td><td>GS 19 5</td><td>$40,993</td><td>05/21/78</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

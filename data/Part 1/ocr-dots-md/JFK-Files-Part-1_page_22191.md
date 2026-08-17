@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22191.png
-
-Convert to MarkdownQuestion: The fellow from Geneva?
+Question: The fellow from Geneva?
 No. He wasn't a KGB person.
 
 Question: No? What was he?

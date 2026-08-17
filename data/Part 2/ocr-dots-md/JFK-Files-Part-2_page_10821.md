@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10821.png
-
-Convert to MarkdownThe following FBI record, NUMBER 521-616 G, is furnished FOR OFFICIAL USE ONLY. Information shown on this Identification Record represents data furnished by fingerprint contributors. WHERE FINAL DISPOSITION IS NOT SHOWN ON 0. FURTHER EXPLANATION OF CHARGE IS DESIRED, COMMUNICATE WITH AGENCY CONTRIBUTING THOSE FINOEGTANTS.
+The following FBI record, NUMBER 521-616 G, is furnished FOR OFFICIAL USE ONLY. Information shown on this Identification Record represents data furnished by fingerprint contributors. WHERE FINAL DISPOSITION IS NOT SHOWN ON 0. FURTHER EXPLANATION OF CHARGE IS DESIRED, COMMUNICATE WITH AGENCY CONTRIBUTING THOSE FINOEGTANTS.
 
 <table><thead><tr><th>COMP. NO. OF FINGERS</th><th>NAME AND NUMBER</th><th>ARRESTED OR RECEIVED</th><th>CHARGE</th><th>DISPOSITION</th></tr></thead><tbody><tr><td>Morristown Twp Pa</td><td>Robert Williamson<br/>#3191</td><td>7-1-68</td><td>viol of Twp Ordinance #125 Soliciting with out permit</td><td>Guilty to刑 Pino : Cuy</td></tr><tr><td>Morristown Pa</td><td>Robert Williamson<br/>#68-17-17</td><td>7-18-68</td><td>Soliciting with out a permit</td><td>$25 F & S9 Costs</td></tr><tr><td>Pd<br/>Philadelphia Pa</td><td>Robert W. Williams<br/>#37020</td><td>3-20-70</td><td>Res Arr St Br of Peace</td><td>$10 and C</td></tr><tr><td>FBI<br/>Newark NJ</td><td>Robert William Williamson<br/>#-</td><td>8-22-71</td><td>Conspiracy</td><td></td></tr></tbody></table>
 

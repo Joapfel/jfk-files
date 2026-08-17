@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25969.png
-
-Convert to Markdown# Oral History Interview
+# Oral History Interview
 
 with
 EDWARD G. DWIN

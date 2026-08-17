@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31616.png
-
-Convert to Markdown# YOUNG SOCIALIST ALLIANCE
+# YOUNG SOCIALIST ALLIANCE
 
 The May, 1960, issue of the "Young Socialist" ("YS"), page 1, column 3, disclosed that during April 15-17, 1960, a national organization entitled "Young Socialist Alliance" (YSA) was established at Philadelphia, Pennsylvania. This issue stated this organization was formed by the nationwide supporter clubs of the publication "YS."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14818.png
-
-Convert to Markdownsuperiors. While forceful and decisive in debate, he rarely displayed any independence or initiative, but showed to the Party line. He avoided becoming angrily contentious in debate or discussion because he wanted to be on the side of those who counted most in terms of authority and leadership. He worked well with people on committees, but became firm when issues of moment were at stake and he knew the desires of higher officials. He never failed with a person in higher authority or standing but went along as a "good guy."
+superiors. While forceful and decisive in debate, he rarely displayed any independence or initiative, but showed to the Party line. He avoided becoming angrily contentious in debate or discussion because he wanted to be on the side of those who counted most in terms of authority and leadership. He worked well with people on committees, but became firm when issues of moment were at stake and he knew the desires of higher officials. He never failed with a person in higher authority or standing but went along as a "good guy."
 
 Winston stays clear of personal intrigue and maneuvering.
 

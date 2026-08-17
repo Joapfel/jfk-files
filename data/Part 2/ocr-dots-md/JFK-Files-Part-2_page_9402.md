@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9402.png
-
-Convert to Markdown# L. Programs
+# L. Programs
 
 ## 1. Free Breakfast for School Children
 

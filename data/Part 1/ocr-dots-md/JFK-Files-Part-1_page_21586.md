@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21586.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to the United States in January 1962, confessed to the FBI that he had been recruited in 1961 on the basis of compromising photographs which had been taken during his 1959 trip to Moscow.
 

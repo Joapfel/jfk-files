@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_31644.png
-
 s at UCB in support of the FSM.
 
 The FSM was an organization which evolved at UCB out of a disagreement between students and UCB administration of UCB policy regarding campus organizations.

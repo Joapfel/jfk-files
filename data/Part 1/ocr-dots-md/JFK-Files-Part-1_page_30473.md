@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30473.png
-
-Convert to Markdown26 February 1970
+26 February 1970
 
 MEMORANDUM FOR: Mr. Warren Dean
 Mr. Constantine Broutsas

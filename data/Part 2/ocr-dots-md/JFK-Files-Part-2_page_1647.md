@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1647.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>NAME</td><td>POSITION</td><td>DUE DATE</td><td>PURPOSE</td></tr></thead><tbody><tr><td>JAMES S. WOODS</td><td>Promotion</td><td>20 FEB 1928</td><td>7 FEB 53</td></tr></tbody></table>
 

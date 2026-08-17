@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30379.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. The crew members were all in uniform and not in mixed civilian and Air Force clothing, which properly established their cover.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1966.png
-
-Convert to Markdown12 February 1958
+12 February 1958
 
 MEMORANDUM FOR: Director of Central Intelligence
 

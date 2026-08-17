@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8295.png
-
-Convert to MarkdownTHE
+THE
 DAILY
 
 C

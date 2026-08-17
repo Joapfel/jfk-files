@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16232.png
-
-Convert to Markdown**DETAILS:**
+**DETAILS:**
 
 Characterizations of the organizations set forth below are attached as an appendix hereto:
 

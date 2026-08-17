@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10086.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section I: Citizenship -->
         <tr>

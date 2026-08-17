@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15701.png
-
-Convert to Markdown# MURDERERS!
+# MURDERERS!
 
 STATE' EDWA HANR
 

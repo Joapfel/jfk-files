@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22349.png
-
-Convert to MarkdownG. Sources Supporting KOSENKO
+G. Sources Supporting KOSENKO
 
 1. Introduction
 

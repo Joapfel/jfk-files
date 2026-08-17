@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6066.png
-
-Convert to MarkdownGrant, "The Popular Election of Judges and Judicial Behavior," National Science Foundation, Law and Social Sciences Division, 1984-1986.
+Grant, "The Popular Election of Judges and Judicial Behavior," National Science Foundation, Law and Social Sciences Division, 1984-1986.
 
 Grant, "The History of Popular Election of Judges," Albert J. Beveridge Fund, American Historical Association, 1984.
 

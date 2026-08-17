@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15594.png
-
-Convert to MarkdownGENERAL INFORMATION TO BE NOTED
+GENERAL INFORMATION TO BE NOTED
 
 Subject was issued the following documents:
 

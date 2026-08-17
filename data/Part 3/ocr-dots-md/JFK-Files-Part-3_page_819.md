@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_819.png
-
-Convert to MarkdownAugust 27, 1976
+August 27, 1976
 
 1 - Mr. Wannall
 1 - Mr. Daly

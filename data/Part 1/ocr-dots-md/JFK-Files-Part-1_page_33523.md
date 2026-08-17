@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33523.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th colspan="6">SIGNAL CENTER USE ONLY</th><th rowspan="2">PAGE</th><th rowspan="2">OF PROCS</th></tr><tr><th>AGD</th><th>COI</th><th>ACP</th><th>VOC</th><th>TE</th><th>WHO</th></tr></thead><tbody><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>1</td></tr><tr><td colspan="8">CLASSIFICATION</td></tr><tr><td colspan="8">SECRET</td></tr><tr><td colspan="8">MESSAGE HANDLING INDICATOR</td></tr><tr><td colspan="8">STAFF</td></tr><tr><td colspan="8">CONF. C/LWH8 INFO: FILE C/LH/SC/LEAHY</td></tr></tbody></table>
 

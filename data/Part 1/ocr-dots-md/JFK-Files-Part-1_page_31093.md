@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31093.png
-
-Convert to Markdown23 February 1955
+23 February 1955
 
 TO: Chief, Wa/l
 

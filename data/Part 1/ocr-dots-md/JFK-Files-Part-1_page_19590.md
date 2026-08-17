@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19590.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SECTION V CONTINUED FROM PAGE 2</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4610.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 February 7, 1961 Records of New Jersey Superior Court, West State Street, Trenton, New Jersey, checked by SA NORMAN A. HENDRICKS.
 

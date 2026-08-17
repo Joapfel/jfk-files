@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28379.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 To: Thomas Howarth, Budget Officer
 

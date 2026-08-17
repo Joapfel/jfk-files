@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7689.png
-
-Convert to Markdowngo to Russia or a Communist country indicates that he has pretty strong convictions against the United States, or else there is something questionable about his mental processes.
+go to Russia or a Communist country indicates that he has pretty strong convictions against the United States, or else there is something questionable about his mental processes.
 
 I would think that fact alone would make it important to watch his activities when he came back.
 

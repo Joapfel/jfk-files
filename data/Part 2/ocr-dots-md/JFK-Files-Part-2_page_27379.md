@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27379.png
-
-Convert to MarkdownNelson A. Rockefeller,
+Nelson A. Rockefeller,
 Chairman
 
 John T. Connor

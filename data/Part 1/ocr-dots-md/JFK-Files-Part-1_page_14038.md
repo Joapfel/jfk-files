@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14038.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>MESSAGE FORM<br/>TOTAL COPIES: 26</td>

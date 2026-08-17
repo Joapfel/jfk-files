@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13904.png
-
-Convert to Markdown**CLASSIFIED MESSAGE**
+**CLASSIFIED MESSAGE**
 
 <table><tr><td>TO</td><td>: DIRECTOR</td></tr><tr><td>FROM</td><td>: MERIDA</td></tr><tr><td>ACTION</td><td>: C/W 5</td></tr><tr><td>DPO</td><td>: DOP, ADOP, C/CI, DC/W/SA 5, VR</td></tr></table>
 

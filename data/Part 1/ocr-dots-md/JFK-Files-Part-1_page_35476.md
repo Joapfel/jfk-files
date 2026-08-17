@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35476.png
-
-Convert to Markdown-2-
+-2-
 
 CIRCLED: Charles & Anna Jones
 

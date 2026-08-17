@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11060.png
-
-Convert to MarkdownSimilarly, the President's Commission on Campus Unrest (1970) took special note of the need for intelligence in effective law enforcement. The Commission stated in its report, "It is an undoubted fact that on some campuses there are men and women who plot, all too often successfully, to burn and bomb, and sometimes to maim and kill." The report concluded that the best, AND sometimes the only, means law enforcement has to thwart or prevent such plots is through "clandestine intelligence work."
+Similarly, the President's Commission on Campus Unrest (1970) took special note of the need for intelligence in effective law enforcement. The Commission stated in its report, "It is an undoubted fact that on some campuses there are men and women who plot, all too often successfully, to burn and bomb, and sometimes to maim and kill." The report concluded that the best, AND sometimes the only, means law enforcement has to thwart or prevent such plots is through "clandestine intelligence work."
 
 Prevention is the very essence of the proper use of intelligence. To be forewarned is to be placed in a position to carry out countermeasures to meet a threat. During the mass actions and violent confrontations of the 1960's, FBI intelligence collection was crystallized in dissemination of information to other government agencies. This intelligence provided them with an essential working tool to contend with public disorders and activities of a revolutionary nature.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6985.png
-
-Convert to MarkdownFederal News Service, JUNE 4, 1997
+Federal News Service, JUNE 4, 1997
 
 some records at the National Archives that are still under review, such as the Secretary of Army's records dealing with Operation Mongoose, the campaign to destabilize the Cuban government in the period after the Bay of Pigs.
 

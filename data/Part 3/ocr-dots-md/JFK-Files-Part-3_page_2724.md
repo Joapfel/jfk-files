@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2724.png
-
-Convert to Markdown1920
+1920
 
 Mr. Wannall. Our interest, of course, was the VVAW influence on a particular meeting, if you ever happened to be holding a meeting, or whatever subject it was.
 

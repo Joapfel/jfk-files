@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1124.png
-
-Convert to Markdown**PERSONNEL**
+**PERSONNEL**
 
 HR 20-53
 

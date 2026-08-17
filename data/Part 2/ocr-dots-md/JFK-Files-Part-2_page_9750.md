@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9750.png
-
-Convert to Markdownof any derogatory information which it may have on file. The Federal Bureau of Investigation will at once open a full field investigation within the continental limits of the United States, etc., when such investigation is required by the availability of information within those areas. Completion of such investigation will be reported to the originating agency through normal channels.
+of any derogatory information which it may have on file. The Federal Bureau of Investigation will at once open a full field investigation within the continental limits of the United States, etc., when such investigation is required by the availability of information within those areas. Completion of such investigation will be reported to the originating agency through normal channels.
 
 A. The Departments of Army, Navy, and Air Force will utilize their own facilities for the necessary investigation of any of their own civilian personnel stationed outside the continental limits of the United States, Alaska, Hawaii, Puerto Rico, and the Virgin Islands.
 

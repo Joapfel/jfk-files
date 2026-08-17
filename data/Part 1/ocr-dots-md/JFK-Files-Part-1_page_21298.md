@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21298.png
-
-Convert to MarkdownDISPATCH
+DISPATCH
 
 <table><thead><tr><th colspan="2">CLASSIFICATION<br>SECRET</th><th colspan="3">PROCESSING</th></tr><tr><td>(PRO)<br>POLICY</td><th>ACTION</th><td>ACCOM<br>PUSHED</td><td></td><td></td></tr></thead><tbody><tr><td></td><td>MARVEL P. FOR INFORMING</td><td></td><td></td><td></td></tr><tr><td></td><td>NO INFORMATION REQUIRED</td><td></td><td></td><td></td></tr><tr><td></td><td>ONLY QUALIFIED<br>HEADQUARTERS DESK<br>CASUE INDICATING</td><td></td><td></td><td></td></tr><tr><td></td><td>ABSTRACT</td><td></td><td></td><td></td></tr><tr><td></td><td>MICROFILM</td><td></td><td></td><td></td></tr></tbody></table>
 

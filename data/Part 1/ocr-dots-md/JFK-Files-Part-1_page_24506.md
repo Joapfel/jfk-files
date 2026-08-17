@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24506.png
-
-Convert to Markdown# Los Manifiestos del Apra y AP
+# Los Manifiestos del Apra y AP
 
 Simoniamente el Partido Aprista y Acción Popular emplazaron encuercados en las PASOYS de la fecha que el Gobierno anterior tenía pensada para la realización de las Elecciones Generales.
 

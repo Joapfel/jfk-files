@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31786.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 23 February 1978
 

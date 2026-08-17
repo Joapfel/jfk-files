@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12591.png
-
-Convert to Markdown[ [f.] Advise Bureau promptly by LHM of subject's return from travel abroad. If such individual has traveled behind Iron Curtain, also furnish Bureau recommendations as to interview and state whether additional investigation is contemplated.
+[ [f.] Advise Bureau promptly by LHM of subject's return from travel abroad. If such individual has traveled behind Iron Curtain, also furnish Bureau recommendations as to interview and state whether additional investigation is contemplated.
 
 [5.] File reviews
 Check office indices and review files thoroughly for pertinent information showing background and subversive activity. Include information in initial report. After each check and review of files has been made, consolidate reference cards pertaining to subject in indices.

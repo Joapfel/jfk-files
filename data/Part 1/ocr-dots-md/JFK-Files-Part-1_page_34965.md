@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34965.png
-
-Convert to MarkdownVisto y legalizado por este Juzgado del Trinario
+Visto y legalizado por este Juzgado del Trinario
 fusaran la para que nucua surtir efecto en la
 Original del Registro Civil.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8956.png
-
-Convert to Markdown1656
+1656
 
 ORIG: LOUIS P. NAPOLI :pk,JJ
 UNIT: WII/2/UP

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17553.png
-
-Convert to Markdown# WHO ARE THE REAL CONSPIRATORS
+# WHO ARE THE REAL CONSPIRATORS
 
 "As a Black Man in America, I can't get a fair trial in a RACIST COURT... Chairman Bobby Seale
 

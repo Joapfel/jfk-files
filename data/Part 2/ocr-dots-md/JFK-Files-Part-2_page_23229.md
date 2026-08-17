@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23229.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 in the land to order me to do what he so ordered, which got another cable back through the specially slugged cable saying yes, what he told you is correct.
 

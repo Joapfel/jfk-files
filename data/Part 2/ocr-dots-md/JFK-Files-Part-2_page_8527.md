@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8527.png
-
-Convert to Markdown28 APR 1977
+28 APR 1977
 
 MEMORANDUM FOR: Mr. John Greaney
 Office of General Counsel

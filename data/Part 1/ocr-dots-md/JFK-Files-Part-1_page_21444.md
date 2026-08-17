@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21444.png
-
-Convert to Markdown24 APR 1961
+24 APR 1961
 
 TO: Director
 Federal Bureau of Investigation

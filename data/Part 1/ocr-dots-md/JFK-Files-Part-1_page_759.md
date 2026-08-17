@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_759.png
-
-Convert to Markdown14-00000
+14-00000
 
 Sr. Salinas, 1g de enero. NPS
 

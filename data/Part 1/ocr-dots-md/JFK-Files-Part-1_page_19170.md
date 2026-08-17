@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19170.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filed In)
 
 FJT: 13 APR 67

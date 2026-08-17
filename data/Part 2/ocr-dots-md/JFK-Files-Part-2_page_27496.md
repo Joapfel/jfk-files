@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27496.png
-
-Convert to Markdown(NW 88326
+(NW 88326
 DocId:32239450 Page 17
 
 <table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Cornish F. Hitchcock</td><td>1/1/77</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>042 40 0959</td><td><input type="checkbox" checked disabled/> Appointment</td></tr><tr><td rowspan="2">Employing Office or Committee<br>Select Committee on Assassinations</td><td><input type="checkbox" disabled/> Salary Adjustment</td></tr><tr><td><input type="checkbox" disabled/> Termination (At close of business on effective date)</td></tr></table>

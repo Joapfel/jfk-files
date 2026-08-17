@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18767.png
-
-Convert to MarkdownSF 65-4257
+SF 65-4257
 JTK/lp
 
 The World Trade Division, San Francisco Chamber of Commerce, maintains a file containing news releases concerning trade with Red China. An article appearing in the "San Francisco Chronicle," Sunday, June 9, 1957, by JACK FOISIE, entitled "Local Traders Want to End Red China Ban." The first paragraph of this article is as follows: "This City's 730 foreign traders are mounting pressure on the EISENHOWER Administration to end, or at least relax, the embargo against trade with Communist China, import-export leaders said yesterday." Paragraph nine of this article states GEORGE E. TALMAGE, JR., Vice President of Pacific Transport Line -- States Lines, speaking as President of the San Francisco Area World Trade Association, favors trade with Red China.

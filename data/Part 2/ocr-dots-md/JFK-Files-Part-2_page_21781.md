@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_21781.png
-
 s --
 Mr. Wides. These were Agency personnel?
 Mr. Sarno. Agency personnel.

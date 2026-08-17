@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3480.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 24 April 1963
 

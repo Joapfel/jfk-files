@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16715.png
-
-Convert to Markdown-2-
+-2-
 
 B. The drying up of the ball point pens in the B-10, Dial Recorder has been a constant nuisance since the beginning of this operation. The pressure sensitive tape was the obvious answer to this problem, but the first ten rolls of pressure tape were received after nearly four years of struggling with the defective pens. It is recommended that pressure sensitive tape be supplied to this operation for future use.
 

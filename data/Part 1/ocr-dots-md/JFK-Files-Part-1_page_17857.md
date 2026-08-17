@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17857.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG : J. WILSON
 UNIT : WH/7/HU

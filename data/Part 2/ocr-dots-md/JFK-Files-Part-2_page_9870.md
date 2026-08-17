@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9870.png
-
-Convert to MarkdownBrr, Velvety of each tap
+Brr, Velvety of each tap
 Rejoice / Pol.
 SCF overhear
 

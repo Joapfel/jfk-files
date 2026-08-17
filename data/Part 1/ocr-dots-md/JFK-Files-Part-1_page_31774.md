@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31774.png
-
-Convert to Markdownwas in the amount of $549,908.56
+was in the amount of $549,908.56
 
 INVENTORIES OF STOCK ASSETS (At Cost):
 

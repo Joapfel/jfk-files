@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33337.png
-
-Convert to MarkdownSalvador Allende hurries through the corridors of the Presidential Palace with his personal bodyguard on the morning of September 11, 1973, shortly before taking his own life during the military coup d'état.
+Salvador Allende hurries through the corridors of the Presidential Palace with his personal bodyguard on the morning of September 11, 1973, shortly before taking his own life during the military coup d'état.
 
 —Photo by The New York Times.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22573.png
-
-Convert to MarkdownHavana, Cuba
+Havana, Cuba
 
 29 October 1957
 

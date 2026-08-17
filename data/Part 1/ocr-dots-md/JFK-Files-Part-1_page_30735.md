@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30735.png
-
-Convert to MarkdownMEMORANDUM FOR : Mr. N. Scott Miles
+MEMORANDUM FOR : Mr. N. Scott Miles
 
 SUBJECT : Notification of Intent to Recommend Retirement
 

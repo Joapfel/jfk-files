@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15566.png
-
-Convert to MarkdownLR:
+LR:
 
 On September 18, 1969, SAM NAPIER from the BPP National Headquarters, informed BARBARA SANKEY of the Illinois BPP that the BPP papers had been shipped to Chicago via American Airlines flight 826, which would arrive in Chicago at 3:00 p.m. on that date. The airbill number was given as 2596882 and the cost as $423.50.
 

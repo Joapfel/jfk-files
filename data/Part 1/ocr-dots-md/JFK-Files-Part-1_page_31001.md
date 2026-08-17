@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31001.png
-
-Convert to Markdown9 October 1967
+9 October 1967
 
 MEMORANDUM FOR: Insurance Branch
 FROM : C/WI/CONTRACTS

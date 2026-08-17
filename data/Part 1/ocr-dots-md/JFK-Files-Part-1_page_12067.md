@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12067.png
-
-Convert to MarkdownSECRET
+SECRET
 Authorized Staff only
 
 1. FULL NAME, IN NORMAL SEQUENCE.

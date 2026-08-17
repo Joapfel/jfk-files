@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_1018.png
-
 secretaries of state or vice presidents of General Motors or had acquired some equally impressive title. So it was a little embarrassing when they'd ask me what I was up to.
 
 Not that I hadn't done well myself — I was at the time fairly high up in the Central Intelligence Agency. But I wasn't allowed to say that, so when they asked, I had to mumble something vague about being a civilian employee at Patrick Air Force base, an excuse that I could tell, conjured up images of general failure (too much drinking, per-haps) in the people who heard it.

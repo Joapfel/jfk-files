@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16456.png
-
-Convert to Markdownto be acting in the role of the house Negro. They are pro-administration. They would like a few concessions made, but as far as the overall setup, they have a little more material goods, a little more ad-vantage, a few more privileges than the black have-nots; the lower class. And so they identify with the power structure and they see their interests as the power structure's interest. In fact, it's against their interest.
+to be acting in the role of the house Negro. They are pro-administration. They would like a few concessions made, but as far as the overall setup, they have a little more material goods, a little more ad-vantage, a few more privileges than the black have-nots; the lower class. And so they identify with the power structure and they see their interests as the power structure's interest. In fact, it's against their interest.
 
 The Black Panther Party, was forced to draw a line of demarcation. We are for all of those who are for the promo-tion of the interests of the black have-nots, which represents about 98% of blacks here in America. We're not controlled by the white mother country radicals nor are we controlled by the black bour-geoisie. We have a mind of our own and if the black bourgeoisie cannot align itself with our complete program, then the black bourgeoisie sets itself up as our enemy. And they will be attacked and treated as such.
 

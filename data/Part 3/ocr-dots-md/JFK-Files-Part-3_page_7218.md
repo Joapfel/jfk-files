@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7218.png
-
-Convert to Markdowncontemplate the initiation of sensitive operations today under procedures that require their exposure to a large number of reviewing bodies. The issue of whether we should again adopt Secretary Stimson's view that "gentlemen do not read each other's mail" (and that we live in a world of gentlemen) should be faced squarely and openly by the Congress and not through irresponsible individual exposures.
+contemplate the initiation of sensitive operations today under procedures that require their exposure to a large number of reviewing bodies. The issue of whether we should again adopt Secretary Stimson's view that "gentlemen do not read each other's mail" (and that we live in a world of gentlemen) should be faced squarely and openly by the Congress and not through irresponsible individual exposures.
 
 ## IV. Cooperation with the Committee
 

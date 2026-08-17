@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16849.png
-
-Convert to Markdowncc. MILDRED WILLIAM, 421-6426.
+cc. MILDRED WILLIAM, 421-6426.
 dd. MOTHER (job), ST 2-1500 x 191, Wieboldts
 ec. MARIE (DORIS) G., 6660 South Mich., 487-7127.
 ff. PEGGY TAFT, 4112 Adams; 826-0631.

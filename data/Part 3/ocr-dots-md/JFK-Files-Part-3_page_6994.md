@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6994.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="4">ATLANTA</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16300.png
-
-Convert to Markdown# Peoples Bulletin #9 . . . Young Patriots
+# Peoples Bulletin #9 . . . Young Patriots
 ## Serve and Protect . . . What the Young Patriots Are About
 
 People Have to show us that we were doing some good for the neighborhood. When people help us they help themselves. We want to help all people who need help.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17913.png
-
-Convert to MarkdownAD
+AD
 
 Chief of station, Mexico City
 Chief, WAP reporting

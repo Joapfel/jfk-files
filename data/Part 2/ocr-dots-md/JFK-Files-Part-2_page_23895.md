@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23895.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 that we discussed and the staff was asked to rewrite went to
 the question of any changes or waivers of Agency directives

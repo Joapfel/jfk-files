@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16637.png
-
-Convert to MarkdownSUMMIT HILL PROPERTIES, INC
+SUMMIT HILL PROPERTIES, INC
 16th Street & East-West Highway.
 Silver Spring, Md.
 

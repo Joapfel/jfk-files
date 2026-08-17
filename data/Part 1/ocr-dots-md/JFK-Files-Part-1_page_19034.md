@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19034.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Another possibility might be a left-wing withdrawal from the SPD, although the leadership for a dissident faction has yet to emerge. This might provide a healthy outlet for criticism of the system without a turn to minority rule. Unlike the early 1930s, virtually all West German politicians now would do their best to maintain a functioning constitutional system. Real dangers will probably not arise unless, as in the late Weimar period, the government finds itself confronted with economic or political problems which seem to defy compromise settlement or rational solution:
 

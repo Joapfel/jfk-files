@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2201.png
-
-Convert to Markdown(typed July 1, 1947)
+(typed July 1, 1947)
 
 STRICTLY CONFIDENTIAL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31517.png
-
-Convert to Markdown16 December 1952
+16 December 1952
 
 <table>
    <tr>

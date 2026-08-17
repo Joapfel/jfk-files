@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7055.png
-
-Convert to MarkdownUnder this concept, all USIB Agencies would have a reporting responsibility to keep the central index current. Procedures will be developed. All agencies would retain responsibility for the physical possession and accessibility of their documents. The third agency rule will apply in providing documents to the Select Committees.
+Under this concept, all USIB Agencies would have a reporting responsibility to keep the central index current. Procedures will be developed. All agencies would retain responsibility for the physical possession and accessibility of their documents. The third agency rule will apply in providing documents to the Select Committees.
 
 ### C. PROTECTION AND HANDLING OF MATERIALS
 

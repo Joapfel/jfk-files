@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11085.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 As to the need for an Executive order, we think that two issues
 are involved. We have statutory authority, but what we need is a definitive

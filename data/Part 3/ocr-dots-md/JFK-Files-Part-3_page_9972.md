@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9972.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 AMBIGUITIES AND THE LAW
 

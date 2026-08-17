@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26059.png
-
-Convert to Markdownfriends of mine, and when I'd talk to them and
+friends of mine, and when I'd talk to them and
 tell them my views, there was always sympathy
 for them, so I might have mistaken that for
 understanding and so on, and even that was

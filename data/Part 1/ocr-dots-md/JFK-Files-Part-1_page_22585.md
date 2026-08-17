@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22585.png
-
-Convert to MarkdownC-O-N-F-I-T-OF-H-T-I-A-L-
+C-O-N-F-I-T-OF-H-T-I-A-L-
 CONTROLLED DISSEN
 
 b. Copy of a letter signed by Cndt Rene FOUKO for the Executive Council of the National Institute of Surgery of the Ministry of Health, dated 6 June addressed to Regino BOTTI, President of JUCEPLAN requesting an approval for the expenditure of $20,000.00 for the purchase of raw color film from Czechoslovakia. This film to be used at the national Universities and in Cuban scientific institutions. Received from about mid-July from an unidentified correspondent.

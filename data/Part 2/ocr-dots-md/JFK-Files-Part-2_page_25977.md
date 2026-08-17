@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25977.png
-
-Convert to MarkdownO'BRIEN: Well, I suppose you had some conversations with Dulles and with Bissell and some of these people about it.
+O'BRIEN: Well, I suppose you had some conversations with Dulles and with Bissell and some of these people about it.
 
 LANSDALE: Yes.
 

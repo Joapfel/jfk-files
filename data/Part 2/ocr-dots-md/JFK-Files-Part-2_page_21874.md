@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21874.png
-
-Convert to Markdownwhether Bissell had consulted with any "higher authority" about
+whether Bissell had consulted with any "higher authority" about
 exploring the possibilities for assassinating Lumumba (Tweedy,
 9/9, p. 28). Generally, Tweedy said, when he received an instruc-
 tion from Bissell he would proceed to implement it on the assump-

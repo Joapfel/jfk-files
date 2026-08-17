@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3158.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">First Name & Birth Place</th></tr></thead><tbody><tr><td>Isaac</td><td>Moshe</td></tr><tr><td>Eliot</td><td>Shalom</td></tr><tr><td>Dan</td><td>Israel</td></tr><tr><td>Sarah</td><td>Leah</td></tr><tr><td>Abraham</td><td>Abraham</td></tr><tr><td>Susan</td><td>Sara</td></tr><tr><td>Michael</td><td>David</td></tr><tr><td>Jessica</td><td>Sarah</td></tr><tr><td>George</td><td>David</td></tr><tr><td>Elizabeth</td><td>Barbara</td></tr><tr><td>Robert</td><td>James</td></tr></tbody></table>
 

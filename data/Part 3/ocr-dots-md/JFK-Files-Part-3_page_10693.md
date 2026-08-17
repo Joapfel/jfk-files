@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10693.png
-
-Convert to Markdown3. United Klans of America, Inc., KKKK
+3. United Klans of America, Inc., KKKK
 
 This klan group has the following active klaverns
 located within the Savannah Division:

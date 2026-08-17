@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24290.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Nothing in this Act shall impair or affect any
 authority of—

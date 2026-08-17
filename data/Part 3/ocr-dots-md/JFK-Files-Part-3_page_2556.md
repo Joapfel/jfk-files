@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2556.png
-
-Convert to Markdown-2-
+-2-
 
 four page additional request will be so handled as to impose no more
 delay on the previously requested items than is inevitable. The

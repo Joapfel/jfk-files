@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27741.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="2">Congress of the United States</th>

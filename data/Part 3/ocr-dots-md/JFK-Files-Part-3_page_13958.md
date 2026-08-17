@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13958.png
-
-Convert to Markdown# Board Report of October 17, 1961
+# Board Report of October 17, 1961
 
 **Rec. #22:**
 The Board re-emphasized to the President its conviction(s) to the importance of outlining to the newly-chosen DCI the objectives of previous Board recommendations concerning the coordinating role of the DCI. (See Rec. #1.)

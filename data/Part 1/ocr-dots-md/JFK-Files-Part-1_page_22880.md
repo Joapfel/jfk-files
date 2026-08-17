@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22880.png
-
-Convert to MarkdownAmerican Student in China
+American Student in China
 
 SEEGER, Peggy (Margaret)
 CIT - U.S.A.

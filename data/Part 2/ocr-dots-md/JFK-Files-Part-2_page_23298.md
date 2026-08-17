@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23298.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 Columbia, a few of our allies and therefore we ought to prepare them in advance for such a request. The President thought that putting such a document in their hands would amount to a declaration of war and wanted it struck.
 

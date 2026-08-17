@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9202.png
-
-Convert to Markdown26 March 1954
+26 March 1954
 
 Dear Boris,
 

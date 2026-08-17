@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1136.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 The "East Village Other," a bimonthly newspaper, planned
 to hire a pilot to "bomb" the Pentagon with flowers on

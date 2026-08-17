@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21018.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECTION C NARRATIVE COMMENTS
 

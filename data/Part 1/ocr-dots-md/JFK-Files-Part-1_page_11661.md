@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11661.png
-
-Convert to MarkdownSECRET
+SECRET
 
 No. 692
 

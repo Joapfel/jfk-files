@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5394.png
-
-Convert to Markdown4. The warden of the penal institution in which the Federal prisoner is incarcerated shall, at least forty-eight (48) hours prior to the time at which the interview takes place, advise the Federal prisoner concerned of the proposed interview or taking of sworn testimony; and shall further advise that he is under the same, but no greater obligation to answer than any other witness who is not a prisoner.
+4. The warden of the penal institution in which the Federal prisoner is incarcerated shall, at least forty-eight (48) hours prior to the time at which the interview takes place, advise the Federal prisoner concerned of the proposed interview or taking of sworn testimony; and shall further advise that he is under the same, but no greater obligation to answer than any other witness who is not a prisoner.
 
 5. The warden of the penal institution shall have complete authority in conformity with the requirements of security and the maintenance of discipline to limit the number of persons who will be present at the interview and taking of testimony.
 

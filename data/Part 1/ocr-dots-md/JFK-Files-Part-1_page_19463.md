@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19463.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM IN LIEU OF FITNESS REPORT,
 James Walton Moore, 20 April 1976

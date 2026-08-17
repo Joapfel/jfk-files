@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7889.png
-
-Convert to Markdown10. LIROCKET-1 estimated that while he was present in the Reception Room between January 1966 and January 1967, he observed Soviets in the first office about four times as often as in the second office. From mug shots, he identified the following Soviets as having been the primary users of the two offices during the times he was present:
+10. LIROCKET-1 estimated that while he was present in the Reception Room between January 1966 and January 1967, he observed Soviets in the first office about four times as often as in the second office. From mug shots, he identified the following Soviets as having been the primary users of the two offices during the times he was present:
 
 (a) LOGINOV, one of the two Soviet Vice-Counsuls until he became Consul in September 1966. LOGINOV is known KGB. LIROCKET-1 frequently saw him in the first office and saw him receive several visitors.
 

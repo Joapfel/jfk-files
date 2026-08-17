@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4498.png
-
-Convert to MarkdownAugust 19/61
+August 19/61
 
 Frank Arias has given me the following information about Ernesto Despain:
 

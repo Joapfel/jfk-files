@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_687.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## SOCIALIST WORKERS PARTY
 

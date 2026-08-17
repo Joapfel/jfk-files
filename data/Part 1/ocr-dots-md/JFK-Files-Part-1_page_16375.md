@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16375.png
-
-Convert to MarkdownRETURN TO CIA Background Use Only Do Not Reproduce
+RETURN TO CIA Background Use Only Do Not Reproduce
 
 13 October 1964
 

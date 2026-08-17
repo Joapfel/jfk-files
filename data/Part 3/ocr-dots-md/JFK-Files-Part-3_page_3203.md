@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3203.png
-
-Convert to Markdown1815
+1815
 
 Mr. Adams. Okay. Because there would be one. I would say the judgment in approving that is in question. But out of 3000 recommended, the fact that 2000 approved shows that there was some concern to try to keep these to a proper level, and I think the actual number of grossly improper activities fortunately is rather small. I think there are a lot in there.
 

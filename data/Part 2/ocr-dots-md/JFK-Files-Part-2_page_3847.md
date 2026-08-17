@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3847.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In March 1953 he misrepresented himself as a polygraph operator with the "State Department Secret Police". This misrepresentation was made at a time when the Department of State was not authorized to have a polygraph machine and Congressional legislation was pending at the time regarding such authorization. As a result of this misrepresentation, Subject was afforded another security interview in March 1953. He explained that his cover company sold equipment to foreign countries through the Mutual Aid Program and supplied consultant services to the State Department but Subject denied that he ever represented himself as a State Department polygraph operator. After the security interview Subject was also assessed by an Agency psychologist (March 1953) and was found to be egotistical, emotionally unstable, possessed of a need to build himself up in the eyes of others and gave either exaggerated or completely erroneous information as to his past positions. His intelligence quotient was found to be comparatively low in relation to those of other Agency employees. In April 1953 termination of his employment was recommended.
 

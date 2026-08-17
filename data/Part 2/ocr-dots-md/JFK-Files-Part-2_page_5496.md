@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5496.png
-
-Convert to MarkdownRESTRICTED
+RESTRICTED
 
 SECRECY AGREEMENT
 

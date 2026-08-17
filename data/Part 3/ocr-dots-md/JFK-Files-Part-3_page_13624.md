@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13624.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Mr. Johnston. Was there anyone else knowledgeable in SAS of what you were doing?
 

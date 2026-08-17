@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22254.png
-
-Convert to Markdownby chance with delegation security functions, should guide the other "less experienced" case officer.* As NOSENKO showed under questioning, he did not know the contents of any of the positive intelligence BELITSKIY was to pass to CIA as disinformation; he did not know BELITSKIY's Moscow or Geneva pattern of movement or contacts; he did not know in detail how or when the operation started; he did not know the nature of degree of British involvement, nor the operational details and contact arrangements. NOSENKO said that BELITSKIY had been placed on a Geneva delegation in the hope that CIA might be able to "find" and recontact him.**
+by chance with delegation security functions, should guide the other "less experienced" case officer.* As NOSENKO showed under questioning, he did not know the contents of any of the positive intelligence BELITSKIY was to pass to CIA as disinformation; he did not know BELITSKIY's Moscow or Geneva pattern of movement or contacts; he did not know in detail how or when the operation started; he did not know the nature of degree of British involvement, nor the operational details and contact arrangements. NOSENKO said that BELITSKIY had been placed on a Geneva delegation in the hope that CIA might be able to "find" and recontact him.**
 
 c. Remarks
 

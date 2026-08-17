@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18937.png
-
-Convert to MarkdownJune 6, 1948
+June 6, 1948
 
 Chief, Civilian Personnel Branch
 Office of Strategic Services

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11227.png
-
-Convert to Markdown162 Finanzas (Presupuesto)
+162 Finanzas (Presupuesto)
 163 Finanzas (Responsable)
 164 Abastecimiento Organismo Central
 165 Dirección de Música

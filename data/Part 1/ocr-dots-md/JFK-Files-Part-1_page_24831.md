@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24831.png
-
-Convert to Markdown3 November 1968
+3 November 1968
 
 WH/6 - 453
 

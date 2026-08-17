@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2853.png
-
-Convert to MarkdownNR046 WA CODE
+NR046 WA CODE
 
 8:30PM NITEL 3-24-75 DEB
 

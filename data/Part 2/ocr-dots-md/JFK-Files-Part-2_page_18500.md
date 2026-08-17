@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18500.png
-
-Convert to MarkdownSECRET
+SECRET
 
 electronic surveillance if the standard for issuance of the warrant was "less than probable cause". When asked by Mr. Badillo what the appropriate standard should be, he answered, "I think reasonable grounds, that as a result of the pursuit of an investigation (it is), possible to believe that there has been, or will be, or there is a need for the gathering of intelligence." Does this statement reflect the official position of the FBI in regard to (1) a warrant requirement for national security electronic surveillance, and (2) the appropriate standard for the issuance of a warrant?
 

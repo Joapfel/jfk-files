@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33574.png
-
-Convert to MarkdownSoviet side. he replied there had been none since the
+Soviet side. he replied there had been none since the
 confrontation last year following NOSENKO's arrival in
 this country. We then mentioned the attempts on several
 occasions by NOSENKO's wife and mother to contact him

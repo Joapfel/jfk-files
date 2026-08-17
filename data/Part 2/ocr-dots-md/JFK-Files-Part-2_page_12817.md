@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12817.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FERRER said he knew the bombs planted recently at the package shipment stores were placed by ATON CONSTANZO PALAU and a Cuban Negro known only as "DOMEQ." He stated "DOMEQ" is possibly identical with ROBERTO DOMEQ RODRIGUEZ, INS Number A12 854 781. DOMEQ is a member of the group of ROLANDO ARCADIO MASFERRER ROJAS, which was arrested in January, 1967, in connection with the alleged attempted invasion of Haiti.
 

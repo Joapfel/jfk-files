@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7997.png
-
-Convert to Markdowncould not be devised and introduced in this
+could not be devised and introduced in this
 first effort. Yet, despite the model's mater-
 ial orientation, the conclusions of the study
 point to the need for fundamental changes in

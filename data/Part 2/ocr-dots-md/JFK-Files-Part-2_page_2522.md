@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2522.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26 DEC
 

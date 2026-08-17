@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32649.png
-
-Convert to MarkdownCabello revolt, and handed out heavy jail sentences. Some of the defendants had previously been in Cuba. One of them, Fabricio Ojeda, who had at one time been photographed in Cuban uniform during Cuban army maneuvers, was known to have brought back a large sum of US currency from Cuba, and had made several trips there. He was also the recipient of large quantities of Cuban Communist propaganda.
+Cabello revolt, and handed out heavy jail sentences. Some of the defendants had previously been in Cuba. One of them, Fabricio Ojeda, who had at one time been photographed in Cuban uniform during Cuban army maneuvers, was known to have brought back a large sum of US currency from Cuba, and had made several trips there. He was also the recipient of large quantities of Cuban Communist propaganda.
 
 Venezuelan police early in January raided a house registered in the name of a Venezuelan Communist known to have made at least one trip to Cuba, and discovered a radio transmitter capable of reaching Cuba. Two Communists were subsequently arrested attempting to enter the house. The armed forces have also heard a voice radio, which appears to be located on the grounds of the Central University in Caracas, communicating with another station which they believe to be in Cuba.
 

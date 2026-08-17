@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9887.png
-
-Convert to MarkdownFBI FUNCTIONAL ORG
+FBI FUNCTIONAL ORG
 
 JANUARY 14, 1975
 

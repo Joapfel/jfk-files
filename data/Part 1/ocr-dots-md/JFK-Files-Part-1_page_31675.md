@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_31675.png
-
 and that Alan Lichde, BFE correspondent in London, could fill such a position. Lang agrees with him. Stowe feels it remarkable that during his considerable time with BEE that he has never heard a bad word about Mr. Condon.
 
 c. He has a very high regard for Mr. Griffith and the role he plays in BEE's operations, however, it was his feeling that it is impossible for Mr. Griffith to adequately take care of BEE's outside relations in Germany because: (1) Griffith does not have the time and; (2) he is not particularly effective in dealing with Germans because of his youth and rather pedantic manner. He informed me that there is a possibility of getting Raymond G. Swing for employment with BFE and that he felt Swing could excellently undertake the job of dealing with the German government and German public because of Swing's language facility, his familiarity with Germany and his prestige.

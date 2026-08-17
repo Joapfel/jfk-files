@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9264.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SA BY SSC
+RE: INTERVIEW OF RETIRED FBI SA BY SSC
 
 " A. Shortly thereafter he was transferred as a Resident Agent to Valdosta, Georgia.
 

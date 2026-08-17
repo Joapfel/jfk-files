@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8286.png
-
-Convert to MarkdownSECRET
+SECRET
 
 possibilities to resettle him. CIA made a commitment to the Greek authorities that it would not abandon the Subject in Greece and would take steps to remove him from Greek soil within one year. Efforts were made to effect the Subject's migration to Canada, New Zealand, Australia and elsewhere, but to no avail. After due consideration by interested Headquarters elements and the Athens Station, it was decided that the most effective solution for the Subject's disposal would be to let him immigrate to the United States on his own under the Refugee Relief Act program, but without any assistance from CIA.
 

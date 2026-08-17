@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3766.png
-
-Convert to Markdown2. Incidentally, my secretary Eugenio Claude spoke with a friend named Pedro Pino who lives at 1132 W 71 St., Hialeah, Florida, 33012. PINO told him that his friend, Lourdes BELLO, who lives at 1124 West 71 Pl., Hialeah, Florida and who has lived there for only a short while, has received correspondence which must have been for the previous tenant at that address. This correspondence came from Cuba and consisted of subversive propaganda. All the correspondence is addressed to:
+2. Incidentally, my secretary Eugenio Claude spoke with a friend named Pedro Pino who lives at 1132 W 71 St., Hialeah, Florida, 33012. PINO told him that his friend, Lourdes BELLO, who lives at 1124 West 71 Pl., Hialeah, Florida and who has lived there for only a short while, has received correspondence which must have been for the previous tenant at that address. This correspondence came from Cuba and consisted of subversive propaganda. All the correspondence is addressed to:
 
 (Sr.) Carlos GONZALEZ
 1124 West 71 Pl.

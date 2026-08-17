@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5340.png
-
-Convert to MarkdownDEPUTYSHIP FORM
+DEPUTYSHIP FORM
 
 DATE
 ***

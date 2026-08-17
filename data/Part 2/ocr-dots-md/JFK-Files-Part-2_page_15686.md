@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15686.png
-
-Convert to Markdownbecause they know what JAKE was. We
+because they know what JAKE was. We
 have to remember Santa Claus, a
 (garbled) revolutionary brother who's
 in jail now. The pigs are trying to

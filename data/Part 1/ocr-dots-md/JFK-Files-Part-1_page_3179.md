@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3179.png
-
-Convert to MarkdownFollowing investigation, it was learned at the administrative offices of the firm "PETERSEN THIBLE CRUZ y Cia", Talcahuano 178, 1st Floor, Federal Capital, that an agent in charge of the investigation was waited by subject, who turned out to be:
+Following investigation, it was learned at the administrative offices of the firm "PETERSEN THIBLE CRUZ y Cia", Talcahuano 178, 1st Floor, Federal Capital, that an agent in charge of the investigation was waited by subject, who turned out to be:
 
 <table><tr><td>Nombres</td><td>Alberto DO EYO</td></tr><tr><td>C.I. No.</td><td>1.024.378 Pol. Fed.</td></tr><tr><td>L.E. No.</td><td>0.257.963, D.M. 2</td></tr><tr><td>Date of Birth</td><td>15-10-1913</td></tr><tr><td>Son of</td><td>Manuel</td></tr><tr><td>and</td><td>Rosa PAZ</td></tr><tr><td>Address</td><td>Moldes 1872, 7th Floor, Apt. "B"</td></tr><tr><td>Tel.</td><td>78-4665</td></tr><tr><td>Nombres de Wife</td><td>Eugenia MAGLIOCCA</td></tr><tr><td>C.I. No.</td><td>2.600.078 Pol. Fed.</td></tr></table>
 

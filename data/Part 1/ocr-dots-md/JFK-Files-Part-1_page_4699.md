@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4699.png
-
-Convert to Markdown# Intelligence Information Cable
+# Intelligence Information Cable
 
 FURTHER DISSEMINATION AND USE OF THIS INFORMATION SUBJECT TO CONTROLS STATED AT BEGINNING AND END OF REPORT.
 STATE/INR JCS/MC(01A) CIA/MCC

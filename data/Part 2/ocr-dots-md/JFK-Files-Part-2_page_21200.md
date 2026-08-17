@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21200.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 to act as Section Chief during his absence. He
 also utilized NOSKOV in this capacity on occasion

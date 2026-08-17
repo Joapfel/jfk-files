@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25716.png
-
-Convert to MarkdownBy Drew Pearson
+By Drew Pearson
 
 WASHINGTON - President Johnson is sitting on a political bomb - an unconfirmed report that Sen. Robert Kennedy, D.N.Y., may have approved an assassination plot which then possibly backfired his late brother.
 

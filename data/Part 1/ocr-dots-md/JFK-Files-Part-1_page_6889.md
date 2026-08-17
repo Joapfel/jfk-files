@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6889.png
-
-Convert to Markdownoffice for cancelling of his 2 flight tickets to Zurich and
+office for cancelling of his 2 flight tickets to Zurich and
 refunding.
 
 On 25 October at 0935 H. has inquired at the Information

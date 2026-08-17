@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29645.png
-
-Convert to MarkdownClassification: TOP SECRET
+Classification: TOP SECRET
 
 (This form is used for extracted documents.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31843.png
-
-Convert to MarkdownHEADQUARTERS
+HEADQUARTERS
 110TH TACTICAL FIGHTER Wing
 District of Columbia Air National Guard
 

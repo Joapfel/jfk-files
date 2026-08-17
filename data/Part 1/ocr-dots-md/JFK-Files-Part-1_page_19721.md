@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19721.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: O'CONNELL, James P.
 (Fitness Report)

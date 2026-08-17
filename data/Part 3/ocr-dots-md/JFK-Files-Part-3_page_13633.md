@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13633.png
-
-Convert to Markdown7600010731
+7600010731
 
 WARD & PAUL
 

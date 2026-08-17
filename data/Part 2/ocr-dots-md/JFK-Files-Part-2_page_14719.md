@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14719.png
-
-Convert to MarkdownMr. Lee H. Dillenak
+Mr. Lee H. Dillenak
 Assistant Attorney General for Administration
 
 February 6, 1963

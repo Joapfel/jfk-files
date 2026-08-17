@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9126.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SECRET ARMY ORGANIZATION
 

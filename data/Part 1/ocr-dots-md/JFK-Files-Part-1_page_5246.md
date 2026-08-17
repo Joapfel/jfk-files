@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5246.png
-
-Convert to MarkdownFRIDAY 24th August 1962:
+FRIDAY 24th August 1962:
 
 Clemence d Joseph Charles, a pioneer
 by

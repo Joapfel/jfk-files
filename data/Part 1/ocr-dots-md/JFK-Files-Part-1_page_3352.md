@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3352.png
-
-Convert to Markdowntherefore ought not be blamed upon authoritarianism (without which AMWORLD cannot conceivably prosper) but upon a leadership gap in AMBIDDY-1's personality makeup which even "democratic centralism" couldn't correct or cure.
+therefore ought not be blamed upon authoritarianism (without which AMWORLD cannot conceivably prosper) but upon a leadership gap in AMBIDDY-1's personality makeup which even "democratic centralism" couldn't correct or cure.
 
 4. In assessing the prospective consequences of a cessation of contact between AMYUM-19 and KUBARK, we shall have to take into account that he is fully cognizant of the fact that KUBARK supports AMWORLD. The relationship that has existed heretofore is known to him in all its facets.
 

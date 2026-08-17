@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11172.png
-
-Convert to Markdown6. Use of mail and instrumentalities of interstate or foreign commerce (Title 50, USC, § 789 (§ 10 of act))
+6. Use of mail and instrumentalities of interstate or foreign commerce (Title 50, USC, § 789 (§ 10 of act))
 The act requires any person acting for or on behalf of any organization for which there is in effect a final order of the Board determining it to be a non-actionable or communist front to label properly all publications transmitted through the mail or by any means or instrumentality of interstate or foreign commerce.]
 
 [7.] Penalties (Title 50, U.S.C., § 794 (§ 15 of act))

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23887.png
-
-Convert to Markdown1 CIA prohibition" and you see the words "proposed" and
+1 CIA prohibition" and you see the words "proposed" and
 2 "statutory" are in brackets, reflecting uncertainty on our part
 5 as to whether it was the intention of the Committee that this
 4 prohibition simply be a CIA regulation or embodied in the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15526.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 1 - USA, Chicago (Via Courier)
 1 - Secret Service, Chicago (Via Courier)

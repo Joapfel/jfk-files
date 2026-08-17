@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21446.png
-
-Convert to MarkdownHW 50953 DocId:32339240 Page 70
+HW 50953 DocId:32339240 Page 70
 
 FBI
 Date: 11/12/68

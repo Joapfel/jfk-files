@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8037.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 TO:
 

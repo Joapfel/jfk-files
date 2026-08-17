@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8703.png
-
-Convert to MarkdownCUBAN GOVERNMENT ACTIVITIES IN MEXICO 50-9-12
+CUBAN GOVERNMENT ACTIVITIES IN MEXICO 50-9-12
 
 ((Mexico City Station Teltap Operation Against
 Cuban Embassy - LIENVOY) (Job #64-518/84)

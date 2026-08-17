@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31472.png
-
-Convert to Markdownthe conduct of relations between CIA and NCFE. This agreement provides the following:
+the conduct of relations between CIA and NCFE. This agreement provides the following:
 
 a. Adequate budget information upon which to evaluate the purposes and probable success of proposed NCFE activities as well as an adequate financial reporting system by NCFE so that this Agency can at all times be aware of and insure the approved expenditure of funds by NCFE.
 

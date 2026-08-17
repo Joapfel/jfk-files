@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32241.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and hope that the Cuban people shall some day be truly free. But these policies are very different from any intent to launch a military invasion of the island."
 

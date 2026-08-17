@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23949.png
-
-Convert to Markdownof the Communist Party of the United States, which did not particularly
+of the Communist Party of the United States, which did not particularly
 approve of seeing the two issues mixed, Cuba and Negroes.
 
 Williams, very volatile, a very determined person on a local level,

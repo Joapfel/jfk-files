@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5169.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td colspan="4">SIGNAL CENTER USE ONLY</td></tr><tr><td>ADE</td><td>CQI</td><td>ACP</td><td>TOG</td></tr><tr><td>OMF</td><td>D</td><td>D</td><td>D</td></tr><tr><td>CLASSIFICATION</td><td colspan="3"></td></tr><tr><td>SECRET</td><td colspan="3"></td></tr><tr><td>MESSENGER HANDLING INDICATOR</td><td>BATETIMS GROUP</td><td>GATE</td><td>MESSAGE REFERENCE NUMBER</td></tr><tr><td>CONF:</td><td>INFO: FILE</td><td>CIA/DDO</td><td>DISSEMBLY BY:</td></tr><tr><td></td><td></td><td>940952</td><td>NO COPY</td></tr></table>
 

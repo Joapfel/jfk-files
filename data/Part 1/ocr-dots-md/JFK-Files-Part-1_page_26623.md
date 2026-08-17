@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26623.png
-
-Convert to Markdown<table><tr><td>CINCSO #</td></tr></table>
+<table><tr><td>CINCSO #</td></tr></table>
 
 <table><tr><td>STATE</td><td>DIA</td><td>ARMY</td><td>NAVY</td><td>AIR</td><td>NSA</td><td>AID</td><td>OCH</td><td>FBI #3</td></tr></table>
 

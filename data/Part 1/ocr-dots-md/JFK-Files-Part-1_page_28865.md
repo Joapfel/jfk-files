@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28865.png
-
-Convert to Markdown<table><tr><td>14-00009</td></tr></table>
+<table><tr><td>14-00009</td></tr></table>
 
 NOTIFICATION OF
 PERSONNEL ACTION

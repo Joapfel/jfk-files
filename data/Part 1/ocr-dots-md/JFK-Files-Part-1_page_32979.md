@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32979.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 TO: Marvin L. Extrom
 FROM: McKercher and Avant

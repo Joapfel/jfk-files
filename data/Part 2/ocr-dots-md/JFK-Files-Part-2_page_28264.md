@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28264.png
-
-Convert to Markdown# The Evening and Sunday Bulletin
+# The Evening and Sunday Bulletin
 
 30TH AND MARKET STREETS PHILADELPHIA, PA. 19101
 

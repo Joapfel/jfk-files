@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2994.png
-
-Convert to Markdown1932
+1932
 
 everyone is concerned about the murder of the civil rights workers, the Linio Kent case, the Viola Liuzzo case, the bombings of the church in Birmingham. We were faced with one tremendous problem at that time.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17198.png
-
-Convert to MarkdownDISPATCH
+DISPATCH
 
 14-00000
 

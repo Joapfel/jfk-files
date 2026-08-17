@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21500.png
-
-Convert to Markdownbut not to mislead this Agency in any material matters of an operational
+but not to mislead this Agency in any material matters of an operational
 or policy nature.
 
 In order to avoid any misunderstanding of the phrase "bona

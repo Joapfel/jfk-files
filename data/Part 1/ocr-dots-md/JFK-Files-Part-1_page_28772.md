@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28772.png
-
-Convert to MarkdownDEPARTMENT OF STATE
+DEPARTMENT OF STATE
 PAY ROLL CHANGE SLIP
 
 <table>

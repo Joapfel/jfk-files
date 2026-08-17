@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25882.png
-
-Convert to Markdownf. Tele typesh Informatics Report from this agency, dated
+f. Tele typesh Informatics Report from this agency, dated
 9 April 1959, Report No. YDCS-3/639, 947, Subject: Contacts Between
 Fidel CASTRO Real and Lasaro CARDENAS.
 

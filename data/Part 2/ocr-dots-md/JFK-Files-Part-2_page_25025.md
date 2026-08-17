@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25025.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. development of a generalized assassination capability at the
 2. CIA -- that such a capability could be developed without

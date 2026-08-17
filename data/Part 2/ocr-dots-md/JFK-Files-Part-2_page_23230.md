@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23230.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Dawson. This leaves us with one or two alter-
 natives, either the Chief of Station who has appeared and

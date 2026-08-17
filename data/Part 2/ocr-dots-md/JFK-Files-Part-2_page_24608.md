@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24608.png
-
-Convert to Markdownplots to assassinate Castro; (3) Helms' report to Rusk that CIA was not involved with AM/LASH in a Castro assassination plot; and (4) Helms' briefing of President Johnson on the 1967 IG Report on alleged CIA assassination plots.
+plots to assassinate Castro; (3) Helms' report to Rusk that CIA was not involved with AM/LASH in a Castro assassination plot; and (4) Helms' briefing of President Johnson on the 1967 IG Report on alleged CIA assassination plots.
 
 3. The Covert Action Program Against Cuba in 1964-1965. According to the minutes of a Special Group meeting on April 7, 1964, which he chaired, President Johnson decided to discontinue the use of CIA-controlled sabotage raids against Cuba.* (Memorandum of Special Group Meeting, April 7, 1964, p. ___.) A memorandum by McCone indicated that in deciding this question, President Johnson abandoned the objective of Castro's overthrow.**
 

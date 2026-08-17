@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32956.png
-
-Convert to MarkdownUFGT-16523/03
+UFGT-16523/03
 
 <table><tr><td>SPATCH</td><td>CLASSIFICATION<br/>SECRET</td></tr><tr><td colspan="2">Chief, KUSODA</td></tr><tr><td colspan="2">Chief, WH Division</td></tr><tr><td colspan="2">Chief of Station, JAWAVE</td></tr><tr><td colspan="2">FJJUST/LCFLUTTER/PORUMEN</td></tr><tr><td colspan="2">Transmittal of LCFLUTTER Results</td></tr></table>
 

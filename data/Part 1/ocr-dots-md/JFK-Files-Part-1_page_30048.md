@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30048.png
-
-Convert to MarkdownSECRET
+SECRET
 (As Used in War)
 
 <table>

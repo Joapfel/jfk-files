@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11649.png
-
-Convert to Markdown# SUBVERSIVE INDIVIDUALS - NEW LEFT GROUPS UNIT
+# SUBVERSIVE INDIVIDUALS - NEW LEFT GROUPS UNIT
 
 Bureau airtel to all offices, dated 11/3/70, instructed the field to resume verification of residence and employment in Priority II and Priority III Security Index cases and to resume periodic report writing in proportionate number in Priority II Security Index cases so that all such cases would be opened by 6/30/71.
 

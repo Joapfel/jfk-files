@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20121.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 The Women's National Abortion Action Coalition
 

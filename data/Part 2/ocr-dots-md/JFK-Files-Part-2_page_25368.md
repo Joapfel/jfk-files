@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25368.png
-
-Convert to Markdown**ROSELLI, From LI**
+**ROSELLI, From LI**
 
 the enthusiasm of two football players recalling their favorite bowl games. The headless, handless body that floated into a Miami canal last month reminded Minnium of that other, similarly mutilated body that turned up last December. And who can forget the man who got angry with his roommate, sliced him up and tossed the parts along a highway?
 

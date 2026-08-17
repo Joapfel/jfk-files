@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9155.png
-
-Convert to MarkdownNY 185-229
+NY 185-229
 
 ## ADMINISTRATIVE
 

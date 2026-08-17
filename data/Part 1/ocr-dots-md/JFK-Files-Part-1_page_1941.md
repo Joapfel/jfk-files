@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1941.png
-
-Convert to Markdown5. Some of those assignments included the following:
+5. Some of those assignments included the following:
 
 A. (King Hussein)
 

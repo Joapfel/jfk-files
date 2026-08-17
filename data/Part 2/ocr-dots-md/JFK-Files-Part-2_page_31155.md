@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31155.png
-
-Convert to MarkdownSECREI
+SECREI
 
 could have been enlisted under
 they could be sure of government

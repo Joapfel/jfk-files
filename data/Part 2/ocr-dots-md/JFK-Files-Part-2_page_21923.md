@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21923.png
-
-Convert to Markdownbring a CIA officer together with the criminal syndicate (Bissell, 6/11/75, pp. 19-20). Harvey did not recall any mention of the White House or any higher authority than the DDP in his November meeting with Bissell (Harvey, 7/11/75, pp. 60-61).
+bring a CIA officer together with the criminal syndicate (Bissell, 6/11/75, pp. 19-20). Harvey did not recall any mention of the White House or any higher authority than the DDP in his November meeting with Bissell (Harvey, 7/11/75, pp. 60-61).
 
 Although Richard Helms was briefed and given administrative responsibility (as DDP) for Project ZR/RIFLE three months later, he did not recall that ZR/RIFLE was ever contemplated as a capability to assassinate Castro (Helms, 6/13/75, p. 55). Asked whether the actual assassination efforts against Castro were related to ZR/RIFLE (executive action), Helms testified: "In my mind those lines never crossed" (Helms, 6/13/75, p. 52). However, Bissell's testimony leaves more ambiguity: "the contact with the syndicate which had Castro as its target . . . folded into the ZR/RIFLE project . . . and they became one" (Bissell, 6/11/75, p. 47). When asked by Senator Baker whether the executive action "capability . . . for assassination" was "used against Castro", Bissell replied that it was "in the later phase". (Bissell, 6/11/75, p. 47). The instruction from Bissell to Harvey on November 15; 1961, however, preceded the reactivation of the CIA-syndicate assassination operation against Castro by approximately five months.
 

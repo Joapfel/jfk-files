@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34561.png
-
-Convert to MarkdownRESULTS
+RESULTS
 
 By memorandum dated 2 October 1968, the Director of Security forwarded two reports to the DDCI summarizing the results of the NOSENKO case to that date. The reports are voluminous. One was prepared by the Office of Security and the other by the FBI. Both reports conclude that NOSENKO was a bona fide defector. A draft memorandum attached to this file, dated 21 October 1968 and prepared by the CI Staff, raises question regarding NOSENKO's bona fides and challenges the above two reports.
 

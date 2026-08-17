@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2540.png
-
-Convert to MarkdownSECRET
+SECRET
 
 29 June 1977
 

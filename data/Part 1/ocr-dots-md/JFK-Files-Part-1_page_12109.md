@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12109.png
-
-Convert to Markdown<table><tr><td colspan="3">CABLE N&C DISEM BY: 12 PER SOP 11</td><td>TOTAL COPIES:</td><td>11-1</td></tr><tr><td colspan="3">PERSON UNIT NOTIFIED:</td><td>SECRET</td><td colspan="2"></td></tr><tr><td>AUYANCE COPY ISSUED SLQITED BY:</td><td>BY CAPT.</td><td>STAFF</td><td></td><td colspan="2"></td></tr><tr><td rowspan="3">ACTION UNIT: 50</td><td rowspan="3">INFORMATION FILE VR:</td><td rowspan="3">AN EVR 4</td><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td>ACTION #</td><td></td><td></td><td colspan="3"></td></tr></table>
+<table><tr><td colspan="3">CABLE N&C DISEM BY: 12 PER SOP 11</td><td>TOTAL COPIES:</td><td>11-1</td></tr><tr><td colspan="3">PERSON UNIT NOTIFIED:</td><td>SECRET</td><td colspan="2"></td></tr><tr><td>AUYANCE COPY ISSUED SLQITED BY:</td><td>BY CAPT.</td><td>STAFF</td><td></td><td colspan="2"></td></tr><tr><td rowspan="3">ACTION UNIT: 50</td><td rowspan="3">INFORMATION FILE VR:</td><td rowspan="3">AN EVR 4</td><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td>ACTION #</td><td></td><td></td><td colspan="3"></td></tr></table>
 
 T 149631
 

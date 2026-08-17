@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3531.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">DISPATCH</td>
         <td>DESERVING<br/>UNCLASSIFIED</td>

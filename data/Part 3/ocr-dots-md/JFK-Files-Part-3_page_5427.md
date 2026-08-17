@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5427.png
-
-Convert to Markdown**QUESTION:**
+**QUESTION:**
 
 Sir, would you say that the Cubans who burglarized Daniel Elzberg's psychiatrist's office should not have been convicted then since they thought that they were on a national security mission? They didn't intend to violate any laws. That was their testimony.
 

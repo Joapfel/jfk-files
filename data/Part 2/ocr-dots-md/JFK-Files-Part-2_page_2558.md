@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2558.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Bruce A. BERTOTALLY (P)
 

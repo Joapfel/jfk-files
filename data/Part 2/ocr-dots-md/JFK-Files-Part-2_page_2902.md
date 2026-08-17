@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2902.png
-
-Convert to MarkdownCUBAN REVOLUTIONARY COUNCIL
+CUBAN REVOLUTIONARY COUNCIL
 INTERNAL SECURITY - CUBA
 
 MIRO but in the interest of both the United States and the Cuban exiles, decided upon a public statement which reads as follows:

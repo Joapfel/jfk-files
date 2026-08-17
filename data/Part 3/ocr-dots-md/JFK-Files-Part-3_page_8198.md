@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8198.png
-
-Convert to MarkdownMemorandum to Mr. J. B. Adams
+Memorandum to Mr. J. B. Adams
 
 RE: SENSTUDY 75, FORMER SUPERVISOR LISH WHITSON
 ASSIGNED INTELLIGENCE DIVISION

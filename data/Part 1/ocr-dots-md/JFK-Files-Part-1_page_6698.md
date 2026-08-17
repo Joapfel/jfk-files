@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6698.png
-
-Convert to Markdown1300000
+1300000
 
 N/Orlane, nio 13 de 1963
 

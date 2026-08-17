@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23885.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 personnel coming into this country, is that right?
 

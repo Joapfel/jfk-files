@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24798.png
-
-Convert to Markdown8 May 1967
+8 May 1967
 
 (typed 12 May 1967)
 

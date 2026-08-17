@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34467.png
-
-Convert to MarkdownOLC (6)-0873
+OLC (6)-0873
 
 5 August 1969)
 

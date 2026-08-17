@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31508.png
-
-Convert to Markdownthat W.E.B. DU BOIS joined the Communist
+that W.E.B. DU BOIS joined the Communist
 Party after applying for admission on
 October 1, 1961.
 

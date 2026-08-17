@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33390.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM 3078
 JUL 29 WIC. 1979

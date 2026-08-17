@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5419.png
-
-Convert to Markdown**QUESTION:**
+**QUESTION:**
 
 Mr. Kelley, do you feel the oversight being conducted now between the Senate and House is probing too deeply into the FBI--do you feel that any of the operations of the FBI have been hurt by the investigations going on now?
 

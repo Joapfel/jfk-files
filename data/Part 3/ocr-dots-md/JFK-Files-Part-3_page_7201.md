@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7201.png
-
-Convert to MarkdownMr. Chairman and Members of the Committee
+Mr. Chairman and Members of the Committee
 
 This Committee's inquiry and its conclusions and recommendations can open a new era in American intelligence and even in the intelligence profession worldwide. Historically, the intelligence activities of a state have been considered an essential function, but one conducted outside normal Government processes. Indeed, one foreign official recently expressed some surprise to me that our intelligence rests upon legislation enacted by the Congress and is subject to oversight and annual appropriation by the Congress. He commented that he had always considered it a matter private to the Executive. This Committee's charter demonstrates the contrary in America.
 

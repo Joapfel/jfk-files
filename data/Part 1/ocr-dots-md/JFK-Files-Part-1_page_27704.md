@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27704.png
-
-Convert to Markdownoutlines the features of the program and lists the amount which will be deducted from your salary each pay period for this term insurance. This insurance is not obligatory. However, if you do not wish coverage, which is automatic, you should sign a Valuer of Life Insurance Coverage form at the time you enter on duty.
+outlines the features of the program and lists the amount which will be deducted from your salary each pay period for this term insurance. This insurance is not obligatory. However, if you do not wish coverage, which is automatic, you should sign a Valuer of Life Insurance Coverage form at the time you enter on duty.
 
 You will not receive a pay check for approximately four weeks after your entrance on duty. However, arrangements may be made for a temporary loan with a financial institution if necessary.
 

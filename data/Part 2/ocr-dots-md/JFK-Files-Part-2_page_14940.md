@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14940.png
-
-Convert to MarkdownMemorandum to Mr. Cale
+Memorandum to Mr. Cale
 
 To: Alfred Burkha
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6453.png
-
-Convert to MarkdownSECRET
+SECRET
 
 For assistance for the family with the basic objective being their events, resettlement in a country of immigration or, if this is not possible, re-establishment within the economy of their present country of residence. Although the Escapée Program Division of the Operations Mission for Germany has contracts with both Tolstoy Foundation and AFEP to carry out a counselling program for Soviet escapees, and has agent approximately $15,000 on each agency in this connection, to date the agencies have not completely counselled all of their caseloads. Accordingly, it is most difficult to make any kind of analysis of the amount of assistance rendered as compared to the extent of need. On December 7, representatives of both agencies were advised by the Escapée Program Division, that the counselling program must be completed in the near future, and that USEP will be in a much better position to evaluate the program of assistance to Soviet escapees.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13628.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. shall we say, and it was somebody with whom we felt that we could collaborate in organizing the internal group.
 

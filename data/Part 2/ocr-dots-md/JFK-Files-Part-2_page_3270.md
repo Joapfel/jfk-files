@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3270.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 cable read in part as follows:
 

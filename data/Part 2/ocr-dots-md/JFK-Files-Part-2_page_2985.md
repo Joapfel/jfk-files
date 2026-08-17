@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2985.png
-
-Convert to MarkdownSECRET
+SECRET
 
 agents dropped out of contact. Typical was Radio
 Habana's 12 May 1965 announcement that "31 counter-

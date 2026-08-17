@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6804.png
-
-Convert to MarkdownFrom
+From
 THE ATTORNEY GENERAL
 
 <table>

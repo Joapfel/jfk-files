@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16321.png
-
-Convert to MarkdownLeo calls out. A man fight with the letterQuick, arriving documentary proof in false language that these rebels are Chinese assisted and based in Brazil. Pissed out the police made capital of it and gave out to the world that he was a neighbouring country of China in their affairs.
+Leo calls out. A man fight with the letterQuick, arriving documentary proof in false language that these rebels are Chinese assisted and based in Brazil. Pissed out the police made capital of it and gave out to the world that he was a neighbouring country of China in their affairs.
 
 Situation on all fronts deteriorated rapidly. Feels terrible frustration because not better news or after weeks of inactivity now the telephone will still want a real result. He needs a major success soon desirably. Stahl tells his falls and Pauls threatened. Rebel advisers in Bonosà are far as he can get news of Konez Base and wants so for an intervention. In�bia Jounesse search on Bononc and she is the only one who is including Jounesse men and all the factories and mines. Mihail threatened. In the East Loudounville retained by AI and as advance begun on Apuna.
 

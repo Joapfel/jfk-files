@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11929.png
-
-Convert to Markdown4-E
+4-E
 
 On July 1, 1970, the State Department announced that Antonin Nenko, former Second Secretary, Czech Embassy, Washington, had defected and requested political asylum in the U. S. Nenko's action caused the termination of a highly successful and valuable operation we had been conducting against the CIS for some time. Nenko, a major in the Scientific and Technical Department of the CIS, had been working exclusively in the intelligence field since 1956, both in the United States and abroad. Prior to his overt defection, Nenko had been under our control furnishing detailed, highly significant information concerning Czech operations against the U. S. Although his overt defection is public knowledge, his activities as our defector-in-place have not been revealed, but the valuable information he furnished has been made available to interested Government agencies.
 

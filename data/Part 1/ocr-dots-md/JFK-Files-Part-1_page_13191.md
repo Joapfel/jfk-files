@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13191.png
-
-Convert to MarkdownFrom: CIGUSTY Operational Reporting for January 1968
+From: CIGUSTY Operational Reporting for January 1968
 
 HVCA-15293, 22 March 1968
 

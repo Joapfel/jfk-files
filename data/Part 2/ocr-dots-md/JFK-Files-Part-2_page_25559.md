@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25559.png
-
-Convert to MarkdownMIKE MANSFIELD
+MIKE MANSFIELD
 MONTANA
 
 United States Senate

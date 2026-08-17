@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7384.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <!-- Section b: Communist Party, U.S.A., or any communist or fascist organization? [ ] No [ ] Yes -->
     <tr>

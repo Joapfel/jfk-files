@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6224.png
-
-Convert to MarkdownSECRET
+SECRET
 
 promoted by West German money. The publication Wer Liefert Was?, published in Leipzig, is now also being published in Hamburg, at a price much lower than competitive volumes.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12446.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO : Chief, Western Hemisphere Division
 ATTENTION : Chris Frederick/ WH/3

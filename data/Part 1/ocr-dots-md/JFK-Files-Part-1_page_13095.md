@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13095.png
-
-Convert to Markdown(over 30''
+(over 30''
 
 Debriefer = 19 April 67
 Report = 20 April 67

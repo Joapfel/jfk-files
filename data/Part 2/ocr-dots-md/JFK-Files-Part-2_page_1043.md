@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1043.png
-
-Convert to MarkdownG 53
+G 53
 
 SECRET
 18 Mar 1966

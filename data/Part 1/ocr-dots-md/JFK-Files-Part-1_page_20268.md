@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20268.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 RZR: 25. APR. :E 3

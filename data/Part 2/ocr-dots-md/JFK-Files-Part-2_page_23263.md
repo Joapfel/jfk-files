@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23263.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Baron. Again, why are you so sure that this would not have been connected in any way to the assassination mission?
 

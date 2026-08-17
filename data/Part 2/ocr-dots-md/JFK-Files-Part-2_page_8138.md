@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8138.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 B-58
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21948.png
-
-Convert to Markdownexplained his having but few details concerning this action
+explained his having but few details concerning this action
 by the fact that it took place after NOSENKO had trans-
 ferred from the American Department to the Tourist Depart-
 ment in June 1955. NOSENKO knew nothing of FELCHLIN's

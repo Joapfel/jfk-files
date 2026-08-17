@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12601.png
-
-Convert to Markdown(10) Key facility geographical reference number (obtained from Department of Defense Key Facilities List)
+(10) Key facility geographical reference number (obtained from Department of Defense Key Facilities List)
 
 (11) Residence address
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34220.png
-
-Convert to MarkdownDecember 3, 1965: "France and Castroism".- As far as I know, no one has ever come alone, specially for Castro. Now, in view of his horrible financial crisis, his relations with France are obviously deteriorating. As evidence, we point out the French cancellation of a $f. 75 million contract to build a quicklime, insecticide and fertilizer plant in Cuba.
+December 3, 1965: "France and Castroism".- As far as I know, no one has ever come alone, specially for Castro. Now, in view of his horrible financial crisis, his relations with France are obviously deteriorating. As evidence, we point out the French cancellation of a $f. 75 million contract to build a quicklime, insecticide and fertilizer plant in Cuba.
 
 "Castro Raises His Volume Again".- Castro's failure in his attempt to get the U.S. to change policy of extreme agitation, and he is promising arms to the subversive forces throughout the Americas. But there is one more reason: the Tri-Continental Conference, of which Castro wanted to be the center. However, he has been displaced to a secondary role. That is why his approach to subversion is closer to that of the Chinese than to that of the organizers of the Conference.
 

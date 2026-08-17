@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21254.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 gift parcel license. The introduction took place in the Intourist office in Moscow and subsequent meetings occurred in this office or at [REINER'S] hotel. [REINER] recalled having telephoned CHELNOKOV on several occasions from the U. S. concerning specific situations involving issuance of tourist visas and related matters.
 

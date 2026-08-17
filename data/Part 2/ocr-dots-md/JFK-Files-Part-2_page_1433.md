@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1433.png
-
-Convert to MarkdownSECRET
+SECRET
 (All items filled In)
 
 <table><thead><tr><th colspan="10">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td>DMG</td><td rowspan="2"></td><td rowspan="2"></td><td rowspan="2"></td><td rowspan="2"></td><td rowspan="2"></td><td rowspan="2"></td><td rowspan="2"></td><td rowspan="2"></td><td rowspan="2"></td></tr><tr><td>1. Serial No.</td></tr></thead><tbody><tr><td>160947</td><td>8. Name (Last, First Middle)</td><td>3. Date Of Birth</td><td>4. Yes. Yes.</td><td>5. Sex</td><td>6. CS.EOD.</td></tr><tr><td></td><td>WHEELER ROBERT P</td><td>Mo. Da. Yr.</td><td>Yes/No 5 in 2</td><td>Code M 1</td><td>Mo. Da. Yr.</td></tr><tr><td>7. SCD</td><td>8. CSC Next</td><td>10. Apt. Affidav.</td><td>11. F.S.I.</td><td>12. LCD</td><td>13. R.E.M.</td></tr><tr><td>Mo. Da. Yr.</td><td>No. 1</td><td>Cd. No. 2</td><td>Yrs. 1</td><td>Code 09-20-52</td><td>Yrs. 1<br/>No. 2</td></tr><tr><td>08 06 42</td><td></td><td></td><td>1</td><td>USCA 403 J</td><td>2</td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3698.png
-
-Convert to MarkdownThis document contains classified information affecting the national security of the United States within the meaning of the espionage laws, US Code Title 18, Sections 793, 794, and 798. The law prohibits its transmission or the revelation of its contents in any manner to an unauthorized person, as well as its use in any manner prejudicial to the safety or interest of the United States or for the benefit of any foreign government to the detriment of the United States.
+This document contains classified information affecting the national security of the United States within the meaning of the espionage laws, US Code Title 18, Sections 793, 794, and 798. The law prohibits its transmission or the revelation of its contents in any manner to an unauthorized person, as well as its use in any manner prejudicial to the safety or interest of the United States or for the benefit of any foreign government to the detriment of the United States.
 
 It is to be seen only by US personnel especially indoctrinated and authorized to receive COMMUNICATIONS INTELLIGENCE information; its security must be maintained in accordance with COMMUNICATIONS INTELLIGENCE REGULATIONS.
 

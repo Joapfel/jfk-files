@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4174.png
-
-Convert to MarkdownJ. B. Adams
+J. B. Adams
 W. R. Wannall
 D. Ryan
 J. G. Deegan

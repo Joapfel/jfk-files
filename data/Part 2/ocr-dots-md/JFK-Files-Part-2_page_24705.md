@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24705.png
-
-Convert to MarkdownCouncil staff from 1951 to January 1962, offered what he termed a
+Council staff from 1951 to January 1962, offered what he termed a
 "clue" to the extent of Presidential involvement in the decision to
 assassinate Lumumba (Johnson, 6/18/75, pp. 4-5).* Johnson re-
 counted the following occurrence at an NSC meeting in the Summer

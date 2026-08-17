@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10747.png
-
-Convert to MarkdownGIOCONDO declined to answer any questions or make any statements to SA MILLARA.
+GIOCONDO declined to answer any questions or make any statements to SA MILLARA.
 
 At 1:20 p.m., GIOCONDO was taken to the office of the U. S. Marshal in the U. S. Post Office Building. (Do not see his temporarily assigned in the监控 of the U. S. Marshal in order that GIOCONDO could consult with his attorney before arraignment.)
 

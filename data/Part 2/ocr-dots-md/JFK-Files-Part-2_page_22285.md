@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22285.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 He was in the assignment of Chief of the FI Division staff.
 

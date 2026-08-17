@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6195.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4- What happened from the time a cable was sent from a field site until it arrived on a desk at Headquarters?
 

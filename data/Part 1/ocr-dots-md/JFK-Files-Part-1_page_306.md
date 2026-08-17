@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_306.png
-
-Convert to MarkdownAll alic s + pseydonyns
+All alic s + pseydonyns
 used by:
 1 David Atlee Phillips
 2 Micheal J. King.

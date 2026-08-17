@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12329.png
-
-Convert to Markdown4. Six-month evaluation of informants not paid on Bureau authority
+4. Six-month evaluation of informants not paid on Bureau authority
 If the informant is not being paid on Bureau authorization, a communi-
 cation (FD-401) must be transmitted to the Bureau every six months after
 the date of designation containing the same information set out in section

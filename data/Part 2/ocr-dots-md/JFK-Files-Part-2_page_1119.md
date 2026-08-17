@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1119.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 <table><tr><td>1. EMP. SERIAL NO.</td><td>2. NAME</td><td>3. ASSIGNED ORGAN.</td><td>4. FUNDS</td><td>5. ARLSCTM</td></tr><tr><td>107894</td><td>SMITH JOSEPH B</td><td>DOP/FE 14</td><td>V-20</td><td></td></tr></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17752.png
-
-Convert to Markdown127-
+127-
 
 Salida al 10-03-17.- 1000 hrs.- CARMITA pregunta por
 MIGUEL HERNANDEZ. HF que ha de ser MIGUEL GONZALEZ pero no está.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26964.png
-
-Convert to MarkdownGene F. Wilson
+Gene F. Wilson
 December 30, 1975
 
 cover all information contained in the files of your agency.

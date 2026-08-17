@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12806.png
-
-Convert to MarkdownVI. 17 Apr 75
+VI. 17 Apr 75
 
 # HISTORY OF VOTING MACHINE ISSUE RECOUNTED
 

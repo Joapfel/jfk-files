@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11033.png
-
-Convert to Markdown11/23/62-
+11/23/62-
 
 I am soGRat10nateD for your kind and friendly email. I have been considering sending you my resume for the past two weeks, but now that I see it, I don't think I can send it. So if you could send me a link to your website or some contact information, I would be happy to provide my commercial services in return. Thank you so much for your time and consideration. I hope to hear from you soon.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33570.png
-
-Convert to MarkdownCABLE SEC DISSEM BY ____________ PER _______________ TOTAL COPIES _________ IV
+CABLE SEC DISSEM BY ____________ PER _______________ TOTAL COPIES _________ IV
 
 PERSON/UNIT NOTIFIED _________________________ S E C R E T : [SECRET]
 

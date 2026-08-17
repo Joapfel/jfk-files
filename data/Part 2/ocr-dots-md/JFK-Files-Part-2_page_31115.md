@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31115.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Jose Ignacio Basco
 DCD File 103981 - 1 volume

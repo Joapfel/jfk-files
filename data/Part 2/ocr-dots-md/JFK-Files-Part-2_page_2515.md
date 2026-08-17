@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2515.png
-
-Convert to MarkdownSOC-2
+SOC-2
 
 Mr. George Martin Roanek
 

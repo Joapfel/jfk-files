@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19433.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Security Information
 

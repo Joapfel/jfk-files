@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6589.png
-
-Convert to Markdownd. The proposal could emphasize the development of a native "David" in opposition to Castro, the Cuban "Goliath." This could serve the U.S. image by making Castro the "Goliath" rather than the "David" who opposes the "North American Giant."
+d. The proposal could emphasize the development of a native "David" in opposition to Castro, the Cuban "Goliath." This could serve the U.S. image by making Castro the "Goliath" rather than the "David" who opposes the "North American Giant."
 
 e. This proposal could serve to prevent the U.S. from making premature commitments to a leader or a particular exile group and could be used as a device to test exile response.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5732.png
-
-Convert to Markdown(U) Attachment:
+(U) Attachment:
 
 Oswald Chronology, '1956-1963
 

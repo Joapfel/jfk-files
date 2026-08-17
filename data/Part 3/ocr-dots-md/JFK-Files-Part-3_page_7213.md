@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7213.png
-
-Convert to Markdownthe future. I would like, however, to state my belief that
+the future. I would like, however, to state my belief that
 the Intelligence Community receives appropriate general guid-
 ance and direction from the National Security Council and its
 committees. However, the Intelligence Community itself is

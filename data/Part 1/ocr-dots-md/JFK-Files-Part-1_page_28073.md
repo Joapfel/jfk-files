@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28073.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="3">CONFIDENTIAL FUNDS PERSONNEL ACTION</th></tr><tr><td>NAME<br/>RAIDALL, Frederick Crawford</td><td>DATE<br/>10 May 1951</td><td></td></tr><tr><td>POSITION<br/>Excepted Appointment</td><td colspan="2">EFFECTIVE DATE<br/>10 September 51</td></tr><tr><th>TITLE</th><th>FROM</th><th>TO</th></tr></thead><tbody><tr><td>GRADE AND SALARY</td><td></td><td>Intelligence Assistant</td></tr><tr><td>OFFICE</td><td></td><td>0'-7 £5825 p.a.</td></tr><tr><td>DIVISION</td><td></td><td>OSO</td></tr><tr><td>BRANCH</td><td></td><td>FDOZ</td></tr><tr><td>OFFICIAL STATION</td><td></td><td>Breach III<br/>DJAKARTA<br/>Indonesia</td></tr></tbody></table>
 

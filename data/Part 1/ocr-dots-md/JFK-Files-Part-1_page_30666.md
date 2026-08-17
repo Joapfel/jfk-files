@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30666.png
-
-Convert to Markdownwilling to accept responsibility. He is imaginative and creative in his approach to operations. A practical example of Mr. Miler's work along these lines was his presentation on CIA's role in operational deception at the JCS Strategic Planning Seminar held from 17-21 April 1972.
+willing to accept responsibility. He is imaginative and creative in his approach to operations. A practical example of Mr. Miler's work along these lines was his presentation on CIA's role in operational deception at the JCS Strategic Planning Seminar held from 17-21 April 1972.
 
 4. I rate Mr. Miler in the overall performance of his job as Strong.
 

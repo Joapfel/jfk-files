@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15747.png
-
-Convert to MarkdownOther demands for the Community Control of Police are:
+Other demands for the Community Control of Police are:
 
 1. We demand all police out of our schools brutalizing and intimidating our children.
 

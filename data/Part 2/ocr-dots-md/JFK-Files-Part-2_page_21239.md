@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21239.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 for the representative of Holland to the United Nations.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23487.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>MR. GRAY, PRESIDENT EISENHOWER</td><td>July 28, 1960</td><td>CASTRO<br>TRUJILLO<br>MONGOOSE</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>MR. GRAY, PRESIDENT EISENHOWER</td><td>July 28, 1960</td><td>CASTRO<br>TRUJILLO<br>MONGOOSE</td></tr></tbody></table>
 
 <table><caption>OCCURRENCE: On July 28, 1960 at a National Security Council meeting President Eisenhower said: "Until Trujillo is eliminated, we cannot get Latin American friends to reach a proper level of indignation in dealing with Castro." It was noted that Venezuela was trying to separate the Cuban and Dominican Republic problems in OAS forms. On this matter, "The President said if we attempted to take any action with respect to Cuba before settling the Trujillo situation, we would be the loser."</caption><tr><td>SOURCE:</td><td>Presidential Papers of Dwight Eisenhower (Whitman File) (NSC meeting series, meeting of July 28, 1960)</td><td>STAFF:</td><td>Kelley</td></tr><tr><td>FILE:</td><td>Abilene</td><td>DATE:</td><td>July 6, 1975</td></tr></table>
 

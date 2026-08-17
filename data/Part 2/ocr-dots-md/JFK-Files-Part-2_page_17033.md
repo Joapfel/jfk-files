@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17033.png
-
-Convert to Markdown3/2/70
+3/2/70
 
 ROBERT CAMPBELL, ROGER MOODY,
 RALPH BOSTICK

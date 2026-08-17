@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22334.png
-
-Convert to Markdowng. Remarks
+g. Remarks
 
 Leaving aside NOSENKO's unsubstantiated claims to supervisory jobs in the Tourist Department in 1962-1963, when he indicated he was absent from KGB Headquarters nearly half of the time, his personal role in operations and investigations of the period appears artificial in some instances and implausible in others. NOSENKO'S knowledge of the origins of the JOHNSON case is incomplete, the timing conflicts with other activities attributed to himself, the expressed purpose of the compromise in unique, and the outcome seems to have little consequence beyond enabling JOHNSON to confirm that NOSENKO appeared in it. Although BRAUN may have been in a position to corroborate NOSENKO's appearance in that operation, he has not done so and his statements contradict NOSENKO on the part the latter played. So too do the statements of BARGHOORN, who recognized NOSENKO as a person who was seen briefly during the interrogation sessions; certain facts from other sources contradict NOSENKO on one important detail (KRUSHCHEV'S presence in Moscow) of the BARGHOORN arrest, explained as a retaliation-hostage action for events in
 

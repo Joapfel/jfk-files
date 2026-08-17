@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2344.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C. HAS NOSENKO GIVEN AN ACCEPTABLE EXPLANATION OF
 ___

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20211.png
-
-Convert to MarkdownCOMMUNICATION SECTION
+COMMUNICATION SECTION
 
 NOV 17 1971
 

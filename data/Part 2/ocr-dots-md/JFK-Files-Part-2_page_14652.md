@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14652.png
-
-Convert to MarkdownThe Bureau's request for 1968 totals $186,574,000. It will provide for a personnel staff totaling 15,780 (6,638 agents and 9,142 clerks). The request makes provision for an increase of 569 full-year employees (106 agents and 463 clerks) when compared to 1967.
+The Bureau's request for 1968 totals $186,574,000. It will provide for a personnel staff totaling 15,780 (6,638 agents and 9,142 clerks). The request makes provision for an increase of 569 full-year employees (106 agents and 463 clerks) when compared to 1967.
 
 Of the additional employees, 165 (100 agents and 65 clerks) are for assignment to the field to assist in the handling of a heavy volume of civil rights work. (This is the second increment of a total increase of 300 agents and attendant clerical staff and equipment previously ordered by the President for civil rights work over a three-year period to be implemented at the rate of 100 agents a year.) The remaining 404 employees (6 agents and 398 clerks) are for assignment at our headquarters, the bulk to be utilized to handle the tremendous increase in name and fingerprint checks being received.
 

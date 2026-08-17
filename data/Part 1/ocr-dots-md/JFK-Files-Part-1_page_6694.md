@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6694.png
-
-Convert to MarkdownNew Orleans, Jun 24 de 1963
+New Orleans, Jun 24 de 1963
 
 Dear Mr. Teels:
 

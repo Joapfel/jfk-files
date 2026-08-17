@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19743.png
-
-Convert to MarkdownSTUDY SKILL
+STUDY SKILL
 
 Counterintelligence Bulletin No. 10
 80 hours fall-line 29 January - 9 February 1963

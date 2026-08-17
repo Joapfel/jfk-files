@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19982.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">SECTION E</td></tr><tr><td>NARRATIVE DESCRIPTION OF MANNER OF JOB PERFORMANCE</td><td>Stress strengths and weaknesses demonstrated in current position. Indicate suggestions made to employee for improvement of his work. Give recommendations for his training. Describe, if appropriate, his potential for development and for assuming greater responsibilities. Amplify or explain, if appropriate, ratings given in SECTIONS B, C, and D to provide the best basis for determining future personnel actions.<br/><br/>Subject is very versatile and can be utilized effectively on an assignment involving heterogeneous duties. His ability to function as an agent handler is extremely commendable. Subject is able to communicate equally well with "high or low level agents." He further demonstrated his usefulness in the preparation of research papers and the maintenance of files. Supervisor feels that Subject's productivity and effectiveness is dependent on whether he is in a position that he personally likes (It should be noted that Subject is 44 yrs old).<br/><br/>Subject has demonstrated that he can assume greater responsibilities. (During the period covered he travelled to Puerto Rico and New Orleans on assignments not under control of the Supervisor)..</td></tr></table>
 

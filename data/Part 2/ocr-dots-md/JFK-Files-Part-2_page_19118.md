@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19118.png
-
-Convert to MarkdownLetter to SJC, San Francisco
+Letter to SJC, San Francisco
 
 RE: (100-42691)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16173.png
-
-Convert to MarkdownMAC DONELL advised that the above-described
+MAC DONELL advised that the above-described
 two slides were of material removed by him from the slung
 shown in Photo #104, which he had introduced into evidence
 before the Federal Grand Jury sitting at Chicago, Illinois.

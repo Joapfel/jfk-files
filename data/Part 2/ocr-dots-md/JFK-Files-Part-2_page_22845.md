@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22845.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The Chairman. What is the question?
 

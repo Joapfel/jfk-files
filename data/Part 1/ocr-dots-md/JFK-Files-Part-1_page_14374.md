@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14374.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>KIDNAPPSECRET<br/>SECRET</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>KIDNAPPSECRET<br/>SECRET</td></tr></table>
 
 OSHA - 26343
 

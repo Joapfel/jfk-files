@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14100.png
-
-Convert to Markdown<table><tr><td>Executive Registry</td></tr><tr><td>75-643011</td></tr></table>
+<table><tr><td>Executive Registry</td></tr><tr><td>75-643011</td></tr></table>
 
 CENTRAL INTELLIGENCE AGENCY
 

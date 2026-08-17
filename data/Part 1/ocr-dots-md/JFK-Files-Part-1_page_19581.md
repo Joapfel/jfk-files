@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19581.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">SECTION IV</th><th colspan="4">GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</th><th colspan="4">KNOWLEDGE ACQUIRED BY CHECK (IN)</th></tr><tr><th>NAME OF REGION OR COUNTRY</th><th>TYPE OF SPECIALIZED KNOWLEDGE</th><th>DATES OF TRAVEL OR RESIDENCE</th><th>DATE & PLACE OF STUDY</th><th>BEST DENCE</th><th>TRAVEL</th><th>STUDY</th><th>WORK ASSIGNMENT</th><th>CHECK (IN)</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

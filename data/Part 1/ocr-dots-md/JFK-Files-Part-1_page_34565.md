@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34565.png
-
-Convert to MarkdownOCG 64-0903
+OCG 64-0903
 
 3 April 1964
 

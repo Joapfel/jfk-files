@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9661.png
-
-Convert to MarkdownDENNIS RITTER August 28, 1973
+DENNIS RITTER August 28, 1973
 
 1330 Alexis, Toledo, Ohio
 1957 Harley Davidson Sportster

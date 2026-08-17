@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20658.png
-
-Convert to MarkdownSTANDARD FORM NO. 94
+STANDARD FORM NO. 94
 
 Office Memorandum • UNITED STATES GOVERNMENT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9247.png
-
-Convert to MarkdownQ. Prior to 1965 in what way were you involved in any surreptitious entry?
+Q. Prior to 1965 in what way were you involved in any surreptitious entry?
 
 A. Mr. Seidel, as I stated earlier I have been informed that I was released by the AG to testify before this Committee concerning King, SCLC, Stanley Levison, and matters related thereto.
 

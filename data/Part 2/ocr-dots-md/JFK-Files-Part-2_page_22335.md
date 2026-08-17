@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22335.png
-
-Convert to Markdown5. On two or three occasions between 1970 and 1972 the Washington Field Office loaned the MPD Morals Division a device to tap a touch-tone telephone. The request came from [Inspectors R. L. Dollard] and [W.S. Foran]. Ed Sayle of CIA was CIA's contact with [Dollard] and [Foran] for equipment requests. Dollard or Foran would call Sayle, who in turn would direct Brewer to provide the equipment.
+5. On two or three occasions between 1970 and 1972 the Washington Field Office loaned the MPD Morals Division a device to tap a touch-tone telephone. The request came from [Inspectors R. L. Dollard] and [W.S. Foran]. Ed Sayle of CIA was CIA's contact with [Dollard] and [Foran] for equipment requests. Dollard or Foran would call Sayle, who in turn would direct Brewer to provide the equipment.
 
 6. On two or three occasions between 1970 and 1972, Sayle directed Brewer to provide receiving devices to MPD. Once [Sgt. B. Standard] of MPD personally contacted Brewer and requested a receiver. It was provided (ostensibly for training purposes).
 

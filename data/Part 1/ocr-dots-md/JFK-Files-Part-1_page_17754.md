@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17754.png
-
-Convert to MarkdownESTA JANA DOMINGUEÑA.- 25-77-85.
+ESTA JANA DOMINGUEÑA.- 25-77-85.
 
 4 mayo 66.
 

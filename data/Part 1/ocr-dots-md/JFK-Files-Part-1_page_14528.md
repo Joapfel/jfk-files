@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14528.png
-
-Convert to Markdown-2-
+-2-
 
 Report No. 351 (Cont'd)
 

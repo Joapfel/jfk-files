@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10182.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section 1: Personal Information -->
         <tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30192.png
-
-Convert to Markdown10 March 1969
+10 March 1969
 
 MEMORANDUM FOR: Mr. John W. Coffey
 

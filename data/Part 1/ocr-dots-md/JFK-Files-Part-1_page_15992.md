@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15992.png
-
-Convert to Markdownexcept a few good, long drinking sessions," WerBell told congressmen.
+except a few good, long drinking sessions," WerBell told congressmen.
 
 Nevertheless, the U.S. government raided the training area for the would-be invaders, seized their arms and arrested them in January, 1967, about two months after WerBell had gone home. Seven persons were indicted for conspiring to violate U.S. neutrality laws — including WerBell. Charges against WerBell, however, were dropped on orders of then-Attorney General Ramsey Clark.
 

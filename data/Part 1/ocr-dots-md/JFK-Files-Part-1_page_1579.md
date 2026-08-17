@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1579.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Itkin and his wife had for a long time been struggling to maintain custody over her children from her second marriage. Claiming that she had violated the custody stipulations of a New York court by moving them more than 50 miles from New York without his permission, Frederick Hersh, Mrs. Itkin's former husband, gained custody of the children by means of a ruling from the British court in 1966. Mrs. Itkin began legal procedures in New York to regain the children. As part of their effort they swore affidavits that Mrs. Itkin had taken the children to England at the request of the CIA. Itkin embellished on his CIA record by stating that he had worked for CIA for many years prior to 1963, and insisted that his original contact had been set up between Harold Stassen and Allen Dulles in Philadelphia in the summer of 1954. Most of these assertions were fabrications. MONCURE'S CIA relationship was exposed in various legal circles in New York. The Agency wanted to avoid MONCURE's having to contradict Mr. and Mrs. Itkins' affidavits in court. The FBI seemed to have been more interested in protecting Itkin's reputation as a witness than in protecting MONCURE'S reputation for honesty.
 

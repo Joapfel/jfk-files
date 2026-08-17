@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28953.png
-
-Convert to MarkdownREPORT OF CONTACT
+REPORT OF CONTACT
 
 (USE INK OR TYPEWRITER)
 

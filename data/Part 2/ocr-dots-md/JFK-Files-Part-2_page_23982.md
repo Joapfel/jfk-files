@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23982.png
-
-Convert to MarkdownAmbassador Korry was asked to go directly to President Frei to see if he would be willing to commit himself to this line of action. A contingency of $250,000 was approved for "covert support of projects which Frei or his trusted team deem important." It was further agreed that a propaganda campaign be undertaken by the Agency to focus on the damage of an Allende takeover...
+Ambassador Korry was asked to go directly to President Frei to see if he would be willing to commit himself to this line of action. A contingency of $250,000 was approved for "covert support of projects which Frei or his trusted team deem important." It was further agreed that a propaganda campaign be undertaken by the Agency to focus on the damage of an Allende takeover...
 
 (CIA Memorandum/Policy Decision Related to Our Covert Action Involvement in the September 1970 Chilean Presidential Election, 9 October 1970)
 

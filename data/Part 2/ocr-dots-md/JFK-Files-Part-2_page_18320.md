@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18320.png
-
-Convert to Markdownfiles and delivery of all materials pertaining to the original authority or order to grant such a file and materials reflecting dissemination of information from such files.
+files and delivery of all materials pertaining to the original authority or order to grant such a file and materials reflecting dissemination of information from such files.
 
 ### III. Bobby Baker Investigation
 

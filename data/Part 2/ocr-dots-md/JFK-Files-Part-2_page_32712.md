@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32712.png
-
-Convert to Markdown- 16 -
+- 16 -
 
 Republic-Ghana "restraint resolution," and the first formal intervention of
 the Secretary-General. Ambassador Seydoux, the Representative of France,

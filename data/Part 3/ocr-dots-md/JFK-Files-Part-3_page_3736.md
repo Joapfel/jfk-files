@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3736.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 Mr. W. C. Sullivan, DATE: March 29, 1968
 

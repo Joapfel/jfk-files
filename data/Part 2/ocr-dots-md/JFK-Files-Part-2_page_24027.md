@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24027.png
-
-Convert to MarkdownQ: Were you aware during that period of time of the plans to kidnap General Schneider?
+Q: Were you aware during that period of time of the plans to kidnap General Schneider?
 
 General Haig. I was aware after the fact....
 

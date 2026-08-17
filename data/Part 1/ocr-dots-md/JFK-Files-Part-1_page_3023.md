@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3023.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IB MEMO NO. 5269
 10 January 1961

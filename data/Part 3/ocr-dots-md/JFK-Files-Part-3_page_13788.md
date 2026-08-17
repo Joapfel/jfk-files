@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13788.png
-
-Convert to Markdown**"ALL AMERICA WOMEN'S CONGRESS", held Havana, Cuba, January 11, 12, 13, 1963.**
+**"ALL AMERICA WOMEN'S CONGRESS", held Havana, Cuba, January 11, 12, 13, 1963.**
 
 **Attendance:**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28291.png
-
-Convert to Markdown# RÉSUMÉ
+# RÉSUMÉ
 
 Linda Mae Connor
 4206 N. Washington Boulevard

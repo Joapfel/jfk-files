@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14065.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td>WARNED FOR INDEXING</td></tr><tr><td></td><td>NO INDEXING REQUIRED</td></tr><tr><td></td><td>CAUT Y QUALIFIED DESK CAN ADOE INDEXINS</td></tr><tr><td>MICROFILM</td><td></td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td>WARNED FOR INDEXING</td></tr><tr><td></td><td>NO INDEXING REQUIRED</td></tr><tr><td></td><td>CAUT Y QUALIFIED DESK CAN ADOE INDEXINS</td></tr><tr><td>MICROFILM</td><td></td></tr></tbody></table>
 
 <table><thead><tr><th>PATCH</th><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td></td></tr><tr><td>TO<br/>CHIEF OF STATION, San Jose</td><td></td><td>WARNED FOR INDEXING</td></tr><tr><td>FROM<br/>Chief of Station, Mexico</td><td></td><td>NO INDEXING REQUIRED</td></tr><tr><td>SUBJECT<br/>Jorge VEGA Rodriguez</td><td></td><td>CAUTY QUALIFIED DESK CAN ADOE INDEXINS</td></tr><tr><td colspan="3">ACTION REQUIRED REFERENCES</td></tr><tr><td colspan="3">Reference: HMM-1-25998, 29 April 1965<br/>Action : See Para 3.</td></tr></tbody></table>
 

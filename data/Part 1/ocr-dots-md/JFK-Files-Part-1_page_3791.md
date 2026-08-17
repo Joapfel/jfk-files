@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3791.png
-
-Convert to MarkdownMay 2, 1967
+May 2, 1967
 
 Manuel Francis Artino Buesa
 1270 N.E. 85th Street

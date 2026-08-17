@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6327.png
-
-Convert to Markdowntion, it is important to emphasize and clarify the legislative intent
+tion, it is important to emphasize and clarify the legislative intent
 and importance of particular provisions of the Act.
 
 *Defining assassination records*

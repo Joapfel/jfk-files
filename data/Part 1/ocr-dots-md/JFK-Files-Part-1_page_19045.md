@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19045.png
-
-Convert to MarkdownSECRET
+SECRET
 
 official weekly, Deutsche Nachrichten. Both were active Nazis.
 

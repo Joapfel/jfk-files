@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33312.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 and that the chain is "faithful to its tradition of infamy." The
 Government propaganda apparatus follows suit.

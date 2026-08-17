@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27542.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SECTION C</td></tr><tr><td>NARRATIVE COMMENTS</td></tr><tr><td colspan="2">Indicate significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give recommendations for training. Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Manner of performance of managerial or supervisory duties and cost consciousness in the use of personnel space, equipment and funds, must be commented on, if applicable. If extra space is needed to complete Section C, attach a separate sheet of paper.</td></tr><tr><td colspan="2">APR 10 9 19 AM '69<br/>Mr. Christ continues to lead the Applied Physics Division in a progressive, responsive, and aggressive manner. The record of solid accomplishments by the group of whom he is the leader continues to be impressive and his creative, forward-looking leadership is a talent well suited for the goals and missions of this Office.<br/><br/>The technological base established in his Division through many of its prior projects is expected to lead to a variety of items of great value to the Intelligence Community and the Nation. His aggressive search for and application of other-agency funds has directly saved this Agency many hundreds of thousands of dollars.</td></tr></table>
 

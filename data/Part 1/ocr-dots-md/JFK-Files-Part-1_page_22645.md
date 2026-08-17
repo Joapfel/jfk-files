@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22645.png
-
-Convert to MarkdownSECRET
+SECRET
 
 I. PERSONAL
 

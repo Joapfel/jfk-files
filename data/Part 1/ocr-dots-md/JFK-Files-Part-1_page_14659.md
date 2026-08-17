@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14659.png
-
-Convert to MarkdownShe told him, "I'm going to tell you the truth." The girl said she was a correspondent of a famous magazine, and Ruiz said she should tell her with her help. Then he or his partner would come. This girl said so, and Ruiz told him that she was going to Ciba. He, in turn, said so. Ruiz asked if he could carry a questionnaire to the country. He said no. She always does, he says.
+She told him, "I'm going to tell you the truth." The girl said she was a correspondent of a famous magazine, and Ruiz said she should tell her with her help. Then he or his partner would come. This girl said so, and Ruiz told him that she was going to Ciba. He, in turn, said so. Ruiz asked if he could carry a questionnaire to the country. He said no. She always does, he says.
 
 Ruiz tells him that she must talk about the interview, about politics in Spain and its relations with the United States. She must have for questions prepared for her, and even the possible replaces. She must be then carefully as if they were unimportant, but with a socialist sense.
 

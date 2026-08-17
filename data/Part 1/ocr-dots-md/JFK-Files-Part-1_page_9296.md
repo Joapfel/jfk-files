@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9296.png
-
-Convert to Markdown17..27986 82
+17..27986 82
 269.A.3 Newsletters, SJF300930, NY Bureau; 8/4/86
 165..CIA-P-2958
 168..CIA-P-4010 Secret

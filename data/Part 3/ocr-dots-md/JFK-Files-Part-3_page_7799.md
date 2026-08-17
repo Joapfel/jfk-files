@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7799.png
-
-Convert to MarkdownLegal Counsel to Mr. J. B. Adams
+Legal Counsel to Mr. J. B. Adams
 RE: SENSTUDY 75
 
 In light of this response, Mr. Gitenstein requested that the Bureau identify the personnel involved and it is his obvious intention that the personnel will be interviewed.

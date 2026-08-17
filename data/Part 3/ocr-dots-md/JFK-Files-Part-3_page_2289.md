@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2289.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 
 RECEIVED-DIRECTOR
 F. B. I.

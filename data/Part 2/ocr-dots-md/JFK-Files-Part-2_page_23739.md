@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23739.png
-
-Convert to MarkdownI agriculture. I mean it's a funny kind of mixture of people.
+I agriculture. I mean it's a funny kind of mixture of people.
 
 The CIA sort of does this in part as a service of common concern to the intelligence community and in part at least heretofore it does the overt collection function as a service to its own analysts.
 

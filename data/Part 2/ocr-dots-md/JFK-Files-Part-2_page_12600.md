@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12600.png
-
-Convert to Markdown(3) Sex
+(3) Sex
 
 | | |
 |---|---|

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28994.png
-
-Convert to MarkdownNAME
+NAME
 
 SAMUEL L PHYLLIS RUBY
 

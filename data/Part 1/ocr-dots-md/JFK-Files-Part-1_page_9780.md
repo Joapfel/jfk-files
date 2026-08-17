@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9780.png
-
-Convert to Markdownthe LIRING office, but she fended off his questions by alleging that she had little or no contact with it. I/4 also consented that Sergio Valdez, who was being particularly helpful to her at this time, warned her sternly against accepting any money from Marcué in light of his reputation as an unscrupulous Lothario. I/4 added that Marcué promised to see her again the following evening to keep her informed.
+the LIRING office, but she fended off his questions by alleging that she had little or no contact with it. I/4 also consented that Sergio Valdez, who was being particularly helpful to her at this time, warned her sternly against accepting any money from Marcué in light of his reputation as an unscrupulous Lothario. I/4 added that Marcué promised to see her again the following evening to keep her informed.
 
 5. When Rowton again suggested that LIRING/4 move from the Atoyac apartment back to the Tacubaya place despite its dreariness and lack of telephone, she presented no objection, commenting that with all the traffic in and out of her Atoyac apartment at all hours of the night her reputation is probably in jeopardy, especially with her immediate neighbors and the cleaning women and maids. She promised Rowton to move out the following day since it was the end of the month and a logical time. She also promised when revisiting the LIRING office the next morning to make this known, stressing her financial plight.
 

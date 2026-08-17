@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_260.png
-
-Convert to MarkdownBernard REICHART
+Bernard REICHART
 GALBOND
 BILLESPIE
 

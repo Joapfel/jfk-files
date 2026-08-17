@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24007.png
-
-Convert to Markdown26. All information available on the Afro-Asian Journalists Association, headquartered in Cairo. (Note, an AAJA conference is slated for March in Algiers).
+26. All information available on the Afro-Asian Journalists Association, headquartered in Cairo. (Note, an AAJA conference is slated for March in Algiers).
 
 A. Identify any of the individuals (outside of Horrissac) connected with it.
 

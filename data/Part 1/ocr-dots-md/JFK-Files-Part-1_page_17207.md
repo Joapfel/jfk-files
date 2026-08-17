@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17207.png
-
 ) 1,000
 LIDENTY-6 (LIMITED basehouse-
 keeper)

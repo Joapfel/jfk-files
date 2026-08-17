@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2403.png
-
-Convert to MarkdownSEC. 20. FINANCIAL BACKGROUND (Cont'd)
+SEC. 20. FINANCIAL BACKGROUND (Cont'd)
 
 GIVE three CREDIT REFERENCES - IN THE U.S.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27918.png
-
-Convert to MarkdownSEC. II. WORK EXPERIENCE
+SEC. II. WORK EXPERIENCE
 
 I. State the nature of duties performed with this organization, starting with your present position. Approximate dates (month and year) are sufficient. Use a continuation sheet, if necessary, to adequately describe your duties.
 

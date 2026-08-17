@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17793.png
-
-Convert to Markdown... esposa JOSEFA NUEVA y pide que llame a la agencia en que compraron la televisión para que de los datos de factura y déchas. Y que mañana va a tener que hacer mas cena porque invitó a unos amigos militares y a MARCOS.- 454-
+... esposa JOSEFA NUEVA y pide que llame a la agencia en que compraron la televisión para que de los datos de factura y déchas. Y que mañana va a tener que hacer mas cena porque invitó a unos amigos militares y a MARCOS.- 454-
 
 454- Salida al 37-03-16.- 1143 hrs.- MD por MANUEL. HF dice que no está. HU que le diga que no le quieren pegar en la - encajada porque la máquina no está aquí. HF dice que se espere y que ahora van a reclamar.-496-
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7589.png
-
-Convert to Markdown14-00000
+14-00000
 
 This material contains information affecting the National Defense of the United States and should be treated with care. DO NOT DISSEMINATE, REPRODUCE, OR STORE THE DOCUMENT.
 

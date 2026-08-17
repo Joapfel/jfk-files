@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25826.png
-
-Convert to Markdown214/64 Memo to Sankey: Requirements for Australia
+214/64 Memo to Sankey: Requirements for Australia
 ① Latin Americans in quenelle training in Cuba?
 ② Number of training schools in Cuba?
 

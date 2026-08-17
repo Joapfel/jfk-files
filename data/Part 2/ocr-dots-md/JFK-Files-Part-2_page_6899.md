@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6899.png
-
-Convert to Markdown13-00000
+13-00000
 
 Activities -- the Rockefeller commission -- in 1975; the third by
 the Senate Select Committee to Study Governmental Operations with

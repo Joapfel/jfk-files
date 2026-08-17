@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4593.png
-
-Convert to MarkdownF-106 MATTS
+F-106 MATTS
 
 DATE: 35 JULY 1968
 CLASSIFICATION: NONE GIVEN

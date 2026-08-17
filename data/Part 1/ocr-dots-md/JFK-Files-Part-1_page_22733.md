@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22733.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">INDEX ☐ YES ☐ NO</th></tr></thead><tbody><tr><td>CLASSIFY TO FILE NO.</td><td></td></tr><tr><td>X-REF TO FILE NO.</td><td></td></tr><tr><td>FILE RID ☐ RET. TO BRANCH ☐</td><td rowspan="3"></td></tr><tr><td>DESTROY ☐ SIG.</td></tr><tr><td>FROM Mexico City</td></tr><tr><td>ACTION</td><td>☑ RID COPY</td></tr><tr><td>INFO</td><td>FILE, NR, P./A.M., CAP, CAL/PROP, e. legs, c/c1c2</td></tr><tr><td>ADVANCE COPY</td><td>☐ ISSUED ☐ SLOTTED ☐ TUBED</td></tr><tr><td>UNIT</td><td>TIME</td><td>BY</td></tr></tbody></table>
 

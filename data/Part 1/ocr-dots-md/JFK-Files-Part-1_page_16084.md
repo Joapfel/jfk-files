@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16084.png
-
-Convert to MarkdownThe VAKS can be used as it goes from one location to another. In this case, a sniper team with a 5-8 four SECURITY EQUIPMENT is selected to observe long range observation of the route over which the unit will travel and pick off the enemy as they follow in artilles. The units should use their telescope sights and their suppressors will enable them to engage the enemy at ranges out to 300 meters. At extreme range, the enemy will usually not be cautious about his cover and concealment. Thus, he presents an excellent target for the E/A team.
+The VAKS can be used as it goes from one location to another. In this case, a sniper team with a 5-8 four SECURITY EQUIPMENT is selected to observe long range observation of the route over which the unit will travel and pick off the enemy as they follow in artilles. The units should use their telescope sights and their suppressors will enable them to engage the enemy at ranges out to 300 meters. At extreme range, the enemy will usually not be cautious about his cover and concealment. Thus, he presents an excellent target for the E/A team.
 
 #### (iii) Off-set
 

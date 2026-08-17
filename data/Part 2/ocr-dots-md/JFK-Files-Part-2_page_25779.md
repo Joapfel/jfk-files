@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25779.png
-
-Convert to Markdown# VI. The Regidual Program
+# VI. The Regidual Program
 
 In the event it is decided to abandon the core of the covert program, we will be obliged to fall back on essentially overt courses of action which are already operating but which can be refined and intensified, provided the political risks and costs are judged acceptable and we receive adequate cooperation from our allies.
 

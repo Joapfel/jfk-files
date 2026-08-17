@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8003.png
-
-Convert to Markdown26 of July Movement Youth
+26 of July Movement Youth
 Certain working youths
 
 3. The letter lists the following agreements arrived at at this meeting:

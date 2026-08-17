@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23516.png
-
-Convert to MarkdownSECRET
+SECRET
 
 QJWIN annual salary: $7,200
 Travel & ops expenses for QJWIN &

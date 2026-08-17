@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23214.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Date: 16 April 1958
 To: Honor Award Board

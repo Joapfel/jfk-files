@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3982.png
-
-Convert to MarkdownBACKGROUND USE ONLY
+BACKGROUND USE ONLY
 
 CONFIDENTIAL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14276.png
-
-Convert to Markdown<table><thead><tr><th>DISPATCH</th><th>(CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>MARSH FOR MIGRATION</td></tr><tr><td>TO</td><td>Chief, Western Hemisphere Division</td><td>X NO INSTRUCTION REQUIRED</td></tr><tr><td>INFO.</td><td>Chief, European Division<br/>Chief of Station, JMWAVE</td><td>ONLY QUALIFIED DEK (AN JUDGE INDICING)</td></tr><tr><td>FROM</td><td>Chief of Station, Madrid</td><td rowspan="2">3P</td></tr><tr><td>SUBJECT</td><td colspan="2">Operational/TYPIC/MHAPRON/QUTIMID/QUDOZE<br/>Plans of New Cuban Ambassador in Madrid</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td><td colspan="2"></td></tr></tbody></table>
+<table><thead><tr><th>DISPATCH</th><th>(CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>MARSH FOR MIGRATION</td></tr><tr><td>TO</td><td>Chief, Western Hemisphere Division</td><td>X NO INSTRUCTION REQUIRED</td></tr><tr><td>INFO.</td><td>Chief, European Division<br/>Chief of Station, JMWAVE</td><td>ONLY QUALIFIED DEK (AN JUDGE INDICING)</td></tr><tr><td>FROM</td><td>Chief of Station, Madrid</td><td rowspan="2">3P</td></tr><tr><td>SUBJECT</td><td colspan="2">Operational/TYPIC/MHAPRON/QUTIMID/QUDOZE<br/>Plans of New Cuban Ambassador in Madrid</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td><td colspan="2"></td></tr></tbody></table>
 
 <table><tr><td>JAN 17 1968</td></tr><tr><td>DOC. MICRO. DCR.</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11710.png
-
-Convert to Markdown[ ] UNCLASSIFIED [ ] CIA INTERNAL ONLY [ ] CONFIDENTIAL [ ] SECRET
+[ ] UNCLASSIFIED [ ] CIA INTERNAL ONLY [ ] CONFIDENTIAL [ ] SECRET
 
 <table><thead><tr><td colspan="5">ROUTING AND RECORD SHEET</td></tr><tr><td>SUBJECT: (Optional)</td><td>FROM:</td><td></td><td>DATE:</td><td>Copy of TCSA-1091</td></tr></thead><tbody><tr><td>TO: (Officer designation, room number, and building)</td><td colspan="2">REC'D</td><td colspan="2">FWCD</td><td rowspan="16">COMMENTS (Number each comment to show from whom to whom. Draw a line across column after each comment)<br/>P.P. 8 & 70d</td></tr><tr><td>1.</td><td></td><td></td><td></td><td></td></tr><tr><td>2.</td><td></td><td></td><td></td><td></td></tr><tr><td>3.</td><td></td><td></td><td></td><td></td></tr><tr><td>4.</td><td></td><td></td><td></td><td></td></tr><tr><td>5.</td><td></td><td></td><td></td><td></td></tr><tr><td>6.</td><td></td><td></td><td></td><td></td></tr><tr><td>7.</td><td></td><td></td><td></td><td></td></tr><tr><td>8.</td><td></td><td></td><td></td><td></td></tr><tr><td>9.</td><td></td><td></td><td></td><td></td></tr><tr><td>10.</td><td></td><td></td><td></td><td></td></tr><tr><td>11.</td><td></td><td></td><td></td><td></td></tr><tr><td>12.</td><td></td><td></td><td></td><td></td></tr><tr><td>13.</td><td></td><td></td><td></td><td></td></tr><tr><td>14.</td><td></td><td></td><td></td><td></td></tr><tr><td>15.</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

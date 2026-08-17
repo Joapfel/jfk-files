@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31857.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>1. NAME OF SUBJECT OR TITLE OF INCIDENT</td>
     <td>FROMER, David Reed</td>

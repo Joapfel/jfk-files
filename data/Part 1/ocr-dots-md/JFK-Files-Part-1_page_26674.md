@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26674.png
-
-Convert to MarkdownSECRETARÍA
+SECRETARÍA
 DE
 OBERNACIÓN
 

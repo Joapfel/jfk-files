@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34774.png
-
-Convert to MarkdownE-6
+E-6
 
 Remove from Project
 CS Class: Rationals

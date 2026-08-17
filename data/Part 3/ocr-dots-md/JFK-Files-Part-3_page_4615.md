@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4615.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 ## Minor Role
 

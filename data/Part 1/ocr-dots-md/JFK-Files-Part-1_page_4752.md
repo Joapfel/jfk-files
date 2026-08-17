@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4752.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 SECRET
 

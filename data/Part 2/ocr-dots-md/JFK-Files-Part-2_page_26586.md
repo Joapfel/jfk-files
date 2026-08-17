@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26586.png
-
-Convert to MarkdownDOCUMENTS OF INTEREST
+DOCUMENTS OF INTEREST
 
 I. De Gaulle on NATO strategy.
 

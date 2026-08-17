@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18091.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, WH Division
+MEMORANDUM FOR: Chief, WH Division
 
 SUBJECT : Renewal of Project LIONION (photographic/ technical coverage of Cuban Embassy in Mexico)
 

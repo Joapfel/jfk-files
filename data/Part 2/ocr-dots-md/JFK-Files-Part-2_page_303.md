@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_303.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th><th rowspan="2">TOTAL COPIES</th></tr><tr><td>INDEX: ☐ YES ☑ NO<br/>CLASSIFY TO FILE NO.<br/>E-REF TO FILE NO.<br/>FILE RID ☐ SET. TO BRANCH ☒ DH/1<br/>DESTROY ☐ S/S. Jafar</td><td>67</td></tr><tr><td colspan="3" style="text-align:center;">SECRET</td></tr><tr><td colspan="2">PERSONAL UNIT NOTIFIED</td><td></td></tr><tr><th colspan="4">REPRODUCTION PROHIBITED</th></tr><tr><th>ACTION</th><th>[X] RID COPY</th><th>ADVANCE COPY<br/>☐ ISSUED ☐ SLIPPED ☐ TO BE<br/>UNIT TIME BY</th><th></th></tr></thead><tbody><tr><td>WHECOG 8</td><td>[X]</td><td>[ ]</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th><th rowspan="2">TOTAL COPIES</th></tr><tr><td>INDEX: ☐ YES ☑ NO<br/>CLASSIFY TO FILE NO.<br/>E-REF TO FILE NO.<br/>FILE RID ☐ SET. TO BRANCH ☒ DH/1<br/>DESTROY ☐ S/S. Jafar</td><td>67</td></tr><tr><td colspan="3" style="text-align:center;">SECRET</td></tr><tr><td colspan="2">PERSONAL UNIT NOTIFIED</td><td></td></tr><tr><th colspan="4">REPRODUCTION PROHIBITED</th></tr><tr><th>ACTION</th><th>[X] RID COPY</th><th>ADVANCE COPY<br/>☐ ISSUED ☐ SLIPPED ☐ TO BE<br/>UNIT TIME BY</th><th></th></tr></thead><tbody><tr><td>WHECOG 8</td><td>[X]</td><td>[ ]</td><td></td></tr></tbody></table>
 
 INFO
 

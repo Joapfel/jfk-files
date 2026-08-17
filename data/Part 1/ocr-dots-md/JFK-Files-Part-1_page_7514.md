@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7514.png
-
-Convert to MarkdownFCS 1831; Shanghai Municipal Files, file: 16-4-2-37
+FCS 1831; Shanghai Municipal Files, file: 16-4-2-37
 
 ROBSON, VBola
 @ MR.S. M.R. ISAACS

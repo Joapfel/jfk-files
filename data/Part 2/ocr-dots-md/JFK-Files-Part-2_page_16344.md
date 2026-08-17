@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16344.png
-
-Convert to Markdown5. Medium Box of records from desk.
+5. Medium Box of records from desk.
 
 6. Small Box of conspiracy buttons in sack and miscellaneous literature.
 

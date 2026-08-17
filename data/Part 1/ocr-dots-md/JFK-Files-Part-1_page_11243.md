@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11243.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HRG Record Print
 

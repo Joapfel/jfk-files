@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20159.png
-
-Convert to Markdownin the discretion of the court, be fined not more than $10,000. (Sec. 1, Title I, act 15 June 1917 (40 Stat. 217), as amended by sec. 1, act 28 March 1940 ( 54 Stat. 79; 50 U.S.C. 31)).
+in the discretion of the court, be fined not more than $10,000. (Sec. 1, Title I, act 15 June 1917 (40 Stat. 217), as amended by sec. 1, act 28 March 1940 ( 54 Stat. 79; 50 U.S.C. 31)).
 
 
 

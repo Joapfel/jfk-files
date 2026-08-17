@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32464.png
-
-Convert to MarkdownSECRET-NO FOREIGN DISSEM
+SECRET-NO FOREIGN DISSEM
 
 Cuban Anniversary Celebrations (See pictures following)
 

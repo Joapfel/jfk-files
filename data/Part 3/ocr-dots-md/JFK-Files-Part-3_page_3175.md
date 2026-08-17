@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3175.png
-
-Convert to Markdown1787
+1787
 
 was there, to look at all of our procedures, all of our
 investigative operations: are they proper, do they fit

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8920.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 TS No. 197124
 

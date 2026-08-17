@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6888.png
-
-Convert to MarkdownEven the high-level executive branch officials who are members of the Interagency Security Classification Appeals Panel have been flummoxed by the difficulties in coordinating the declassification of information controlled under the Atomic Energy Act. This is particularly absurd because, according to Ms. Mazer,
+Even the high-level executive branch officials who are members of the Interagency Security Classification Appeals Panel have been flummoxed by the difficulties in coordinating the declassification of information controlled under the Atomic Energy Act. This is particularly absurd because, according to Ms. Mazer,
 
 information that is similar or identical to much of what we have seen designated as FRD [i.e. classified under the Atomic Energy Act] has been in the public domain for many years, often as a result of a prior Department of Energy declassification review. Moreover, *there appears to be no system in place to get this information declassified*, even though the Departments involved—Energy, Defense, and State—acknowledge that it is innocuous.¹⁹
 

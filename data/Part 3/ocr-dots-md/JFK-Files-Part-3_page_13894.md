@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13894.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 One action resulting from the Moscow incident has been the alerting of appropriate U. S. agencies to the type of installation uncovered in Moscow. The USIB will be asked to urge the agencies involved to seek adequate funds and personnel to perform necessary security inspections of facilities overseas. The agencies will be asked to monitor the U. S. personnel who were subject to compromise by Soviet technical penetrations, to ensure that Soviet exploitation attempts are not successfully made against them. It will be proposed that a new interagency mechanism for countermeasures coordination be established within the USIB, with a view to achieving such goals as U. S. observation of the construction of our overseas facilities; the employment of U. S. personnel rather than local maintenance personnel in the Embassys; the assignment of more U. S. technicians to security inspections of U. S. posts overseas; the assignment of resident U. S. security technicians at sensitive posts abroad; intensified security indoctrination and briefings of U. S. personnel scheduled for assignment abroad; and expanded research and development in the audiosurveillance countermeasures field.
 

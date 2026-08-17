@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9407.png
-
-Convert to Markdown# FEDERAL JREAU OF INVESTIGATION
+# FEDERAL JREAU OF INVESTIGATION
 
 <table><thead><tr><th>REPORTING OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td>DETROIT</td><td>SAN FRANCISCO</td><td>1/26/71</td><td>7/2/70 - 1/4/71</td></tr><tr><th>TITLE OF CASE</th><th colspan="3">REPORT MADE BY</th></tr><tr><td>BLACK PANTHER PARTY (BPP)</td><td colspan="3">SA DONALD V. RITENOUR, JR.</td></tr><tr><td>NATIONAL COMMITTEE TO COMBAT FASCISM (NCCF)</td><td colspan="3">CHARACTER OF CASE</td></tr><tr><td>DETROIT DIVISION</td><td colspan="3">RM</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24819.png
-
-Convert to Markdownf. TICHBORN was told NOT to use his pseudo, TICHBORN, on mail (LEP had received an envelope from TICHBORN which carried his pseudo on the outside as sender but had a phony address).
+f. TICHBORN was told NOT to use his pseudo, TICHBORN, on mail (LEP had received an envelope from TICHBORN which carried his pseudo on the outside as sender but had a phony address).
 
 2. TICHBORN submitted his proposal on the PRI study which he estimated would cost $3,800. Since it did not have a research plan or outline, LEP requested him to send one as soon as possible. TICHBORN believes Menendez is indispensable and that his services are worth the $2,000 he has projected. TICHBORN feels that his plan is not as complete as it might be but would be of a very useful size and scope and could be completed in six months. LEP briefed TICHBORN on the peculiarities of our operational interest in research as contrasted to the traditional academic approach. TICHBORN seemed to understand these distinctions very clearly.
 

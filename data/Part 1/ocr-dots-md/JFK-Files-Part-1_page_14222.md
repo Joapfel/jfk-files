@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14222.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3 JUL 68 IN 43255
 

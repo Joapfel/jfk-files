@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13605.png
-
-Convert to Markdown(CIB)
+(CIB)
 Two later Department agents yesterday had to be
 CONTINUED ON PAGE 9A
 

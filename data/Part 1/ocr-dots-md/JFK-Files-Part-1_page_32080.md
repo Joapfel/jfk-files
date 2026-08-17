@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32080.png
-
-Convert to MarkdownSECRET
+SECRET
 
 22 December 1975
 

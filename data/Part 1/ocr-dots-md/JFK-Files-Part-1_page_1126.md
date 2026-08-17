@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1126.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>1973 (733)</td>
     <td>-Revised: 23 February 1973 (733)</td>

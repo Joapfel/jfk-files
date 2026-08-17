@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3303.png
-
-Convert to Markdown<html><body><table><tr><td rowspan="2">CONTRIBUTION OF<br/>DISPATCH</td><td>CLASSIFICATION</td><td>PAGE NO.</td></tr><tr><td>JANUARY 1978</td><td></td></tr></table></body></html>
+<html><body><table><tr><td rowspan="2">CONTRIBUTION OF<br/>DISPATCH</td><td>CLASSIFICATION</td><td>PAGE NO.</td></tr><tr><td>JANUARY 1978</td><td></td></tr></table></body></html>
 
 <table>
    <tr>

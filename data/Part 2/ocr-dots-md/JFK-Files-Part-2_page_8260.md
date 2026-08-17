@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8260.png
-
-Convert to Markdown6 April 1951
+6 April 1951
 
 Discussions held between ADAMSON and HAND of CIA and Colonels COVERDALE, and CARLAN, Mr. TOD, and Captain VILLEMETTE of G-2. Points (given below) the Army wants covered in a cable to OSO in Panama.
 

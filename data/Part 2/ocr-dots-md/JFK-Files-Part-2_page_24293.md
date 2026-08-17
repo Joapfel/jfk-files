@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24293.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The short expression of Congressional intent found in the Act: legislative history supports the view that the Agency's activities in the confidential funds area are not within the purview of the Act. "As far as practicable..." procurement, use and disposition should be "...in accord with the provisions of the Act...particularly so far as common-use items and administrative supplies are concerned." It is suggested that a Government-owned, but overtly commercial, airline used in support of foreign intelligence activities does not fall within a "common-use items and administrative supplies" categorization. Similarly, if the last paragraph of legislative history (emphasized portion) quoted above is read in the negative, the proposition becomes clear. "...(T)he act will...(not)... govern...(if)...compliance with the act and submission to the jurisdiction of the Administrator will...'impair or affect the authority' of the several agencies to which the subsection applies as to interfere with the operation of their programs...." Were the Agency required to comply with the Act and submit to the jurisdiction of the Administrator in the exercise of its confidential funds authority, not only would that authority be impaire or affected, but many of the Agency's most significant statutory authorities would be frustrated.
 

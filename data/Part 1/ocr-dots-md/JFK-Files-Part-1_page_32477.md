@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32477.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">Date & Place of Birth: 4-8-35, San Marco, Texas</td>
         <td>THE AMERICAN<br/>WASHINGTON D.C.</td>

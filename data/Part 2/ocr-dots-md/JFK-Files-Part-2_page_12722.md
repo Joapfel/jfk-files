@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12722.png
-
-Convert to MarkdownXIII. Employment address and any additional data deemed necessary to assist in locating a subject in an emergency. Labor union affiliation, if any.
+XIII. Employment address and any additional data deemed necessary to assist in locating a subject in an emergency. Labor union affiliation, if any.
 
 XIV. Field office file number
 

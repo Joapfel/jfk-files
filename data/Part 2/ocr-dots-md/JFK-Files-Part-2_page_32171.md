@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32171.png
-
-Convert to MarkdownUNCLAS E F T O
+UNCLAS E F T O
 
 ZCZCRPQ324
 DAN: 296-043001

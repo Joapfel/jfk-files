@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24250.png
-
-Convert to Markdowncorporation which was involved that did most of the funding.
+corporation which was involved that did most of the funding.
 
 There was also an envy known as the Civil Air Transport "to further complicate the picture, at this time Chennault and Willauer were also negotiating with the Chinese CNAC, for the takeover of their planes and equipment." Chennault and Willauer came to the Agency in connection with that operation in the Spring of 1949. At that point the Nationalist Chinese were being "squeezed down south by the Communists and they were really backing down toward Shanghi, restricting their area of operation and consequently the productivity of their commercial venture." Chennault and Willauer indicated to the Agency that unless they got help they would have to go out of business.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10882.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>PROJECT</td>
         <td colspan="2">No Project</td>

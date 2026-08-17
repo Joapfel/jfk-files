@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35665.png
-
-Convert to Markdown# Programa Radial "EL MEDICO Y USTED"
+# Programa Radial "EL MEDICO Y USTED"
 
 ## Octubre, 1964
 

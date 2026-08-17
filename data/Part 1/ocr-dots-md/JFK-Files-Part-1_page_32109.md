@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32109.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>NOTICE OF CHANGE IN HEALTH BENEFITS ENROLLMENT<br/>FEDERAL EMPLOYER HEALTH BENEFITS ACT OF 1973</td>
     </tr>

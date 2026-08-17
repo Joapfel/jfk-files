@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31865.png
-
-Convert to Markdown16 July 1956
+16 July 1956
 
 Mr. Joseph Stephen Piccolo
 2210 20th Street, N. W.

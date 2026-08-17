@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27326.png
-
-Convert to MarkdownA - Memo from Knoche to Koetne - 3 Apr '75
+A - Memo from Knoche to Koetne - 3 Apr '75
 
 B - Surveillances of Jack Anderson and Michael Getler - TOP SECRET COMINT
 

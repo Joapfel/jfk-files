@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7460.png
-
-Convert to Markdown13-00000
+13-00000
 
 DOHB 70-1-1
 CHAPTER III, ANNEX B

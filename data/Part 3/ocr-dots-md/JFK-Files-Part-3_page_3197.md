@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3197.png
-
-Convert to MarkdownAKELLY / smnl
+AKELLY / smnl
 
 t. 8
 

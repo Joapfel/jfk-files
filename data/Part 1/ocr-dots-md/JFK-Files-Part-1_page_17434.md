@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17434.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ~~DATE :~~ 30 MAR 62
 

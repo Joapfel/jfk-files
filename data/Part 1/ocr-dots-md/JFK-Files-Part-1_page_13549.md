@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13549.png
-
-Convert to Markdownal C. General de Brigade, José Gómez Huerta,
+al C. General de Brigade, José Gómez Huerta,
 Jefe del Est. Co. , mayor General,
 Los Álamos.
 

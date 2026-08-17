@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8768.png
-
-Convert to MarkdownRESCATE (MOVIMIENTO de RESCATE CONSTITUCIONAL DEMOCRATICO)
+RESCATE (MOVIMIENTO de RESCATE CONSTITUCIONAL DEMOCRATICO)
 
 (Cuban Revolutionary Democratic Rescue Committee) 19-120-39
 

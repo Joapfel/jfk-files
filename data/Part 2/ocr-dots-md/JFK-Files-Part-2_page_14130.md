@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14130.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="7">
      FEDERAL BUREAU OF INVESTIGATION<br/>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23362.png
-
-Convert to Markdown40. With what agencies and files has subject's name been checked? When?
+40. With what agencies and files has subject's name been checked? When?
 Result? What else has been done to verify biographical information furnished by subject?
 
 Checked upon recruitment in Panama in 1949 and subsequently upon transfer to other projects.

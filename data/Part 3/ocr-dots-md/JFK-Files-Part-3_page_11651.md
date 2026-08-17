@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11651.png
-
-Convert to Markdown# ALEM PROGRAM
+# ALEM PROGRAM
 
 Bufile: 65-69532
 

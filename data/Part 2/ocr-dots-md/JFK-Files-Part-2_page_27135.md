@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27135.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 present CIA is not conducting a single
 operation against a Soviet illegal.

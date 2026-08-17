@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25452.png
-
-Convert to Markdown-3-
+-3-
 
 FS: When did he call you?
 

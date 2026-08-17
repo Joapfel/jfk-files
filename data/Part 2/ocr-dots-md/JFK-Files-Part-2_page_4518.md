@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4518.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td>SECRET</td><td>UFGA-13428</td></tr></tbody></table>
 

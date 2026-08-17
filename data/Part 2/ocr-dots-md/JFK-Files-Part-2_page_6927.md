@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6927.png
-
-Convert to Markdownon to the same playing field, and to create a process which is accountable, independent and credible. Incorporating the Justice Department's restrictive standards in an executive order would duplicate the devastating damage to the ideal of full disclosure which occurred when the Reagan Administration successfully sabotaged the 1974 amendments to Exemption 1 by drastically altering the standards for classifying information in the interests of national security.
+on to the same playing field, and to create a process which is accountable, independent and credible. Incorporating the Justice Department's restrictive standards in an executive order would duplicate the devastating damage to the ideal of full disclosure which occurred when the Reagan Administration successfully sabotaged the 1974 amendments to Exemption 1 by drastically altering the standards for classifying information in the interests of national security.
 
 The difficulty which researchers have had gaining access to Kennedy assassination materials amply demonstrates the need to alter the standards employed by the FOIA and the current executive order on national security classification. If you support release of the Kennedy assassination records, you cannot favor the Justice Department's recipe of simply mixing one part political will to three parts of existing standards and stir. You must substantially liberalize the existing standards and make it stick.
 

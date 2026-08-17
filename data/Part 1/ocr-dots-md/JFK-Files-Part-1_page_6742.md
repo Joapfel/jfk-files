@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6742.png
-
-Convert to MarkdownNew Orleans
+New Orleans
 
 May 27, 1963
 

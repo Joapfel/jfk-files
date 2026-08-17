@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9629.png
-
-Convert to Markdown# Secret Army Organization
+# Secret Army Organization
 
 ## PRELIMINARY TRAINING LESSON
 

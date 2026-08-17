@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6197.png
-
-Convert to Markdown# Directorate of Administration
+# Directorate of Administration
 
 ## TOPICS
 

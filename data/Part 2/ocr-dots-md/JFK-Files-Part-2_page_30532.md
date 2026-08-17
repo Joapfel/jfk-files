@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30532.png
-
-Convert to MarkdownSECRET
+SECRET
 
 There is no centralised index for all files. The information contained in the index will not be returned for record purposes.
 

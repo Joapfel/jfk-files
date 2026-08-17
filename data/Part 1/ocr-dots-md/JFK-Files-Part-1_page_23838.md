@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23838.png
-
-Convert to MarkdownDISPATCH
+DISPATCH
 
 <table><thead><tr><th>CLASSIFICATION</th><th colspan="3">PROCESSING ACTION</th></tr><tr><td>SECRET</td><td colspan="3"></td></tr><tr><td></td><th>MARRED FOR INDEXING</th><td colspan="2"></td></tr></thead><tbody><tr><th scope="row">TO</th><td colspan="3">Chief of Station, London</td></tr><tr><td>INFO.</td><td colspan="3">(Paris)</td></tr><tr><th scope="row">FROM</th><td colspan="3">Chief of Station, LCPIPIT</td></tr><tr><th scope="row">SUBJECT</th><td colspan="3">STEBONY - Transmittal of Interview Tapes</td></tr><tr><td>ACTION REQUESTED</td><td colspan="3"></td></tr><tr><th scope="row">References:</th><td colspan="3"></td></tr><tr><td></td><td>A. PALP 3904 (IN 75497)</td><td>B. OELA - 42,706</td><td>C. OELA - 82,410</td></tr></tbody></table>
 

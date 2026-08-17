@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6850.png
-
-Convert to Markdownhas, as a result of this movie, become apparently an expert on this subject?
+has, as a result of this movie, become apparently an expert on this subject?
 
 GATES: Mr. Chairman, I would characterize him as a self-styled expert on this subject. I am no expert at all. I think I have moved very far in the direction of releasing these documents, as you indicated at the outset of the hearing. I think that the agency has in many ways set a standard in terms of its willingness to release these documents, and our determination to do so whether or not there is legislation.
 

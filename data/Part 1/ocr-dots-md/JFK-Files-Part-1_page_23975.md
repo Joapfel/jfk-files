@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23975.png
-
-Convert to Markdownthe city, xH
+the city, xH
 
 ((Washington would be the primary example of that))
 

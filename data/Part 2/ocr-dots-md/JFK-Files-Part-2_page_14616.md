@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14616.png
-
-Convert to MarkdownMay 27, 1960
+May 27, 1960
 
 1 - Parsons
 2 - Belmont

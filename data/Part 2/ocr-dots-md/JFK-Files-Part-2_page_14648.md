@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14648.png
-
-Convert to Markdown1970
+1970
 NUMBER & DATE
 
 NAME

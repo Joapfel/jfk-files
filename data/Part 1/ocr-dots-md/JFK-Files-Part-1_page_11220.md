@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11220.png
-
-Convert to MarkdownLa Habana, la de Julio de 1906
+La Habana, la de Julio de 1906
 
 Noticias on line...
 

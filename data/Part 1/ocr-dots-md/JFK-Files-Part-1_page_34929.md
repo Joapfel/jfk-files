@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34929.png
-
-Convert to MarkdownTRANSLATION
+TRANSLATION
 
 Havana, 17 August 1967
 

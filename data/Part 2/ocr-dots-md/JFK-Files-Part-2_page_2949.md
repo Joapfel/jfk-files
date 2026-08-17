@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2949.png
-
-Convert to MarkdownSECRET
+SECRET
 
 31 January 1963
 McCone attends meeting with Kennedy to discuss European problems.

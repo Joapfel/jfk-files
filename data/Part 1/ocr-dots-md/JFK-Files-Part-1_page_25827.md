@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25827.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : Chief, W-1 Division
 Attention : Mr. Lawrence B. Sule, WH/III/Mexico

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13136.png
-
-Convert to Markdown(continued)
+(continued)
 
 publicize the movement on 4/11/63. He appeared to have the backing of Manuel Artime, who had been seen with Rivero quite frequently during the past week (place not indicated), and possibly that of Jose Miro Cardona, president of the CRC. Artime dealt with Miro through Carlos Pelaez Cossio, a former senator under Gomez and Batista (sic) and a personal confidant of both Miro and Artime
 

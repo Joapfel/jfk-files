@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27184.png
-
-Convert to MarkdownSCHWARZER-MANFREDI FILES
+SCHWARZER-MANFREDI FILES
 
 S. DDO Instructions (SECRET)
 

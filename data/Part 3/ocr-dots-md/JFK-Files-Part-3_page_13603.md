@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13603.png
-
-Convert to Markdown1 episode like that where it is partly roles and missions, but
+1 episode like that where it is partly roles and missions, but
 2 it is certainly where I as the unit chief in OBM could use the
 3 guidance of this commission, and that is the use of some CIA
 4 equipment and some CIA involvement jointly with the FBI in

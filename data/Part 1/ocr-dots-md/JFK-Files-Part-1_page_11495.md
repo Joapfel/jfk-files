@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11495.png
-
-Convert to Markdown25 April,1969
+25 April,1969
 
 CONTRACT REPORT
 

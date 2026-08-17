@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6001.png
-
-Convert to Markdown19. All materials reflecting the manner in which Director Hoover's notation was "(b)ing' handled", as noted on the bottom of page 4 of Mr. Rosen's November 20, 1964 memorandum to Mr. Belmont, subject "Telegram from Martin Luther King, Jr., dated November 19, 1964, Civil Rights Matters," together with all materials reflecting what steps were taken and by whom:
+19. All materials reflecting the manner in which Director Hoover's notation was "(b)ing' handled", as noted on the bottom of page 4 of Mr. Rosen's November 20, 1964 memorandum to Mr. Belmont, subject "Telegram from Martin Luther King, Jr., dated November 19, 1964, Civil Rights Matters," together with all materials reflecting what steps were taken and by whom:
 
 20. The response to John Doar's August 19, 1964 letter to Mr. James R. Malley which requested a name check with respect to persons who were delegates of the Mississippi Freedom Democratic Party.
 

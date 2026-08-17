@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15973.png
-
-Convert to Markdown17 September 1973
+17 September 1973
 
 UNITED STATES
 MARINE CORPS

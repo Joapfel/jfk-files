@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7123.png
-
-Convert to MarkdownMarch 13, 1975
+March 13, 1975
 
 BY LIAISON
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8485.png
-
-Convert to MarkdownSECRET
+SECRET
 
 press services." It may be argued that although Forum World Features continues to be protected to a degree by deletion of its name in the Senate Report, CIA disclosure to newspaper editors, if it in fact took place and depending on how it was handled, placed the subject in the public domain. NOTE: EUR Division and CA Staff confirm the need for continued classification and will comment separately.
 

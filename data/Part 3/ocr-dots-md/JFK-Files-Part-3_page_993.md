@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_993.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 The Richmond Office of the FBI prepared an anonymous letter addressed to George Lincoln Rockwell, National Commander of the American Nazi Party (ANP) wherein it was alleged Alan Welch, Deputy Commander of the ANP, is a homosexual and had engaged in an unusual sex act with another ANP member. Further, that Welch was turning away recruits from the National Headquarters who appeared to be "too manly." A source who had furnished reliable information in the past, advised that Welch had been described by Rockwell in the past as "a reformed queer." The Richmond Office furnished this letter to the Dallas Office where it was mailed on September 23, 1965.
 

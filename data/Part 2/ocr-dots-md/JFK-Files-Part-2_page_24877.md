@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24877.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 2. The United States Should Not Make Use of Underworld Figures for Their Criminal Talents . . . . . . . . . . 10
 C. Findings and Conclusions Relating to the Issues of Authorization and Control . . . . . . . . . . . . . . . . . . 13

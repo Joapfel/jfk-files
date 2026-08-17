@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_29013.png
-
 to the Chief of Station at Mexico City. In this job, she screens all incoming material for matters of interest to the Chief and Deputy Chief of Station. She also continues performing her past functions in the Cuban section for the Station.
 
 3. Subject's present high quality of performance is typical of her performance since she entered the Agency in 1951. It is fully expected that this level of performance will be maintained.

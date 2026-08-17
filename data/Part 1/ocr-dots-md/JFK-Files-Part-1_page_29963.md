@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29963.png
-
-Convert to MarkdownATTACHMENT TO FITNESS REPORT (PART I) PERFORMANCE
+ATTACHMENT TO FITNESS REPORT (PART I) PERFORMANCE
 
 Section C, Paragraph 2 (Specific Duties):
 

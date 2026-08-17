@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1366.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a. The 1948 FBI report that SZULC was involved in supplying the Polish Legation in Rio with information from his personal contacts and from Ambassador John C. Wiley has been repeated in various versions throughout SZULC's file. The FBI has found similar allegations made by other sources who knew SZULC at that time. In addition, several sources have mentioned SZULC's relations with his cousin, Ignacy SACHS, who was the Press Attache in the Polish Embassy in 1947 and 1948, although there is no indication that SACHS had intelligence connections.
 

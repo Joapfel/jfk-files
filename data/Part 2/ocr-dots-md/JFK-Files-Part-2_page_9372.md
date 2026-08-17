@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9372.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 About 40 to 50 children are being fed at 2435
 Pennsylvania each day.

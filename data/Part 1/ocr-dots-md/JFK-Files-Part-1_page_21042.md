@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21042.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4">1960-61</th>

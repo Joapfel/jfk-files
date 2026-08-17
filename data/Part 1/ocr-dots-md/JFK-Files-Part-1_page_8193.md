@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8193.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DATE : 08 MARCH 1961</td>
     <td>S-E-C-R-E-T</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19459.png
-
-Convert to MarkdownWomen
+Women
 to take first step
 to End The War
 

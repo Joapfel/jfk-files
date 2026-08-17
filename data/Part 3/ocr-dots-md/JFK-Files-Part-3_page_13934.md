@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13934.png
-
-Convert to Markdown(2) Farihani, and (3) the Papal audience given to Khrushchev's son-in-law had an effect on anti-Communist religious Italians, including wives of the workers who had previously been able to persuade their husbands to vote against the Communist candidates. Meanwhile the Special Group has authorized CIA to spend $125,000 to support the CDP in current developments looking toward the establishment of a center-left government coalition.
+(2) Farihani, and (3) the Papal audience given to Khrushchev's son-in-law had an effect on anti-Communist religious Italians, including wives of the workers who had previously been able to persuade their husbands to vote against the Communist candidates. Meanwhile the Special Group has authorized CIA to spend $125,000 to support the CDP in current developments looking toward the establishment of a center-left government coalition.
 
 ## Bolivia
 

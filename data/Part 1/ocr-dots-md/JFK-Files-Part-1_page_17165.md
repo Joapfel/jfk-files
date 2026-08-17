@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17165.png
-
-Convert to MarkdownSECRET
+SECRET
 
 | Item                             | FY 1970        | FY 1971        | Description                               |
 |:---------------------------------|---------------:|---------------:|:----------------------------------------|

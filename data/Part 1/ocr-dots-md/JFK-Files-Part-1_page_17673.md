@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17673.png
-
-Convert to Markdown10.
+10.
 
 (23) LI-ATI-N-8: Very early retired person who formerly had a large business and whose income therefore is not open to question.
 

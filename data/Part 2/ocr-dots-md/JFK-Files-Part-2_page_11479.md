@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11479.png
-
-Convert to Markdown(8) Changes, additions, and deletions of data appearing on security index cards
+(8) Changes, additions, and deletions of data appearing on security index cards
 
 (a) Submit to Bureau by FD-122 any changes, additions, or deletions involving name, aliases, citizenship, organizational affiliation or nationalistic tendencies, detcom classification, date or place of birth, key facility geographical reference number, abbreviation of agency having security responsibility (see 87D 7c (2) below), residence or business address. Exception: Change office of origin by form FD-128.
 

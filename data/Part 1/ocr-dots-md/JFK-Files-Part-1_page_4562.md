@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4562.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SOD. 5-879
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31286.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 <table>
     <thead>

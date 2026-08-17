@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21605.png
-
-Convert to Markdowncould have provided NOSENKO with some type of document which
+could have provided NOSENKO with some type of document which
 would support at least one of his claimed positions in the SCD, KCS.
 Even the Cherepanov Papers do not in any way support the claim of
 NOSENKO that he was Deputy Chief of the First Section, First

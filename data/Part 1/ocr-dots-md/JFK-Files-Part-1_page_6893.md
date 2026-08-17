@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6893.png
-
-Convert to Markdown<table><thead><tr><th>DATE</th><th>22 NOV 58</th></tr></thead><tbody><tr><td colspan="2">TO, DIRECTOR<br/>FROM: VIENNA</td></tr><tr><td>ACTION:</td><td>WI</td></tr><tr><td>INFO: CI, CI/OPS, CI/IC, EE 4, S/C 2</td><td></td></tr></tbody></table>
+<table><thead><tr><th>DATE</th><th>22 NOV 58</th></tr></thead><tbody><tr><td colspan="2">TO, DIRECTOR<br/>FROM: VIENNA</td></tr><tr><td>ACTION:</td><td>WI</td></tr><tr><td>INFO: CI, CI/OPS, CI/IC, EE 4, S/C 2</td><td></td></tr></tbody></table>
 
 CLASSIFIED MESSAGE
 

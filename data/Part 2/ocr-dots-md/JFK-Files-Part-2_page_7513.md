@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7513.png
-
-Convert to Markdown18 Oc: 63
+18 Oc: 63
 
 - OOB 3,278,069
 

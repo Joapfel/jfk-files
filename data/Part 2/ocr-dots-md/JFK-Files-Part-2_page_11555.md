@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11555.png
-
-Convert to Markdown# SECTION 87. SECURITY INVESTIGATIONS
+# SECTION 87. SECURITY INVESTIGATIONS
 
 Membership or affiliation of any other close relatives in subversive groups
 

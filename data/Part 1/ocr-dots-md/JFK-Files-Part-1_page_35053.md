@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35053.png
-
-Convert to Markdown# COMMUNICATIONS
+# COMMUNICATIONS
 
 ANNEX "I-J"
 

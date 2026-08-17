@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6658.png
-
-Convert to Markdown14 September 1998
+14 September 1998
 
 FOR DI REVIEW: CIA #9, LBJ Library Material
 

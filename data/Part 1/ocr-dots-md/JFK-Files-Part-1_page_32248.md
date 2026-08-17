@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32248.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REPRODUCTION MASTERS
 

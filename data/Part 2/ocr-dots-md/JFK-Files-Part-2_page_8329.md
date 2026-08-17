@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8329.png
-
-Convert to Markdown25 January 1951
+25 January 1951
 
 MEMORANDUM FOR: EE I
 SUBJECT: Dimitri A. Dimitrov

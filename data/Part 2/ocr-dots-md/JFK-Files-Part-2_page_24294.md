@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24294.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In looking at CIA's express authority to procure on a confidential basis and examining the nature of its implied authority to dispose, general statements on the rules of statutory construction are helpful. For example:
 

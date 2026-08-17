@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4082.png
-
-Convert to MarkdownLA 65-7445
+LA 65-7445
 
 her any money, and did not like the children. She believes
 NAGELL's mother resides in the Los Angeles area, but she

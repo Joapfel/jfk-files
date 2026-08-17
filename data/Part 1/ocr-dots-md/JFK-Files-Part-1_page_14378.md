@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14378.png
-
-Convert to Markdown18 June 1970
+18 June 1970
 
 Report No.345(continued)
 

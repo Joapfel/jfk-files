@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4228.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Within the CIA station there are differences of opinion. Some feel the cause is hopeless with the Diem regime in power. Others feel it best to go along with the regime until a better one appears. The reporting has been, however, consistent and has coincided with the views of Ambassador Nolting.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17538.png
-
-Convert to Markdownto be cut in" on a medical center which the Panthers had announced
+to be cut in" on a medical center which the Panthers had announced
 would open soon. BPP refused to allow the Vice Lords
 any "part of the action". The Vice Lords told the
 BPP to either stop work and not attempt to operate

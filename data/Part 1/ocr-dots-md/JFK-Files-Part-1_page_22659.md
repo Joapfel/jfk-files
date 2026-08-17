@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22659.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 (When Filled In)
 
 29 JUN 1958

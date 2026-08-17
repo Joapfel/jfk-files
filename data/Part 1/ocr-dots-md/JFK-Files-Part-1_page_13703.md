@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13703.png
-
-Convert to MarkdownEmbryada de Cuba
+Embryada de Cuba
 
 Open new - Cutan Dip. Dr. P" Rodriguez Lopez
 NEGATIVES

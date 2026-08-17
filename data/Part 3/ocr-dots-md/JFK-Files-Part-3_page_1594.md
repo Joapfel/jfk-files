@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1594.png
-
-Convert to MarkdownNovember 11, 1977
+November 11, 1977
 
 HOUSE SELECT COMMITTEE ON ASSASSINATIONS
 U. S. HOUSE OF REPRESENTATIVES (HSCA)

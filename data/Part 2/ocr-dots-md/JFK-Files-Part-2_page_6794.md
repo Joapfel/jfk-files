@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6794.png
-
-Convert to MarkdownThe Honorable John Glenn
+The Honorable John Glenn
 
 To avoid disrupting our continuing efforts to gain access to the Russian files on Oswald, the fact that the Agency has had direct contacts with the Russian service on this topic must remain classified. For the purpose of correcting the public record, I suggest the following unclassified statement:
 

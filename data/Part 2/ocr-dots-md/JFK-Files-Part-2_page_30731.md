@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30731.png
-
-Convert to MarkdownBetsy palmer
+Betsy palmer
 
 110852
 

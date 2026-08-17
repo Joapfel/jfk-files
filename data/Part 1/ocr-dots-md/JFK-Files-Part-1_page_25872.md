@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25872.png
-
-Convert to MarkdownThe following observations were made by KUROV regarding MARTIN:
+The following observations were made by KUROV regarding MARTIN:
 
 (a) Physical Description
 

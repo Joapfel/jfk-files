@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1932.png
-
-Convert to Markdowninitial reaction was to avoid getting involved, but through Maheu's persuasion he agreed to introduce him to a friend, Sam Gold. Roselli made it clear that he would not want any money for his part, and he believed that Gold would feel the same way. Neither of these individuals were ever paid out of Agency funds.
+initial reaction was to avoid getting involved, but through Maheu's persuasion he agreed to introduce him to a friend, Sam Gold. Roselli made it clear that he would not want any money for his part, and he believed that Gold would feel the same way. Neither of these individuals were ever paid out of Agency funds.
 
 4. During the week of 25 September 1960, Maheu was introduced to Gold at the Fontainebleau Hotel, Miami Beach. During this meeting Maheu also met an individual identified as "Joe" who was supposedly a courier operating between Havana and Miami. Several weeks later Maheu saw photographs of both of these individuals in the Sunday Supplemental Parade. They were identified as Momo Salvatore Giancana and Santos Trafficant. Both were on the list of the Attorney General's ten most wanted men. Giancana was described as the Chicago Chieftan of the Cosa Nostra and successor to Al Capone. Trafficant was identified as the Cosa Nostra boss of Cuban operations. Maheu called this Office immediately upon ascertaining this information.
 

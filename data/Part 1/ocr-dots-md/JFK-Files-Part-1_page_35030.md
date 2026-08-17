@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35030.png
-
-Convert to Markdown# REDISTRIBUTION OF EXPENSES
+# REDISTRIBUTION OF EXPENSES
 
 STATEMENT "IT"
 

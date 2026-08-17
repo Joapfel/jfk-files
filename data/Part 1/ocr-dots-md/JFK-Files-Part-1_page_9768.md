@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9768.png
-
-Convert to Markdown2.
+2.
 
 to send 1/3's 16-year-old son (who was staying with her at the time) around
 to enquire. 1/4 agreed that till she could be beat and indicated that she would

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9879.png
-
-Convert to Markdown# ENVELOPE
+# ENVELOPE
 
 ## EMPTY
 

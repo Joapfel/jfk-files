@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5354.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Memorandum to Mr. W. R. Wannall
 Re: Senstudy 75

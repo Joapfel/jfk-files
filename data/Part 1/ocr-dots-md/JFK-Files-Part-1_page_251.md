@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_251.png
-
-Convert to Markdown16 February 1978
+16 February 1978
 
 SUBJECT: Request for Cuba Desk Crypts by
 House Select Committee on Assassinations

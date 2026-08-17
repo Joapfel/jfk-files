@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28004.png
-
-Convert to MarkdownENTRANCE ON DUTY NOTICE
+ENTRANCE ON DUTY NOTICE
 
 Date 10 September 1951
 

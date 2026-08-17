@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14245.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In response to a query from Dr. Baker, Colonel Steakley acknowledged that our reconnaissance activity gives the Soviets "training" in detection and in the development of countermeasures.
 

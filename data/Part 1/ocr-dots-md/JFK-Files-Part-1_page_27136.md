@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27136.png
-
-Convert to MarkdownCuban Passport No.
+Cuban Passport No.
 Alien Number
 
 01432

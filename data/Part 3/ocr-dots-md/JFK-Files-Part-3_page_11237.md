@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11237.png
-
-Convert to Markdownand providing criminal sanctions for unauthorized disclosures;
+and providing criminal sanctions for unauthorized disclosures;
 
 --establishing effective injunctive recourse, through the Attorney General, for protection of all intelligence sources and methods;
 

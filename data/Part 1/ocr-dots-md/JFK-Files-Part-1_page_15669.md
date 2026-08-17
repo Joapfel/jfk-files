@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15669.png
-
-Convert to MarkdownM. J. A. MOPHUIB
+M. J. A. MOPHUIB
 
 B.P. 1697
 Léopoldville

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28859.png
-
-Convert to MarkdownPAUL A. ZEVNIK
+PAUL A. ZEVNIK
 
 Lionel B-22
 Harvard University

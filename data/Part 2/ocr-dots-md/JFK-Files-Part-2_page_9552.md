@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9552.png
-
-Convert to MarkdownThe
+The
 Palestine
 Revolution
 

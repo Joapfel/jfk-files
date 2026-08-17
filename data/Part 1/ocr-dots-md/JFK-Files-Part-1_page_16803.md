@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16803.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tbody><tr><td colspan="2">DATE : 363<br/>28 NOV 62</td></tr><tr><td>TO : DIRECTOR</td><td rowspan="2" style="vertical-align: top;">SECRET G<sup>h</sup></td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td colspan="2">ACTION: WH 8 (WH NOTIFIED AND COPY SLOTTED AT 1225 28 NOV 62)</td></tr><tr><td>NFO : CI, CI/OPS, FI, S/C 2</td><td></td></tr></tbody></table>
 

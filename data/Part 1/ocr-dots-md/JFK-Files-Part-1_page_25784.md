@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25784.png
-
-Convert to Markdown538 RLG/SW/14
+538 RLG/SW/14
 
 ORIG : C. ZEHRUNG
 UNIT : WH

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6758.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the letter intended for PERRY's father, advised the FBI that he, GOMEZ,
 had attended Boston University during the period PERRY was studying

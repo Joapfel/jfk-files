@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21799.png
-
-Convert to Markdown1. you have any contact with Mr. Sternfeld or Mr. Esterline?
+1. you have any contact with Mr. Sternfeld or Mr. Esterline?
 2. Mr. Sarno. Which period is this?
 3. Mr. Wides. '62 to '65 or so.
 4. Mr. Sarno. Mr. Esterline, who I believe at that time

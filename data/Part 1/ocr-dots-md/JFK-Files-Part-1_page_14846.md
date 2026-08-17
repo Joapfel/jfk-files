@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14846.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG</td><td>George Fill</td></tr><tr><td>UNIT</td><td>SR/DOB</td></tr><tr><td>EXT.</td><td>8331</td></tr><tr><td>DATE</td><td>13 March 1959</td></tr></table>
 

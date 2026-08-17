@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6710.png
-
-Convert to Markdowndocuments increased, a separate file was created to be the repository of information on the alleged American defector. There is a notation in the Defectors File that a separate file exists on Oswald.
+documents increased, a separate file was created to be the repository of information on the alleged American defector. There is a notation in the Defectors File that a separate file exists on Oswald.
 
 9. Both the Defectors File (#0341008) and the file of Lee Harvey Oswald (#0351164) were handled by Marguerite D. Stevens of the OS/Security Research Staff during the pre-assassination time frame. Of the documents listed above, a majority of them contain a notation or the initials of Marguerite D. Stevens, leading one to believe she was the officer responsible for the collection, analysis, and filing of this information.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12604.png
-
-Convert to Markdown9. Periodic verification of addresses
+9. Periodic verification of addresses
 
 a. Data on ADEX cards should be up to date at all times.
 

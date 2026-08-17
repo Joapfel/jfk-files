@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5894.png
-
-Convert to MarkdownDirectorate of Administration
+Directorate of Administration
 
 CIA Information Services Strategic Plan
 

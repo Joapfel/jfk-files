@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9386.png
-
-Convert to Markdown17 July 1950
+17 July 1950
 
 MEMORANDUM FOR MESSRS. LINDSAY
 BAKER

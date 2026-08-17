@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34985.png
-
-Convert to Markdown# CIVIL SECTION HEAD
+# CIVIL SECTION HEAD
 
 SPECIALIST "III"
 Page No. 2

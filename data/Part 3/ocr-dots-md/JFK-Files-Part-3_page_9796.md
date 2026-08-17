@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9796.png
-
-Convert to Markdowninvestigations and could not be viewed in their real significance,
+investigations and could not be viewed in their real significance,
 except as they fit into the overall perspective of the case.
 This is indicative of the danger of using piecemeal intelligence
 taken out of context; properly used, however, intelligence

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24732.png
-
-Convert to MarkdownBissell did not recall being informed by Gottlieb that
+Bissell did not recall being informed by Gottlieb that
 Gottlieb had represented to the Chief of Station that there
 was Presidential authorization for the assassination of Lumumba
 (Bissell, 9/10/75, p. 46). But Bissell said that assuming he

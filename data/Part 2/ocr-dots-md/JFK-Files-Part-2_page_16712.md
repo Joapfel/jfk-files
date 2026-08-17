@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16712.png
-
-Convert to MarkdownSpecimen Q15 consists of four pieces of lead shot identified as Number 8 shot. These were removed from the uppermost shot pattern in the center of the north wall of the front bedroom by Laboratory representatives.
+Specimen Q15 consists of four pieces of lead shot identified as Number 8 shot. These were removed from the uppermost shot pattern in the center of the north wall of the front bedroom by Laboratory representatives.
 
 Specimen Q16 consists of eight pieces of lead shot identified as Number 8 shot. These were removed from the lower shot pattern in the center of the north wall of the front bedroom by Laboratory representatives.
 

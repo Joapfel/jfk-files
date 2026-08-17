@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3899.png
-
-Convert to Markdown# CNTL NO 1019
+# CNTL NO 1019
 ## REQUESTOR STEVENS OFFICE SRS
 
 09JUN67

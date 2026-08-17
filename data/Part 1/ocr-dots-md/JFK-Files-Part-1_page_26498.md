@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26498.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. The attached passports were obtained from a sensitive photo coverage at the airport in Mexico City of passport's of persons arriving on all flights from Havana, Cuba, and Brussels, Belgium. (Many Soviets travel to Mexico via Brussels.) The operation is conducted with the knowledge of a particular office of the Mexican Government but is **not** a liaison.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25532.png
-
-Convert to MarkdownSECRET
+SECRET
 
 12. Regarding the project renewal for FY 1971, as far as LICALLA, LILYRIC, and LIEMPTY-4 are concerned, no changes in procedure are planned. The product is useful, it is as timely as present circumstances permit, and the personnel involved are doing their jobs well. The only change foreseen is an increase in salary for some, if not all, of these agents. The most recent salary increases took effect in May 1968. LIEMPTY-4 has not had an increase since January 1967, and LIEMPTY-13 since January 1964. Increase in cost of living alone would be sufficient justification to raise salaries, but in the case of these agents their consistently excellent work deserves to be rewarded. These salary increases will probably range between 10 and 20 percent.
 

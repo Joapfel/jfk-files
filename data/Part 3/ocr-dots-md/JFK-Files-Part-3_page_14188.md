@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14188.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 (139. 10/3/62 Continued)
 

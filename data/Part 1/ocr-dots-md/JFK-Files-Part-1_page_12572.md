@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12572.png
-
-Convert to Markdown21 November 1969
+21 November 1969
 
 MEMORANDUM FOR: Alien Affairs Staff, Office of Security
 

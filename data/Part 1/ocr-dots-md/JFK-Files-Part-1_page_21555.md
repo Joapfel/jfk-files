@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21555.png
-
-Convert to Markdownand other personnel, and changes of personnel, as well as diagrams
+and other personnel, and changes of personnel, as well as diagrams
 of the offices of the Chief and Deputy Chiefs of the SCD during 1956 -
 1964. This material is internally consistent. Furthermore NOSENKO
 could not possibly have known that this detailed information could not

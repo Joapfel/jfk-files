@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5168.png
-
-Convert to MarkdownOUTGOING -MESSAGE
+OUTGOING -MESSAGE
 
 <table><thead><tr><th>DATE</th><th>CORRESPONDENCE</th><th>TO THE CORRESPONDENT</th><th>TO THE OFFICER</th><th>OFFICE</th></tr></thead><tbody><tr><td>02-08-63</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

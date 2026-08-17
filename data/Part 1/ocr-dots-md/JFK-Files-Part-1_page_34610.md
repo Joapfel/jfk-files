@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34610.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to the effect that Nosenko considers this approach to repre-
 sent blatant and cruel manipulation of his family by the KGB

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12942.png
-
-Convert to Markdown25 October 1965
+25 October 1965
 
 MEMORANDUM
 

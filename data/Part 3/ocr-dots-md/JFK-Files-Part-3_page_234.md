@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_234.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 In November, 1959, information was made available by a source
 to Mr. Theodore A. Jones, President of the Chicago Branch of the National

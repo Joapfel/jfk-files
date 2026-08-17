@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31702.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: C/10
 

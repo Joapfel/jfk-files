@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10368.png
-
-Convert to Markdown5. The investigation of all cases in these categories involving civilians and foreign nationals who are not employees of the other subscribing organizations and with the exception of civilian employees of the Executive Branch of the Government on Kodiak and Afognak Islands adjacent to the Alaska Peninsula and Adak Island in the Aleutian Chain.*
+5. The investigation of all cases in these categories involving civilians and foreign nationals who are not employees of the other subscribing organizations and with the exception of civilian employees of the Executive Branch of the Government on Kodiak and Afognak Islands adjacent to the Alaska Peninsula and Adak Island in the Aleutian Chain.*
 
 6. Informing the other subscribing organizations of any important developments.
 

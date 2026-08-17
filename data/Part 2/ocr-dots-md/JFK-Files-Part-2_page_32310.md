@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32310.png
-
-Convert to MarkdownSECRET
+SECRET
 
 d. Action was commenced in the Colon area to provide means to keep track of ships and boats entering or leaving the Canal Free Zone in order to monitor the movements of those suspected of carrying contraband. Assistance to USCINCSO was provided from the continental United States in carrying out surveys as to equipment required on as secretive a basis as possible, and special optical equipment to include probable night television was approved by the Secretary of the Army for expedited delivery to USCINCSO.
 

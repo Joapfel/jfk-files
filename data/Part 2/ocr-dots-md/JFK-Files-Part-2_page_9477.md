@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9477.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 RODNEY HILL August 13, 1970 Detroit, Michigan Resisting. and Obstructing a Police Officer
 ROBERT SMITH August 13, 1970 Detroit, Michigan " "

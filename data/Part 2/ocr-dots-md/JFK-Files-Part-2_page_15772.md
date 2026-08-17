@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15772.png
-
-Convert to MarkdownMARTY FAYE
+MARTY FAYE
 
 Now I would like to ask you BOBBY, were you
 with the group of Congressmen that were in

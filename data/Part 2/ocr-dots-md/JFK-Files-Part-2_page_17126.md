@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17126.png
-
-Convert to Markdownto have received a fee of $1,000 from the Malcolm X Campus Bookstore which is run by students of the College. This speech occurred on October 27, 1969.
+to have received a fee of $1,000 from the Malcolm X Campus Bookstore which is run by students of the College. This speech occurred on October 27, 1969.
 
 10/27/69)
 

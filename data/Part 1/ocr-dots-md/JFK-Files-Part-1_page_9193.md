@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9193.png
-
-Convert to MarkdownSECRET
+SECRET
 
 file "STALIN" PHOTO-BOOK
 MUNSON & SINS, SMITH, LOEBs at MR'S hotel 16 April 1953

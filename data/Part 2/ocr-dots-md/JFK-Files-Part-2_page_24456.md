@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24456.png
-
-Convert to Markdownwas that was in it, and I just don't know.
+was that was in it, and I just don't know.
 I have no reason to impugn his integrity.
 On the other hand, I don't understand how
 it was he didn't hear about some of these

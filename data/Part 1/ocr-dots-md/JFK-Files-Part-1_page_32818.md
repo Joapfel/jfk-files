@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32818.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CABLE SECRETARY'S DISSEMINATION</th><th>ASSIGNED MESSAGE</th><th>G TOTAL COPIES</th><th>RECEIVING AND/OR DISTRIBUING COPIES</th></tr></thead><tbody><tr><td colspan="5">PERSONAL UNIFIED NOTIFICATION</td></tr><tr><td colspan="2">ADVANCE COPY ☑</td><td colspan="3"><input type="checkbox" checked disabled/> ISSUED <input type="checkbox" disabled/> SLIPPED</td></tr><tr><td>BY</td><td>B</td><td>AT</td><td>2/10</td><td>2</td></tr><tr><td>DISSENT BY</td><td>32</td><td>PER SB. 1.90</td><td></td><td></td></tr><tr><td>ACTION</td><td>C/SBS</td><td>(E) (L) (W)</td><td>AD, ADD, C W/H 2, C W/H 406-2, "EYES ONLY"</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CABLE SECRETARY'S DISSEMINATION</th><th>ASSIGNED MESSAGE</th><th>G TOTAL COPIES</th><th>RECEIVING AND/OR DISTRIBUING COPIES</th></tr></thead><tbody><tr><td colspan="5">PERSONAL UNIFIED NOTIFICATION</td></tr><tr><td colspan="2">ADVANCE COPY ☑</td><td colspan="3"><input type="checkbox" checked disabled/> ISSUED <input type="checkbox" disabled/> SLIPPED</td></tr><tr><td>BY</td><td>B</td><td>AT</td><td>2/10</td><td>2</td></tr><tr><td>DISSENT BY</td><td>32</td><td>PER SB. 1.90</td><td></td><td></td></tr><tr><td>ACTION</td><td>C/SBS</td><td>(E) (L) (W)</td><td>AD, ADD, C W/H 2, C W/H 406-2, "EYES ONLY"</td><td></td></tr></tbody></table>
 
 BUEN
 

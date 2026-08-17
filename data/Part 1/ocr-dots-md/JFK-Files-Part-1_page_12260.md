@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12260.png
-
-Convert to MarkdownSECRET TELEPOUCH
+SECRET TELEPOUCH
 RYBAT
 
 DISP NO : JFPA-4535

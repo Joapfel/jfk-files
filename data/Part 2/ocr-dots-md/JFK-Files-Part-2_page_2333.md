@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2333.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="3">SECTION M.</th></tr><tr><th>FUTURE PLANS</th><td></td><td></td></tr></thead><tbody><tr><td>1. TRAINING ON OTHER DEVELOPMENTAL EXPERIENCE PLANNED FOR THE INDIVIDUAL<br/>None at present</td><td></td><td></td></tr><tr><td>2. NOTE OTHER FACTORS, INCLUDING PERSONAL CIRCUMSTANCES, TO BE TAKEN INTO ACCOUNT IN INDIVIDUAL'S FUTURE ASSIGNMENTS<br/>No unusual factors</td><td></td><td></td></tr></tbody></table>
 

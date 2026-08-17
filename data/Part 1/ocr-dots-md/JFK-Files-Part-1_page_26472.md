@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26472.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 IN 47784 PAGE 4
 

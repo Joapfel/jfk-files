@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27024.png
-
-Convert to MarkdownJune 26, 1975
+June 26, 1975
 
 10. Have governmental officials outside the CIA sought and obtained the CIA's assistance for political purposes or personal advantage? To what extent have private organizations or individuals enjoyed special treatment or influence because of their involvement with CIA activities or their knowledge of such activities? What measures have been or should be taken to ensure that the CIA is not misused in such ways?
 

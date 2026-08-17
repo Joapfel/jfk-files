@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25057.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 your experience in the State Department and the Treasury
 Department, and also your recent service on the Rockefeller

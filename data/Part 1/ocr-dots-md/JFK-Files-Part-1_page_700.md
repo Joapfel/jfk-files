@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_700.png
-
-Convert to Markdown19 August 1957
+19 August 1957
 
 Washington
 

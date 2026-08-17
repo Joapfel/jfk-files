@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12057.png
-
-Convert to Markdown[
+[
 
 4. [Recording investigative activity]
 

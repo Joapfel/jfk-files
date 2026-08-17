@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_920.png
-
-Convert to Markdown# The Deputy Attorney General
+# The Deputy Attorney General
 
 conduct the fact-finding investigations necessary to sustain successful prosecutions. The creation of this "detective" force by Congress aimed to fill that void.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_319.png
-
-Convert to MarkdownAPPENDIX CONTINUED
+APPENDIX CONTINUED
 
 The first source above advised that KARENGA
 also stated that race riots throughout the country

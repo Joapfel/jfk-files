@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19803.png
-
-Convert to MarkdownIP 100-24006
+IP 100-24006
 
 PAGE TWO.
 

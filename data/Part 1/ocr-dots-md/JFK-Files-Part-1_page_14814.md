@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14814.png
-
-Convert to MarkdownWinston was a punitive from July 2, 1934, following his failure to appear after being convicted of violation of the Smith Act. Until his surrender to authorities on March 5, 1936.
+Winston was a punitive from July 2, 1934, following his failure to appear after being convicted of violation of the Smith Act. Until his surrender to authorities on March 5, 1936.
 
 In August 1940 Winston was elected for the CPUSA's National Executive Committee and was made CPUS Vice Chairman. On his return to the United States in February, 1944, after two and a half year abroad, Winston was elected a member of the Secretariat and the National Executive Board. At the 18th National Convention of the CPUSA in June, 1966, he was elected CPUSA National Chairman.
 

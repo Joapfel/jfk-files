@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28232.png
-
-Convert to MarkdownSECRET
+SECRET
 
 with your cover designation, will normally be at the direction of the Foreign Service. Such travel will be accomplished in conformance with applicable regulations of the Foreign Service except when you are directed for operational reasons to perform travel in accordance with CIA regulations.
 

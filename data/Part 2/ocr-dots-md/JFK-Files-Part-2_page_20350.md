@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20350.png
-
-Convert to MarkdownMemorandum to Mr. W.C. Sullivan
+Memorandum to Mr. W.C. Sullivan
 RE: JEANNETTE RANKIN BRIGADE
 
 This petition was read to the demonstrators assembled at Union Square by Swedish film actress, Viveca Lindfors.

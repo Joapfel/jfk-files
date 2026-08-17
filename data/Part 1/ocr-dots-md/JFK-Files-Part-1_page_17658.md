@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17658.png
-
-Convert to MarkdownThe following reports are cited as examples of this type of information:
+The following reports are cited as examples of this type of information:
 
 *   May 1896, dated 23 September 1956, "Czech Legion Personnel."
 

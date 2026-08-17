@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26163.png
-
-Convert to Markdownso on and he promised to look into their
+so on and he promised to look into their
 cases immediately and do something about
 it. And I said, "I've gotten this from
 people who are in the opposition to you, but I

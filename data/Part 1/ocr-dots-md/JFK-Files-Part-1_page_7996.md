@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7996.png
-
-Convert to MarkdownFIELD INFORMATION REPORT
+FIELD INFORMATION REPORT
 
 COUNTRY: Cuba
 SUBJECT: Felipe Antonio Coello

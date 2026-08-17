@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7323.png
-
-Convert to Markdown## II. THE AMBASSADOR AT THE EMBASSY VISITED WILL BE IN CHARGE OF THE VISIT.
+## II. THE AMBASSADOR AT THE EMBASSY VISITED WILL BE IN CHARGE OF THE VISIT.
 
 All arrangements and contacts will be made by him, and because of his knowledge of local situations, his advice will be binding.
 

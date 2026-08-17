@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21443.png
-
-Convert to Markdown<table><tr><td>FORM<br/>1 DEC 96</td><td>610</td></tr></table>
+<table><tr><td>FORM<br/>1 DEC 96</td><td>610</td></tr></table>
 
 USE PREVIOUS EDITIONS
 

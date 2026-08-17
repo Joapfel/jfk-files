@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19674.png
-
-Convert to MarkdownCI 100-20519
+CI 100-20519
 
 1971 Ohio license plate J3862 is registered
 to the Colonial Stores, Incorporated, 1033 Brentnell

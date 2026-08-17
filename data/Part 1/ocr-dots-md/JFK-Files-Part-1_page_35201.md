@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35201.png
-
-Convert to MarkdownFrente Revolucionario Democratico
+Frente Revolucionario Democratico
 Miami- Florida.-
 
 Distinguidos Cubanos:

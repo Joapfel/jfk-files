@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10729.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA INTERNS, USE ONLY
 

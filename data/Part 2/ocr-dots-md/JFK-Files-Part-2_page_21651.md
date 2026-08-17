@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21651.png
-
-Convert to Markdownthat moment began cooperating with the Chief of Station. I don't recall any instance where there was any indication of hesitancy on his part about doing what he was doing.
+that moment began cooperating with the Chief of Station. I don't recall any instance where there was any indication of hesitancy on his part about doing what he was doing.
 
 And I certainly can't comment about General Bennett's side, not having been involved with him.
 

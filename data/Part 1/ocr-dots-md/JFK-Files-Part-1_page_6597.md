@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6597.png
-
-Convert to MarkdownESE NRS 17-18 ROUTINE 162044Z
+ESE NRS 17-18 ROUTINE 162044Z
 
 SEC 346
 

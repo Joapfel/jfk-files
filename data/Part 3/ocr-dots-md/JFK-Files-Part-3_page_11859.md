@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11859.png
-
-Convert to Markdownexpended before the termination of a six-month development period thus requiring additional paper work in the field and resultant supervisory work at the Bureau.
+expended before the termination of a six-month development period thus requiring additional paper work in the field and resultant supervisory work at the Bureau.
 
 It is extremely difficult to draw meaningful conclusions concerning any savings between payments under SAC authority and costs accrued under delayed SOG approval of payments on a regular basis. The informant while operating under SAC authority is in a developmental stage. It can be expected that at any given point in his development whether he continues on SAC authority or is approved for regular payments, expenditures to him will increase. It is the natural and practical order of informant development.
 

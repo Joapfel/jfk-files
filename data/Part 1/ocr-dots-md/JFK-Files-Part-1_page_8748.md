@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8748.png
-
-Convert to MarkdownSECRET
+SECRET
 
 GROUP I
 DEPARTMENT OFFICE

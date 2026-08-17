@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10450.png
-
-Convert to Markdown10. Coo's opinion of Manton is shown in his "Recollections of an Officer," vol. II, pp. 36-37. He states that he was a passenger on board the steamer, but claims to have been a passenger in the ship which took him to Hawaii. It is possible that he was a passenger on one of the two ships which arrived at Hawaii and left the other, but this cannot be determined from the statements of the passengers on board the steamer. In any event, Coo's statement as to his being a passenger on the steamer is not credible.
+10. Coo's opinion of Manton is shown in his "Recollections of an Officer," vol. II, pp. 36-37. He states that he was a passenger on board the steamer, but claims to have been a passenger in the ship which took him to Hawaii. It is possible that he was a passenger on one of the two ships which arrived at Hawaii and left the other, but this cannot be determined from the statements of the passengers on board the steamer. In any event, Coo's statement as to his being a passenger on the steamer is not credible.
 11. Mr. F. W. Sumner, in his address to the members of the House of Representatives of Hawaii, November 8, 1925, says:
 > The great bulk of our people are laborers. They work for the benefit of their employers, who are the employers of the employers.
 > 

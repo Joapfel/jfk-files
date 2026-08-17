@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8277.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, Athens
 

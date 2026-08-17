@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34017.png
-
-Convert to MarkdownSECRET TELEPOUCH
+SECRET TELEPOUCH
 
 DISP NO - FCOT-13169
 FILE NO - NONE

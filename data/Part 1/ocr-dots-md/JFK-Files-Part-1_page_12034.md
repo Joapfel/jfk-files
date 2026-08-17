@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12034.png
-
-Convert to MarkdownFORM NO.
+FORM NO.
 OCT 1989 .15-8
 
 INCOMING CLASSIFIED MESSAGE

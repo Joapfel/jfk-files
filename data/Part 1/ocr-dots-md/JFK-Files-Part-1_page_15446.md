@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15446.png
-
-Convert to Markdown14-0005
+14-0005
 
 <table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE: 18 MAY 62</td><td><table><tr><td>ROUTING</td><td></td></tr><tr><td>1</td><td>~~2~~ 3</td></tr><tr><td>2</td><td></td></tr><tr><td>3</td><td></td></tr></table></td></tr><tr><td>TO: DIRECTOR</td><td rowspan="3">MAY 18 1963 62<br/>ACTION: C/TSD 4 (AF CABLE DESK AND TSD NOTIFIED AND COPY SLOTTED 1255, 18 MAY)<br/>INFO: AODP, C/CI, C/FI 2, C/AF 3, C/EE 3, S/C 2</td></tr><tr><td>FROM: FRANKFURT</td></tr><tr><td></td></tr><tr><td></td><td>OPERATIONAL IMMEDIATE</td></tr><tr><td></td><td>IN 37347</td></tr><tr><td colspan="2"><div style="text-align:center;">LISITENET</div><div>per CSH 43-43</div></td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3037.png
-
-Convert to MarkdownA. and C. try to convince each other on the pro and con of renting a dinner jacket.
+A. and C. try to convince each other on the pro and con of renting a dinner jacket.
 
 C. expresses his indignation about the situation and tells of his conversation with the Ambassador about a dinner jacket when they were due to attend a function: "I told him... if I find a dinner jacket... So, you will go ((alone)). You have one. But he asked me, 'But why don't you have one?' I said, 'Yurly Ivanovich, you yourself know why I don't have one.' He shut up..." Later, B. agrees, "You should have your own ((dinner jacket)).
 

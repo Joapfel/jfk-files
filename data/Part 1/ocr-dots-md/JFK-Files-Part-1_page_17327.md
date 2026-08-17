@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17327.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br>DISPATCH</td><td></td><td>SECRET</td><td>HIMMLA-22005</td></tr></table>
+<table><tr><td>CONTINUATION OF<br>DISPATCH</td><td></td><td>SECRET</td><td>HIMMLA-22005</td></tr></table>
 
 Other leads appear in the full transcripts or daily resumen. They also are exploited by the Station case officer responsible for the target where the lead appears. For example, on 12 August 1963 Boris KAZANTSEV, recently arrived Counselor of the Soviet Embassy and former defection target in Mexico, called his wife at their residence. The number was not listed but was immediately checked by Raymond GERENDE who determined that the number was the switchboard of the apartment house where KAZANTSEV and several other families live. The reason the Station checked out this number was to put unilateral coverage on it if possible; however, the switchboard was beyond the Station's capability to handle.
 

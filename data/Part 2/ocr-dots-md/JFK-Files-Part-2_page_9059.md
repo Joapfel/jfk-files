@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9059.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (2) Mail Coverage. Another much needed intelli-gence tool is mail coverage. Its importance has been proven in the past. I have the impression that it has been discontinued, and I would suggest that our represen-tatives should confer and examine together whether this asset might be deployed against communications of the Soviet Block, the New Left, and identified foreign agents.
 

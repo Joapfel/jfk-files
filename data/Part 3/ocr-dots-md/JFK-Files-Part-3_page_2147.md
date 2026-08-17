@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2147.png
-
-Convert to MarkdownROBERT W. EDGAR, PA.
+ROBERT W. EDGAR, PA.
 
 (202) 225-4624
 

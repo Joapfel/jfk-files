@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9970.png
-
-Convert to MarkdownUnited States Department of Justice
+United States Department of Justice
 Federal Bureau of Investigation
 Washington 25, D. C.
 

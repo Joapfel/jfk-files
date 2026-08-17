@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14167.png
-
-Convert to Markdown(75. 8/31/62 Continued)
+(75. 8/31/62 Continued)
 
 "troops. Troops is what I mean, and not technicians. They were wearing Soviet fatigue uniforms,
 

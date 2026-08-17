@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3197.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 meeting with President Eisenhower, on 28 December,
 the minutes of the Special Group Meeting of 29 De-

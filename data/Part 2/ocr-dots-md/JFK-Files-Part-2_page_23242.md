@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23242.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Consequently we conclude that his removal must be an
 urgent and prime objective and that under existing condis:

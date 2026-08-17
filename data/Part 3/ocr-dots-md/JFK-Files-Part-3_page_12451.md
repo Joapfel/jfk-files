@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12451.png
-
-Convert to MarkdownUNITED STATES
+UNITED STATES
 ERNMENT
 
 Memorandum

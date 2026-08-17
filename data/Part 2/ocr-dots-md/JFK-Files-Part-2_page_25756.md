@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25756.png
-
-Convert to MarkdownII. After having established the appropriate basis for such action, invade Cuba.
+II. After having established the appropriate basis for such action, invade Cuba.
 
 **Advantages**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14383.png
-
-Convert to MarkdownReport No.319(continued)
+Report No.319(continued)
 
 On the other hand, on this same date I received word from our Consul in Barcelona advising that he has observed a minimum of interest in the industrial circles with which we trade. This would make it appear that a problem exists at a high level between the Government of Cuba and the Government of Spain, which is holding back trade with our country. Specifically, some industrialists have advised our representative that the Ministry of Commerce has spread the word that until certain talks are held between the two governments authorization of permission of import with destination Cuba have been suspended.
 

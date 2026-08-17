@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18165.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 161803Z CITE MEXICO CITY 7641 EN 390 26 16 Jan 66
 

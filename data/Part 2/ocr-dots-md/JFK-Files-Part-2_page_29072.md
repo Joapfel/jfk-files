@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29072.png
-
-Convert to Markdown**Part III**
+**Part III**
 
 Computation of Social Security Self-Employment Tax
 

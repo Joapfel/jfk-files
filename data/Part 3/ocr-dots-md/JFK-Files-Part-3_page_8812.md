@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8812.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 4. Subject has taken advantage of this offer to take several trips for sightseeing into forbidden areas around Moscow in a private car with the Soviet Official, and has also taken up a few offers for entertainment. Subject visited one of these villas, but refused the girls on the ground that he wants a woman to like him for himself, and not because she has been told to do so. The Soviet answered that "some of them will really learn to like you for yourself, as well as work for us," but Subject still declined to get involved. However, Subject has recently been taken up by a Soviet girl who had previously tried to seduce another American student and subsequently blurted out that she was put onto the latter American by the MVD, which she has also told Subject. Subject is reported to be responding warmly to her approaches although he has flatly told her he doesn't trust her nor any Russian completely. He claims he enjoys her company but will not have a serious affair with her, and suspects she may be tied up with the other women offered him by the Soviet Official.
 

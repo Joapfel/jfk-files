@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1795.png
-
-Convert to MarkdownSECRET
+SECRET
 
 contacts with domestic organizations in the United States such as business and foundations. This would involve the transfer to this Domestic Division of the Air Proprietaries Branch of DPD, and of the responsibility for the management of CAT from the DD/S, and of managing Fairways Corporation. In consolidating CAT and Fairways into the Air Proprietaries Branch we wish to draw attention to the necessity of having the right man to head this branch.
 

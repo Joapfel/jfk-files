@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5230.png
-
-Convert to MarkdownS-E-C-R-E-T NO FOREIGN DISSEM
+S-E-C-R-E-T NO FOREIGN DISSEM
 
 (classification) (dissipative)
 

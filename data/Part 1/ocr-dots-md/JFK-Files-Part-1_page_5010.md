@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5010.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th colspan="4">11-1</th></tr><tr><th>DATE</th><th>TO</th><th>MESSAGE</th><th>RECIPIENT</th></tr></thead><tbody><tr><td>07F</td><td>0</td><td>SECRET</td><td></td></tr><tr><td></td><td></td><td>STAFF</td><td></td></tr><tr><td></td><td></td><td>CONF. CAE</td><td>DIRECTOR</td></tr><tr><td></td><td></td><td>INFO: FILE C./A.</td><td></td></tr><tr><td></td><td></td><td>DATE-TO-SFROM 151907Z</td><td></td></tr><tr><td></td><td></td><td>TO: IMMEDIATE GEORGETOWN INFO SANTO DOMINGO.Y</td><td></td></tr><tr><td></td><td></td><td>UNINTEL KNSTONE Y</td><td></td></tr><tr><td></td><td></td><td>REF: A. DIRECTOR 910267*</td><td></td></tr><tr><td></td><td></td><td>B. GEORGETOWN 21275 IN 06/247 |** Y</td><td></td></tr><tr><td></td><td></td><td>1. PERMISSION GRANTED TO PASS INFO CONTAINED IN SANTO DOMINGO 17682, PARAGRAPH TWO, TO CHARGE FOR FOREIGN MINISTER WILLBS.-Y</td><td></td></tr><tr><td></td><td></td><td>2. FILE: 203-299292. E2 IMPDET.H</td><td></td></tr><tr><td></td><td></td><td>*REF STATED THAT NICARAGUA LIAISON - REPORTED BOSCH AND CASTRO WERE IN NICARAGUA AND THIS COULD BE PASSED TO GOG VIA CHARGE. IF NO OBJECTION RECEIVED FROM MANAGUA STATION {NO OBJECTION RECEIVED}.</td><td></td></tr><tr><td></td><td></td><td>**REF REQUESTED PERMISSION PASS INFO THAT BOSCH WAS DEPORTED BY DOMINICAN GOVT ON 29 AUG AND IS CURRENTLY IN MANAGUA. FRANK CASTRO TRAVELLED ON SAME FLIGHT AS BOSCH.</td><td></td></tr></tbody></table>
 

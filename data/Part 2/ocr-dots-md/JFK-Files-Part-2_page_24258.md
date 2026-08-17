@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24258.png
-
-Convert to Markdownnegotiation, had it not been subject to the exemption. "So the question was what to do about it. And finally, we made a voluntary repayment against part of the profit on that contract to the Air Force."
+negotiation, had it not been subject to the exemption. "So the question was what to do about it. And finally, we made a voluntary repayment against part of the profit on that contract to the Air Force."
 
 As noted previously, the commercial airline aspect of the operation was not making a profit and in fact operated mostly at a loss. Indeed, there were periods of time when the C-46's and C-47's cargo carriers were very busy on either CIA contracts, the Korean War, Diem Bien Phu, and other paramilitary aspects. There would be periods in between these activities when there was nothing for the airlines to do. Nonetheless, the airline was still saddled with expenses such as crews' salaries and maintenance of the aircraft which sat on the ground.
 

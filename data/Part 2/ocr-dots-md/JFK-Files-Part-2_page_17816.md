@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17816.png
-
-Convert to Markdown--cooperation in research and development of technical collection and information processing equipment, methods and techniques;
+--cooperation in research and development of technical collection and information processing equipment, methods and techniques;
 
 --loan or supply of equipment, methods and techniques;
 

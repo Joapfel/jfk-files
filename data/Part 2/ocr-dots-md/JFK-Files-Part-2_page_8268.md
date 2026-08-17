@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8268.png
-
-Convert to MarkdownATHE 4824 (IN 30224), 22.3.51
+ATHE 4824 (IN 30224), 22.3.51
 
 ATHE 5150 (IN 36130), 30.4.51
 

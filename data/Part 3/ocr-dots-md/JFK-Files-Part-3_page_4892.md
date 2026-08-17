@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4892.png
-
-Convert to Markdown# Marital Status
+# Marital Status
 
 A review of the records of the Passport Office, State Department, First National Bank Building, Miami, Florida, on September 2, 1959, revealed that on December 26, 1936, ROTHMAN married ETHEL HURWITZ
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3923.png
-
-Convert to MarkdownLA 66-6243
+LA 66-6243
 
 because, according to ADAMS, he completely refuted these statements in that we did disseminate the contemplated plans of violence to the Birmingham Police Department and to the Department of Justice in the form of a letterhead memorandum.
 

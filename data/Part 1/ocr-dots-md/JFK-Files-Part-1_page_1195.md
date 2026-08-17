@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1195.png
-
-Convert to MarkdownThis memorandum appears to contain mostly FBI material (third agency rule prohibition). If clearance is obtained, please delete the first paragraph under sources and methods protection.
+This memorandum appears to contain mostly FBI material (third agency rule prohibition). If clearance is obtained, please delete the first paragraph under sources and methods protection.
 
 4. From ROTHMAN file:
 

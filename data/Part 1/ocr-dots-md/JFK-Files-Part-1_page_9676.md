@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9676.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td style="border: 1px solid black;"><table><tbody><tr><td style="border: none; padding-bottom: 2px;">A red square with an exclamation mark in the top left corner</td><td style="border: none; padding-bottom: 2px;">The SECRET logo</td></tr></tbody></table></td></tr></table>
 

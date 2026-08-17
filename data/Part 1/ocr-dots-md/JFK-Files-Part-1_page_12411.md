@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12411.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td rowspan="2">103 S. W. 50th Avenue</td>

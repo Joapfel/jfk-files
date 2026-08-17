@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2591.png
-
-Convert to Markdown2. All memoranda and other materials contained in the "Official and Confidential" files pertaining to internal security, intelligence collection, and/or counterintelligence matters, operations, or activities, including, but not limited to, the following documents mentioned by the Attorney General:
+2. All memoranda and other materials contained in the "Official and Confidential" files pertaining to internal security, intelligence collection, and/or counterintelligence matters, operations, or activities, including, but not limited to, the following documents mentioned by the Attorney General:
 
 a. "Policy Matters" -- "Presidential directives regarding the role of the FBI in the security field; conversations between Mr. Hoover and a President-elect regarding the role of the FBI in his forthcoming Administration; letters to and from the White House regarding expansion of FBI legal attache posts abroad".
 

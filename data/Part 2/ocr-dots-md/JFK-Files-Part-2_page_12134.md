@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12134.png
-
-Convert to Markdown(1) Correct, full name
+(1) Correct, full name
 
 (2) All aliases, code names, and symbol numbers
 

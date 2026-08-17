@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15426.png
-
-Convert to MarkdownB.P. 2949
+B.P. 2949
 Leopoldville,
 Republic of the Congo
 

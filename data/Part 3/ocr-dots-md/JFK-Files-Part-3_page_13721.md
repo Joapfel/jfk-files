@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13721.png
-
-Convert to Markdown410 First Street, S.E., Washington, D.C. 20003
+410 First Street, S.E., Washington, D.C. 20003
 
 7600010081C4A7F
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26514.png
-
-Convert to MarkdownSECRET
+SECRET
 
 something effective by way of a revolu-
 tionary movement in your homeland, if your

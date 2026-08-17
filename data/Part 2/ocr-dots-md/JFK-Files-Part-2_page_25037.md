@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25037.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 from any bad publicity in connection with this or any other
 similar thing.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6016.png
-
-Convert to MarkdownSALARY - 1-30 September, 1962
+SALARY - 1-30 September, 1962
 
 DEPE:DA:NTS ALLOWANCES:
 

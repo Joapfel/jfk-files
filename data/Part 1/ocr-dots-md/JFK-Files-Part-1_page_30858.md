@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30858.png
-
-Convert to MarkdownBoston, D.C.
+Boston, D.C.
 
 31 July, 1970
 

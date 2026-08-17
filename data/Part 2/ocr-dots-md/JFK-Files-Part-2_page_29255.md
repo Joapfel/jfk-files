@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29255.png
-
-Convert to MarkdownSergy Alexandrovech Uslov Interview
+Sergy Alexandrovech Uslov Interview
 
 It is surmised that as Golovachev became
 garrulous while drinking, the KGB discovered that he was

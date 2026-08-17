@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16158.png
-
-Convert to MarkdownREPORT
+REPORT
 of the
 
 NBS

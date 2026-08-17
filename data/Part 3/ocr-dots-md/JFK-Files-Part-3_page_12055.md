@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12055.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 report pertinent information concerning observation of the vehicle to WFO by routing slip for compilation and determination of suspicious patterns which should be resolved through concentrated surveillance coverage on the basis of available information (again the basic COKMA philosophy). This is being used on a trial basis in WFO to test its productivity and value. If found to be of assistance, consideration will be given to implementing in New York Office; however, in this instance again, the program is designed to exploit conditions prevelant in Washington, D. C., rather than New York where Bureau personnel do not reside in same general area as Soviets and therefore, might not be expected to produce positive results. Means of transportation available in both areas, previously mentioned, was also considered.
 

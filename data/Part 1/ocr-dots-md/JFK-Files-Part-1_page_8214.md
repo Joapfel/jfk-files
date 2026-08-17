@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8214.png
-
-Convert to MarkdownMEMORANDUM OF AGREEMENT
+MEMORANDUM OF AGREEMENT
 
 1. I am aware of the fact that the Central Intelligence Agency, by reason of the sensitive nature of its work, must observe very strict security measures.
 

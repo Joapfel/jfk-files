@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13286.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td rowspan="2">CABLE SECRETARY DISPOSITION</td><td>☐ DELETE</td><td>☐ DESTROY</td><td>☐ RETURN TO __________</td><td>☐ FILE DE</td></tr><tr><td>BY [__] PSE [__]</td><td colspan="3"></td></tr><tr><td>CORR</td><td colspan="2">☐ RID COPY</td><td>CONFIDENTIALITY</td><td>[__]</td></tr></table>
 

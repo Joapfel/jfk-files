@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6070.png
-
-Convert to MarkdownPOR QUANTO — Com a data de 13 de março de 192, ficou devidamente constituída a Junta Nacional para a Distribuição dos Gêneros.
+POR QUANTO — Com a data de 13 de março de 192, ficou devidamente constituída a Junta Nacional para a Distribuição dos Gêneros.
 
 POR QUANTO — Cumpre por execução a lei n.º 1015, no que diz respeito à melhor distribuição do alastecimento.
 

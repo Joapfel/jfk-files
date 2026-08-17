@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18460.png
-
-Convert to MarkdownSECRET
+SECRET
 
 '12 JUN 1963
 

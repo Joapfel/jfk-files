@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7531.png
-
-Convert to MarkdownPg. 75 - McDonald showed photo of Saul to man. Man asked if McDonald's interest had to do with murder of Pres. in 1963. McDonald said no, he wanted to talk to him (Saul) on business.
+Pg. 75 - McDonald showed photo of Saul to man. Man asked if McDonald's interest had to do with murder of Pres. in 1963. McDonald said no, he wanted to talk to him (Saul) on business.
 
 Pg. 76 - By now McDonald was sure that "Saul" was reasonably well-known in highly specialized MOSKALEV is known in international circles on the European continent/circles as scientist.
 

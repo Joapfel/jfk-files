@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25290.png
-
-Convert to MarkdownU.S.News
+U.S.News
 &WORLD REPORT®
 
 THE UNITED STATES NEWS ®

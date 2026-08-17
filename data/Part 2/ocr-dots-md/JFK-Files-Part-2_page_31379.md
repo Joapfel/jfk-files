@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31379.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 1 each Assault Rifle (AK-47) (ChiCom), S/N 12045
 

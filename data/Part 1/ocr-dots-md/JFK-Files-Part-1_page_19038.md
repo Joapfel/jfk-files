@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19038.png
-
-Convert to MarkdownSECRET
+SECRET
 
 THE NATIONAL DEMOCRATIC PARTY IN WEST GERMANY
 

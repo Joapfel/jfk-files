@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21709.png
-
-Convert to Markdownthe previous summary that the travel of NOSENKO to Cuba in 1960 damaged his claim that he was supervising operations against Embassy code clerks at the time. To accept the validity of this judgment is to say that no supervisor in the SCD would be permitted to make a trip abroad unrelated to his supervisory function, a judgment for which there is no supporting evidence.
+the previous summary that the travel of NOSENKO to Cuba in 1960 damaged his claim that he was supervising operations against Embassy code clerks at the time. To accept the validity of this judgment is to say that no supervisor in the SCD would be permitted to make a trip abroad unrelated to his supervisory function, a judgment for which there is no supporting evidence.
 
 As regards the trip of NOSENKO to Bulgaria in 1961, for which there is no collateral information, the previous summary concluded that his account of the trip was untrue and argued that such a trip to Bulgaria, if it did take place, at a time when he claimed the operation against [STORSBERG] was reaching a climax and his subordinates were "apparently planning to exploit [KEYSERS] newly-discovered vulnerability," it would indicate that the presence of NOSENKO in Moscow was dispensable. There was, however, no evidence that NOSENKO did not travel to Bulgaria and only highly speculative reasoning as to why his account of the purpose of the trip was untrue.
 

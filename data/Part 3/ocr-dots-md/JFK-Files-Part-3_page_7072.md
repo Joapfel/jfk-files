@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7072.png
-
-Convert to MarkdownSeptember 10, 1953.
+September 10, 1953.
 
 Strictly Confidential
 

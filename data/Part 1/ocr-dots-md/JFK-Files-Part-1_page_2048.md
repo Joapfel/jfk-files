@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2048.png
-
-Convert to MarkdownEru:
+Eru:
 Geoагадає called & requested alia as C/IA credentia
 SWENSON
 Harald F. Kjeldsen

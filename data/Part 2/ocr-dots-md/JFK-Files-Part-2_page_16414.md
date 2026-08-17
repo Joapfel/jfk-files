@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16414.png
-
-Convert to MarkdownWe are advocates of the abolition of war, we do not want war; but war can only be abolished through war, and in order to get rid of the gun it is necessary to take up the gun.
+We are advocates of the abolition of war, we do not want war; but war can only be abolished through war, and in order to get rid of the gun it is necessary to take up the gun.
 
 MAO TSE-TUNG
 

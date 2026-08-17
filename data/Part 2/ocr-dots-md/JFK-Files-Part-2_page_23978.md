@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23978.png
-
-Convert to Markdownnot be effective unless an early enough start is made. On March 25, 1970, the 40 Committee approved a joint Embassy/CIA proposal recommending that "spoiling" operations--propaganda and other activities--be undertaken by the CIA in an effort to prevent an election victory by Allende's Popular Unity (UP) Coalition. A total of $135,000 was authorized by the 40 Committee for this anti-Allende activity. On June 18, 1970, the U.S. Ambassador to Chile, Edward Korry, submitted a two-phase proposal to the Department of State and the CIA for review.
+not be effective unless an early enough start is made. On March 25, 1970, the 40 Committee approved a joint Embassy/CIA proposal recommending that "spoiling" operations--propaganda and other activities--be undertaken by the CIA in an effort to prevent an election victory by Allende's Popular Unity (UP) Coalition. A total of $135,000 was authorized by the 40 Committee for this anti-Allende activity. On June 18, 1970, the U.S. Ambassador to Chile, Edward Korry, submitted a two-phase proposal to the Department of State and the CIA for review.
 
 The first phase involved an increase in support to the anti-Allende campaign. The second was a contingency plan to make "a $500,000 effort in Congress to persuade certain shifts in voting on 24 October 1970."
 

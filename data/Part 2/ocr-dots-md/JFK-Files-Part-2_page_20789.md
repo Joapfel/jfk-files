@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20789.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 SWP and YSA. These women attach more importance to their political movement than to the Women's Liberation Movement. And when 77% of the women in this country are for reform of abortion laws, there is fertile soil for a political party to build itself on. The SWP/YSA realizes this and is taking advantage of it."
 

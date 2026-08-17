@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25637.png
-
-Convert to MarkdownDeLoach to Mohr 12-12-63
+DeLoach to Mohr 12-12-63
 Re: Assassination of the President
 
 I told Ford in strict confidence that the Director concurred with his viewpoint. I mentioned that our investigation thus far had conclusively shown that Oswald operated by himself and that Ruby additionally was a loner. However, FBI investigation was still pending on a large number of rumors, speculation and gossip and it, therefore, would be quite unfair for the Commission to take a stand prior to all the evidence being turned in. Ford stated this was his point entirely and that although he was a minority of one he intended to stick to his point.

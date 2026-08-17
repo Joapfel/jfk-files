@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27347.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Countorespionage Problems:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25443.png
-
-Convert to MarkdownSECRET
+SECRET
 
 has a list of large companies to be targeted in this area (probably the All Points Bulletin I received 10 days ago which listed four companies).
 

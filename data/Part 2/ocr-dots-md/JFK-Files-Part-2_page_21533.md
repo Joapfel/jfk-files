@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21533.png
-
-Convert to Markdown1 of operational philosophy which I expressed to Gottlieb, that
+1 of operational philosophy which I expressed to Gottlieb, that
 2 the question then came in pure theory as to -- as in such cases
 3 as, now assumptions, the example of 3 wrong, I am not really
 4 sure. But the closest that I can come is that the assumptions --

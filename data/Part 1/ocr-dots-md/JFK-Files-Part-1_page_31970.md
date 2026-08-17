@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31970.png
-
-Convert to Markdown15 December 1976
+15 December 1976
 
 MEMORANDUM FOR: Joseph S. Piccolo, Jr.
 

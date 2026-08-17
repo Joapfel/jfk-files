@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22529.png
-
-Convert to Markdownand would report the contact. He was specifically told to avoid Enrique Abascal.
+and would report the contact. He was specifically told to avoid Enrique Abascal.
 
 d. Concerning the DRE representatives in any contacts either in Miami or in South America, he was to use extreme caution for two reasons: (1) Many are now or have been on our payroll and they would report any contact; (2) Many of these people are unreliable and some are clearly left wing.
 

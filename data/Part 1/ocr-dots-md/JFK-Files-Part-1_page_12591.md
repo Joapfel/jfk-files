@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12591.png
-
-Convert to MarkdownHVCA-16281
+HVCA-16281
 
 13 February 1969
 

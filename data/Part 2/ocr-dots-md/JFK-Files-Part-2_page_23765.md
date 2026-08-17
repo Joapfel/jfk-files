@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23765.png
-
-Convert to Markdowndemocratically elected governments.
+democratically elected governments.
 
 Mr. Inderfurth. I might mention that Cyrus Vance went beyond this. He said all interference in the electoral processes of a country should be banned, which goes beyond this.
 

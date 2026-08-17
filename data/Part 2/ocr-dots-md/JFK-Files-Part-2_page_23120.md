@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23120.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Senator Schweiker. And this was called JIMMAYB, who it?
 2. Mr. Halley. That is the cryptonym that the Agency used for the Miami station.

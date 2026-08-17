@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4463.png
-
-Convert to MarkdownPH 92-444
+PH 92-444
 
 3. Will maintain contact with informants who have knowledge of BRUNO's activities to learn of his movements and activities.
 

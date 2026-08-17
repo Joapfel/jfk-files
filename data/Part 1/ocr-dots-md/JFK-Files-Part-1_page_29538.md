@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29538.png
-
-Convert to MarkdownSECRET
+SECRET
 
 where staff employees cannot participate, and their long range con-
 tinued employment is, to a certain extent, dependent on their being

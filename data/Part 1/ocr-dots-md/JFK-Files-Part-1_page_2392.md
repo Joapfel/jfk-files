@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2392.png
-
-Convert to Markdownconsidered by the KGB to be a "real" agent and that if
+considered by the KGB to be a "real" agent and that if
 the transfer of the code clerk materialized, GOLITSYN
 might have the code clerk as an agent in Helsinki.
 

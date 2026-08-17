@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27162.png
-
-Convert to Markdown14-0000
+14-0000
 
 3 MAY 1973
 

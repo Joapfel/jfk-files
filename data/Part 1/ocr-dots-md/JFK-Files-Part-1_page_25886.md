@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25886.png
-
-Convert to Markdown(Carrillo)
+(Carrillo)
 
 JUN 1960
 

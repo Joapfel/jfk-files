@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1989.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Section D Continued - James W. McCord, Jr.
 

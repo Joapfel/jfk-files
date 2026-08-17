@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31971.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. In the absence of the Chief and/or Deputy Chief, CI/OG/SO, you will act in his place, assuming all the responsibilities and duties of that job.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20843.png
-
-Convert to Markdown**Women's National March**
+**Women's National March**
 on the Pentagon, April 10, 1971
 
 "Baltimore...301-685-6575 (women on Outcry)

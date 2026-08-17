@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24418.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The capability was called Executive Action and was later
 included under the cryptonym ZR/RIFLE. It and the evidence

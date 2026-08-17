@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13685.png
-
-Convert to Markdown101 First Street, S.E., Washington, D.C. 20003
+101 First Street, S.E., Washington, D.C. 20003
 
 7600 WARD & PAUL
 

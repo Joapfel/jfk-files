@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6571.png
-
-Convert to MarkdownChief, Contact Division
+Chief, Contact Division
 
 6. To has been sending typewritten news reports on Hungary to several individuals in the US and Europe. I have received copies in both Hungarian and English. I sent the English copy to Mr. David Martin, DRC in New York. He does not change for the service, but I remember seeing some of his news items in Hungarian newspapers after receiving his report. Pastor tells me that he is in financial straits and asked that I try to help him find someone who could use his service.
 

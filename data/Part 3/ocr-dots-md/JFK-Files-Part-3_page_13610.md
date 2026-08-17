@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13610.png
-
-Convert to Markdown# ROUTING AND TRANSMITTAL SLIP
+# ROUTING AND TRANSMITTAL SLIP
 
 Date
 

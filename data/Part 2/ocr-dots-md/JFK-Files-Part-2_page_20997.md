@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20997.png
-
-Convert to MarkdownSubject advised that Nina and Ed Stevens do a lot of entertaining but he had never attended any of their parties. Subject stated that he would not trust Nina Stevens as far as he could throw an elephant. Subject stated that he had no proof but believed Nina to be a Soviet informant.
+Subject advised that Nina and Ed Stevens do a lot of entertaining but he had never attended any of their parties. Subject stated that he would not trust Nina Stevens as far as he could throw an elephant. Subject stated that he had no proof but believed Nina to be a Soviet informant.
 
 Subject advised that Alina Mosby was a newspaperwoman in Schapiro's office. Mosby, during the past year, had been in the hospital on several occasions and one didn't see too much of her. Subject also advised that Mosby stuck mostly to the foreign circuit rather than the Embassy circuit. Subject stated that one of the reasons Mosby was in the hospital on one occasion was the fact that she had an abortion, according to gossip.
 

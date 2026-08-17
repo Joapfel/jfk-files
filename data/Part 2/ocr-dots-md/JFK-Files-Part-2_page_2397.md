@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2397.png
-
-Convert to MarkdownGIVE PARTICULARS: Not applicable
+GIVE PARTICULARS: Not applicable
 
 HAVE YOU TAKEN STEPS TO CHANGE PRESENT CITIZENSHIP? NO GIVE PARTICULARS:
 

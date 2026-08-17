@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28953.png
-
-Convert to MarkdownB-E-C-R-E-T
+B-E-C-R-E-T
 (When Filled In)
 
 12 OCT 1961

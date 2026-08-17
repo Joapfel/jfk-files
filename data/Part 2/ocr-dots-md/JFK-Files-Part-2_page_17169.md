@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17169.png
-
-Convert to MarkdownNWI 88613 DocId:32199554
+NWI 88613 DocId:32199554
 
 # Panther
 plea hits

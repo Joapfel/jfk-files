@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6657.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE: 3 July 1963 - crn
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33848.png
-
-Convert to Markdown5. Hungary's Productive Capacity in Relation to Hungarian Plan for 1952.
+5. Hungary's Productive Capacity in Relation to Hungarian Plan for 1952.
 
 Comment: Report was thin. Information on mines and factories was already known.
 

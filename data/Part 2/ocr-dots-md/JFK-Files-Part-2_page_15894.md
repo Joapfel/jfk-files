@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15894.png
-
-Convert to Markdown# STUDENTS FOR A DEMOCRATIC SOCIETY
+# STUDENTS FOR A DEMOCRATIC SOCIETY
 
 A source has advised that the Students for a Democratic Society (SDS), as presently regarded, came into being at a founding convention held June, 1962, at Port Huron, Michigan. From an initial posture of "participatory democracy" the line of the national leadership has revealed a growing Marxist-Leninist adherence which currently calls for the building of a revolutionary youth movement. Concurrently, the program of SDS has evolved from civil rights struggles to an anti-Vietnam war stance to an advocacy of a militant anti-imperialist position. China, Vietnam and Cuba are regarded as the leaders of worldwide struggles against United States imperialism whereas the Soviet Union is held to be revisionist and also imperialist.
 

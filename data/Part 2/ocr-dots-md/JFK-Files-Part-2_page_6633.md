@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6633.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 14 May 1997
 

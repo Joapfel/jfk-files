@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13837.png
-
-Convert to Markdowna) On first tour we. in touch with Imrenta readers for publications, was also involved with films, magazines and bulletins. (Lizette.)
+a) On first tour we. in touch with Imrenta readers for publications, was also involved with films, magazines and bulletins. (Lizette.)
 
 79) <u>Special Duties</u>
 

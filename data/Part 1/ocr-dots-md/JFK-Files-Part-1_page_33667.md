@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33667.png
-
-Convert to Markdown"economy closer aim and continuing deterioration economic structure Czechoslovakia,
+"economy closer aim and continuing deterioration economic structure Czechoslovakia,
 
 b. Believe methods aimed force postponement or abandonment should be confined suggestions and left discretion populace. Possibility rebuttal campaign and dissension needs seen if plan abandoned following unloading cash and huge belliger agree."
 

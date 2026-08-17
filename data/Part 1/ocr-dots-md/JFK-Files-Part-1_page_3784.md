@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3784.png
-
-Convert to MarkdownMay 23 / 967
+May 23 / 967
 
 Date
 

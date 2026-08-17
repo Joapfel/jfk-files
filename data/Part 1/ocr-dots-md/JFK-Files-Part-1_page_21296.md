@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21296.png
-
-Convert to MarkdownDISPATCH
+DISPATCH
 
 <table>
    <thead>

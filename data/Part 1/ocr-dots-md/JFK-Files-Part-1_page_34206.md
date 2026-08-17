@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34206.png
-
-Convert to Markdown"Intrigues about the Tri-Continental Conference".- Ben Barka, the mastermind of the Tri-Continental Conference scheduled for Havana, mysteriously disappeared in Paris. We remember that, when it was thought that this conference would be held in Algeria under Chinese sponsorship, its masterminds, Che Guevara and Ben Bella, disappeared. The character who took up Che's role in this Conference, Ben Barka, now vanishes in Paris. Could it be that what happened to Ben Bella is about to happen to Fidel?
+"Intrigues about the Tri-Continental Conference".- Ben Barka, the mastermind of the Tri-Continental Conference scheduled for Havana, mysteriously disappeared in Paris. We remember that, when it was thought that this conference would be held in Algeria under Chinese sponsorship, its masterminds, Che Guevara and Ben Bella, disappeared. The character who took up Che's role in this Conference, Ben Barka, now vanishes in Paris. Could it be that what happened to Ben Bella is about to happen to Fidel?
 
 November 3, 1965: "How Abject Can Castro Go!".- In his recent statement to three American and one Spanish journalists, Castro appears arrogant and acts as though he didn't care for an "aggiornamento" with the U.S. However, from the context of his statements it is quite obvious that he would like nothing better than being re-admitted to the Latin American community and getting the blessing of the U.S.
 

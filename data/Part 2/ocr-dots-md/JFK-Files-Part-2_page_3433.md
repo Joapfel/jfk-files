@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3433.png
-
-Convert to MarkdownSECRET
+SECRET
 
 operational leads and debriefs those with information of intelligence value. Heretofore this project has suffered from lack of adequate facilities and trained personnel. Only 29 positive intelligence reports were disseminated by Headquarters during the past year. It is planned to correct these deficiencies and expand capabilities to the end that the intelligence product will be improved and the operational leads increased. An experienced officer from the JMAVE refugees center has been detailed to the station to assist in training the personnel there.
 

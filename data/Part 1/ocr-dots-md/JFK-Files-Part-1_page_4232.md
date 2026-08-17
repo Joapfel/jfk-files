@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4232.png
-
-Convert to Markdown7 December 1963
+7 December 1963
 
 MEMORANDUM FOR: Deputy Chief, WMD for Cuba
 SUBJECT: Current Status of AMJAVA-4

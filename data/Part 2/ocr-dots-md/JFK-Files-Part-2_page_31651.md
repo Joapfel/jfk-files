@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31651.png
-
-Convert to Markdown7
+7
 
 SF 14-207
 

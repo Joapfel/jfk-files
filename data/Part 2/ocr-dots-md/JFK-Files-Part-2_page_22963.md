@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22963.png
-
-Convert to Markdown1. matters pertaining to that survey to the team who was then in charge of the operational activity in Miami. That team was essentially headed by Mr. Al Cox, who has since died.
+1. matters pertaining to that survey to the team who was then in charge of the operational activity in Miami. That team was essentially headed by Mr. Al Cox, who has since died.
 
 2
 

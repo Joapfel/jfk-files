@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9132.png
-
-Convert to Markdown# Incident #21
+# Incident #21
 
 Question b.
 

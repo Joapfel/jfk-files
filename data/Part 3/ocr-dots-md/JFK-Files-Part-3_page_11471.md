@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11471.png
-
-Convert to MarkdownCointelpro
+Cointelpro
 Activity
 
 CPUSA

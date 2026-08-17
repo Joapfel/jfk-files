@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3074.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Subject arrived at 1930 bearing a Russian record as a gift from his wife and a bottle of vodka with a jar of caviar as a gift from himself. He apologized that his wife could not make it that evening because she had to attend a "command performance". Although Subject claims to be under a doctor's care for problems with his stomach and legs (blood pressure problems) and is supposed to avoid use of alcohol for four months, he did accept a drink (Scotch) and then proceeded to chat about various inconsequential topics. At about 2000 MARGANDE dropped in and a general conversation ensued. LEVERONE offered to prepare some Shashlik and Subject stated that it was one of the favorite dishes of his wife. He suggested that perhaps he could pick her up after the "command performance" and bring her to the apartment. This was readily agreed to but since there was an hour and a half remaining before Subject could fetch his wife, we continued with general conversation. The following points concerning Subject's past activity came to light.
 

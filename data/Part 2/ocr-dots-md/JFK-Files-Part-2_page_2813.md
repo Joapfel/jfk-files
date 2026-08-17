@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2813.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="3">REQUESTING OFFICE: Fill in items 1 through 12 and A through D except 6B and 7 unless otherwise instructed. If applicable, obtain resignation and fill in separation data on reverse.</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8302.png
-
-Convert to Markdown12. In a heavy and serious tone, P stated that he must ask now Subject whether after the explanation he gave he is still willing to cooperate with the U.S. Service under the condition that he would follow our instruction and guidance without any reserve. Subject answered Yes and added that he was ready and willing to do whatever we tell him to do.
+12. In a heavy and serious tone, P stated that he must ask now Subject whether after the explanation he gave he is still willing to cooperate with the U.S. Service under the condition that he would follow our instruction and guidance without any reserve. Subject answered Yes and added that he was ready and willing to do whatever we tell him to do.
 
 13. P asked Subject did LOC tell him when he was leaving Mexico. Subject stated that LOC did not mention his departure and Subject felt certain that there was no immediate departure in sight.
 

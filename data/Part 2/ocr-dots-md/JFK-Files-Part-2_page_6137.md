@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6137.png
-
-Convert to Markdown56 Md. L. Rev. 1, *9
+56 Md. L. Rev. 1, *9
 
 n49. See Church Committee, supra note 48, at 139-46; Hinckle & Turner, The Fish Is Red, supra note 44, at 20, 111-26; Holland, supra note 18, at 62.
 

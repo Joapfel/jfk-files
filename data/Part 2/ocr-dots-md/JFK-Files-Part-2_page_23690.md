@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23690.png
-
-Convert to Markdownquickly.
+quickly.
 
 Mr. Aaron. I would recommend that we accept the
 suggestion that we put this in a positive sense and proceed

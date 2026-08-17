@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1280.png
-
-Convert to Markdownseverely damage the morale and motivation of anti-regime Cubans
+severely damage the morale and motivation of anti-regime Cubans
 both inside and outside of Cuba, which will make it increasingly
 difficult for us to recruit agents, maintain agents already
 recruited, and continue or intensify our intelligence and other

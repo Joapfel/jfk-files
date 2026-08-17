@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30257.png
-
-Convert to Markdown19-00000
+19-00000
 
 <table><thead><tr><th colspan="7" style="text-align:center;">P. U. S. GOVERNMENT PRINTING OFFICE, 1983 - 947574</th></tr><tr><td colspan="2">1. Agent and Organization Designation</td><td colspan="3"></td><td>2. Payee</td><td>3. Date Issued</td></tr><tr><td colspan="2">2. Department</td><td colspan="3"></td><td>3. Slip No.</td><td></td></tr><tr><td colspan="2">3. (space for social security account number) if none otherwise indicated)</td><td colspan="6"></td></tr><tr><td colspan="2">JOE GORDON, JR., JAMES WALTER</td><td colspan="6"></td></tr><tr><td colspan="7" style="text-align:center; font-weight:bold;">PAY ROLL CHANGE DATA</td></tr><tr><th></th><th scope="col">BASE PAY</th><th scope="col">OVERTIME</th><th scope="col">GROSS PAY</th><th scope="col">DUE</th><th scope="col">TAX</th><th scope="col">BOND</th><th scope="col">FICA</th><th scope="col">NET PAY</th></tr></thead><tbody><tr><th scope="row">1. Services earned</th><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><th scope="row">2. New period</th><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><th scope="row">3. Pay this period</th><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><th scope="row">10. Remarks</th><td colspan="6"></td><td>11. Appropriations: SECURITY? 7</td><td>12. Prepared by: robb/3/20/94<br/>13. Audited by:</td></tr></tbody></table>
 

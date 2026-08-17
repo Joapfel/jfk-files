@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24113.png
-
-Convert to Markdownand covert activities; and they provide services not securely available through normal commercial facilities. Because these instrumentalities are established as private organizations, they must be established and managed, to the extent possible, in accordance with practice and requirements that are normal for the types of enterprises they give the appearance of being.
+and covert activities; and they provide services not securely available through normal commercial facilities. Because these instrumentalities are established as private organizations, they must be established and managed, to the extent possible, in accordance with practice and requirements that are normal for the types of enterprises they give the appearance of being.
 
 Of the legally constituted entities, the Agency uses the corporate form in most cases because of the advantages and flexibility of corporate management control. These corporations are legally organized under the laws of a state, country, or other jurisdiction and are either wholly owned by CIA or controlled through majority stock ownership. Services of bona fide businessmen are enlisted as nominee officers, directors, and stockholders.
 

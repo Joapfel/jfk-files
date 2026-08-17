@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22982.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1 problems, and so on. It was a substantive management operation,
 

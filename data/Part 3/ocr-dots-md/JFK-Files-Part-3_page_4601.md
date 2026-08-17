@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4601.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 " Miss EVELYN ARCHER, Rte. 36, who helped supply arms to Cuban rebels prior to CASTRO's victory over former Cuban strongman FULGENCIO BATISTA, said she is 'sad and unhappy' at the results of the Cuban revolution.
 

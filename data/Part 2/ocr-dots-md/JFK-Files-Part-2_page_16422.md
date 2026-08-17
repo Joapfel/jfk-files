@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16422.png
-
-Convert to Markdown# "In Defense of Defense:
+# "In Defense of Defense:
 The Correct Handling of a Revolution."
 
 Most human behavior is learned behavior. Most things the human being learns are gained through an indirect relationship to the object. Humans do not act from instinct as lower animals do. Those things learned indirectly many times stimulate very effective responses to what might be later a direct experience. At this time the black masses are handling the resistance incorrectly. The bothers in East Oakland learned from Watts a means of resistance fighting by amassing the people in the streets, throwing bricks and molotov cocktails to destroy property and creat disruption. The brothers and sisters in the streets were herded into a small area by the gestapo police and immediately contained by brutal velvets violence of the oppressor's storm troops. This manner of resistance is sporadic, short-lived, and costly in violence of the oppressor's against the people. This method has been transmitted to all the gettos of the black nation across the country. The first man who threw a molotov cocktail is not personally known by the masses, but yet the action was respected and followed by the people.

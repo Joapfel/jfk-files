@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24601.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>CLASSIFICATION</th><th>(Date and time filed)</th><th>CITE DIRECTOR</th></tr></thead><tbody><tr><td>S E C R E T</td><td>24 23 28 APR 69</td><td>95945</td></tr></tbody></table>
 

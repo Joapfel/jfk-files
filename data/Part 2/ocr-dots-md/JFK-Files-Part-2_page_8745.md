@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8745.png
-
-Convert to Markdownrelease to public by Warren Commission, report believed
+release to public by Warren Commission, report believed
 to have been passed to FBI Miami by WAVE Station.
 
 Concerned information from a Western diplomat alleging

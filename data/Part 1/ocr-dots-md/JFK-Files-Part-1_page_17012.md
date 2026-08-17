@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17012.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16 January 1956
 Page 4

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15195.png
-
-Convert to MarkdownThe United States Government, as represented by the Contracting Officer, hereby amends the initial contract accepted by you in April 1959, to include the following provisions for the period 20 September 1959 through 30 June 1960. During the period of time as indicated, you will be required to perform such duties as may be assigned you by your superiors. All such duties, whether of a research nature or otherwise, will be considered to be of a confidential nature. The terms and conditions of your amended contract are as follow:
+The United States Government, as represented by the Contracting Officer, hereby amends the initial contract accepted by you in April 1959, to include the following provisions for the period 20 September 1959 through 30 June 1960. During the period of time as indicated, you will be required to perform such duties as may be assigned you by your superiors. All such duties, whether of a research nature or otherwise, will be considered to be of a confidential nature. The terms and conditions of your amended contract are as follow:
 
 **1. Compensation**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_71.png
-
-Convert to Markdown13-00000
+13-00000
 
 Sergyj Czornonoh
 Regis Hotel

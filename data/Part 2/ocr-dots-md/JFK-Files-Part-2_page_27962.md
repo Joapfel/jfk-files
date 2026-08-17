@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27962.png
-
-Convert to MarkdownCecelia Morton
+Cecelia Morton
 
 -2-
 

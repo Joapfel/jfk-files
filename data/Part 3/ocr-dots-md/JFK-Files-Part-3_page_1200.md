@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1200.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 Director, FBI
 
 U. S. SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES

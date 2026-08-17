@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29100.png
-
-Convert to MarkdownPROFIT (OR LOSS) FROM BUSINESS OR PROFESSION
+PROFIT (OR LOSS) FROM BUSINESS OR PROFESSION
 (Sole Proprietorships)
 
 <table><tr><td>SCHEDULE<br/>C</td></tr><tr><td>FORM 540</td></tr></table>

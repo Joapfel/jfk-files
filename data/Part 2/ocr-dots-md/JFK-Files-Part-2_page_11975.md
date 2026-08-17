@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11975.png
-
-Convert to Markdown[**U. PANEL SOURCE**]
+[**U. PANEL SOURCE**]
 
 1. Definition
 

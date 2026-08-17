@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12638.png
-
-Convert to Markdown(4) In all instances there must be clear showing, by overt acts or statements or other evidence, that there has been continuing sympathy for aims and objectives of Cuban Government since '10-1-60. Citizenship status must be clearly established.
+(4) In all instances there must be clear showing, by overt acts or statements or other evidence, that there has been continuing sympathy for aims and objectives of Cuban Government since '10-1-60. Citizenship status must be clearly established.
 
 c. Pro-Cuban activity
 All individuals in security index under basic criteria (item 3a, above) should be tabbed "Pro-Cuban" if by their activities and sympathies they warrant special consideration in event of limited emergency involving Cuba and U. S. This tabbing includes Cubans and non-Cubans who have engaged in activities in support of Cuban Government or pro-Castro groups. For this tabbing, submit FD-122 to Bureau with notation "Pro-Cuban" typed opposite words "Miscellaneous (specify)." Attach page containing concise summary of facts supporting recommendation. Security index cards sent to field on such subjects contain letter "C" on left side of card at beginning of second line. These cards are not kept in "Cuban" special section but are tabbed with metal tabs.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30751.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="7">VERIFIED RECORD OF OVERSEAS SERVICE</th></tr><tr><td colspan="2"></td><td colspan="5" style="text-align: center;">201621 JUL 1761</td></tr><tr><td colspan="7"><b>TO:</b> Office of Personnel, Statistical Reporting Branch, ROOM 192 Carte Hall</td></tr><tr><th rowspan="2">EMPLOYEE SERIAL NO.</th><th colspan="3">NAME OF EMPLOYEE</th><th rowspan="2">OFFICE/COMPONENT</th><th rowspan="2">MIDDLE</th><th rowspan="2">LAST</th></tr><tr><th>(Print)</th><th>FIRST</th><th>SECOND</th></tr></thead><tbody><tr><td>1-8<br/>12775</td><td>Mile R</td><td>Newton</td><td>S.</td><td>32</td><td>5</td><td>N.</td></tr></tbody></table>
 

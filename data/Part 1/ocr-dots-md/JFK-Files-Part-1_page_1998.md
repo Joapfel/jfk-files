@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1998.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DO NOT USE THIS SPACE</th></tr></thead><tbody><tr><td>ISSUED BY</td><td>PERSONAL HISTORY STATEMENT</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DO NOT USE THIS SPACE</th></tr></thead><tbody><tr><td>ISSUED BY</td><td>PERSONAL HISTORY STATEMENT</td></tr></tbody></table>
 
 <table><thead><tr><td>INSTRUCTIONS</td></tr></thead><tbody><tr><td>1. Answer all questions completely or check appropriate box. If question is not applicable, write "NA". Write "Unknown" only if you do not know the answer and it cannot be obtained from personal records. Use blank space at end of form for extra details on any question for which you have insufficient space.</td></tr><tr><td>2. Type, print or write carefully; illegible or incomplete forms will not receive consideration.</td></tr><tr><td>3. Consider your answers carefully. Your signature at the end of this form will certify to their correctness. Careful completion of all applicable questions will permit review of your qualifications to the best advantage.</td></tr></tbody></table>
 

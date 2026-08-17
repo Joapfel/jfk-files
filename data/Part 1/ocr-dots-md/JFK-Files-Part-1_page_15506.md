@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15506.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 DATE : 8 SEP 61
 

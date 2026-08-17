@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_700.png
-
-Convert to MarkdownIn Reply, Please Refer to
+In Reply, Please Refer to
 File No.
 
 Los Angeles, California

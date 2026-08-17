@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26567.png
-
-Convert to Markdownd. As one example Raneiri Mazzilli, President of the Chamber of Deputies and next in line for the presidency, told Ambassador Gordon on Saturday that he profoundly mis-trusts Goulart's intentions and in-tends to maintain the strictest con-gressional vigilance.
+d. As one example Raneiri Mazzilli, President of the Chamber of Deputies and next in line for the presidency, told Ambassador Gordon on Saturday that he profoundly mis-trusts Goulart's intentions and in-tends to maintain the strictest con-gressional vigilance.
 
 e. Our station in Brazil be-lieves that Goulart is living in a dream world. He seems either out of touch with reality or very poorly informed. Public opinion is not with him and the tradition that po-litical power should only be trans-ferred constitutionally is very strong in the army, coup reports notwithstanding.
 

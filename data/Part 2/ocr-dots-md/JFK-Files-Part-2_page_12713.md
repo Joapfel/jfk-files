@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12713.png
-
-Convert to MarkdownXXIV. Letter transmitting results of an interview must contain:
+XXIV. Letter transmitting results of an interview must contain:
 
 (A) A definite statement or conclusion of interviewing Agents as to cooperativeness of subject
 

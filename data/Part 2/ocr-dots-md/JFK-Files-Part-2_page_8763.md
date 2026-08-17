@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8763.png
-
-Convert to MarkdownWAVE 9026 (IN 18296) dated 6 November 1961
+WAVE 9026 (IN 18296) dated 6 November 1961
 
 WAVE cabled Hqs. info. from independent sources following meetings between HURWITCH, PASSAVOY and MIRO Cardona. AMCLATTER-1 (Bernard Barker of Watergate fame) reported that HURWITCH and a CIA official were discussing revolutionary affairs with MIRO Cardona, and that CARDONA and his group were backed by President Kennedy. It was further reported that CARDONA had full powers from President Kennedy and was in a position to give orders to CIA which would be on a secondary level. In addition CARDONA reportedly stated that he had U.S. Government support to direct CASTRO underground activities, and that all other groups must join him to get support. Other groups not interested in joining CARDONA, because his ideology was different from their's. CARDONA had never come out strongly as anti-CASTROITE.
 

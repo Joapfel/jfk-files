@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3399.png
-
-Convert to Markdown19. MR from David R. McLean, 27 Jul 72, op. cit.
+19. MR from David R. McLean, 27 Jul 72, op. cit.
 
 20. WH/4 Prop Notes for 9 Aug 60.
 

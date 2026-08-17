@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7743.png
-
-Convert to Markdown10.01.02 He drives Very fast ____ Average ____ Very slow ____
+10.01.02 He drives Very fast ____ Average ____ Very slow ____
 
 10.01.03 When he drives and talks, you get the feeling
     He pays little attention to his driving

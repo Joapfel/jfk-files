@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35609.png
-
-Convert to Markdown# MON FUNERAL HOME
+# MON FUNERAL HOME
 
 LA PRIMERA FUNERARIA LATINA DE MIAMI
 

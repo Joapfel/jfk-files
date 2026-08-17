@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31110.png
-
-Convert to MarkdownRICHARD R. WIGLEYSWORTH
+RICHARD R. WIGLEYSWORTH
 125 East Representative
 
 COMMITTEE ON

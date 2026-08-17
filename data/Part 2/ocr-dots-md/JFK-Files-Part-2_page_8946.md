@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8946.png
-
-Convert to MarkdownMarch 1966 (continued)
+March 1966 (continued)
 
 Comment: NOSENKO has claimed that he rejected an offer
 to attend the Military Diplomatic Academy

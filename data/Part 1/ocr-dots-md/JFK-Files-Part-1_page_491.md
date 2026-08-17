@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_491.png
-
-Convert to MarkdownS-E-C-R-E-T-
+S-E-C-R-E-T-
 
 0021 VANDERBILT, ALFRED GWYNNE /MRS./
 

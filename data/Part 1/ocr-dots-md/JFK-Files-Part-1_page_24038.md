@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24038.png
-
-Convert to MarkdownLIVER FUNCTION TESTS
+LIVER FUNCTION TESTS
 
 On 24 October 1968, I saw Dr. Daly of the Bio-chemistry Laboratory of West London Hospital for liver function tests. My family doctor, Dr. Hodes, sent me to Daly as a private patient, as British practice is not to take these tests unless the patient's condition seems to be worsening. My doctor thought I showed no signs of a recurrence of hepatitis and the normal practice would have been, at most, for me to have been examined by the specialist at the hospital, who might then decide to ask for the tests.
 

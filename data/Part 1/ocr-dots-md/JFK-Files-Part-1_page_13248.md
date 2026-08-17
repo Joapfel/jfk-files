@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13248.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>S SECRET</td><td>LVC-14775</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>S SECRET</td><td>LVC-14775</td></tr></table>
 
 3. ANCLEVE-15 and ORTIZ asked CIRASH-15 to join them in an anti-Communist group which would harass Communists without the knowledge of CIRASH-4. On another visit to ORTIZ's house, CIRASH-15 met two Cubans who had been imprisoned in La Habana prison in Cuba and who had apparently been helped out of Cuba by ORTIZ and will work with him in the anti-Communist goon-squad. CIRASH-15 also met another Cuban exile in the group whose alias is "Pésforo". CIRASH-15 expects to be able to identify these Cubans in the near future.
 

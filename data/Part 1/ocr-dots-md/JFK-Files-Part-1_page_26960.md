@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26960.png
-
-Convert to MarkdownChief, Personnel Security Division, 08
+Chief, Personnel Security Division, 08
 
 24 February 1967
 

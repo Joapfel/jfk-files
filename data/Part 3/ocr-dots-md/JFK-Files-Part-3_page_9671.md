@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9671.png
-
-Convert to Markdown# I. GENERAL REQUEST
+# I. GENERAL REQUEST
 
 With respect to each intelligence gathering or intelli-gence dissemination function of the IRS either now being performed or which has been performed within the last fifteen years, please furnish the following:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28334.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **MEMORANDUM TO: Chief, Finance Division**
 

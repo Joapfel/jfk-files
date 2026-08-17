@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23432.png
-
-Convert to MarkdownTo: Nuk Files
+To: Nuk Files
 
 From: Frederick Bat
 

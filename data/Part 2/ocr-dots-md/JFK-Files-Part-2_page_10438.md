@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10438.png
-
-Convert to Markdown4. Because of the paucity of information on foreign student movements, it was necessary to focus on SDS which then monopolized the field of student action here and abroad. A second section comprised 19 country chapters--ranging from Argentina to Yugoslavia--and stood by itself as a review of foreign student dissidence.
+4. Because of the paucity of information on foreign student movements, it was necessary to focus on SDS which then monopolized the field of student action here and abroad. A second section comprised 19 country chapters--ranging from Argentina to Yugoslavia--and stood by itself as a review of foreign student dissidence.
 
 5. Because SDS was a domestic organization, the full paper Restless Youth, including the essay on worldwide dissent went only to nine readers. A copy may be in the Johnson Library.
 

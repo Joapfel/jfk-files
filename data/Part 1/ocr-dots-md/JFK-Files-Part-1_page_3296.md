@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3296.png
-
-Convert to MarkdownSEC A B C
+SEC A B C
 
 PART II. E-2753, 23 Feb 65, Case No. 237.
 

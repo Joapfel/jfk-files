@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5962.png
-
-Convert to MarkdownADMINISTRATIVE INTERNAL USE ONLY
+ADMINISTRATIVE INTERNAL USE ONLY
 
 TO: Frieda P. Omasta
 FROM: Jeanne Kardaras

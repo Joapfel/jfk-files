@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19811.png
-
-Convert to MarkdownCODE
+CODE
 
 TELETYPING OF INVESTIGATION SECTION
 

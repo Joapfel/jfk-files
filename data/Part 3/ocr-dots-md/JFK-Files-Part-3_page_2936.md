@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2936.png
-
-Convert to MarkdownVZCZCH0041
+VZCZCH0041
 
 PP MM
 

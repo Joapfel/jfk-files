@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9526.png
-
-Convert to Markdown<table><thead><tr><th>OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td>DETROIT</td><td>SAN FRANCISCO</td><td>12/17/70</td><td>10/28 - 12/3/70</td></tr><tr><td colspan="4">REPORT MADE BY</td></tr><tr><td colspan="2">SA DONALD V. RITENOUR, JR.</td><td colspan="2">AH</td></tr><tr><td colspan="4">CHARACTER OF CASE</td></tr><tr><td colspan="4">RM - SMITH ACT OF 1940; SREDITOUS CONSPIRACY, REBELLION AND INSURRECTION</td></tr></tbody></table>
+<table><thead><tr><th>OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td>DETROIT</td><td>SAN FRANCISCO</td><td>12/17/70</td><td>10/28 - 12/3/70</td></tr><tr><td colspan="4">REPORT MADE BY</td></tr><tr><td colspan="2">SA DONALD V. RITENOUR, JR.</td><td colspan="2">AH</td></tr><tr><td colspan="4">CHARACTER OF CASE</td></tr><tr><td colspan="4">RM - SMITH ACT OF 1940; SREDITOUS CONSPIRACY, REBELLION AND INSURRECTION</td></tr></tbody></table>
 
 <table><tr><td>REFERENCE:</td><td>Detroit report of SA DONALD V. RITENOUR, JR., 11/13/70.</td></tr></table>
 

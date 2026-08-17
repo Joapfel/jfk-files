@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25532.png
-
-Convert to Markdown-32-
+-32-
 
 FS: Right.
 

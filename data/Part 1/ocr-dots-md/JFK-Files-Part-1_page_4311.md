@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4311.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="3">TRANSMIT<br/>OF<br/>TDCS INFORMATION REPORT</td>
     <td>CLASSIFICATION</td>

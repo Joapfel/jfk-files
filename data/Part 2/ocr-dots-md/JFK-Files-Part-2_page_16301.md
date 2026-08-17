@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16301.png
-
-Convert to MarkdownOn September 18, 1969, when Special Agents (SAs) of the Federal Bureau of Investigation (FBI) were conducting a neighborhood investigation, Mrs. WILLIAM FESPERMAN, wife of the then leader of the Young Patriots answered a door and when interviewed furnished the following information:
+On September 18, 1969, when Special Agents (SAs) of the Federal Bureau of Investigation (FBI) were conducting a neighborhood investigation, Mrs. WILLIAM FESPERMAN, wife of the then leader of the Young Patriots answered a door and when interviewed furnished the following information:
 
 The YP has three main programs. The first is a "Free Pantry Program" which operates out of the Patriot's Office and until that time, September 18, 1969, had fed 400 people. There is a proposed medical clinic which was scheduled to open before the end of 1969. At that time, an alternate school was being run by the Patriots in which Mrs. FESPERMAN was a teacher. The school had an enrollment of fourteen children.
 

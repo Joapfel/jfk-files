@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4863.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 Chevrolet Chevelle of SANTO TRAFFICANTE parked in the driveway of the TRAFFICANTE residence at 740 N. E. 155th Street, Miami, Florida. At approximately 7:10 p.m., TRAFFICANTE, dressed in a business suit, entered the bar at VINCENT CAPRA's restaurant, 8400 Biscayne Boulevard, Miami. He walked through the bar and into a rear dining room. About ten minutes later, PATSY ERRA, NORMAN ROTHMAN, and two unknown males, all dressed in business suits, entered the bar and walked into the rear dining room.
 

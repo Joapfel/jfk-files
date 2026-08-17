@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9472.png
-
-Convert to Markdown15 May 1950
+15 May 1950
 
 Notes of conference at the home of Mr. Burnham. Present:
 Moessr., Baker, Burnham, Lasky and Glaser.

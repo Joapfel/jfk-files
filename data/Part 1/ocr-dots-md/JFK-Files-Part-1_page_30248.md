@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30248.png
-
-Convert to MarkdownSECRET
+SECRET
 (when filled in)
 
 <table><caption>NOTIFICATION OF PERSONNEL ACTION</caption><tbody><tr><td colspan="4">AES: 4 FEB 1959</td></tr><tr><th colspan="3">1. Serial No.</th><th colspan="2">9. Name (Last,First,Middle)</th><th colspan="8">3. Date Of Birth 4. Iss. Std. 5. Sex 6. CS-COD</th></tr><tr><td colspan="3">158124</td><td colspan="2">MCCORD JAMES W JR</td><td colspan="2">01</td><td>26</td><td>24</td><td>M</td><td>1</td><td>08</td><td>22</td><td>51</td></tr><tr><th rowspan="2">Mo.</th><th rowspan="2">Da.</th><th rowspan="2">Yr.</th><th rowspan="2">Yes. 1<br/>No. 2</th><th rowspan="2">Code</th><th rowspan="2"></th><th colspan="2">10. Apt. Att.</th><th colspan="3">11. FFL</th><th colspan="2">12. LCD</th><th colspan="2">13. M.S.W.</th></tr><tr><th>No.</th><th>Cod.</th><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Yes.</th><th>No.</th><th>1</th><th>2</th></tr><tr><td>03</td><td>27</td><td>45</td><td></td><td>1</td><td>50 USCA 403 d</td><td></td><td></td><td></td><td>08</td><td>22</td><td>51</td><td></td><td></td><td></td><td></td></tr></tbody></table>

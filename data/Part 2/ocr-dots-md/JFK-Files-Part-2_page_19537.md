@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19537.png
-
-Convert to MarkdownUNITED STATES OVERNMENT
+UNITED STATES OVERNMENT
 
 Memorandum
 

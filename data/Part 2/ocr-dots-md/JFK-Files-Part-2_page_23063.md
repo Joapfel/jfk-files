@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23063.png
-
-Convert to Markdown1. Gutierrez Menoyo. We did have a steady stream of reporting on the activities of all exile groups and Alpha 66 was high on the list of groups that had a capability of doing this kind of thing. Therefore, they received quite a bit of coverage from us, from the FBI, from Customs, and others.
+1. Gutierrez Menoyo. We did have a steady stream of reporting on the activities of all exile groups and Alpha 66 was high on the list of groups that had a capability of doing this kind of thing. Therefore, they received quite a bit of coverage from us, from the FBI, from Customs, and others.
 
 2
 

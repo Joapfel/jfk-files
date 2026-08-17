@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22345.png
-
-Convert to MarkdownHe knows of no case in which the CIA has made a sweep of any other residences.
+He knows of no case in which the CIA has made a sweep of any other residences.
 
 It does make sweeps of private firms who have CIA contracts, but always with the knowledge and consent of the firm.
 

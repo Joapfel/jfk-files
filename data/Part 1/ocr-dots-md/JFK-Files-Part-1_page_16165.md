@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16165.png
-
-Convert to MarkdownTHE NEW YORK TIMES
+THE NEW YORK TIMES
 THURSDAY, JANUARY 25, 1975
 
 # U.S. Aide Was Briefed on Assassination Techniques

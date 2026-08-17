@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25278.png
-
-Convert to MarkdownSUNDAY, JUNE 1, 1975
+SUNDAY, JUNE 1, 1975
 
 CIA, Mobsters Linked
 To Cuba Raid Plans

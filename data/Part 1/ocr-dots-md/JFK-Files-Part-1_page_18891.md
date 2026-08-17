@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18891.png
-
-Convert to MarkdownForm OSS 1009
+Form OSS 1009
 
 WAR DEPARTMENT
 OFFICE OF STRATEGIC SERVICES

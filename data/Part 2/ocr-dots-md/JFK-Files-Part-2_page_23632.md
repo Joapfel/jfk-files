@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23632.png
-
-Convert to Markdownthe Senators. I'm sure there must be some big fight in
+the Senators. I'm sure there must be some big fight in
 the House last year was to avoid the excruciating details on
 budget figures and I think we had kind of discussed perhaps
 publishing 3 or 4 major features. I'd like to point out that in

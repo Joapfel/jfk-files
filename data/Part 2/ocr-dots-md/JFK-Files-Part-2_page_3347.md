@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3347.png
-
-Convert to MarkdownS. Cuff
+S. Cuff
 
 1. Procedure exists under the Declaration of Caracas to request action by the U.S. against a Communist threat to hemispheric security.
 

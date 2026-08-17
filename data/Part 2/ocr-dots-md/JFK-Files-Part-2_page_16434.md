@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16434.png
-
-Convert to MarkdownHMH
+HMH
 1
 
 A metal pin, one and three-eighths inches in diameter,

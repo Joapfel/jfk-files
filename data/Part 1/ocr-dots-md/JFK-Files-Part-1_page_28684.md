@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28684.png
-
-Convert to Markdown1 June 1949
+1 June 1949
 
 MEMORANDUM FOR THE CHIEF, PERSONNEL SECURITY DIVISION
 

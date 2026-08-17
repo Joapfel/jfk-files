@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14842.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED, DELIVER AS FOLLOWS</th></tr></thead><tbody><tr><td>March 1959</td><td></td></tr><tr><td>FUNC/UNT</td><td></td></tr><tr><td>DIRECTOR</td><td></td></tr><tr><td>704, CI, CI/OPS, CI/OA, FI, FI/OPS, EL 4, S/C 2</td><td>DELEGATED ROUTINE PRIORITY LEVELS<br/>OPERATIONAL IMMEDIATE</td></tr><tr><td>GJB3332</td><td>CITE DIR</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED, DELIVER AS FOLLOWS</th></tr></thead><tbody><tr><td>March 1959</td><td></td></tr><tr><td>FUNC/UNT</td><td></td></tr><tr><td>DIRECTOR</td><td></td></tr><tr><td>704, CI, CI/OPS, CI/OA, FI, FI/OPS, EL 4, S/C 2</td><td>DELEGATED ROUTINE PRIORITY LEVELS<br/>OPERATIONAL IMMEDIATE</td></tr><tr><td>GJB3332</td><td>CITE DIR</td></tr></tbody></table>
 
 FROD INFO TEAM CITE DIR
 

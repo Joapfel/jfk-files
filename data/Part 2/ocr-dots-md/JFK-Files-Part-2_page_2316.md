@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2316.png
-
-Convert to Markdown15 April 1963
+15 April 1963
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

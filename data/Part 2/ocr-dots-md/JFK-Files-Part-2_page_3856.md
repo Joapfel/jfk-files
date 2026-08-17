@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3856.png
-
-Convert to Markdown13-00000
+13-00000
 
 The Times Picayune
 Serving America's International Gateway Since 1837

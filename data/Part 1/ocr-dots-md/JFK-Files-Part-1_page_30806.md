@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30806.png
-
-Convert to Markdown-8-
+-8-
 
 SEC. 20. FINANCIAL BACKGROUND (Cont'd)
 

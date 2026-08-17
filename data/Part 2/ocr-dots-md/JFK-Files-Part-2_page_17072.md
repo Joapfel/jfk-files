@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17072.png
-
-Convert to Markdownwas located at 48 and South State Street and has two female BPP members at the office during the day time. The other office is located at 1222 West 109th Street and is manned by SAMUEL LEORY LATSON. Both of these offices operate by a pay telephone located near there and neither have the authority to contact the National Office of the BPP. Locations are merely used for the BPP newspaper distribution and to keep the name of the BPP known on Chicago's South side.
+was located at 48 and South State Street and has two female BPP members at the office during the day time. The other office is located at 1222 West 109th Street and is manned by SAMUEL LEORY LATSON. Both of these offices operate by a pay telephone located near there and neither have the authority to contact the National Office of the BPP. Locations are merely used for the BPP newspaper distribution and to keep the name of the BPP known on Chicago's South side.
 
 10/69)
 

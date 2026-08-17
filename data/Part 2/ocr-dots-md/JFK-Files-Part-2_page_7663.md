@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7663.png
-
-Convert to MarkdownCongressman Ford ask you as I came into the room, because I think this is the crux of our investigation.
+Congressman Ford ask you as I came into the room, because I think this is the crux of our investigation.
 
 I read the FBI report very carefully and the whole implication of the report is that, number one, Oswald shot the President; number two, that he was not connected with any conspiracy of any kind, nature or description.
 

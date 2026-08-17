@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15923.png
-
-Convert to Markdown**DETAILS:**
+**DETAILS:**
 
 On the indicated dates, attempts were made to interview the following individuals and messages were left to have these persons contact
 

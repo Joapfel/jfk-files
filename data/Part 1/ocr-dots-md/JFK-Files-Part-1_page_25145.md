@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25145.png
-
-Convert to MarkdownValerly Vladimirovich KOSTIKOV
+Valerly Vladimirovich KOSTIKOV
 
 Valerly Vladimirovich KOSTIKOV is approximately 35 years of age,
 corpulent and paunchy, with a round somewhat fleshy face that sports a

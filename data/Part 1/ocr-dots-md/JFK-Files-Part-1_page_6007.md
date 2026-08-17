@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6007.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE :<br/>8 NOV 62</td><td>SECRET</td></tr><tr><td colspan="2"><b>TO</b> : DIRECTOR<br/>FROM : SAN JUAN<br/>ACTION: TFW 10<br/>INFO : DDP, DOP/SIT 3, CI, CI/OPS FL ISD 4, WH 7, S/C 2</td><table border="1"><tbody><tr><td colspan="2"><b>ROUTING</b></td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr><tr><td colspan="2">RE Filing (check one):<br/>No Ca Record Value. [X]<br/>It file this entry as Indicated. [ ]<br/>Branch only Bird as indicated. [ ]<br/>MS Icing through scope. [x]<br/>Marked. [ ] None required [ ]</td></tr><tr><td colspan="2">NOV 8 23432 62</td></tr><tr><td colspan="2">ROUTINE</td></tr><tr><td colspan="2">IN 15095</td></tr></tbody></table></td></tr></tbody></table>
 

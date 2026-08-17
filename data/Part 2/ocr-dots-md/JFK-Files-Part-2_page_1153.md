@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1153.png
-
-Convert to MarkdownDepartment of State • Department of Defense •
+Department of State • Department of Defense •
 Agency for International Development • U.S. Information Agency
 
 NATIONAL INTERDEPARTMENTAL SEMINAR

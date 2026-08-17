@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35218.png
-
-Convert to MarkdownDEMOCRATIC REVOLUTIONARY FRONT
+DEMOCRATIC REVOLUTIONARY FRONT
 
 Sustenance and Rents
 

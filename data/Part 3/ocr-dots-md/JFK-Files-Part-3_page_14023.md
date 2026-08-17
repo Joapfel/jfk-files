@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14023.png
-
-Convert to Markdownfor the S. S. Rex was a good one -- a hydrographic oil exploration vessel -- and when the agent team was rolled up it was decided to bring the Rex back to a Florida port as called for in the cover plan, rather than taking it to some foreign port and thereby ruin the cover story.
+for the S. S. Rex was a good one -- a hydrographic oil exploration vessel -- and when the agent team was rolled up it was decided to bring the Rex back to a Florida port as called for in the cover plan, rather than taking it to some foreign port and thereby ruin the cover story.
 
 Referring to the Dunlap case, Mr. Clifford said that the Board was shocked to learn of the lack of coordination between NSA and ASA, and he invited the DCI's comments on this in view of the Board's responsibility to the President in this matter.
 

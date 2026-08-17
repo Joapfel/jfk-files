@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12561.png
-
-Convert to Markdown3. Investigative procedures re subversive organizations, [revolutionary activities] groups, suspected subversive organizations, and communist fronts
+3. Investigative procedures re subversive organizations, [revolutionary activities] groups, suspected subversive organizations, and communist fronts
 Develop fully and report on following topics, where applicable:
 
 a. Origin and scope

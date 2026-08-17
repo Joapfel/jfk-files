@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3171.png
-
-Convert to Markdown1783
+1783
 
 and it doesn't have to relate to the Warren Commission, I will leave that alone, or to some activity we are involved in, we get back to something like that, where a photograph or a tape recording or some letter referring to some kind of human weakness or failing that is really very irrelevant to the investigation is sandwiched in here, and it just seems to me that it was a tactic -- this just happens to be the Warren Commission I singled out -- but it was a tactic that was used rather frequently as a lever or for some reason which I am trying to find out as an instrument of investigative policy.
 

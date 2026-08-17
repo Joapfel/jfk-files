@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8671.png
-
-Convert to MarkdownAntes de completar el siguiente Cuestionario para Evaluar la Personalidad, sírvase suplir la siguiente información acerca de sí mismo:
+Antes de completar el siguiente Cuestionario para Evaluar la Personalidad, sírvase suplir la siguiente información acerca de sí mismo:
 
 Edad 10-17
 

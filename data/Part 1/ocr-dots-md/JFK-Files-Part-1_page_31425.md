@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31425.png
-
-Convert to MarkdownVital to the work and well being of the National Committee for a Free Europe are its approximately two thousand alien associates. 60 percent of these aliens are in Europe, with the rest residing either temporarily or permanently in the United States. At the present time over one hundred of those aliens residing here face imminent deportation.
+Vital to the work and well being of the National Committee for a Free Europe are its approximately two thousand alien associates. 60 percent of these aliens are in Europe, with the rest residing either temporarily or permanently in the United States. At the present time over one hundred of those aliens residing here face imminent deportation.
 
 It might be inserted parenthetically at this point that all of these aliens presently facing deportation have attempted to remain within the spirit and letter of the law, but because of the absurdities of the law have been forced into the position of being willful violators of it. We do not speak, either now or at any point in this discussion, about evaders of, or fugitives from, justice, but shall only refer to individuals of good faith, attempting to conform to the rules and regulations of the country which they believe, often mistakenly, to be the refuge of the afflicted.
 

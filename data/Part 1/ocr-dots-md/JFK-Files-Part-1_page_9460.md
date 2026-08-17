@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9460.png
-
-Convert to MarkdownCopy of letter from Melvin J. Lasky, Tuesday a.m. (5-23-50)
+Copy of letter from Melvin J. Lasky, Tuesday a.m. (5-23-50)
 
 Tuesday a.m.
 Westover Air Field

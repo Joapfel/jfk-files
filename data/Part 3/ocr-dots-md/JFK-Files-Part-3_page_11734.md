@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11734.png
-
-Convert to Markdown4-H-1
+4-H-1
 
 NEW DELHI, INDIA
 

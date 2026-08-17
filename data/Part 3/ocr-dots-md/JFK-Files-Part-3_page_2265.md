@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2265.png
-
-Convert to Markdown# Memorandum to Mr. W. R. Wannall
+# Memorandum to Mr. W. R. Wannall
 
 Re: General Accounting Office (GAO) Review of FBI Operations
 62-56866

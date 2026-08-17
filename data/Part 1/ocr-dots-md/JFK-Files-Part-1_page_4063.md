@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4063.png
-
-Convert to Markdown10-
+10-
 
 60 asistentes y encálices, un jefe de carpintería, tresarpistones
 de rivas y muros, y el asistente de carpintería.

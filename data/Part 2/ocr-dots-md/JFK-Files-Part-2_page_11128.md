@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11128.png
-
-Convert to MarkdownForm (continued):
+Form (continued):
 
 FD-122 (continued)
 

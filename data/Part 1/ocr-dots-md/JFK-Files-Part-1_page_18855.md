@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18855.png
-
-Convert to MarkdownSTANDARD FORM 50 (8 PART)
+STANDARD FORM 50 (8 PART)
 
 REV. APRIL 1951
 SUPERSEDES BY

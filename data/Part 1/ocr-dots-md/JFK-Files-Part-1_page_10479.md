@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10479.png
-
-Convert to Markdown14-0009-
+14-0009-
 
 ☐ UNCLASSIFIED ☐ CONFIDENTIAL ☐ SECRET ☐ TOP SECRET
 

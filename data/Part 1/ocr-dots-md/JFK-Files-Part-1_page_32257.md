@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32257.png
-
-Convert to MarkdownCPD: 7 APR 77
+CPD: 7 APR 77
 
 SECRET
 (When Died In)

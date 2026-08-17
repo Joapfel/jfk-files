@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7171.png
-
-Convert to Markdown23 June 1966
+23 June 1966
 
 35-71-30 Is listed to Yolanda ALFARO Vda de CACERES Butrago
 Chiapas 130-A

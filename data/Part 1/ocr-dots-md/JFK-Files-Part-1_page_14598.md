@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14598.png
-
-Convert to MarkdownWH/COG 70-38
+WH/COG 70-38
 
 26 January 1970
 

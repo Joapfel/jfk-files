@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23134.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Senator Schweiker. This is a tough question to answer, but at that period of time, how successful in your opinion was the Cuban intelligence system in doing some of that penetrating work and I realize that we had a lot of Cuban exiles here, and it is pretty hard to tell the players from the scorecard we are in. It is a tough relevant question, but I wonder how you would analyse it.
 

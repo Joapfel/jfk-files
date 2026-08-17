@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23581.png
-
-Convert to Markdown12. Unauthorized Commitments. No promises or commitments pertaining to rights, privileges or benefits other than those expressly stipulated in writing in this agreement or any amendment thereto shall be binding on OLYOKE.
+12. Unauthorized Commitments. No promises or commitments pertaining to rights, privileges or benefits other than those expressly stipulated in writing in this agreement or any amendment thereto shall be binding on OLYOKE.
 
 13. Term. This contract is effective as of 1 September 1953, and shall continue thereafter for a period of two (2) years unless sooner terminated by KUBARK either
 

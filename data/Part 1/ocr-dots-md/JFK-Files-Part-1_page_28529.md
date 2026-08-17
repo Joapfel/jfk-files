@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28529.png
-
-Convert to Markdown<table><thead><tr><th>OFFICE CODE</th><th>FULL NAME</th><th>CUSTOMER CODE</th></tr></thead><tbody><tr><td>37</td><td>BAGLEY TENNENT H</td><td>056043</td></tr></tbody></table>
+<table><thead><tr><th>OFFICE CODE</th><th>FULL NAME</th><th>CUSTOMER CODE</th></tr></thead><tbody><tr><td>37</td><td>BAGLEY TENNENT H</td><td>056043</td></tr></tbody></table>
 
 SECRET (When Filled In)
 

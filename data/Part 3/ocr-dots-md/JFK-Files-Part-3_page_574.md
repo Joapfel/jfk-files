@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_574.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 On June 16, 1970, the San Francisco Office contacted Fred Green, manager, Hunters Point Housing Project, concerning activities of the Black Panther Party (BPP) within the project. During this contact with Green it was mentioned that Apartment 304 in the housing project rented for occupancy by a woman on welfare and her two children had become a BPP Community Center. It was further noted that the windows of the apartment were covered with large BPP posters and that several Housing Authority rules regarding occupancy of this apartment were being violated.
 

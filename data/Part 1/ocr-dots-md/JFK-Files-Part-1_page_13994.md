@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13994.png
-
-Convert to Markdown<table><tr><td>CONFIDENTIAL</td></tr></table>
+<table><tr><td>CONFIDENTIAL</td></tr></table>
 
 The material contains information affecting the National Defense of the United States within the meaning of the Espenagoe Laws Title 18, USC Secs. 293 and 294, the transmission or revocation of which in any manner to an unauthorized person is prohibited by law.
 

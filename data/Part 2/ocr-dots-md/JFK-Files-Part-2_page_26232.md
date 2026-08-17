@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26232.png
-
-Convert to MarkdownPHOTOCOPIED BY THE KENNEDY LIBRARY DUE TO THE DETERIORATION OF THE ORIGINAL.
+PHOTOCOPIED BY THE KENNEDY LIBRARY DUE TO THE DETERIORATION OF THE ORIGINAL.
 
 enforced by directives, by State Department chairmanship of working groups, and by the infiltration of State Department personnel into the intelligence agency.
 

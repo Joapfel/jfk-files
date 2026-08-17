@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5204.png
-
-Convert to Markdown14-00000
+14-00000
 
 CIA HISTORICAL REVIEW PROGRAM
 RELEASE IN FULL

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2141.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET
 JOAN FOSTER

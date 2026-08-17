@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22456.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Q Can you check that for us?
 2. A Sure.

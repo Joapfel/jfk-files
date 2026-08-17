@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3414.png
-
-Convert to MarkdownJMWAVE
+JMWAVE
 ORGANIZATION
 
 <table><tr><td></td><td>SECRETARY</td></tr><tr><td></td><td>CHIEF OF STATION</td></tr><tr><td></td><td>SIGNAL CENTER</td></tr><tr><td></td><td>4- COMMUNICATORS</td></tr></table>

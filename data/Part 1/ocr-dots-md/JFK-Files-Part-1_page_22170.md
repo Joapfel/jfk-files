@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22170.png
-
-Convert to Markdownfact that I have been talking with you. You can ruin everything.
+fact that I have been talking with you. You can ruin everything.
 I have a career. I have bright prospects. My boss GRIBANOV, my
 highest boss, has a very high degree of respect for me. He some-
 times bawls me out and I-- Well, I make it look like this is un-

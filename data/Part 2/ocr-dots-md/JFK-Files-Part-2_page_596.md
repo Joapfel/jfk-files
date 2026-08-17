@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_596.png
-
-Convert to MarkdownSECRET
+SECRET
 
 30 Jun '67 at 01455
 

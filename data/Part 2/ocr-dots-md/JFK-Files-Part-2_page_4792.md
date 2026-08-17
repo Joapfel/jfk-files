@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4792.png
-
-Convert to MarkdownSECRET
+SECRET
 
 or whether it's collecting intelligence, that's his job. It
 was up to Ike Eisenhower, for example, to tell them, "Okay, fly

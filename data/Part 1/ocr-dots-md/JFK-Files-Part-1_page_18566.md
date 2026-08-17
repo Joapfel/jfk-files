@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18566.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 10 APR 1972
 

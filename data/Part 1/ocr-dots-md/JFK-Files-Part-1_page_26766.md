@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26766.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIO: FRANK A. TOTH/kct
 UNIT : DO/USOP

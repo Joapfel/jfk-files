@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27012.png
-
-Convert to MarkdownCIA "HISTORIES": BREAKDOWN OF CERTAIN ITEMS REQUESTED AND ITEMS NOT REQUESTED
+CIA "HISTORIES": BREAKDOWN OF CERTAIN ITEMS REQUESTED AND ITEMS NOT REQUESTED
 
 Note: This analysis excludes histories of a purely internal, organizational or administrative nature (such as "CIA Recruitment, 1947-71") and histories of other matters covering essentially the entire period of the CIA (such as "Major Policy Authorization for the Conduct of Covert Paramilitary Activities by CIA, 1948-1966.") It focuses instead on activities or operations -- particularly specific covert or clandestine actions -- and similar matters which are within the Senate Select Committee's stated area of interest and generally attributed to one particular Presidential Administration.
 

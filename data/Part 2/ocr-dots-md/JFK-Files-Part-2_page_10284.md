@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10284.png
-
-Convert to MarkdownSECRET/Sensitive
+SECRET/Sensitive
 
 FR 73-183
 

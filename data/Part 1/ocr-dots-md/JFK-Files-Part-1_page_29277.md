@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29277.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. In 1965 I set up an office in Perrine, Florida, under commercial cover, to administer the Agent group. I remained in this office conducting operations and training as before until April 1966. My office was moved into the JMWAVE station at that time, but I remained under commercial cover and my duties continued to be the same.
 

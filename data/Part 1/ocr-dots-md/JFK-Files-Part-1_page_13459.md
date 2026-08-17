@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13459.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26 MAY 66
 

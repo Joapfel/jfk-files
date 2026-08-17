@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6918.png
-
-Convert to MarkdownCLASSIFIED MESSAGE 7
+CLASSIFIED MESSAGE 7
 
 DATE : 17 OCT 1958
 

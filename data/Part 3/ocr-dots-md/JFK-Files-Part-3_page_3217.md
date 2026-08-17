@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3217.png
-
-Convert to Markdown1829
+1829
 
 won't you?
 

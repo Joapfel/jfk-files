@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9448.png
-
-Convert to MarkdownAfter cleaning the barrel and cylinder, take patch with a little solvent on it and wipe off your extractor and all other metal parts outside of cylinder, and the inside of the gun. Lock the hammer and wipe it off thoroughly, drop a couple of drops of oil down in hammer.) HOTOS 11 and 12
+After cleaning the barrel and cylinder, take patch with a little solvent on it and wipe off your extractor and all other metal parts outside of cylinder, and the inside of the gun. Lock the hammer and wipe it off thoroughly, drop a couple of drops of oil down in hammer.) HOTOS 11 and 12
 
 Take a patch and with a couple of drops of oil on it rub your revolver, (all metal parts) lightly. There should be no visible finger prints on your revolver or excessive streaks on the outside. Your gun should not have an oily surface, just apply enough oil for protection against rust.
 

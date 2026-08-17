@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25147.png
-
-Convert to Markdownwife Roza has a tolerant attitude towards KOSTIKOV's probable incaresions into the domain of matal infidelity, since, on one occasion, when KOSTIKOV had been invited to a supposed stag party at ALFERIYEV's home, and Roza KOSTIKOV had phoned to caution KOSTIKOV against drinking too much, a woman answered the call and then called KOSTIKOV to the phone. When Roza talked to KOSTIKOV it sounded that she was more peeved at the fact that she had not been invited to the party rather than that other women were present there at the time.
+wife Roza has a tolerant attitude towards KOSTIKOV's probable incaresions into the domain of matal infidelity, since, on one occasion, when KOSTIKOV had been invited to a supposed stag party at ALFERIYEV's home, and Roza KOSTIKOV had phoned to caution KOSTIKOV against drinking too much, a woman answered the call and then called KOSTIKOV to the phone. When Roza talked to KOSTIKOV it sounded that she was more peeved at the fact that she had not been invited to the party rather than that other women were present there at the time.
 
 When KOSTIKOV started talking to his wife on this particular call, he already had had a few drinks and in disguised voice spoke to her in Spanish, French and English, possibly to impress those who were present. His Spanish is quite good and fluent, his French is rather tolerable, but his English is somewhat stilted and of a school-room type. Possibly, he studied these languages at the Moscow Institute of Languages.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21892.png
-
-Convert to MarkdownIV. NON-KGB ASPECTS OF NOSENKO'S LIFE
+IV. NON-KGB ASPECTS OF NOSENKO'S LIFE
 
 A. Introduction
 

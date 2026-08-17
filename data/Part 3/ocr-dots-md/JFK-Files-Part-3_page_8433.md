@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8433.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Vannall
+Memorandum to Mr. W. R. Vannall
 
 To: Intelligence Evaluation Committee (IEC)
 

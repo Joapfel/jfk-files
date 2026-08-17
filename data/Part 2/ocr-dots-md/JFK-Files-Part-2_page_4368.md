@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4368.png
-
-Convert to MarkdownMONDA
+MONDA
 
 20
 

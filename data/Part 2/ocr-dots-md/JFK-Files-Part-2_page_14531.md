@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14531.png
-
-Convert to MarkdownDEPARTMENT OF STA
+DEPARTMENT OF STA
 
 WASHINGTON
 

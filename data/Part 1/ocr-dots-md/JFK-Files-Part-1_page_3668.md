@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3668.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">~~S E C R E T~~</td></tr><tr><td>WH/MIAMI</td><td>0 Jan 71 21 292</td></tr></table>
 

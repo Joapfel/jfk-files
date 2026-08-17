@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4909.png
-
-Convert to Markdown<table><tr><td colspan="2">T 334824</td></tr><tr><td>514049</td><td>PAGE 03</td></tr><tr><td colspan="2">TO:2716632 OCT 76</td></tr><tr><td></td><td>BACF 35392</td></tr></table>
+<table><tr><td colspan="2">T 334824</td></tr><tr><td>514049</td><td>PAGE 03</td></tr><tr><td colspan="2">TO:2716632 OCT 76</td></tr><tr><td></td><td>BACF 35392</td></tr></table>
 
 6. SUGGEST USING FOLLOWING AS ALTERNATE SOURCE DESCRIPTION IF POSSIBLE!
 

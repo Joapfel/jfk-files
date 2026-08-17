@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32216.png
-
-Convert to Markdownand in their respective capitals, simultaneously. It should be possible for this consultation and OAS action on the resolutions to be completed within ten days. Prior to formal COAS approval of the resolutions, we will inform our NATO allies of the impending OAS action.
+and in their respective capitals, simultaneously. It should be possible for this consultation and OAS action on the resolutions to be completed within ten days. Prior to formal COAS approval of the resolutions, we will inform our NATO allies of the impending OAS action.
 
 6. At the first NATO meeting after formal OAS action on the resolutions, we will request that NATO include Cuba on the list of countries to which shipment of COCOM list (strategic) items is prohibited.
 

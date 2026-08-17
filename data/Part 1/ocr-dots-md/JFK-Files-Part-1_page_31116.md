@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31116.png
-
-Convert to Markdown11. November 1950
+11. November 1950
 
 TO: CSD
 FRC': Chief, Staff C

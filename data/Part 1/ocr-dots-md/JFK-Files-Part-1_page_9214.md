@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_9214.png
-
 who helps the Life man dig up photos) have been through a very large number of photos. HEADLEY is confident that the book will be a first-class job.
 
 If all continues to go well on the Life front, —i.e. if they make no objection to the use of pictures from their files— the main remaining problem will be: how to combine retention of high quality, i.e. adequate reproduction of as many photos as they need to tell the story the way they feel it should be told, with quantity, i.e. sale at a low enough price to make possible wide dissemination.

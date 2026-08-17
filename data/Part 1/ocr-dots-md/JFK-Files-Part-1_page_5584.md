@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5584.png
-
-Convert to MarkdownDEPT OF STATE TELEGRAM
+DEPT OF STATE TELEGRAM
 
 PORT AU PRINCE 295
 

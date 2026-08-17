@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24499.png
-
-Convert to Markdownwas to become President of the U.S. on matters so important as a planned invasion of a neighboring country, and that if you knew at the time in addition to the planned invasion there was an ongoing attempt to assassinate the leader of that country, that you would tell Mr. Kennedy about one matter and not the other.''
+was to become President of the U.S. on matters so important as a planned invasion of a neighboring country, and that if you knew at the time in addition to the planned invasion there was an ongoing attempt to assassinate the leader of that country, that you would tell Mr. Kennedy about one matter and not the other.''
 
 Mr. Bissell: Well, Mr. Chairman, it is quite possible that Mr. Dulles did say something about an attempt to or the possibility of making use of syndicate characters for this purpose. I do not remember his doing so at that briefing. My belief is that had he done so, he probably would have done so in rather general terms and that neither of us was in a position to go into detail on the matter." (Bissell, 6/9/75, p. 35).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5256.png
-
-Convert to Markdown# BANQUE COMMERCIALE D'HAITI
+# BANQUE COMMERCIALE D'HAITI
 
 Exécute toutes opérations de Banque en Haïti et à l'Etranger :
 

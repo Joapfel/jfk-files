@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13068.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Memorandum to Mr. W. R. Wannall
 Re: Interview of Mrs. Dorothy Skillman
 
 6/4/75

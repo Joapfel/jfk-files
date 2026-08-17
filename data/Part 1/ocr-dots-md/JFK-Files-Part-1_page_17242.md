@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17242.png
-
-Convert to Markdown<table><thead><tr><th>Form</th><th>Use Previous Edition<br/>REPLACES FORMS<br/>51-28, 51-28A AND 51-29<br/>WHICH ARE OBSOLETE</th></tr></thead><tbody><tr><td>10/37 53<br/>(40)</td><td>SECRET, ~~OK~~</td></tr></tbody></table>
+<table><thead><tr><th>Form</th><th>Use Previous Edition<br/>REPLACES FORMS<br/>51-28, 51-28A AND 51-29<br/>WHICH ARE OBSOLETE</th></tr></thead><tbody><tr><td>10/37 53<br/>(40)</td><td>SECRET, ~~OK~~</td></tr></tbody></table>
 
 CS COPY
 

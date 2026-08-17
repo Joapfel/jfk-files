@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8009.png
-
-Convert to MarkdownDate: 2/17/75
+Date: 2/17/75
 Caption on Folder or File: (Print)
 Aides Initial: JCM
 SPECIALIZED MAIL COVERAGE

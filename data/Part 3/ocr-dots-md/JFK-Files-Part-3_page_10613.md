@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10613.png
-
-Convert to MarkdownTO : DIRECTOR, FBI
+TO : DIRECTOR, FBI
 
 FROM : SAC, CHARLOTTE
 

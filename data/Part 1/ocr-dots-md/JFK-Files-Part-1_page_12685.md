@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12685.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>Chief, WOGAME</td></tr><tr><td>Chief, Latin America Division</td></tr><tr><td>Chief of Station, Caracas</td></tr><tr><td>JRCENT -- NESCARLET-3 Tax Administration</td></tr></table>
 

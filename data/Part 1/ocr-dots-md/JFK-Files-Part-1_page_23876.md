@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23876.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="2">SPATCH</td>
         <td>CLASSIFICATION<br/>PRIORITY<br/>SECRET</td>

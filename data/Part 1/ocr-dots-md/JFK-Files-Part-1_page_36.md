@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_36.png
-
-Convert to Markdown13-00000
+13-00000
 
 Bunnar NORDENSTAM. One of the 4 1960-61 Sued exchange students. Married Natalya Korshinskaya, tourist guide in Leningrad: He left Lgrad Aug 61, home to Collembury, As of spring '62, wife not yet out. (Acc to press report, she got out e. April. See her 201 under Nordenstam. Another ref says she got visa Feb 62 and joined him in March.
 

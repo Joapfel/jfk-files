@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16977.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 have been formulated regarding this matter. CG T-6 also advised on the above date that numerous unidentified individuals have been in contact with Panther Headquarters, 2350 West Monroe Street, requesting information pertaining to what funeral arrangements had been made. All those contacting the Headquarters were instructed that they should not be sympathetic toward the Panthers because of the killing of Hampton, but should furnish money to be used for bail on those arrested.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7388.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">
      ALL APPLICANTS

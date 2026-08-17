@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9564.png
-
-Convert to Markdowninclude members of the various national committees.
+include members of the various national committees.
 
 6. The question of using STLOS funds for this project was not discussed, but will be considered in the course.
 

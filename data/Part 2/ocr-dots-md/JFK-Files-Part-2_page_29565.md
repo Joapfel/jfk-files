@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29565.png
-
-Convert to Markdown# Classifications
+# Classifications
 
 (This form is to be used for material extracted from CIA-controlled documents.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11754.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <!-- STAR LINE -->
     <tr><td rowspan="12">LIFETIMELIN</td><th colspan="3" style="text-align:center;">STAR</th></tr><tr><td colspan="3">FIRST CLASS ONLY</td></tr><tr><td colspan="3">REGULAR SERVICE FROM</td></tr><tr><td colspan="3">BUENOS AIRES to LONDON</td></tr><tr><td colspan="3">CALLING AT</td></tr><tr><td colspan="3">MONTEVIDEO - SANTOS - RIO DE</td></tr><tr><td colspan="3">JANEIRO, LISBON, TENERIFFE, AND LAS PALMAS</td></tr><tr><td colspan="3">For full particulars sailings, and fares apply to Agents:</td></tr><tr><td colspan="3">KENRICK Y CIA LTDA.</td></tr><tr><td>VALPARAISO:<br>Blanco 737<br>Teléfono 7637</td><td colspan="3">SANTIAO O:<br>Bandera 84, Of. 11º<br>Teléfono 61240</td></tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29031.png
-
-Convert to MarkdownForm 1040 (1972)
+Form 1040 (1972)
 
 <html><body><table><thead><tr><td>(o) NAM</td><td>(b) Relationship</td><td>(c) Months lived in your home. If born or died during year, write B or D.</td><td>(d) Did dependent have income of $750 or more?</td><td>(e) Amount YOU furnished for dependent's support. If 100% write ALL.</td><td>(f) Amount furnished by OTHERS including dependent.</td></tr></thead><tbody><tr><td colspan="6">Total number of dependents listed in column (a). Enter here and on line 9.</td></tr><tr><td colspan="3">(1.) County</td><td colspan="2">(A) Locality. If you lived inside the boundaries of an incorporated city, town, etc., enter its name; if not, check here ▷</td><td colspan="2">(D) Township (see instructions on page 8)</td></tr><tr><td colspan="3"></td><td colspan="4">Leave Blank</td></tr><tr><td colspan="6">For IRS use only—(1) Insomni</td></tr><tr><td colspan="6">List all persons included on line 10 and other filters in a return of their own; or, (2) Insomni (see principal place of residence) ▶</td></tr><tr><td colspan="6"></td></tr></tbody></table></body></html>
 

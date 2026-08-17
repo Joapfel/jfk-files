@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2322.png
-
-Convert to Markdown(personnel evaluation) was prepared on NOSENKO in March - April
+(personnel evaluation) was prepared on NOSENKO in March - April
 1955 rather than May - June 1955. Since the unsatisfactory personnel
 report was directly related to his transfer to the Seventh Department,
 neither of the above changes are considered to be of a significant nature.

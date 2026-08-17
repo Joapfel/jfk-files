@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22885.png
-
-Convert to Markdown100
+100
 
 3 assassinate Castro?
 

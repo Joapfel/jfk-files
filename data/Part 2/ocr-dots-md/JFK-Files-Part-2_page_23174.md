@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23174.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Senator Schweiker. What role was he playing when you came aboard?
 

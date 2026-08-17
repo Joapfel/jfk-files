@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23203.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 professional contact with Mr. Merchant. I knew him mostly slightly socially.
 

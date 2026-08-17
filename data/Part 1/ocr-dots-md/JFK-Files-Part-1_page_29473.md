@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29473.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BRIEF FOR THE DIRECTOR OF CENTRAL INTELLIGENCE
 

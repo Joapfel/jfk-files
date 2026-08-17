@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6319.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 (c) Record repositories and archives of federal, state, and local governments,
 including presidential libraries;

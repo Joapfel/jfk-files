@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16295.png
-
-Convert to MarkdownOn December 1, 1969, the headquarters will be moved to 860 Buena Street, Chicago, Illinois. The new headquarters were obtained since they were larger and more secure.
+On December 1, 1969, the headquarters will be moved to 860 Buena Street, Chicago, Illinois. The new headquarters were obtained since they were larger and more secure.
 
 , 11/12/69)
 

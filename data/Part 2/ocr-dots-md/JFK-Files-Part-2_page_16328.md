@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16328.png
-
-Convert to MarkdownAfter several minutes the individual identified as "O.D." stated "I'm coming out".
+After several minutes the individual identified as "O.D." stated "I'm coming out".
 
 Still another male individual came to the phone and stated "In the revolution, one wins or dies. The state and it's people is stronger than the pig technology - dig it? (obscene) You pig in you mother (obscene). If you come here to get me, I'm going to kill you. Mother (obscene).
 

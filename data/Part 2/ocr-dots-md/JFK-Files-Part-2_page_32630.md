@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32630.png
-
-Convert to MarkdownSECRET
+SECRET
 
 III. Training
 

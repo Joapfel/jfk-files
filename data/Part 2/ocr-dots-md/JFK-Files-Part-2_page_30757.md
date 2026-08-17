@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30757.png
-
-Convert to Markdown⑥ 14 Dec. 1960
+⑥ 14 Dec. 1960
 Cable to Director from Havana. IN 16758 Panegque reportedly under arrest at Cabana Prison & his wife at Women's prison, on charge of aiding Ecombray fighters.
 
 ⑦ Jan 13, 1961

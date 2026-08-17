@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4614.png
-
-Convert to Markdown14-0000
+14-0000
 
 ## DIARIO LA NACION
 5 Junio 66

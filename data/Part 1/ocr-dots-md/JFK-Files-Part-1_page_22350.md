@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22350.png
-
-Convert to Markdown757.
+757.
 
 Source
 

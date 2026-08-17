@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16779.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIO:</td></tr><tr><td>UNIT:</td></tr><tr><td>EXT:</td></tr><tr><td>DATE:</td></tr></table>
 

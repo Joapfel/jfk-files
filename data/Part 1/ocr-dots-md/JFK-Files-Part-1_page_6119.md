@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6119.png
-
-Convert to MarkdownWorking Copy
+Working Copy
 
 Elaine Fuller
 4401 Pine St.

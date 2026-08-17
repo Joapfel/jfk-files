@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25359.png
-
-Convert to MarkdownNo, I can't either confirm or deny it. We are prohibited
+No, I can't either confirm or deny it. We are prohibited
 at staff level from discussing any Committee business.
 
 I apologize for not being able to help you. You know the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_33.png
-
-Convert to Markdown> ~~it has not been foreseen and requested~~
+> ~~it has not been foreseen and requested~~
 > he must have, even if it does not fall within any category of requested information.
 >
 > There has probably never been a complete agreement between CIA and the White House on what the President really needs to know, but a degree of mutual toleration usually prevails so that a President will accept some things he isn't particularly interested in and CIA will carry on certain lines of reporting simply out of regard for a President's supply of President with certain reporting idiosyncracies.

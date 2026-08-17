@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6582.png
-
-Convert to Markdownd. A publication entitled "Livre Noir". This is a Dai Viet black book against Diam, a copy of which, according to du Berrier, was given to Vice President Nixon during his last visit to Saigon. du Berrier says that there is a third portion of the book which he does not love.
+d. A publication entitled "Livre Noir". This is a Dai Viet black book against Diam, a copy of which, according to du Berrier, was given to Vice President Nixon during his last visit to Saigon. du Berrier says that there is a third portion of the book which he does not love.
 
 e. Press release, 25 September 1966, distributed by Dai Viet Party from Paris.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3068.png
-
-Convert to Markdown11
+11
 URSS
 PORTUGAL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7520.png
-
-Convert to MarkdownISLAMIC
+ISLAMIC
 PUBLICATIONS
 
 in

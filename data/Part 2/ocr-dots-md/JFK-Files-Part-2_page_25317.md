@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25317.png
-
-Convert to Markdown16.
+16.
 
 Jim Braden: Author Peter Noyes And Judge Byrne
 

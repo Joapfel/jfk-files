@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31091.png
-
-Convert to MarkdownDIER - Departamento Investigativo
+DIER - Departamento Investigativo
 Del Ejército Revolucionario
 
 ⑥ 14 Dec. 1960

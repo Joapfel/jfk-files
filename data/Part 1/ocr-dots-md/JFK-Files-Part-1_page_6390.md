@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6390.png
-
-Convert to MarkdownCLASSIFICATION CONFIDENTIAL/US OFFICIALS ONLY
+CLASSIFICATION CONFIDENTIAL/US OFFICIALS ONLY
 
 <table><tr><td>STATE</td><td>NAVY</td></tr><tr><td rowspan="2">ARMY</td><td rowspan="2">AIR</td><td>NSRB</td></tr><tr><td>FBI</td></tr></table>
 

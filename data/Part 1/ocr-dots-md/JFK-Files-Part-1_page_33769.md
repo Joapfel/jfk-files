@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33769.png
-
-Convert to Markdown17 June 1958
+17 June 1958
 
 **MEMORANDUM FOR:** MR. ROBERT J. JOYCE
 Policy Planning Staff

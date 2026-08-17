@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14399.png
-
-Convert to MarkdownSTANDARD FORM NO. 1169a
+STANDARD FORM NO. 1169a
 
 Form prescribed by Comptroller General U.S.
 May 1, 1955, in General Regulations No. 123.

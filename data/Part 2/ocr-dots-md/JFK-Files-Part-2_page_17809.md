@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17809.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 # AMBIGUITIES AND THE LAW
 

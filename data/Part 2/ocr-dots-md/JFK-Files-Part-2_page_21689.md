@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21689.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In others they would ostensibly take the risk and we
 would stand behind them.

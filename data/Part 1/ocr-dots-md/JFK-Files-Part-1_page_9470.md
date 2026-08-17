@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9470.png
-
-Convert to Markdown3. Attention was continuously drawn to the popularity of Orwell's "1984". Hence the outlet asks whether it would be possible to make-up from broken numbers single stapled copies of "1984" - recalling that this had been done for them in the case of "Animal Farm" and other articles.
+3. Attention was continuously drawn to the popularity of Orwell's "1984". Hence the outlet asks whether it would be possible to make-up from broken numbers single stapled copies of "1984" - recalling that this had been done for them in the case of "Animal Farm" and other articles.
 
 5. The outlet operates through an apparatus of couriers to all universities of the Soviet Zone. Universities are supplied by as many as four and an average of three different couriers, unknown to one another. Leipzig, Halle, Jena, Greifswald, Dresden and Rostock are thus covered. There are a large number of delivery contacts at the Humboldt University. Also there are contacts to the "Landes Hochschule" in Potsdam which is designed especially for training SED functionaries, teachers, and key occupations. Couriers from other academic institutions and circles are also supplied, as well as to a number of non-academic circles of significant strategic value, as described below.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28955.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (EVEN WHEN BLANK)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_562.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 The Little Rock Office directed anonymous letters to the employers of members of the Forrest City Klavern of the United Klans of America in which were enclosed copies of an article dated September 24, 1970, which appeared in "The Arkansas Gazette," a Little Rock daily newspaper, concerning the arrest of klavern members at Parkin, Arkansas. Thirteen individuals were arrested for nightriding and other charges.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24765.png
-
-Convert to Markdownh. page 9 - BONILLA Sanchez and LEONOV "being in correspondence" implies mail intercept (LIMUD) which it is.
+h. page 9 - BONILLA Sanchez and LEONOV "being in correspondence" implies mail intercept (LIMUD) which it is.
 
 1. page 9 - LIREBEL-2 is a sensitive source and about the main source right now on Guatemalan exile activities. The last sentence might implicate him. At least it tells the Peruvians that CIA has a penetration here.
 

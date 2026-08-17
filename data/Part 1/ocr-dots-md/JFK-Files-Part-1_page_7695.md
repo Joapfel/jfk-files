@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7695.png
-
-Convert to MarkdownOn 30 Nov 1965 LIPOVSKAYA contacted Subject and told him a long, rambling story about her relatives. Subject was evidently interested, urged her to visit the USSR and suggested she come to the Soviet Embassy to talk to him. On 24 Dec 1965 LIPOVSKAYA tried to call Subject but was referred by mistake to another Valentin. On 8 and 20 Jan 1966 she asked Subject if he had heard from her relative, the soccer player Lev YASCHIN, but Subject still had no news for her. (1).
+On 30 Nov 1965 LIPOVSKAYA contacted Subject and told him a long, rambling story about her relatives. Subject was evidently interested, urged her to visit the USSR and suggested she come to the Soviet Embassy to talk to him. On 24 Dec 1965 LIPOVSKAYA tried to call Subject but was referred by mistake to another Valentin. On 8 and 20 Jan 1966 she asked Subject if he had heard from her relative, the soccer player Lev YASCHIN, but Subject still had no news for her. (1).
 
 34) Tatiana RAKOFF Vda de MARCHAND (P-370), widow of Rene MARCHAND Boisselet, former professor at UNAM and director of the Yugoslav Cultural Institute. She is evidently a native Russian, but French citizen.
 

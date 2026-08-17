@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16389.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 Antonio Emilio Jose Eia Conde
 

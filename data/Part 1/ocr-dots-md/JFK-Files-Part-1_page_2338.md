@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2338.png
-
-Convert to Markdownin Soviet organizations and more specifically in the KGB. As an example, a Chief of Department in the KGB or the Chief of a Residentura abroad may have 2, 3 or even 4 deputies, one of whom is given the title of First Deputy. This particular deputy acts in the absence of the Chief of Department and in general has supervisory functions over all the Department sections. The exception to the latter is when the Chief of Department retains direct supervision over what he may consider the most important section. Other deputies have supervisory functions only over designated sections or organizational components.)
+in Soviet organizations and more specifically in the KGB. As an example, a Chief of Department in the KGB or the Chief of a Residentura abroad may have 2, 3 or even 4 deputies, one of whom is given the title of First Deputy. This particular deputy acts in the absence of the Chief of Department and in general has supervisory functions over all the Department sections. The exception to the latter is when the Chief of Department retains direct supervision over what he may consider the most important section. Other deputies have supervisory functions only over designated sections or organizational components.)
 
 During current interviews and in prepared memoranda, NOSENKO has furnished detailed information which it is considered substantiates his claimed positions in the KGB. Detailed remarks on these topics are contained in separate sections of this summary.
 

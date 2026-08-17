@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4658.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 In regard to the preceding, it is noted that SARA ANN TRAFFICANTE, as previously reported, has a boyfriend, RICHARD VALDEZ, who resides in Tampa, but attends the University of Florida, Gainesville, Florida.
 

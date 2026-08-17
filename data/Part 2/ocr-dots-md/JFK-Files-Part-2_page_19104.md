@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19104.png
-
-Convert to MarkdownLetter to SJC, New York
+Letter to SJC, New York
 
 RE: IRVING KAHN
 

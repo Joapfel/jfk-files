@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23769.png
-
-Convert to MarkdownMr. Bader. On is Portugal?
+Mr. Bader. On is Portugal?
 
 Senator Huddleston, That's not a subversion of the
 process, that's an assistance.

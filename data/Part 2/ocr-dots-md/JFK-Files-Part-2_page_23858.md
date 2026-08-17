@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23858.png
-
-Convert to MarkdownThe United States Senate
+The United States Senate
 
 Vol. 2 OF 3
 

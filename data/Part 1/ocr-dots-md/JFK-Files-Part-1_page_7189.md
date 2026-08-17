@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7189.png
-
-Convert to Markdown2.
+2.
 
 The following day, 14 April, Logvinov came to Subj's office. He asked Subj how his trip (to Europe) had been and specifically asked if Subj had seen Ginette Palacel Porter. Subj replied that he had found out that Ginette and her husband were vacationing in Italy.
 

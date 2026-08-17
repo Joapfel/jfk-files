@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17204.png
-
-Convert to MarkdownKENNETH EARL BELL
+KENNETH EARL BELL
 
 Illinois BPP, and has been observed in Maywood, wearing the BPP uniform of a black beret and army fatigue jacket.
 

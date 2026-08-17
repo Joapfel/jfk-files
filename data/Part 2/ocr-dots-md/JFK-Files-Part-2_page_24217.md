@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24217.png
-
-Convert to Markdownauthority of the Central Intelligence Act of 1949 in order to acquire a certificated air carrier to support its foreign intel- ligence operations. The purchase was accomplished after consul- tation and approval by the CAB and the DOD, and was not in violation of Section 410 of the Federal Aviation Act.
+authority of the Central Intelligence Act of 1949 in order to acquire a certificated air carrier to support its foreign intel- ligence operations. The purchase was accomplished after consul- tation and approval by the CAB and the DOD, and was not in violation of Section 410 of the Federal Aviation Act.
 
 Following determination by CIA in 1972 that ownership of SAT was no longer required to support its foreign intelligence opera- tions, the CIA undertook to dispose of SAT under the authority of the CIA Act of 1949 and the specific provision in the Federal Property and Administrative Services Act of 1949 (FPAS Act) that nothing in the act shall impair or affect any authority of the Central Intel- ligence Agency. In the case of Robert Farmer, et al., vs. Southern Air Transport, Inc., et al., the U.S. District Court, Southern District of Florida, Case No. 74-467-CIV-WM, upheld the authority of CIA to dispose of Southern Air Transport, Inc.
 

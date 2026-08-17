@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33964.png
-
-Convert to Markdown<table><tr><td>CLASSIFICATION</td><td></td><td>PAGE NO.</td></tr><tr><td>SECRET</td><td>☐ CONTINUED</td><td>2</td></tr></table>
+<table><tr><td>CLASSIFICATION</td><td></td><td>PAGE NO.</td></tr><tr><td>SECRET</td><td>☐ CONTINUED</td><td>2</td></tr></table>
 
 FORM 864 53a USE PREVIOUS EDITION.
 

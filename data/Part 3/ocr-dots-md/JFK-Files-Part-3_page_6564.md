@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6564.png
-
-Convert to MarkdownSAC, San Francisco (157-459)
+SAC, San Francisco (157-459)
 
 Director, FBI (100-445393)
 

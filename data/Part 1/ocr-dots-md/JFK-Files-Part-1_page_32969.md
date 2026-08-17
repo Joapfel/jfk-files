@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32969.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DIR CITE: WAVE 6377
 RYDAT T210 AMTRUNK-ATLASH

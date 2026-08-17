@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11170.png
-
-Convert to MarkdownINDEX ☐ YES ☐ NO
+INDEX ☐ YES ☐ NO
 CLASSIFY TO FILE NO. __________
 X-REF TO FILE NO. __________
 FILE RIF ☐ RET. TO BRANCH ☐

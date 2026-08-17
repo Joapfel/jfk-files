@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_890.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>SECRET/NOFORN<br/>CONTINUED CONTROL</td>
   </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22402.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Treasury Department you have the extra-territorialty clause in there where a subsidiary of an American company cannot -- foreign subsidiary of an American company cannot trade with the country that is designated and Cuba was a designated country. And all the businessmen were well aware of this. Nobody tried to twist their arm.
 

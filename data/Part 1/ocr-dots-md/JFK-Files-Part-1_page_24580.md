@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24580.png
-
-Convert to Markdown16. SANCHEZ Gonzalez, Hector (201-2337), borderide Cuban Diplomat and suspected DSE officer.
+16. SANCHEZ Gonzalez, Hector (201-2337), borderide Cuban Diplomat and suspected DSE officer.
 
 Between 11 and 18 October 1968, CARDOZA met Hector SANCHEZ Gonzalez and the latter informed CARDOZA that he has authority from Cuban government to do whatever is necessary to reorganize FAR (15).
 

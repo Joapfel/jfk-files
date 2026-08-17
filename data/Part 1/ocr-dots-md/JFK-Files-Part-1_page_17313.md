@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17313.png
-
-Convert to Markdownpro-Communist, CTAL, which is described as being the liaison bureau of the WFTU (World Federation of Trade Unions) whose headquarters are in Prague, was headed by Vicente LOMBARDO Toledano.
+pro-Communist, CTAL, which is described as being the liaison bureau of the WFTU (World Federation of Trade Unions) whose headquarters are in Prague, was headed by Vicente LOMBARDO Toledano.
 
 ## 13. Prensa Latina
 

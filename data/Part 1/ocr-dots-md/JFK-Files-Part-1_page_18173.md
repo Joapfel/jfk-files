@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18173.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td rowspan="2">4-0000</td>
     <td>CLASSIFIED INFORMATION</td>

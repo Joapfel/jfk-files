@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5678.png
-
-Convert to MarkdownSUBJECT:
+SUBJECT:
 
 NUMBER:
 

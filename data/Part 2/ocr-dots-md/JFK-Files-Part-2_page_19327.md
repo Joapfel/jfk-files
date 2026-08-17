@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19327.png
-
-Convert to MarkdownSF 100-59802
+SF 100-59802
 
 GOW/jr
 

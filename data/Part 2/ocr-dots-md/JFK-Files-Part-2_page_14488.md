@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14488.png
-
-Convert to MarkdownProject Hunter.
+Project Hunter.
 
 TRILUPAITIENE, ALDONA
 

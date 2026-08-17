@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15273.png
-
-Convert to MarkdownSubject stated that he told the Chief Warden in the prison of his (Subject's) invention, and the Warden told Subject to write a letter to a Special German service which was in charge of this type of information. Subject believes that it was known as "Service Dienstelle 0000". A representative arrived and interviewed Subject asking Subject to furnish plans for this motor. Subject stated that he had hidden part of the plans, and the investigation went on. Subject always managed to put them off slightly.
+Subject stated that he told the Chief Warden in the prison of his (Subject's) invention, and the Warden told Subject to write a letter to a Special German service which was in charge of this type of information. Subject believes that it was known as "Service Dienstelle 0000". A representative arrived and interviewed Subject asking Subject to furnish plans for this motor. Subject stated that he had hidden part of the plans, and the investigation went on. Subject always managed to put them off slightly.
 
 43. Subject stated that he made two attempts to escape while in the custody of the German Police. The first time, Subject was under police interro-gation in Berlin and during an air raid the prison in which Subject was being held was destroyed, and Subject attempted to escape but was caught. The second time, Subject was at the prison at Plotzen See and made a key out of a piece of wire and opened the door of his cell. However, he was unsuccessful in this escape attempt also.
 

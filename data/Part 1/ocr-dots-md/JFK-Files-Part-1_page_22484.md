@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22484.png
-
-Convert to MarkdownSIGNAL CENTER USE ONLY
+SIGNAL CENTER USE ONLY
 
 <table><tr><td>1</td><td></td><td>3</td><td></td></tr></table>
 

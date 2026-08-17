@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15156.png
-
-Convert to MarkdownFrankfurt/Main
+Frankfurt/Main
 31. August 1962
 
 An das

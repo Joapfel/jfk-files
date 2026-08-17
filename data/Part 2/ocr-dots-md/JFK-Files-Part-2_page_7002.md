@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7002.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 NOTE FOR: Richard E. Schroeder
 FROM: John F. Pereira

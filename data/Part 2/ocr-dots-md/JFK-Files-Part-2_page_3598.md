@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3598.png
-
-Convert to Markdown3. USSR-Cuba
+3. USSR-Cuba
 
 a. In the past week we inter- 24
 cepted Cuban military messages which 24

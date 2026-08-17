@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21386.png
-
-Convert to MarkdownCG 6474-S stated that in August, 1961, Richard Gibson, acting National Executive Secretary of the FPCC, advised that those names on the addressograph maintained at FPCC headquarters, NYC, which did not include a letter and a number after the state would be eligible for renewal of their membership and/or subscription fee beginning in January, 1962.
+CG 6474-S stated that in August, 1961, Richard Gibson, acting National Executive Secretary of the FPCC, advised that those names on the addressograph maintained at FPCC headquarters, NYC, which did not include a letter and a number after the state would be eligible for renewal of their membership and/or subscription fee beginning in January, 1962.
 
 100-443866-19 ep.15
 

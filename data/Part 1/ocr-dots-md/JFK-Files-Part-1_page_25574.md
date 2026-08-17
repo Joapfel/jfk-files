@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25574.png
-
-Convert to MarkdownS C R E T
+S C R E T
 
 S/C Attachment #7 to HMMT-9317
 dated 23 September 1968

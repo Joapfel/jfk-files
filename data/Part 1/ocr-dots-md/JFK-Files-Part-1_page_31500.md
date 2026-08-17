@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_31500.png
-
 s for National Sections at $150 per month</td>
             <td>$ 18,000.00</td>
         </tr>

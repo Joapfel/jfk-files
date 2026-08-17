@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2580.png
-
-Convert to MarkdownTOP SECRET DOCUMENT
+TOP SECRET DOCUMENT
 
 10 NO.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3012.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 removing Castro from the leadership of the Cuban
 Government, the principal questions faced by CIA's

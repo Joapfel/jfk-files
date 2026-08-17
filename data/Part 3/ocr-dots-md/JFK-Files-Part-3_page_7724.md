@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7724.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SIGINT provides a broad range of foreign intelligence ranging from early warning indicators to the most mundane information. The importance of any single intercept or series of interceptions cannot be anticipated in advance; therefore, the probable cause standard and the proposed requirements of "particularity" are inappropriate in connection with this method of foreign intelligence collection. (Furthermore, the House bills would impair existing responsibility for using other intelligence gathering techniques against foreign subjects within the United States, e.g., medicepts, photo surveillance, etc.)
 

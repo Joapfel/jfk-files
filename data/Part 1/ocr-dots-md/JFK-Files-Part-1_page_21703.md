@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21703.png
-
-Convert to Markdownwas to discuss the possibility of temporarily discontinuing certain Embassy "points" controlled by the First Section, and permitting PETROV to use these "points" against targets of his section.
+was to discuss the possibility of temporarily discontinuing certain Embassy "points" controlled by the First Section, and permitting PETROV to use these "points" against targets of his section.
 
 According to NOSENKO, PETROV brought to the meeting a list of names of certain targets to which he wished to give technical coverage. During the meeting, KOVSHUK apparently took a piece of paper which PETROV had and wrote on it a list of active microphones in the United States Embassy and residences. When the meeting ended, NOSENKO had this paper and he took it back to his office.
 

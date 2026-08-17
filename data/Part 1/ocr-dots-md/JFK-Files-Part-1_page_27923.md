@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27923.png
-
-Convert to Markdown## SEC. XIV. MILITARY STATUS
+## SEC. XIV. MILITARY STATUS
 
 <table><tr><td>1. Present Draft Status<br/>Have you registered under the Selective Service Act of 1948? ✓ Yes __ No.<br/>If yes, indicate your present draft classification 4-4</td></tr><tr><td>2. Present Reserve or National Guard Status<br/>Do you now have Reserve or National Guard Status ✓ Yes __ No.<br/>If yes, complete the following.<ol type="1"><li>National Guard</li><li>Air National Guard</li><li>Active Reserve Status (member of organized unit)</li><li>Inactive Reserve Status</li></ol>Service U.S. Naval Reserve Grade LDC Serial Number 574830<br/>Reserve Unit with which currently affiliated DND only - Coning<br/>Service Mobilization Assignment, if any<br/>Location of Service Records, if known US Naval Reserves Office card, DA 6A1/1C2<br/>H.C. Command 9th and District GTAKS III</td></tr></table>
 

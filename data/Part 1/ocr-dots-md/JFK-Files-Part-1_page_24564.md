@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24564.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">CORREO AFREO</td>
    </tr>

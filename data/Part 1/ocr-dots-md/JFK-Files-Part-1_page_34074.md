@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34074.png
-
-Convert to MarkdownCUBAN TRADING
+CUBAN TRADING
 
 Economic Research Bureau,
 United States,

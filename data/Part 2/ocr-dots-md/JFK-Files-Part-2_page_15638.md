@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15638.png
-
-Convert to MarkdownII. ACTS IN FURTHERANCE OF REVOLUTIONARY PROGRAM OR POLICIES
+II. ACTS IN FURTHERANCE OF REVOLUTIONARY PROGRAM OR POLICIES
 
 advised on November 15, 1969,
 JEWEL COOK, his brother CLEVE COOK and WILLIE CALVIN were sentenced in Indianapolis, Indiana, the preceding day stemming from their arrests in September, 1969. All are members of the Illinois Chapter of the BPP. JEWEL COOK received a 15-day sentence and a $85 fine. CLEVE COOK received a 30-day sentence and a $85 fine. CALVIN paid an $85 fine.

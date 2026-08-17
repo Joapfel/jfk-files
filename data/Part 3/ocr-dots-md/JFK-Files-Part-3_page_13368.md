@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13368.png
-
-Convert to MarkdownSTURGIS: I confronted him on that. I called Seymour Hersh up. I told Seymour Hersh "What the hell are you putting in the newspaper about me?" He says "Well, bu -bu St. George's." I don't give a fuck about Andrew St. George." He says "Well, in your outline you stated..". I says "I haven't stated these fucking lies that you are putting in the paper about me." I says "Andrew St. George is a fucking liar, and I told him that on the telephone." He says "Well, I believe you Frank, I believe you." I says "Well, stop that bullshit". Because he mentioned about the break-in of the Chilean Embassy--supposedly that I did the break-in of the Chilean Embassy ---
+STURGIS: I confronted him on that. I called Seymour Hersh up. I told Seymour Hersh "What the hell are you putting in the newspaper about me?" He says "Well, bu -bu St. George's." I don't give a fuck about Andrew St. George." He says "Well, in your outline you stated..". I says "I haven't stated these fucking lies that you are putting in the paper about me." I says "Andrew St. George is a fucking liar, and I told him that on the telephone." He says "Well, I believe you Frank, I believe you." I says "Well, stop that bullshit". Because he mentioned about the break-in of the Chilean Embassy--supposedly that I did the break-in of the Chilean Embassy ---
 
 ROETHE: Here in Washington?
 

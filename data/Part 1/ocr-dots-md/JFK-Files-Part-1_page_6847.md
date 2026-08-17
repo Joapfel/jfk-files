@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_6847.png
-
 , at least!
 To need to tell you what that still means. So, while we isn't doing more
 ahead at the pace of the moon rotters, we're not standing still either.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11310.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 73
 
 <table><tr><td>DATE:</td><td>WH/1</td></tr><tr><td>UNIT:</td><td></td></tr><tr><td>EXT:</td><td></td></tr><tr><td>BATE:</td><td>3 NOV 66</td></tr></table>

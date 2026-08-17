@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6573.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 So long as the Sino-Soviet Bioc continues to subsidize Cuba, the internal economic situation will probably not become intolerable for those committed to the Castro Regime. The Sino-Soviet Bioc would stand to suffer severely if they undertook any major reduction in their support of Cuba.
 

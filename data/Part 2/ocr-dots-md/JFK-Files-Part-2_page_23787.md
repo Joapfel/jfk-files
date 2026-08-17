@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23787.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the American citizenry, and says no, you cannot do this because
 you happen to be a secret organization.

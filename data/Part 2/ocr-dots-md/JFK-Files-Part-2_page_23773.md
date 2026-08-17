@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23773.png
-
-Convert to MarkdownHW 50955 DocId:32423509 Page 147
+HW 50955 DocId:32423509 Page 147
 
 Mr. Aaron. I think this is the question. It goes to
 the point not of assistance to the government in general or

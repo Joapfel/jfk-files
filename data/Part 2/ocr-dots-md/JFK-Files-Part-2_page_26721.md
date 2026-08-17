@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26721.png
-
-Convert to MarkdownSECRET
+SECRET
 
 I truthfully don't know whether any of these people ever went
 to jaul or not.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9321.png
-
-Convert to Markdown(6) Publication to be in the US first, with a view to subsidization (if necessary) of editions (possibly abridged) in Western Europe and elsewhere.
+(6) Publication to be in the US first, with a view to subsidization (if necessary) of editions (possibly abridged) in Western Europe and elsewhere.
 
 (9) Publisher. JBIII: "Duoll would be lousy. You'd get no advertising. Simon & Schuster would be excellent if you can get them to do it. Ask Littauer to shop it around."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27248.png
-
-Convert to MarkdownSummary Financial Support to the White House (CONFIDENTIAL)
+Summary Financial Support to the White House (CONFIDENTIAL)
 
 with 3 Tabs:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32859.png
-
-Convert to MarkdownMiguel - Slentate, quieres un cigarillo?
+Miguel - Slentate, quieres un cigarillo?
 
 Guillermo - Como no, gracias.
 

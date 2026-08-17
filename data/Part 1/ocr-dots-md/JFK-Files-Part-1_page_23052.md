@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23052.png
-
-Convert to Markdown(3) members of the faculty of the three Cuban medical schools (referred to as schools of medical sciences) located in Havana City, Santa Clara, and Santiago de Cuba, and (4) biochemists and microbiologists in industries related to the medical sciences, such as the pharmaceutical industry.
+(3) members of the faculty of the three Cuban medical schools (referred to as schools of medical sciences) located in Havana City, Santa Clara, and Santiago de Cuba, and (4) biochemists and microbiologists in industries related to the medical sciences, such as the pharmaceutical industry.
 
 c. The preparation of personnel for work in the pure sciences; this third objective constitutes a more ambitious but long-range goal that was still in the organizational and planning stage in January 68. Part of the personnel so trained would remain at the Center as CNIC researchers; part would join the faculties of the university schools of pure sciences, and part would enter Cuban industry to work on the applications of technology to production.
 

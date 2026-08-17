@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6265.png
-
-Convert to MarkdownAT 157-267
+AT 157-267
 
 W.E.B. DU BOIS CLUBS OF AMERICA (DCA)
 

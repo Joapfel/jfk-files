@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27243.png
-
-Convert to MarkdownA - Memo to Schwarzer ; From Belin - Subj: CIA File on Senator Humphrey. 14 May 75
+A - Memo to Schwarzer ; From Belin - Subj: CIA File on Senator Humphrey. 14 May 75
 
 B - Memo to Olsen from Belin - Subj: Mark Lane Correspondence - 14 May 75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13932.png
-
-Convert to MarkdownCIA at present is providing $5,000 to the FNC Party made up of anti-Jagan Africans in Quiana, and CIA is sending a Negro cover representative from New York to aid the African Party.
+CIA at present is providing $5,000 to the FNC Party made up of anti-Jagan Africans in Quiana, and CIA is sending a Negro cover representative from New York to aid the African Party.
 
 (CIA considers that Mrs. Jagan, a known Communist from Chicago, is the brains and guts of the Jagan operation.)
 

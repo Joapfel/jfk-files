@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7960.png
-
-Convert to Markdown# La politica
+# La politica
 del Ventesimo
 
 Lotta

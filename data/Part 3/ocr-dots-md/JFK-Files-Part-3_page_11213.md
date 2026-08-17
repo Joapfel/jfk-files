@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11213.png
-
-Convert to Markdown"7. Information concerning persons who may be considered potentially dangerous to individuals protected by the USSS because of their background or activities, including evidence of emotional instability or participation in groups engaging in activities inimical to the United States.
+"7. Information concerning persons who may be considered potentially dangerous to individuals protected by the USSS because of their background or activities, including evidence of emotional instability or participation in groups engaging in activities inimical to the United States.
 
 ## V. Provision of Federal Bureau of Investigation Personnel to Protect the President and Other Protected Persons
 

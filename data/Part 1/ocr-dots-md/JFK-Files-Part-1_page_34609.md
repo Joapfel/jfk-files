@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34609.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to have the time to analyze and resolve this case, and to plan and execute appropriate countermeasures, it was essential that we attempt to keep the KGB from learning of our awareness of Nosenko's true status. Consequently, detailed knowledge of the depth and scope of our suspicions about Nosenko, and the implications thereof, was restricted to a very few people in the Agency and the intelligence community. Nonetheless, we did advise key policy echelons and principals in the intelligence community, even though this carried the inevitable risk of leakage.
 

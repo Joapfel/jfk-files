@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24981.png
-
-Convert to MarkdownSEL COM
+SEL COM
 File:
 
 September 23, 1975

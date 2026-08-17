@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27285.png
-
-Convert to Markdown# OFFICE OF SECURITY - WORKING PAPERS
+# OFFICE OF SECURITY - WORKING PAPERS
 
 A. Contacts with Watergate Figures - Undated - SECRET
 

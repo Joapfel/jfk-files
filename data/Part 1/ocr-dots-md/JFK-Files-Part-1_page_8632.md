@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8632.png
-
-Convert to MarkdownSeptember 23, 1969
+September 23, 1969
 
 Memorandum
 

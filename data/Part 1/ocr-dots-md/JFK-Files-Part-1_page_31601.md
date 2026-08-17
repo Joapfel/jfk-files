@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31601.png
-
-Convert to MarkdownRPE LS 7-24-53
+RPE LS 7-24-53
 
 CAESAR INFO WALKER F. MICHIE
 

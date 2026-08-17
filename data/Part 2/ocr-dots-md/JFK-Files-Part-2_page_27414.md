@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27414.png
-
-Convert to Markdown✓ 7. Undated draft (on white paper), the first words of which are: "Project is approved with the following provision." (one page).
+✓ 7. Undated draft (on white paper), the first words of which are: "Project is approved with the following provision." (one page).
 
 ✓ 8. Memo for the Record dated 15 April 1970 by Donald P. Gregg re "Meeting with ADDP on Project MPLODESTAR" (2 pages).
 

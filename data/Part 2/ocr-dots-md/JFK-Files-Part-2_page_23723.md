@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23723.png
-
-Convert to Markdown1. Mr. Aaron. That is not what we want to convey and so you are correct.
+1. Mr. Aaron. That is not what we want to convey and so you are correct.
 
 2
 

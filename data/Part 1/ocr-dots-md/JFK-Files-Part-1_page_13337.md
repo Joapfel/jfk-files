@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13337.png
-
-Convert to MarkdownHavana Domestic Television Service in Spanish 0107 CFF 7 Aug 67
+Havana Domestic Television Service in Spanish 0107 CFF 7 Aug 67
 
 Official Use Only
 

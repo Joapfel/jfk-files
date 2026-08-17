@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2181.png
-
-Convert to MarkdownMr. Cecil J. Klobukar
+Mr. Cecil J. Klobukar
 
 Dear Mr. Klobukar:
 

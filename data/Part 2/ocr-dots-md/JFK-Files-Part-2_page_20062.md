@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20062.png
-
-Convert to MarkdownSource 9 SOURCE
+Source 9 SOURCE
 Source 10 INFORMANTS
 Source 11
 

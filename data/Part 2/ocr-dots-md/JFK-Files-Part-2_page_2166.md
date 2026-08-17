@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2166.png
-
-Convert to MarkdownFormer Staff Employee
+Former Staff Employee
 
 4 Aug 68
 

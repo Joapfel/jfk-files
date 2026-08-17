@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30741.png
-
-Convert to MarkdownMiscellaneous documents not in files
+Miscellaneous documents not in files
 Page 2
 
 1110862

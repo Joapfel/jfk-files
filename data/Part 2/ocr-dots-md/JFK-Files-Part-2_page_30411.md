@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30411.png
-
-Convert to MarkdownIUP SECRET
+IUP SECRET
 
 interest in a person. Let us take, for example, you are working
 for the Army Intelligence and you are in Germany and you become

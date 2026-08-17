@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10933.png
-
-Convert to Markdown# MEMORANDUM NO: 1773
+# MEMORANDUM NO: 1773
 
 SUBJECT:
 

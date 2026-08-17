@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8468.png
-
-Convert to MarkdownCongress of the United States
+Congress of the United States
 House of Representatives
 
 RONALD V. DELLUMS, 8TH DISTRICT, CALIFORNIA

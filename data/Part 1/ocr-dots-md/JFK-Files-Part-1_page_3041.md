@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3041.png
-
-Convert to Markdownwould be able to do anything so vile." Referring to B.'s statement about the good relationship between the MEDVEDEVs, C. says, "How can you say that, how can you give such an example? ((He mimics B. sarcastically)) 'They have such ((a good relationship)); everything is done by them in a friendly manner.' ((C. says maliciously)) Rosa, I despise them..." He continues expressing his indignation. He adds, "They have a foursome; the first are the MEDVEDEVs and then, the TEREKHOVs ((the four are good friends))." C. says that "yesterday I spoke with Galya BOLDINOVA ((probably about the MEDVEDEVs and the foul up on the meat pastrries))."
+would be able to do anything so vile." Referring to B.'s statement about the good relationship between the MEDVEDEVs, C. says, "How can you say that, how can you give such an example? ((He mimics B. sarcastically)) 'They have such ((a good relationship)); everything is done by them in a friendly manner.' ((C. says maliciously)) Rosa, I despise them..." He continues expressing his indignation. He adds, "They have a foursome; the first are the MEDVEDEVs and then, the TEREKHOVs ((the four are good friends))." C. says that "yesterday I spoke with Galya BOLDINOVA ((probably about the MEDVEDEVs and the foul up on the meat pastrries))."
 
 The three of them then calm down, converse quietly, and have a drink. The music covers a part of their conversation.
 

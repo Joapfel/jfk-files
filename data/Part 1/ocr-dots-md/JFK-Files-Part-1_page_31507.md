@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31507.png
-
-Convert to MarkdownSECRET
+SECRET
 
 which is attached as Appendix B. In brief, these comments bear out in instance after instance the assertions set forth above as to the fundamental difficulties with which we are faced in the administration of this project.
 

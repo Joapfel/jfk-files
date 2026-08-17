@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9289.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## BLACK PANTHER PARTY, also known as Black Panther Party for Self Defense
 

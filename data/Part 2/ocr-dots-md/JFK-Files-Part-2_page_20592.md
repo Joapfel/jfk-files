@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20592.png
-
-Convert to MarkdownNR60 NY CODE
+NR60 NY CODE
 
 1120 PM NITEL 1-13-72 FPN
 

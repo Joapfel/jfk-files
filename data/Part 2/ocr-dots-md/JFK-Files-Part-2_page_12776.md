@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12776.png
-
-Convert to Markdownunequivocal regardless of Yugoslavia's foreign policies.
+unequivocal regardless of Yugoslavia's foreign policies.
 
 ### (G) Cuban
 

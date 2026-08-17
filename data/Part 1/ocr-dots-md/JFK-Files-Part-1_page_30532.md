@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30532.png
-
-Convert to MarkdownGENERAL D. B. RTAG
+GENERAL D. B. RTAG
 FOR EET CORR
 NO 500
 

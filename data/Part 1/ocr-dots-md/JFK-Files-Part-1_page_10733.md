@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10733.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td rowspan="2">14-0000</td><th colspan="5" scope="colgroup">SIGNAL CENTER USE ONLY</th><th rowspan="2" scope="col">DC</th><th rowspan="2" scope="col">PAGE</th><th rowspan="2" scope="col">OF</th><th rowspan="2" scope="col">PAGES</th></tr><tr><th scope="col">AGE</th><th scope="col">CO</th><th scope="col">UP</th><th scope="col">TO</th><th scope="col">DE</th></tr><tr><th scope="row">CMF</th><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td></td><td>2</td><td>2</td><td></td></tr></table>
 

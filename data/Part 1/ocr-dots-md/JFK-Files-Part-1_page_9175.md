@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9175.png
-
-Convert to MarkdownSECRET
+SECRET
 
 No. 15
 Munson phoned from N.Y. (see mem). He had a long phone

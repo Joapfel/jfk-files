@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21811.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Mr. Wides. So how would he get the information about potential targets in New York?
 2.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5867.png
-
-Convert to Markdown# DO Response to Board Request CIA - 16
+# DO Response to Board Request CIA - 16
 Oswald Pre-Assassination Files
 
 The Directorate of Operations reviewed the DO records to determine if there were any additional files containing pre-assassination records relating to Oswald. Research identified a document in the Oswald 201 which appeared to be a file inventory. The document identified CI Staff as the file custodian. CIC has confirmed that all CI Staff holdings were incorporated into the 201.

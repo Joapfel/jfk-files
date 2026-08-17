@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16048.png
-
-Convert to MarkdownSECRET - TELEPOUCH
+SECRET - TELEPOUCH
 
 DISP NO - FTSA-33,059
 DATE - 30 JUNE 1969

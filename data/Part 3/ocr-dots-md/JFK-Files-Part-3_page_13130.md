@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13130.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PSI Elio Quintero (protect identity) (97-4313), 153 N.E. 44th Street, Miami, advised on 7/29/60 that he had been serving in a liaison capacity with the MRR and prospective defectee pilots of Cuban airlines. His operations were directed by Dr. Manuel Artime Buesa, an ex-Lieutenant of the Cuban Revolutionary Army who now was serving as Secretary General of the MRR. Quintero was in daily telephonic contact with Salvador Aldereguia and Antonio Bascaro, two members of the Cuban Revolutionary Army who were in exile in the Dutch West Indies, and through Artime was attempting to arrange for their admission into the US.
 

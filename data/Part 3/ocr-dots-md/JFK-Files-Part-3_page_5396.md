@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5396.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 NOTE: By letterhead memorandum dated 7-16-75 we made available to the Committee a summary of the Inspection Division inquiry into the "official and confidential" files, along with making available in Bureau space a list of people knowledgeable concerning the "official and confidential" files who were contacted during the Inspection Division inquiry. We have now been requested to forward this list to the Committee's offices. It would appear to resist this request would not be in the best interests of the Bureau. Especially in view of the Department's prior reluctance to resist requests of this Committee.
 

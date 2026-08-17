@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23196.png
-
-Convert to Markdown**Public Surveys Institute**
+**Public Surveys Institute**
 **General Polling Service**
 
 Albert E. Johnson

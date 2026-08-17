@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3463.png
-
-Convert to MarkdownJohn G. Tower, Texas, Vice Chairman
+John G. Tower, Texas, Vice Chairman
 
 HON. GICH, HOWARD M. BAWNS, JR., TENN.
 

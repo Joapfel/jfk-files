@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18368.png
-
-Convert to MarkdownNR005 JK CODED
+NR005 JK CODED
 
 6:20 PM NITEL 9/18/75 HER
 

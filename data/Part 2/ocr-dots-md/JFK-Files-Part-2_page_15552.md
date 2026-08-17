@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15552.png
-
-Convert to MarkdownAll Middle Class Black People (who think they have made it)," which was obtained at the BPP Headquarters in Chicago on August 15, 1969:
+All Middle Class Black People (who think they have made it)," which was obtained at the BPP Headquarters in Chicago on August 15, 1969:
 
 "What happens to the Black Panthers, who have recently been under attack by the FBI in several cities, should be the concern of all Blacks, according to Georgia State legislator Julian Bond. Bond spoke to about 1,200 persons at the Medical Committee Concerned with Civil Rights during their first annual benefit Banquet in Philadelphia, Pa. 'You might not care what happens to the Black Panthers, although you ought to, and you ought to wonder that if you don't speak out when the Panthers are attacked, who will speak out when you are attacked,' Bond said.
 

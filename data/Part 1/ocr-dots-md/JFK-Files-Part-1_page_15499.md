@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15499.png
-
-Convert to Markdown13 September 1961
+13 September 1961
 
 GENERAL
 

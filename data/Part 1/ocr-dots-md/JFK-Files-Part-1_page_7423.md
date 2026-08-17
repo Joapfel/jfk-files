@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7423.png
-
-Convert to MarkdownEVERETTE HOWARD HUNT, JR.
+EVERETTE HOWARD HUNT, JR.
 
 1. Subject, a former GS-15 Operations Officer assigned to DDP/Europe, is 53 years of age and married. He served with the Office of Strategic Services during World War II, and was employed by this Agency from November 1949 until his voluntary retirement on 30 April 1970. In 1971, Subject served as an advisor to President Nixon in relation to his trip to China. Subject is of current interest to the Central Cover Staff.
 

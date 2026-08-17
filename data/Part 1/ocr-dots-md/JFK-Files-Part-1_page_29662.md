@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29662.png
-
-Convert to MarkdownMr. Myroslaw A. MAKSYMIEC
+Mr. Myroslaw A. MAKSYMIEC
 
 # FITNESS REPORT
 

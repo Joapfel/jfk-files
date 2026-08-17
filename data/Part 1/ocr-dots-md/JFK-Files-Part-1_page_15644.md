@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15644.png
-
-Convert to Markdown/10/
+/10/
 
 disadvantageous for him to exaggerate in order to mix the treks and confuse the German authorities, this gave him a chance not to mention certain partners whom he made it appear as negligible. He continued this game until he saw that the end was near. For example, there was a great need of gas in Germany and he figured he could gain time by telling the Germans he had invented a very interesting motor which they could profitably use. The Germans took his offer into consideration and postponed his execution. Shortly thereafter he was liberated by the Americans.
 

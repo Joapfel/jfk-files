@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16411.png
-
-Convert to Markdown-2-
+-2-
 
 Communist, anti-Somoza revolutionary.
 

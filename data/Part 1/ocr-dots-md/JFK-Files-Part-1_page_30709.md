@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30709.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OFFICE OF
 POLICY MAKING

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19367.png
-
-Convert to MarkdownForm No. 55-8
+Form No. 55-8
 April 1972
 
 INCOMING CLASSIFIED MESSAGE

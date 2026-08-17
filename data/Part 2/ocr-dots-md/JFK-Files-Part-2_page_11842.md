@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11842.png
-
-Convert to Markdown# O. DISCONTINUED INFORMANTS
+# O. DISCONTINUED INFORMANTS
 
 1. When services of informant are discontinued, mark name card "cancelled." Destroy symbol card. Never destroy name card.
 

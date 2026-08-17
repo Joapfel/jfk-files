@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8341.png
-
-Convert to MarkdownI repeat, I am not interested in discussing relations with you or anyone else. I value your friendship too much to risk it that way. But there is something close at stake.
+I repeat, I am not interested in discussing relations with you or anyone else. I value your friendship too much to risk it that way. But there is something close at stake.
 
 **Risk to American businessman.** Your provocative statements to me in public can make it difficult for me to do business here. I think there is a great opportunity here to do business, and I want to take advantage of it. You are jeopardizing this. I have studiously avoided political involvement here. You make such involvement inevitable.
 

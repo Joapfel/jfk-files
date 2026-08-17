@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31424.png
-
-Convert to MarkdownThe National Committee for a Free Europe, Inc., was formed in 1949 when a group of private citizens joined together for positive action against Soviet enslavement. It concentrates its efforts on the 100 million Central and Eastern Europeans today living under inhuman conditions of force and fear. This tyranny, imposed by Soviet Russia in flagrant violation of her solemn guarantees, proclaims the enduring world peace desired by free men everywhere. The National Committee for a Free Europe is the American people's answer to the Kromlin's despotio rule.
+The National Committee for a Free Europe, Inc., was formed in 1949 when a group of private citizens joined together for positive action against Soviet enslavement. It concentrates its efforts on the 100 million Central and Eastern Europeans today living under inhuman conditions of force and fear. This tyranny, imposed by Soviet Russia in flagrant violation of her solemn guarantees, proclaims the enduring world peace desired by free men everywhere. The National Committee for a Free Europe is the American people's answer to the Kromlin's despotio rule.
 
 The Committee seeks:
 

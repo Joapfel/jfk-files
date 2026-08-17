@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4283.png
-
-Convert to Markdown13-00000
+13-00000
 
 6 June 1963
 

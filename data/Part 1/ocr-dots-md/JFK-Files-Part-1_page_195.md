@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_195.png
-
-Convert to Markdown-2-
+-2-
 
 11. [Hoblitzelle Foundation - Dallas, Texas (LPCORSET/3) (72)]
 12. [Independence Foundation - Boston, Massachusetts] (LPFUNNEL/2, CCS proprietary) (75)

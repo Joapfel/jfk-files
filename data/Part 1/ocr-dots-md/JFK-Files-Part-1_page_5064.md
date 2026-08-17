@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5064.png
-
-Convert to MarkdownIN 32836
+IN 32836
 
 TOFIR DB-315/07585-77
 

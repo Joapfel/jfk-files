@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7035.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q. TERESHUKOV who works for Radio Liberty. He is stable. No passage.
 

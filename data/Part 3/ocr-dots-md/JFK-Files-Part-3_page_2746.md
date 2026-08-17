@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2746.png
-
-Convert to Markdownsmn 3
+smn 3
 
 1 prove they aren't a Communist before we will agree not to
 2 investigate them.

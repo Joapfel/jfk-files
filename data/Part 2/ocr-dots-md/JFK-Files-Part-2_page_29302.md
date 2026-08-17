@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29302.png
-
-Convert to Markdown<table><tr><td>CRN</td><td></td><td>/</td></tr><tr><td>UNIV</td><td colspan="2">☐ INDEX</td></tr><tr><td>EOT</td><td colspan="2">☐ NO INDEX</td></tr><tr><td>DATZ:</td><td colspan="2">☐ FILE IN CS FILE NO.</td></tr><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+<table><tr><td>CRN</td><td></td><td>/</td></tr><tr><td>UNIV</td><td colspan="2">☐ INDEX</td></tr><tr><td>EOT</td><td colspan="2">☐ NO INDEX</td></tr><tr><td>DATZ:</td><td colspan="2">☐ FILE IN CS FILE NO.</td></tr><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
 
 TO
 

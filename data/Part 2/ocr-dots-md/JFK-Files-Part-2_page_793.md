@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_793.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>1. SERIAL NO</th><th>2.</th><th>NAME</th><th>3. ORGANIZATION</th><th>4. FUND(S)</th><th>5. IWORK MOHS</th></tr></thead><tbody><tr><td colspan="6">C17974 FOX JEROME</td></tr></tbody></table>
 

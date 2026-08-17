@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3686.png
-
-Convert to MarkdownThe FBI also cites directives of President Kennedy on June 9, 1962, and Attorney General Kennedy on March 5, 1964, which are the latest charter for the Interdepartmental Intelligence Conference, composed of the FBI Director and the chiefs of the military intelligence agencies. This group is authorized to coordinate "all investigation of domestic espionage, counterespionage, sabotage, subversion, and other related intelligence matters affecting internal security." (Tab D)
+The FBI also cites directives of President Kennedy on June 9, 1962, and Attorney General Kennedy on March 5, 1964, which are the latest charter for the Interdepartmental Intelligence Conference, composed of the FBI Director and the chiefs of the military intelligence agencies. This group is authorized to coordinate "all investigation of domestic espionage, counterespionage, sabotage, subversion, and other related intelligence matters affecting internal security." (Tab D)
 
 The theory behind the FBI's position is that the President has inherent constitutional powers, at least in the absence of contrary legislation, to authorize FBI intelligence activities. The only judicial support for this theory is language in the Supreme Court's opinion in the Keith case, which declared warrantless wiretapping of domestic groups unconstitutional.
 

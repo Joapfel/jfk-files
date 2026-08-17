@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13401.png
-
-Convert to MarkdownPROCEEDINGS
+PROCEEDINGS
 
 MR. BELIN: Secretary Rusk, if you would stand and raise your right hand and be sworn, this is Ruth Johnson who is a Notary Public for the District of Columbia.
 

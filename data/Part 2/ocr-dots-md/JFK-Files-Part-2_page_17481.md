@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17481.png
-
-Convert to MarkdownOBAC (BLACK UNITED FESTIVAL,
+OBAC (BLACK UNITED FESTIVAL,
 AUGUST 16, 1969, DIXMOOR, ILLINOIS)
 
 that if police officials are unable to communicate they

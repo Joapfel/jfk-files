@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2796.png
-
-Convert to Markdown-2-
+-2-
 
 ## SECTION C -Continued-
 

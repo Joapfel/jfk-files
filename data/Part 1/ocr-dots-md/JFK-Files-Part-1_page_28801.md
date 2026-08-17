@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28801.png
-
-Convert to Markdown14-00000
+14-00000
 
 STANDARD FORM 37
 REVISED MARCH 1961

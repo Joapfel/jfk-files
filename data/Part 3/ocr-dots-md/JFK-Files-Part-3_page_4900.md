@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4900.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On November 8, 1966, MM T-6 advised that NORMAN ROTHMAN's associate in the Albion Lounge is IRVING BRENNER, the bolita operator.
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_26099.png
-
 to him, but actually detailed to do it or anything... Tracy went in the actual planning. I have my doubts that he was...
 
 O'BRIEN: How about Broe, William Broe? (William-V.-Broe)

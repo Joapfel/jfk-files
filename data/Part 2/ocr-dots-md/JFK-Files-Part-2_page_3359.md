@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3359.png
-
-Convert to Markdown-2-
+-2-
 
 whatever it might appear to be at a particular time. It
 was also apparent that as far as his visit to the United

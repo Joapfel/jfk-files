@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19359.png
-
-Convert to Markdown5 December 1947
+5 December 1947
 
 MEMORANDUM FOR MR. JACK D. NEL
 CHIEF, DIVISION OF FOREIGN ACTIVITY CORRESPONDENCE

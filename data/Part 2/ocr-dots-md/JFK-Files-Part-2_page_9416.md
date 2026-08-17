@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9416.png
-
-Convert to MarkdownDE T-1
+DE T-1
 October 14, 1970
 
 During three speaking engagements on November 16 and 17, 1970, by HUEY P. NEWTON, Minister of Defense, BPP, $7,300.00 was collected. This money was supposedly for the defense fund for the Detroit 16, however, NEWTON kept it all, leaving the NCCF no benefit from his appearance.

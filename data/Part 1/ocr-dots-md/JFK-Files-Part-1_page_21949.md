@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21949.png
-
-Convert to Markdown103.
+103.
 
 attaches referred to SHNYRYEV as either "Nikolay Perviy" (Nicholas the First) or "Nikolay Vtoroy" (Nicholas the Second) to distinguish him from the other chauffeur with the same name. FELCHLIN said that SHNYRYEV drove primarily for the Military Attache himself, but sometimes drove for the Assistant Military Attaches, and he remembered that SHNYRYEV was not well, suffered from war wounds, and had continuing chest or lung trouble. (Asked whether SHNYRYEV had any medical problem, NOSENKO said he was not aware of any.)
 

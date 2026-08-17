@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16216.png
-
-Convert to Markdown65 52
+65 52
 
 04-712-3096
 VANGUARD CORP

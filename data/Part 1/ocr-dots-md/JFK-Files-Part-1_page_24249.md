@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24249.png
-
-Convert to Markdown6. To will depart New York the night of 26 July on the 8:00 p.m. TWA flight to London.
+6. To will depart New York the night of 26 July on the 8:00 p.m. TWA flight to London.
 
 d. This will get him in London in time for a previously scheduled ops meeting with PAUPEROS on 27 July. He leaves on 1 August for a one-month vacation touring most of Europe with his family and spending one week in Malta.
 

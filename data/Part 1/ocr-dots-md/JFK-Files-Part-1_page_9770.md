@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9770.png
-
-Convert to Markdown2.
+2.
 
 She stated that the cabinet was placed catty-cornered and that in the rather
 spaciously triangle behind it she could see many rolls of paper, which she

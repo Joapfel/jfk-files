@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12038.png
-
-Convert to MarkdownForm No. 35-4
+Form No. 35-4
 
 INCOMING CLASSIFIED MESSAGE
 CENTRAL INTELLIGENCE AGENCY

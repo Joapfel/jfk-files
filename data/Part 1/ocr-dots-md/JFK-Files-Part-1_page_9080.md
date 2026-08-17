@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9080.png
-
-Convert to Markdown27 December 1987
+27 December 1987
 
 MEMORANDUM FOR: Chief, DO/CM
 

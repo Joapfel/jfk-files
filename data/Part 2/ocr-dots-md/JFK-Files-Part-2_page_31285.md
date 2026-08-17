@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31285.png
-
-Convert to MarkdownThe Select Committee on Investigations requested that the Central Intelligence Agency provide a written statement indicating whether the CIA whether, from 1958-1963, interviewed or debriefed returning American defectors to the Soviet Union as a matter of standard operating procedure. (USIA letter to CIA, 4/5/78).
+The Select Committee on Investigations requested that the Central Intelligence Agency provide a written statement indicating whether the CIA whether, from 1958-1963, interviewed or debriefed returning American defectors to the Soviet Union as a matter of standard operating procedure. (USIA letter to CIA, 4/5/78).
 
 The Agency was also requested to indicate the circumstances under which an interview would be initiated if such interviews were not conducted in standard operating procedure. (Ibid.)
 

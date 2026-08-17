@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18543.png
-
-Convert to Markdowndelivery work under 3(d) to make properly defined and reviewed deletions). Accordingly, I would expect SSC to assert (a) DOJ does not trust SSC probity or security, and (b) DOJ is following a dilatory and unnecessary tactic.
+delivery work under 3(d) to make properly defined and reviewed deletions). Accordingly, I would expect SSC to assert (a) DOJ does not trust SSC probity or security, and (b) DOJ is following a dilatory and unnecessary tactic.
 
 In anticipation of these problems, I have re-written paragraph 9 to permit unilateral abrogation if the procedures do not work. If actual information withheld is capriciously defined, or if any lapse of good judgment occurs, I would expect prompt abrogation by SSC and a very severe criticism of the Director, the Attorney General, and the Department.
 

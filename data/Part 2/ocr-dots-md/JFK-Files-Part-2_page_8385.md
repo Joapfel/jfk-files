@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8385.png
-
-Convert to Markdown13-00000
+13-00000
 
 UNITED STATES INFORMATION AGENCY
 WASHINGTON

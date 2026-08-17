@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23326.png
-
-Convert to Markdownthat respect?
+that respect?
 
 The Chairman. Well, I am not sure I agree with that;
 although that is a philosophical argument.

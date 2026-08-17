@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21047.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. Status. Your legal status under this agreement is that of an Independent Contractor. Nothing contained herein shall be construed as implying the creation of an employee-employer relationship.
 

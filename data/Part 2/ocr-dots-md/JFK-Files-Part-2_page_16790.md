@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16790.png
-
-Convert to MarkdownIn the Q172, Q174, Q176, Q180, Q181 specimens and Q178 pillowcase, no holes that could be associated with bullet or shot pellet holes were found. On the surface of Q176 was a small flattened lead fragment, the source of which could not be determined.
+In the Q172, Q174, Q176, Q180, Q181 specimens and Q178 pillowcase, no holes that could be associated with bullet or shot pellet holes were found. On the surface of Q176 was a small flattened lead fragment, the source of which could not be determined.
 
 In the partial bed sheet, Q177, was a cluster of holes each approximately three-tenths of an inch in diameter. These holes could represent a pattern produced by a buckshot lead from a shotgun. Based upon the shot spread, the weapon could have been approximately fifteen to twenty feet from the sheet when discharged.
 

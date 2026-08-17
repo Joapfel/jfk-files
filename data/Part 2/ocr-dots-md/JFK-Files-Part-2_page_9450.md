@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9450.png
-
-Convert to MarkdownOCTOBER 25, 1970
+OCTOBER 25, 1970
 
 On October 24, 1970, at approximately 6:30 PM, two racist pigs from the 2nd Precinct, without provocation, brutally beat 2 black youths on the corners of Myrtle and 16th Streets. Two brothers from the local National Committee To Combat Fascism, interceded, simply exposing the police brutality to the people in the community, and they also were beaten by the pigs. People in the crowd that had formed came to the brothers aid and began to attack the pigs. At this point, Mod Squad, bootlicking, yardnigger pigs Forrest Harvey, Glenn Smith and Marshall Emerson, responding to their masters orders and wantonly opened fire on the crowd.
 

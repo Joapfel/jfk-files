@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7937.png
-
-Convert to Markdown# PARTIDO COMUNISTA DOMINICANO (PCD)
+# PARTIDO COMUNISTA DOMINICANO (PCD)
 
 ¡Nuestra solidaridad plena con la lucha de los negros norteamericanos, como parte que es de la lucha de todos los oprimidos de la tierra!
 

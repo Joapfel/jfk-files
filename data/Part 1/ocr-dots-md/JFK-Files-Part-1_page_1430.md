@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1430.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Page 3: Although it has been publicly surfaced that Mr. William F. Buckley had worked for CIA in the past, the author on this page now ties him in with Howard Hunt and Mexico City and further as an American contract agent. The best interests of the Agency are not served nor for that matter the interests of Mr. Buckley and Mr. Hunt are not served by such revelations.
 

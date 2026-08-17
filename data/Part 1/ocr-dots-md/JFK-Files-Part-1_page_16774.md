@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16774.png
-
-Convert to Markdown<table><tr><td rowspan="2">CLASSIFIED ME</td><td>4</td></tr><tr><td>5</td></tr></table>
+<table><tr><td rowspan="2">CLASSIFIED ME</td><td>4</td></tr><tr><td>5</td></tr></table>
 
 ACTION: C/WH 5(COPY ISSUED TO WH AT 1415, 15 MAR LMG)
 INFO : ADDP, C/FI 2, C/EE 3, S/C 2

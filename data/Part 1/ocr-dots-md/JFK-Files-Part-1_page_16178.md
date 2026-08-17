@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16178.png
-
-Convert to Markdown# DDO/WH/7/CAR/A. Ramos & E. Rhoad: cab/7493/1956 (12 August 1974)
+# DDO/WH/7/CAR/A. Ramos & E. Rhoad: cab/7493/1956 (12 August 1974)
 
 ## Distribution:
 

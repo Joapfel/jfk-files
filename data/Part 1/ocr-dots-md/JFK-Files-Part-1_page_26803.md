@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26803.png
-
-Convert to MarkdownASSIFIED MESSAGE
+ASSIFIED MESSAGE
 
 <table><tr><td colspan="4">34 SECRET</td></tr><tr><td>PERMANENT NOTIFIED</td><td colspan="2"></td><td>(SEE PAGE 2)</td></tr><tr><td>Feb 25 78 AM '65</td><td colspan="2"></td><td></td></tr><tr><td colspan="2">ADVANCE COPY ☐</td><td>UNIT ☐</td><td>TIME:</td></tr><tr><td colspan="2">☐ YES ☐ YES ☑ NO ☐</td><td></td><td>BY</td></tr><tr><td colspan="4">VIR. FILE ADD, CICI, CIFF, AAD P DCIWH/SHS, CICIC 2</td></tr></table>
 

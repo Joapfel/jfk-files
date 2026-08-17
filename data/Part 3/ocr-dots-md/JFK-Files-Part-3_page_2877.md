@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2877.png
-
-Convert to Markdownthem lightly. I am of sufficient experience and age that I
+them lightly. I am of sufficient experience and age that I
 have pledged myself to do what is good and proper. I say this
 not as a self-serving statement but in order that we might
 place in context my position within the FBI. I could seek

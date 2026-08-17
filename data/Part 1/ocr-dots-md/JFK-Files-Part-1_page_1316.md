@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1316.png
-
-Convert to MarkdownSept. 1951:
+Sept. 1951:
 
 Personal reports on the U.S. Ambassador to Panama, John WILEY, continue to be forwarded by the Polish Legation in Rio de Janeiro to Warsaw via subject.
 

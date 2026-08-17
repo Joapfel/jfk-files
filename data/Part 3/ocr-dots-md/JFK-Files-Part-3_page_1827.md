@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1827.png
-
-Convert to MarkdownAT 66-2242
+AT 66-2242
 
 | Case Agent | Period assigned | Division, Section, or Squad of Assignment | Nature of Agent's Assign- ment prior to involvement in Cointelpro |
 |---|---|---|---|

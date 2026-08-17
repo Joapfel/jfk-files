@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2033.png
-
-Convert to Markdown28 Ma. 1963
+28 Ma. 1963
 
 RETURN TO CIA
 Background Use Only

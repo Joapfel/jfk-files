@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17334.png
-
-Convert to MarkdownLIENVOY PRODUCTION
+LIENVOY PRODUCTION
 
 June 1963
 

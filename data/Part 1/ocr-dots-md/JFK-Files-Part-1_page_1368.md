@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1368.png
-
-Convert to MarkdownSECRET
+SECRET
 
 j. SZULC persistently sought a continuing contact with an Agency representative in Washington shortly after he arrived until it was granted in December 1962. The first contact was with Albert C. DAVIES (Lt. Col. on military detail to CIA - Cuba), and was arranged at the behest of Colonel GROGAN, the Assistant to the Director, on SZULC's request.
 

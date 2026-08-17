@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24513.png
-
-Convert to MarkdownThe CIA's Intelligence Estimate
+The CIA's Intelligence Estimate
 
 The CIA study in connection with the consideration of Castro's removal was an intelligence estimate prepared by the CIA's Board of National Estimates (which was not part of the CIA's covert action directorate), entitled "The Situation and Prospects in Cuba"*. The CIA Estimate was pessimistic regarding the chances for success of a Cuban internal revolt, and further found that a Castro assassination would likely strengthen the Communist position in Cuba.
 

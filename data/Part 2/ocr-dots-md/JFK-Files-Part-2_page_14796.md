@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14796.png
-
-Convert to MarkdownFEDERAL RESERVE ACT
+FEDERAL RESERVE ACT
 
 VIOLATIONS REPORTED
 

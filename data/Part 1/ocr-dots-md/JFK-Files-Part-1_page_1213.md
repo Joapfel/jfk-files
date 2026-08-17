@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1213.png
-
-Convert to MarkdownCLASSICS
+CLASSICS
 
 ORIGINAL CULTURE OF CUBAN SONS. [SOURCE: ABC News, November 8, 2015]
 

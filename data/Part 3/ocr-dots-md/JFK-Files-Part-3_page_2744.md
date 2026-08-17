@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2744.png
-
-Convert to MarkdownSHARRIS/smn1
+SHARRIS/smn1
 
 t. 8
 

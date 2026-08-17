@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23074.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1 back, if you are saying that if anybody outlined an operational
 2 plan to me, did I help construct the plan, did I make a contri-

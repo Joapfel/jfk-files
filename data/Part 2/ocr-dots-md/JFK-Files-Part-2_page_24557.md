@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24557.png
-
-Convert to Markdownor Robert Kennedy:
+or Robert Kennedy:
 
 "The Chairman: You do not recall ever having discussed with the Attorney General a plan or a proposal to assassinate Fidel Castro?"
 

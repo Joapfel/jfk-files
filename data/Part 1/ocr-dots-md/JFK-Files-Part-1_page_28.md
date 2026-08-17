@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28.png
-
-Convert to Markdownregarding Soviet visa processing, and does not materially alter the
+regarding Soviet visa processing, and does not materially alter the
 conclusions stated in paragraph 6 of our memorandum. We feel that any
 apparent inconsistencies may stem from the different approaches to the
 problem by the State Department and this Agency.

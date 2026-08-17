@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24291.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In other words, to the extent that compliance with the act and submission to the jurisdiction of the Administrator will not so 'impair or affect the authority' of the several agencies to which the subsection applies as to interfere with the operation of their programs, the act will govern. Any disputes that arise can be settled by the President under the authority to prescribe policies and directives vested in him by section 205 (a). U.S. Code Congressional Service, 1949, Vol. 2, p. 1504. (emphasis added)
 

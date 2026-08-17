@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22692.png
-
-Convert to Markdown intelligence service in the US in regard to the efforts to acquire nuclear technology or material?
+intelligence service in the US in regard to the efforts to acquire nuclear technology or material?
 
 Mr. Angleton. No.
 

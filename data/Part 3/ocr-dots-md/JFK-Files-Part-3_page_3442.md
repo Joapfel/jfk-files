@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3442.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 : Mr. W. C. Sullivan, DATE: March 29, 1968
 

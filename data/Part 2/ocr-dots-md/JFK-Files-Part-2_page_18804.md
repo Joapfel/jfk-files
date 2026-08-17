@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18804.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 On 11/27/52, JAFFE was married to JOSEPHINE CLARK WINTER, who was born on 10/10/32, at NYC. During interview, JAFFE advised that his wife is a volunteer worker at the United Nations International Childrens Emergency Fund.
 

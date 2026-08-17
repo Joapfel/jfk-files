@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14939.png
-
-Convert to Markdown1/11/67
+1/11/67
 
 Mr. Gale
 

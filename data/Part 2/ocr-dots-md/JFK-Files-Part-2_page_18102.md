@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18102.png
-
-Convert to Markdown1 - Mr. Belmont
+1 - Mr. Belmont
 1 - Mr. Mohr
 1 - Mr. DeLoach
 1 - Mr. Rosen

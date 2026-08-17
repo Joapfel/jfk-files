@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16483.png
-
-Convert to Markdownavailable to the lower socio-economic Black person due
+available to the lower socio-economic Black person due
 to the unique position assigned him in life.
 
 It is a two-headed monster that haunts this man.

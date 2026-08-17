@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4909.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 Fontainebleau Hotel, Miami Beach, Florida, are believed to be setting up something big. MM T-24 stated that they have had one FAB DECRISTIFARO making numerous trips throughout the United States and to Puerto Rico. In fact, DECRISTIFARO left Miami on Thursday, March 2, 1967, for San Juan, Puerto Rico, pursuant to the same operation. MM T-24 stated that while it was possible this operation was in connection with some new gambling setup, he felt something else was involved.
 

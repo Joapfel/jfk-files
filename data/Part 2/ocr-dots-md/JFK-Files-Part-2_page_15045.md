@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15045.png
-
-Convert to Markdown# BUREAU STATISTICS
+# BUREAU STATISTICS
 
 ## FBI Personnel
 

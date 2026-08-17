@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15656.png
-
-Convert to Markdown93. Subject is a stubborn fellow who does not like to be defeated and he strives to conquer.
+93. Subject is a stubborn fellow who does not like to be defeated and he strives to conquer.
 
 94. Subject always looks for causes. He is no magical thinker but tends to be rational and realistic despite his strong emotional re-activity which can be almost explosive at times.
 

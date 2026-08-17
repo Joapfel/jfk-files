@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29644.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td colspan="3">NOTIFICATION OF PERSONNEL ACTION</td>

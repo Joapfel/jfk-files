@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35363.png
-
-Convert to MarkdownAPPROVED CHECKS
+APPROVED CHECKS
 FOR THE PERIOD
 JAN. 21. '70 TO FEB. 3, '70
 

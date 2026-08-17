@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18517.png
-
-Convert to Markdown2A
+2A
 
 (b) In all other cases, to the appropriately cleared staff who will have access to all of the materials.
 

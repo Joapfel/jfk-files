@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15747.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SR/DCB/0-2011
 25 July '70

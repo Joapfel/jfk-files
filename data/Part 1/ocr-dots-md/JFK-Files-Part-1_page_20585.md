@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20585.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26 SEP 1965
 

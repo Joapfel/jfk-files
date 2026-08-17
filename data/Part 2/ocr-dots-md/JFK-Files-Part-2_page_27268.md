@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27268.png
-
-Convert to MarkdownA. Ltr from Knoche to Schwarzer - 21 May 75.
+A. Ltr from Knoche to Schwarzer - 21 May 75.
 
 B. Memo from Belin to Gray - 20 Feb 75
 

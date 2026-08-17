@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4574.png
-
-Convert to MarkdownSt. Petersburg, Florida. CARLOS MARCELLO and his spouse stayed at the beach house with SANTO TRAFFICANTE and the LAZZAROS. JOSEPH MARCELLO and his wife stayed at a nearby motel. Informant does not know the address of this beach house.
+St. Petersburg, Florida. CARLOS MARCELLO and his spouse stayed at the beach house with SANTO TRAFFICANTE and the LAZZAROS. JOSEPH MARCELLO and his wife stayed at a nearby motel. Informant does not know the address of this beach house.
 
 Regarding TRAFFICANTE's 7/4/66 visit to New Orleans,
 informant knows that TRAFFICANTE was at the Churchhill Farms

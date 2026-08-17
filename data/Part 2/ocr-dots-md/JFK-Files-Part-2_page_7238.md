@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7238.png
-
-Convert to Markdown13-00000,
+13-00000,
 
 <table><tr><td>TABLE SEC DISSEM BY</td><td>J</td><td>PER LA 5 (E.0)</td></tr><tr><td colspan="2">TOTAL COPIES 6-9 RUN L.</td></tr><tr><td>CORRECTOR UNIT NOTIFIED</td><td colspan="2">SECRET</td></tr></table>
 

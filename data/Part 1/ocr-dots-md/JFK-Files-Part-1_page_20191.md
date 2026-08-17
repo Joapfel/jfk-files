@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20191.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="5" style="text-align:center;">24 REFERENCES List three persons living in the United States, Territories of the United States who are NOT related to you and who have definite knowledge of your qualifications and fitness for the position for which you are applying. Do not repeat a name of a secretary listed under Item 16 (EXPERIENCE).</th></tr><tr><th>FULL NAME<br>(Give complete current address, including street and number)</th><th>PRESENT BUSINESS OR HOME ADDRESS<br>(If different from current address, include previous addresses.)</th><th>BUSINESS OR OCCUPATION</th><th></th><th></th></tr></thead><tbody><tr><td>Col.: E. Rasmussen</td><td>Diplomatic See, Exp. Dept., 45</td><td>Mil. Attache</td><td></td><td></td></tr><tr><td rowspan="2">Mr. Yutaka Kunakata</td><td>President of Kenton, Calif.</td><td>Instructor</td><td></td><td></td></tr><tr><td>Lt. L.B. McNeil</td><td>1928 McKinley Ave., Honolulu, T.H.</td><td>CIC</td><td></td><td></td></tr></tbody></table>
 

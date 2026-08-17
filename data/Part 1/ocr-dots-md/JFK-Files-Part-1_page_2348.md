@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2348.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NOSENKO has stated that he gave considerable thought to the best way to contact the Americans so that he would be believed and not rejected and came to the conclusion that he would offer to sell some information. NOSENKO stated that he thought if he approached the Americans stating he was a "KGB counterintelligence officer who wanted to give information," he would not have been believed and would have been peremptorily rejected. NOSENKO stated he had difficulty deciding how much money to ask for and how to make the approach, but finally decided to do it through David MARK whom the KGB considered was with American Intelligence.
 

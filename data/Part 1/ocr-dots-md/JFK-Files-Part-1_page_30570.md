@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30570.png
-
-Convert to Markdown31 October 1947
+31 October 1947
 
 Subject: Personnel
 

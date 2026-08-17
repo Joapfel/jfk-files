@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29515.png
-
-Convert to MarkdownMEMORANDUM RE: Chief, Finance Division
+MEMORANDUM RE: Chief, Finance Division
 
 VIA : Chief, Contract Personnel Division/OP
 SUBJECT : Qualification for Premium Pay

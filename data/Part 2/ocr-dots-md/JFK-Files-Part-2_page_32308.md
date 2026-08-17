@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32308.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Lt Col Haig/78029/8 Jan 64/md
 

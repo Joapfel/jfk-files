@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27072.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 on Berlin and hinting at a confrontation late in the year, thus creating the impression that a Berlin crisis would not come until after the US election. In fact, the USSR in its statement of the following day (11 September) on Cuba stated this explicitly. There were vague hints of Khrushchev's intent to attend the UNGA in New York. Khrushchev appears now to have been throwing up a diplomatic smoke-screen behind which to carry out the deployment of strategic forces into Cuba, but those present at the meeting of 10 September did not have the benefit of this hindsight. Furthermore, they must all have been acutely aware that Cuba was potentially the campaign issue that could most seriously damage the Administration in the election campaign then beginning.
 

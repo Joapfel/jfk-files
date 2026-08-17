@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27122.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 A summary of critical developments in
 the history of U.S. counterintelligence from

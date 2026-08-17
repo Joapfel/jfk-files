@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24261.png
-
-Convert to Markdownd. Start a Broadsheet for American Revolutionaries
+d. Start a Broadsheet for American Revolutionaries
 Abroad: This would give him contact with a wide variety of radical U.S. types abroad. It would also have feed back into the American scene and in part fulfill his requirement to have an active role with U.S. revolutionary developments. Etc.
 Etc.
 

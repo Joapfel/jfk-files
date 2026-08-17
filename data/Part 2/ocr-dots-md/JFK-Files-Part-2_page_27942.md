@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27942.png
-
-Convert to Markdown# BOARD OF DIRECTORS
+# BOARD OF DIRECTORS
 
 ## CHAIRPERSON
 Edward J. Ennis

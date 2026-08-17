@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2333.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Five times I was sent abroad: In 1957 I was in England with a sport delegation; in 1958 was again in England with a sport delegation; in 1960 I was in Cuba with a delegation of specialists of nickel industry; in 1961 I was sent in Bulgaria with the aim to help to 1 department 2 directory MVD; in 1962 I was in Switzerland - the conference of dis-armament.
 

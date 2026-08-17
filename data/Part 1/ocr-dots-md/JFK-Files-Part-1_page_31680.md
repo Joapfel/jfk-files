@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31680.png
-
-Convert to MarkdownIt is estimated the cost will come to be around L300,000, making a total of 20,400,000 francs or 653,000.00 at 350 francs to a dollar.
+It is estimated the cost will come to be around L300,000, making a total of 20,400,000 francs or 653,000.00 at 350 francs to a dollar.
 
 I am aware of your reasons for not wishing to commit real estate in Europe. However, the problem of finding suitable quarters for the College staff is a difficult one. Providing the funds are available, Ty and I are in favor of purchase, as these apartments provide an immediate partial solution to a difficult problem.
 

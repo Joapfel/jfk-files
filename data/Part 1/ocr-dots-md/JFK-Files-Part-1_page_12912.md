@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12912.png
-
-Convert to Markdown<table><tr><td colspan="3">271006</td></tr><tr><td>TABLE SEC. DISSEMINATED PER:</td><td>TOTAL COPIES RUN BY</td><td></td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED:</td><td>SECRET</td></tr><tr><td colspan="2">ADVANCE COPY ISSUED/SLOTTED BY:</td><td>STAFF</td></tr><tr><td>ACTION UNIT</td><td>I. RF. FILE. VR.</td><td>1 4</td></tr><tr><td>ACTION #</td><td>NFO.</td><td>2 3</td></tr><tr><td></td><td></td><td>3 6</td></tr></table>
+<table><tr><td colspan="3">271006</td></tr><tr><td>TABLE SEC. DISSEMINATED PER:</td><td>TOTAL COPIES RUN BY</td><td></td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED:</td><td>SECRET</td></tr><tr><td colspan="2">ADVANCE COPY ISSUED/SLOTTED BY:</td><td>STAFF</td></tr><tr><td>ACTION UNIT</td><td>I. RF. FILE. VR.</td><td>1 4</td></tr><tr><td>ACTION #</td><td>NFO.</td><td>2 3</td></tr><tr><td></td><td></td><td>3 6</td></tr></table>
 
 T 315158 EIA741
 

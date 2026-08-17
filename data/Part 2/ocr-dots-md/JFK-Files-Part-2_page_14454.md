@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14454.png
-
-Convert to MarkdownOffice of the Vice Chairman
+Office of the Vice Chairman
 
 TO : MR. BOARDMAN
 

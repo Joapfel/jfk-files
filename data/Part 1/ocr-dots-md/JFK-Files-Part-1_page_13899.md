@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13899.png
-
-Convert to Markdowndel embajador y tendrá el gusto de asistir.- 116.-
+del embajador y tendrá el gusto de asistir.- 116.-
 
 118. Entrada 1057.- MP de la Oficina Sanitaria pregunta por el Dr.NIKITA MUKUCHEV y MIRAVAL indica que no ha llegado. - MF:que en caso de que llegue se comunique a la Oficina Sanitaria al 254880. MIRAVAL toma nota y acepta.- 130. -
 

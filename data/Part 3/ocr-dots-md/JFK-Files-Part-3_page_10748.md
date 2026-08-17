@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10748.png
-
-Convert to MarkdownAs the Bureau is aware, some few months ago several individuals, who had been active officials and/or dedicated members of the National States Rights Party (NSRP), left the NSRP. They are trying to form and make a going party of the American States Rights Party (ASRP) with its headquarters in Birmingham.
+As the Bureau is aware, some few months ago several individuals, who had been active officials and/or dedicated members of the National States Rights Party (NSRP), left the NSRP. They are trying to form and make a going party of the American States Rights Party (ASRP) with its headquarters in Birmingham.
 
 Since the group pulled out of the NSRP, both the ASRP and NSRP leaders have been belittling, berating and making extremely derogatory remarks concerning each other. Both groups are using the same mailing list, (the NSRP's list), which the ASRP group obtained before pulling out of the NSRP, and they disseminate their derogatory remarks in the literature they distribute.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23083.png
-
-Convert to MarkdownLos que se refieren a un trabajo que concluye la problema, suelen tener como efecto que los estudiantes tengan que ver con él el cielo y el mar, y se convierten en revisores de toda la publicación, pudiéndose así tener en cuenta lo verificado que son los trabajos de Psicología Médica y evaluationista, y si son que Psicología Secundaria o Magnífica de la psicología personal.
+Los que se refieren a un trabajo que concluye la problema, suelen tener como efecto que los estudiantes tengan que ver con él el cielo y el mar, y se convierten en revisores de toda la publicación, pudiéndose así tener en cuenta lo verificado que son los trabajos de Psicología Médica y evaluationista, y si son que Psicología Secundaria o Magnífica de la psicología personal.
 
 Yo llame Psicología Médica a este libro. El primer tomo tiene 296 páginas, y esta una de las más grandes del país.
 

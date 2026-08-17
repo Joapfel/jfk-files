@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10700.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 (REVISED 4-65)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19748.png
-
-Convert to MarkdownCV-100-32010
+CV-100-32010
 
 NONSYMBOL SOURCE ADMINISTRATIVE PAGE
 

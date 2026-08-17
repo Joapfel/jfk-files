@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21671.png
-
-Convert to MarkdownFirst Section could listen to a particular tape but he had to go to OTU to do so and as a result this was done very infrequently.
+First Section could listen to a particular tape but he had to go to OTU to do so and as a result this was done very infrequently.
 
 It is believed that any presumption that the KGB recovered or transcribed all conversations even in the thirteen areas listed by NOSENKO as having active microphones is not reasonable or even realistic. It is also unrealistic to presume that any conversation conducted within reasonable distance of an active microphone was not compromised to the KGB. The latter is a factor to be considered in any damage assessment; it is not an appropriate basis for a presumption that NOSENKO had to have been aware of this or this just because someone had a conversation in one of the rooms in which there was an active microphone and NOSENKO has claimed he reviewed the "take" from microphones in the United States Embassy.
 

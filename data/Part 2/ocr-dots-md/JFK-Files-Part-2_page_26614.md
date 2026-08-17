@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26614.png
-
-Convert to MarkdownE. **Coal and Steel Community** Coal and Steel community members at their next meeting on Monday will probably vote to raise community steel tariffs by an average of nine percent. This would, bring the tariffs of each member into line with Italy's, the highest in the community. Only the Dutch oppose the idea.
+E. **Coal and Steel Community** Coal and Steel community members at their next meeting on Monday will probably vote to raise community steel tariffs by an average of nine percent. This would, bring the tariffs of each member into line with Italy's, the highest in the community. Only the Dutch oppose the idea.
 
 F. **British Guiana - Cuba** GIMPEX, trading arm and source of funds for Jagan's party, has worked out a deal to supply the country's major electric utility next year with fuel oil from Cuba. Texaco and Esso have been the traditional suppliers.
 

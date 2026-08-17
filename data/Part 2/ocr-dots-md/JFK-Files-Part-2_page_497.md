@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_497.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">CABLE SECRETARIAT DISSE</td>
     <td>CLASSIFIED M.</td>

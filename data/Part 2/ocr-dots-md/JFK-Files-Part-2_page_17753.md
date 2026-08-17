@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17753.png
-
-Convert to Markdownexample of the type of material reported under item 1:
+example of the type of material reported under item 1:
 
 1. A. Memorandum on Subversion and FBI Jurisdiction which was prepared for Director Gray. See Hearings before the Subcommittee on the Judiciary, United States Senate, Ninety-Third Congress (First Session) on the Nomination of Louis Patrick Gray III, of Connecticut, to be Director, Federal Judicial Invesi-
 

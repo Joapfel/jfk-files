@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10378.png
-
-Convert to MarkdownSUBJECT: Soviet Defector
+SUBJECT: Soviet Defector
 
 A Soviet defector,
 defected to a representative of this Agency in

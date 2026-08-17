@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14955.png
-
-Convert to Markdown# DOMINICAN SITUATION
+# DOMINICAN SITUATION
 
 The FBI was ordered into the Dominican Republic by the President in May, 1965, to develop information to be used in preventing communists from gaining control in that country. We set up a staff of ten Agents. In August, 1966, at White House instructions we established a permanent Legal Attache office there, staffed with three Agents.
 

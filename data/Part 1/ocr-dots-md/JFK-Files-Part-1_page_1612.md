@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1612.png
-
-Convert to Markdownwas to receive ($100) per week from the firm
+was to receive ($100) per week from the firm
 while on the leave of absence. (Roberts) did
 receive the following payments:
 Sept 1961 ($200) Dec 1961 - ($100)

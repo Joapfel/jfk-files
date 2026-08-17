@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23541.png
-
-Convert to MarkdownSENIOR
+SENIOR
 OFFICER
 E-2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8780.png
-
-Convert to MarkdownВнш. Visa
+Внш. Visa
 
 Внш. Виша
 

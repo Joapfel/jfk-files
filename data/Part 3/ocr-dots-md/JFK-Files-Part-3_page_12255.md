@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12255.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 WASHINGTON, D. C. 20535
 
 Adressee: Senate Select Committee

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_242.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONTRACT FOR SERVICES</td>
    </tr>

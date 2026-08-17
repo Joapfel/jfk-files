@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5453.png
-
-Convert to MarkdownV. Outstanding previously requested materials; delivery
+V. Outstanding previously requested materials; delivery
 requested by Friday, August 8, 1975:
 
 A. Materials relating to the establishment, maintenance, and operation of the so-called "ELSUR" electronic surveillance index, requested in part on May 14, 1975, Appendix D, item 2.

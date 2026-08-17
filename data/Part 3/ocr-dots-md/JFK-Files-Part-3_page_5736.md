@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5736.png
-
-Convert to MarkdownMemorandum to Mr. Tolson
+Memorandum to Mr. Tolson
 
 Re: The Long Committee
 

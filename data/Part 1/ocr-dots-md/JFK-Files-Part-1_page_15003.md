@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15003.png
-
-Convert to Markdownname is Georg Frank Sanders and on the original story
+name is Georg Frank Sanders and on the original story
 Subject's father's name is given as Simon Sanders the new
 story will indicate that Subject's father's full name is
 Frank Simon Sanders which will explain Subject's middle

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_919.png
-
-Convert to MarkdownThe Deputy Attorney General
+The Deputy Attorney General
 
 October 16, 1973
 

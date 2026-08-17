@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4015.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 officers of the Los Angeles Police Department during the
 course of his investigations, he had been suspended on

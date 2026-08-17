@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32114.png
-
-Convert to MarkdownStatement of TRINKALA, Victor Lee, taken at 108th MI Group, Region I, 26 Federal Plaza, Room 1332, New York, New York 10007, dated 19 February 1970, continued:
+Statement of TRINKALA, Victor Lee, taken at 108th MI Group, Region I, 26 Federal Plaza, Room 1332, New York, New York 10007, dated 19 February 1970, continued:
 
 A. No, no one that I can recall.
 

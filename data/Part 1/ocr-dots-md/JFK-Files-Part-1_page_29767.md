@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29767.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>FORM 444 USE PREVIOUS EDITION.<br/>11-88</td>
     </tr>

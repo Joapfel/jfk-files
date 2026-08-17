@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_18153.png
-
 team leader.
 
 b. The truck is not to be used in active mobile surveillance without the approval of the Station.

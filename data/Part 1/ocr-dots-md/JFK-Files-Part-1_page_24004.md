@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24004.png
-
-Convert to MarkdownSECRET/NOCPRN
+SECRET/NOCPRN
 
 the clandestine publication of a major pro-Chinese Spanish Communist group called the Partido Comunista Revolucionario. In view of recent reports that the MCR group may merge with one or more of the other dissident Spanish Communist groups and that a joint organ will be published, MCR may soon cease (or may already have ceased) publication. What role ANDERSSON may play in new publication efforts of the pro-Chinese Spanish dissidents is not known.
 

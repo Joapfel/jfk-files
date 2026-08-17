@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21882.png
-
-Convert to Markdown# G. Soviet Official Reactions
+# G. Soviet Official Reactions
 
 The Chief of the Soviet Delegation to the Disarmament Conference notified the Soviet Ambassador in Bern shortly before noon on 6 February 1964 that NOSENKO had disappeared, correctly placing the date as 4 February; they speculated that he might have been "poisoned" or injured in a car accident.* Two more days passed without Soviet authorities making any additional public or private statements on the subject. Later events showing Soviet official reactions to NOSENKO's defection are presented below in chronological order:
 

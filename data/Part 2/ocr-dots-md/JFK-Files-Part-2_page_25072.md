@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25072.png
-
-Convert to MarkdownTHE EVENING STAR (Washington), Monday, 9 September 1963,
+THE EVENING STAR (Washington), Monday, 9 September 1963,
 Four Star Edition, page B 4, Columns 4 - 5
 
 "Goldwater's Toughness Challenged by Castro"

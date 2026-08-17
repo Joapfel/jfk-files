@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_7407.png
-
 to Mr. Desmond Fitzgerald when the latter was Chief, Western Hemisphere Division and had accompanied Mr. Fitzgerald when he became Deputy Director for Plans. Mr. Yale recalled that subsequent to Mr. Fitzgerald's passing that Mr. Halpern remained on the staff and acted as an Executive Officer for Mr. Thomas Karamessines. Mr. Yale stated that from his experience, Mr. Karamessines would have delegated all the arranging of "details" surrounding an assignment such as Mr. Hunt's to Mr. Halpern. Mr. Yale offered the parenthetical observation of his surprise at what he interpreted to be reticence to date to interview Mr. Halpern.

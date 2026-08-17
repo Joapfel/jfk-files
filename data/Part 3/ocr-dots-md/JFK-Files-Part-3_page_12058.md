@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12058.png
-
-Convert to MarkdownINSPECTOR D. E. MOORE
+INSPECTOR D. E. MOORE
 
 DEM:mjt
 1/25/71

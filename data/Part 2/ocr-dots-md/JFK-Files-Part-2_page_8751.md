@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8751.png
-
-Convert to Markdown13-00000
+13-00000
 
 MOVIMIENTO REVOLUCIONARIO del PUEBLO (MRP) 19-120-22
 (Peoples Revolutionary Movement)

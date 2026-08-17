@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30042.png
-
-Convert to MarkdownAPR 22
+APR 22
 
 David S. Murphy
 

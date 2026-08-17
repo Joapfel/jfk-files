@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22214.png
-
-Convert to Markdown622.
+622.
 
 "Unescorted Entry into KGB Building with Visitor's Pass: In describing his first day at work, NOSENKO said that he went from the Pass Office, where he obtained a visitor's pass, to the 4th entry of the Building No. 2, where his pass was checked by the guards, and then went unescorted to KOBULOV'S office on the third floor. Challenged on this point, he said he was sure that it was possible to enter without an escort. In fact, it was absolutely impossible to go through any entry of Building No. 2 without escort if you did not have a properly stamped KGB (MVD) identity document (see below).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11579.png
-
-Convert to Markdownd. Accurately
+d. Accurately
 
 e. After a review of the entire file
 

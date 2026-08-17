@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13971.png
-
-Convert to Markdown(7) That the Defense Intelligence Agency in consultation with Army Intelligence: (1) assess the organization, management and effectiveness of clandestine espionage operations conducted in the Pacific area by Army's 500th Intelligence Corps Group; and (2) assure early coordination with appropriate CIA Station Chiefs of the few Army Intelligence clandestine operations not yet coordinated.
+(7) That the Defense Intelligence Agency in consultation with Army Intelligence: (1) assess the organization, management and effectiveness of clandestine espionage operations conducted in the Pacific area by Army's 500th Intelligence Corps Group; and (2) assure early coordination with appropriate CIA Station Chiefs of the few Army Intelligence clandestine operations not yet coordinated.
 
 (8) That the Defense Intelligence Agency, consulting with U. S. military intelligence agencies, assure that (under guidance by the Joint Chiefs of Staff to the Unified Commands) maximum use is made of the substantial intelligence potential of U. S. Military Assistance Groups deployed in foreign countries.
 

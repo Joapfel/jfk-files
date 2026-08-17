@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27762.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 DLB: 20 NOV 64

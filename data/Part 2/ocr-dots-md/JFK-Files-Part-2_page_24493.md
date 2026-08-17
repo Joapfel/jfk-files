@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24493.png
-
-Convert to MarkdownThe effort would have been to hold to the absolute minimum the number of people who knew that the President had been consulted, had been notified and had given, perhaps only tacitly, his authorization." (Bissell, 6/11/75, pp. 5-6).
+The effort would have been to hold to the absolute minimum the number of people who knew that the President had been consulted, had been notified and had given, perhaps only tacitly, his authorization." (Bissell, 6/11/75, pp. 5-6).
 
 However, Bissell testified that Dulles never told him he had briefed President Kennedy and he did not recall asking Dulles. (Bissell, 6/9/75, p. 34; 6/11/75, p. xx; 7/17/75, p. 27). In contrast, Bissell testified that on certain other occasions, Dulles had mentioned that a "circumlocutious" approach had been used to brief President Eisenhower on sensitive subjects (Bissell, 6/11/75, pp. 10-14). Bissell also said that he never asked to what degree Dulles had advised McGeorge Bundy, Special Assistant to the President for National Security Affairs, of the assassination plot. (Bissell, 6/9/75, p. 34).
 

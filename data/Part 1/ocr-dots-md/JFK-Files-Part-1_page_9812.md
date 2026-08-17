@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9812.png
-
-Convert to Markdown24 March, 1968.
+24 March, 1968.
 
 Subject: LIVING/4 Report of Status of Request for Re-entry Permit.
 

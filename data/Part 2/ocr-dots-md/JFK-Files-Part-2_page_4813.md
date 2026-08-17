@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4813.png
-
-Convert to MarkdownSECRET
+SECRET
 
 later, if we lose the war, there won't be any country to worry
 about anyway. And I'll take my chances with Congress

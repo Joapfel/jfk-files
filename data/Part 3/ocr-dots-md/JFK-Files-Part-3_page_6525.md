@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6525.png
-
-Convert to Markdown# Abstract of Information Provided to Select Committees
+# Abstract of Information Provided to Select Committees
 
 TO: Intelligence Community Staff
 ATTN: Central Index

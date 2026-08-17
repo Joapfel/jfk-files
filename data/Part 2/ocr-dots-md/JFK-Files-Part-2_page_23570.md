@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23570.png
-
-Convert to Markdownthat knowledge of the Cuban operation, masqueraded in Miami bars by any number of low-level agents in the operations branch of CIA, was denied to even the top officials of the intelligence branch. The Bureau of Intelligence and Research of the Department of State knew even less about the Cuban operation.
+that knowledge of the Cuban operation, masqueraded in Miami bars by any number of low-level agents in the operations branch of CIA, was denied to even the top officials of the intelligence branch. The Bureau of Intelligence and Research of the Department of State knew even less about the Cuban operation.
 
 The problem, then, is to have an R&E group sufficiently independent of both policy and operations to resist the pressure to make the case for vested ideas and interests -- yet sufficiently close to be able to subject projected operations or policies to the most intense and searching scrutiny.
 

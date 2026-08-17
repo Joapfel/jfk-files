@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7987.png
-
-Convert to Markdownsult. Theft, fraud, sabotage, EDP equipment mal- operations, and human errors are considered the most sources of danger.
+sult. Theft, fraud, sabotage, EDP equipment mal- operations, and human errors are considered the most sources of danger.
 
 On-line terminals connected to central processors from remote points are more exposed to violations and thefts. The increasing popularity of time- serving systems among large corporations and ser- vice bureaus has given rise to even more potential security breaches. Data transmitted over a com- munication line could be subject to wire tapping and eavesdropping by other hazards such as piggyback entry, thereby the intruder intercepts and compromises communication between a terminal and the processor till a legitimate user is inactive but still hold- ing the line open. The intruder can even cancel the user's sign-off signal and continue operating in his name. A knowledgeable person could enter program changes from a terminal and play havoc with the system.
 

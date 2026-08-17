@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23770.png
-
-Convert to MarkdownHW 50955 DocId:32423509 Page 144
+HW 50955 DocId:32423509 Page 144
 
 and under the parliament's system you give him access to
 NATO's secrets, then there's going to be hell to pay.. and we're

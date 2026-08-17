@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22152.png
-
-Convert to Markdownd. Information from Other Sources.
+d. Information from Other Sources.
 
 The Call director in Los Angeles, supplied the
 lead which followed this interview.

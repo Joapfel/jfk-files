@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19948.png
-
-Convert to MarkdownSECTION C/Continued
+SECTION C/Continued
 
 NARRATIVE COMMENTS
 

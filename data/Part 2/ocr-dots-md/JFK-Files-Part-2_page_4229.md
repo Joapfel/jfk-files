@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4229.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. Situation in the last several weeks.
 

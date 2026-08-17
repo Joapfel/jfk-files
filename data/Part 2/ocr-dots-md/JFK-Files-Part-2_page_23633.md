@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23633.png
-
-Convert to Markdownemployees?
+employees?
 
 Mr. Kirhow. Well, if I could tell you what my position
 on it is, in speaking to Beth Bloomfield last night I specifica-

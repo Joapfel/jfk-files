@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23050.png
-
-Convert to Markdown14-0000
+14-0000
 
 CENTRAL INTELLIGENCE AGENCY
 

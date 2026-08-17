@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14562.png
-
-Convert to Markdownstressed to the Spanish Government that Cuba is willing to permit Spanish citizens to operate the station, thereby avoiding any suspicion that the transmitter will be used for other purposes.
+stressed to the Spanish Government that Cuba is willing to permit Spanish citizens to operate the station, thereby avoiding any suspicion that the transmitter will be used for other purposes.
 
 In spite of his security-consciousness, he himself is the target of certain control by Juan Antonio CURBELO Lemus, the "cultural" first secretary who in reality is the security man at the Embassy ( RUIZ has complained that he needs a "real" one in Madrid: " Sergio / DEL VALLE, minister of the Interior, told me they were getting someone ready to send as cultural attaché"), for CURBELO instructed the front-desk girl to pass on to him a summary of who sees who and for what, including RUIZ's visitors.
 

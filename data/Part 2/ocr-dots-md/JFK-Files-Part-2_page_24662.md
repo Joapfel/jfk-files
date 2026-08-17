@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24662.png
-
-Convert to MarkdownTweedy did not recall inquiring about gaining access to Lumumba for the purpose of abducting him from UN custody (Tweedy, 9/9, p. 24); rather he "supposed" that various means of assassination were being explored:
+Tweedy did not recall inquiring about gaining access to Lumumba for the purpose of abducting him from UN custody (Tweedy, 9/9, p. 24); rather he "supposed" that various means of assassination were being explored:
 
 Q. Would this be access to shoot him or would this be access to his personal food or drink or toiletries?
 

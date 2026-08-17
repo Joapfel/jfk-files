@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23153.png
-
-Convert to MarkdownNWH.55510 Doctd:32429435
+NWH.55510 Doctd:32429435
 
 TOP SECRET
 

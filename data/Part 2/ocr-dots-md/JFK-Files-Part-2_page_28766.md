@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28766.png
-
-Convert to Markdownever, I was not advised that weekend days would be counted in the calculation of the leave period.
+ever, I was not advised that weekend days would be counted in the calculation of the leave period.
 
 He further advised that since the House payroll system is based on a 30-day month, for purposes of calculating a termination date he counted weekend days, whereas a vacationing employee who would be returning to work after vacation would not have weekend days counted. (I checked with the Committee on House Administration and learned that though each Committee establishes its own leave policy, it is unusual to penalize a terminating employee by counting in weekend days.)
 

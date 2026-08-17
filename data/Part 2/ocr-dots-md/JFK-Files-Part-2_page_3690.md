@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3690.png
-
-Convert to Markdown3. USSR
+3. USSR
 
 h. The forthcoming Afro-Asian visits by Chou En-lai and Chen Yi have awakened suspicions that the Chinese are in hot pursuit of a second Bandung-type conference--a more rewarding enterprise from their point of view.
 

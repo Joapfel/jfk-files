@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7551.png
-
-Convert to Markdown13 March 1945
+13 March 1945
 
 To: Lieutenant Colonel ROGER A. FFAFF
 From: John I. Coddington g. E.

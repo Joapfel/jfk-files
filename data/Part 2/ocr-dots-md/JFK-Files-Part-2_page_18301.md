@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18301.png
-
-Convert to MarkdownAttachment 2
+Attachment 2
 
 1. Use of tax related information to harass or disrupt groups or individuals.
 

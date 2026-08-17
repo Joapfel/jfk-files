@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8679.png
-
-Convert to Markdown4.09.03 Tumaco de las manos
+4.09.03 Tumaco de las manos
 
 Muy grandes
 

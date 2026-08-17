@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25095.png
-
-Convert to MarkdownTOP SECRET - SENSITIVE
+TOP SECRET - SENSITIVE
 
 6. The Joint Chiefs of Staff have a responsibility to provide military advice to the Commander in Chief and the Secretary of Defense. It is appropriate, therefore, that a matter such as the proposals under consideration, be sent to the Secretary of Defense with the recommendation that the study be forwarded to the Interdepartmental Coordinating Committee for coordination and comment as a basis for consideration of further recommendations by the Joint Chiefs of Staff.
 

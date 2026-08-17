@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9066.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (10) INTERNAL SECURITY LEADS IN FOREIGN COUNTRIES
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26616.png
-
-Convert to MarkdownINDEX: ☐ YES ☐ NO
+INDEX: ☐ YES ☐ NO
 
 CLASSIFIED MESSAGE
 

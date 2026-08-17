@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5499.png
-
-Convert to MarkdownBY: 1948
+BY: 1948
 25 May 1937
 
 Case 41-540 (replaced)

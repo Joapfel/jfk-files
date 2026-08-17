@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3196.png
-
-Convert to MarkdownSECRET
+SECRET
 
 12 Aug 69 N7 13:55
 

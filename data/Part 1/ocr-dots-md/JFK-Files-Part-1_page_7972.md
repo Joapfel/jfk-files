@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7972.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EDN-1-4072, Page 8
 27 November 1957

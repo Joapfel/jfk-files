@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8700.png
-
-Convert to Markdownand allegedly obtained money and weapons from the U.S.
+and allegedly obtained money and weapons from the U.S.
 MILANES and SALABARRIA were arrested in mid-1965.
 SALABARRIA was sentenced to 30 years imprisonment. As
 of May 71 his name appeared on a list of prisoners

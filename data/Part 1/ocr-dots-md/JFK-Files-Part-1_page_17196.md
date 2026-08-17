@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17196.png
-
-Convert to MarkdownLIEMTRAP unit. of the amount requested above, 29,520 dollars should be allowed for fiscal year 1967 and 15,900 dollars for fiscal year 1968. A detailed breakdown of the Project expenditure by category and by fiscal year follows:
+LIEMTRAP unit. of the amount requested above, 29,520 dollars should be allowed for fiscal year 1967 and 15,900 dollars for fiscal year 1968. A detailed breakdown of the Project expenditure by category and by fiscal year follows:
 
 SALARIES (INCLUDING CHRISTMAS BONUS)
 

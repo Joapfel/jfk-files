@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6114.png
-
-Convert to Markdown# Administrative - Internal Use Only
+# Administrative - Internal Use Only
 
 (6). Subject: Marian Elaine Fuller
 Date: 30 June 1972

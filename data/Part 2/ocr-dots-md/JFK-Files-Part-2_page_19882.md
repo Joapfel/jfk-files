@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19882.png
-
-Convert to MarkdownNR001 NY CODE
+NR001 NY CODE
 
 947AM URGENT 5-7-72 EAD
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11225.png
-
-Convert to Markdowne. Specific requirements relating to Communist Party, USA, investigations
+e. Specific requirements relating to Communist Party, USA, investigations
 
 (1) New York Office has responsibility of investigating and reporting separately on national committee meetings, national training schools, and other important national meetings. New York is responsible for reporting activities of the New York District.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23083.png
-
-Convert to MarkdownResulta significativa la información --- aportada por el columnista Jack Anderson en el diario "The Washington Post" sobre la intervención del ganster John Rosselli en varios planes de atentados contra el Primer Ministro Fidel Castro, algunos de ellos mediante envment con pastillas entregadas por la CIA. Posteriormente, según la propia prensa norteamericana, Rosselli admitió ante la Comisión de Inteligencia del Senado su participación con esta Agencia en varios com plots para asesinar al Primer Ministro Cubano.
+Resulta significativa la información --- aportada por el columnista Jack Anderson en el diario "The Washington Post" sobre la intervención del ganster John Rosselli en varios planes de atentados contra el Primer Ministro Fidel Castro, algunos de ellos mediante envment con pastillas entregadas por la CIA. Posteriormente, según la propia prensa norteamericana, Rosselli admitió ante la Comisión de Inteligencia del Senado su participación con esta Agencia en varios com plots para asesinar al Primer Ministro Cubano.
 
 Paulatinamente, funcionarios, senadores, jefes, oficiales y ex-agentes de la CIA, así como conocidos columnistas de la --- prensa norteamericana, han hecho categorías declaraciones, que coinciden con las denuncias formuladas, oportunamente por el gobierno de Cuba.
 

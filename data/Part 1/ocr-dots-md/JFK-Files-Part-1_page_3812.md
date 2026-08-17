@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3812.png
-
-Convert to Markdown**Roberto Arellano** - Studies law, 5th year. He works in the National Palace. Department of (Providencia?). It is a position related to employees and workers. He is 28 years of age.
+**Roberto Arellano** - Studies law, 5th year. He works in the National Palace. Department of (Providencia?). It is a position related to employees and workers. He is 28 years of age.
 
 **Roberto Arias** - Studies law, 6th year. Owner of an automobile spare parts business.
 

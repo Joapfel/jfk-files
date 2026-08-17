@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10292.png
-
-Convert to MarkdownSUBJECT: Sensitive Activities Performed by the Office of Logistics
+SUBJECT: Sensitive Activities Performed by the Office of Logistics
 
 assistance in connection with the political conventions that were being held. WH Division is the cognizant operating component on this matter.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15986.png
-
-Convert to Markdown# B. Arrests of Chicago BPP Members
+# B. Arrests of Chicago BPP Members
 
 On December 18, 1968, 12 male Negroes, who identified themselves as members of the BPP, were arrested in a parking lot at Chicago, Illinois, and charged with unlawful use of weapons, disorderly conduct, disturbing the peace, and creating a nuisance.
 

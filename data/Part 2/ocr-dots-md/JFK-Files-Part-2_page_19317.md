@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19317.png
-
-Convert to MarkdownJEANNETTE RANKIN
+JEANNETTE RANKIN
 HELENA, MONTANA
 
 November 27, 1967

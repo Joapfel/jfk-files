@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_31720.png
-
 and a financial man.
 
 ## AGENDA:

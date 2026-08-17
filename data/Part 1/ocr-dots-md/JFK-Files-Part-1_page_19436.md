@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19436.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="4">STANDARD FORM 80 (8 PAGES)<br/>OCTOBER 1948<br/>PROPOSED BY<br/>CHAPTER 3-1, FEDERAL PERSONNEL BARGAIN<br/>&nbsp;&nbsp;U S CIVIL SERVICE COMMISSION</td>

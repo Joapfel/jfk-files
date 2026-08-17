@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1769.png
-
-Convert to MarkdownMEO313 0140930Z
+MEO313 0140930Z
 
 RR HQ
 DE ME

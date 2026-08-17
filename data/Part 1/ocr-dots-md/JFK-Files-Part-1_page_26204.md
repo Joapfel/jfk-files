@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26204.png
-
-Convert to Markdown<table><tbody><tr><td colspan="3">10 Apr 70</td></tr><tr><td>CONFIDENTIAL INFORMATION</td><td>[Marked: CONFIDENTIAL]</td><td>[Date and time (GCT)]</td></tr><tr><td>(Classification)</td><td>(Reference number)</td><td>(Reference Number)</td></tr><tr><td>SECRET</td><td>10 60 39% APR 70</td><td>CITE DIRECTOR<br/>U24201</td></tr></tbody></table>
+<table><tbody><tr><td colspan="3">10 Apr 70</td></tr><tr><td>CONFIDENTIAL INFORMATION</td><td>[Marked: CONFIDENTIAL]</td><td>[Date and time (GCT)]</td></tr><tr><td>(Classification)</td><td>(Reference number)</td><td>(Reference Number)</td></tr><tr><td>SECRET</td><td>10 60 39% APR 70</td><td>CITE DIRECTOR<br/>U24201</td></tr></tbody></table>
 
 MEXICO CITY, SANTO DOMINGO
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6644.png
-
-Convert to Markdownby radio or talking to anyone for four of detection at Altrook Field, but that it is signaled by means of a light which indicates that the field is free for landing. Accommodation, accommodation, and one Jiggy Smith told me that Pan America's air agreement with the United States regarding landing rules was thereby being violated, and that there too soon were afterwards reacted from their John.
+by radio or talking to anyone for four of detection at Altrook Field, but that it is signaled by means of a light which indicates that the field is free for landing. Accommodation, accommodation, and one Jiggy Smith told me that Pan America's air agreement with the United States regarding landing rules was thereby being violated, and that there too soon were afterwards reacted from their John.
 
 "Information added that the above plane landed at Tocumen from David on 11 May. At 5:45 p.m., on 12 May at 6:51 p.m., on 14 May at 6:30 p.m. and on 16 May at 9:26 a.m.
 

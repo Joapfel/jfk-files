@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_187.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 In June, 1968, an informant in the San Diego, California, area, who was a Communist Party (CP) member, claimed to have been offended by Ben Dobbs, Executive Secretary of Southern California CP, who was running for state-wide office. The informant, a black, claimed to have been ignored by Dobbs and raised the issue that he engaged in discrimination against blacks in Southern California District CP. The claim was made at a Southern California District CP Negro Commission meeting, and a tape recording made of the meeting.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32321.png
-
-Convert to MarkdownOFFICE OF
+OFFICE OF
 
 CONFIDENTIAL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23971.png
-
-Convert to MarkdownIn practice, this meant that the CIA was to keep the President's Assis-
+In practice, this meant that the CIA was to keep the President's Assis-
 tant for National Security Affairs, Henry Kissinger, informed of its
 activities.
 

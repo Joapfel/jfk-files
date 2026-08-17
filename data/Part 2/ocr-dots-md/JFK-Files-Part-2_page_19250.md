@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19250.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 November 27, 1967
 

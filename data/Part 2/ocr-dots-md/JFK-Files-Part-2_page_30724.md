@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30724.png
-
-Convert to Markdown**7. Cable to Director from JMWAVE, dtd 11 Oct 63**
+**7. Cable to Director from JMWAVE, dtd 11 Oct 63**
 On October 1, Cisneros tells AMTAUP-1 that Ray to visit Betancourt later in week to report on status of JURE negotiations with U.S. and promises made to Ray by RFK during recent interviews.
 
 **8. Cable 172301Z 17 Octobar 63 to Director from JMWAVE.**

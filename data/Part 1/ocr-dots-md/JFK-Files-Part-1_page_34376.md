@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34376.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REFS: A. WAVE 0397 (IN 39527)
 B. DIR 95219

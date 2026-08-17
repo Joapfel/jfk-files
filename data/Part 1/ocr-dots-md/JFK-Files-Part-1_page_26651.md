@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_26651.png
-
 in handling" VRG. It is apparent that these contacts are primarily for the purpose of channeling VRG's reports and instructions to and from Cuba. In the course of his work as an agent for Castro and the DGI, VRG is known to have acted as a courier, carrying material and large sums of money to pro-Cuban groups in Central and Latin American countries.
 
 In October 1964 VRG received another important assignment from his

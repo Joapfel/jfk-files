@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19561.png
-
-Convert to Markdown7. Length of residence of wife (XXIX-XVIII) in the United States: Total life - 26 Yrs
+7. Length of residence of wife (XXIX-XVIII) in the United States: Total life - 26 Yrs
 
 8. Name of State of which you are a legal resident, and the length of legal residence therein: Texas - 6 yrs
 

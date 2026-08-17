@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9693.png
-
-Convert to Markdown#18. Immediate return to our original form of represented republic as described by the founding fathers.
+#18. Immediate return to our original form of represented republic as described by the founding fathers.
 
 #19. Immediate abolition of all unfair usury practices; i.e., unfair mortgage interest, etc.
 

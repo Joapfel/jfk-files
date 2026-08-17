@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11052.png
-
-Convert to Markdown# ANIVERSARIOS NACIONALES DE LOS PAISES SOCIALISTAS
+# ANIVERSARIOS NACIONALES DE LOS PAISES SOCIALISTAS
 
 - 4 - Abril. Humgría, Día de la Liberación (en 1945)
 

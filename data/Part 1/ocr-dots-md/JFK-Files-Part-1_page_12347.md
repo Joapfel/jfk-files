@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12347.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORWARDED
 1/3/95

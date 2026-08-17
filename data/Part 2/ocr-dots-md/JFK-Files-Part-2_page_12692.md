@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12692.png
-
-Convert to Markdownf. Subject no longer dangerous or potentially dangerous
+f. Subject no longer dangerous or potentially dangerous
 Frequently information is received or investigation develops that
 subject is no longer threat to internal security by reason of
 physical condition, defection, or expulsion from subversive move-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9864.png
-
-Convert to MarkdownPursuant to the Resolution, the Committee Rules include provisions relating to the confidential treatment of material received by the Committee. These provisions are contained in Rules 6.11; 7 (and each of its subsections), 9.3 and 9.4 which provide the following:
+Pursuant to the Resolution, the Committee Rules include provisions relating to the confidential treatment of material received by the Committee. These provisions are contained in Rules 6.11; 7 (and each of its subsections), 9.3 and 9.4 which provide the following:
 
 "6.11 Release of Testimony and Other Matters. No testimony taken or material presented at an Executive session shall be made public, in whole or in part or by way or summary, unless authorized by a majority vote of the Committee. Unless authorized by the Chairman the name of any witness scheduled to be heard by the Committee shall not be released prior to his testimony.
 

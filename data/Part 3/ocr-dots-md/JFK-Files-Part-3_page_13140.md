@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13140.png
-
-Convert to Markdown(continued)
+(continued)
 
 Antonio Iglesia Pons was in charge of the Nicaraguan operations base as a camp commander, but was not in charge of military affairs for Artime.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17565.png
-
-Convert to MarkdownSECRET / KAPCK
+SECRET / KAPCK
 
 The following is a complete list of the 97 HMMs which were based wholly or in part on LIFESTAT supplied material during the period July 1959 through May 1960.
 

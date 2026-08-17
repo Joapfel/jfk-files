@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24998.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 with economic assistance to the various political groups in different countries when they needed help.
 

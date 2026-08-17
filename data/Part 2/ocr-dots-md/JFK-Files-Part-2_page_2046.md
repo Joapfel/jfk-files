@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2046.png
-
-Convert to Markdown26 October 1960
+26 October 1960
 
 MEMORANDUM FOR: Director of Personnel
 

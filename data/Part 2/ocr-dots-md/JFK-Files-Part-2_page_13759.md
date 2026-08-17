@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13759.png
-
-Convert to MarkdownMemo to Mr. Adams from Legal Counsel
+Memo to Mr. Adams from Legal Counsel
 
 Re: STATUS OF RESPONSES TO CONGRESSIONAL COMMITTEE REQUESTS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3581.png
-
-Convert to MarkdownNOTES
+NOTES
 
 A. Congo A clandestine source tells us that Adoula will finally announce this morning the expulsion of all personnel of the Soviet and Czech embassies. This move has been hanging fire ever since security officials turned up evidence several weeks ago implicating personnel of these embassies in antigovern- ment activities. The Congolese ambassador in Moscow has been directed to destroy his classified files.
 

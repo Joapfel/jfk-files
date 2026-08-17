@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6169.png
-
-Convert to MarkdownOffice of Security
+Office of Security
 Department of State
 
 NOTE LEGATS, LONDON, PARIS, AND BONN, AND SAC, PHILADELPHIA:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31569.png
-
-Convert to MarkdownCOPY
+COPY
 
 The following is from a dispatch written by Mr. William Tyler, dated
 22 June 1953.

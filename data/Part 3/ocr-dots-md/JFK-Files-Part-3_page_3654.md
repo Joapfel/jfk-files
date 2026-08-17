@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3654.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 ST. 115
 Director, FBI

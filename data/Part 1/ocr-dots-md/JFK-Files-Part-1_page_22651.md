@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22651.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>40/30/MP/MF 11</td>

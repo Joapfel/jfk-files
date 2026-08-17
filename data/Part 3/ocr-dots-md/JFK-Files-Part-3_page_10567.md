@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10567.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELEYPED
 UNIT
 

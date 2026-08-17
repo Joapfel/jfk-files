@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23172.png
-
-Convert to MarkdownCuban economy.
+Cuban economy.
 
 Senator Schweiker. And how about an Antonio Vezina, a Cuban name?
 

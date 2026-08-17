@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22513.png
-
-Convert to MarkdownSECRET-ENGLISCHT
+SECRET-ENGLISCHT
 
 to furnish minor details that are missing from the written records,
 we think it unlikely that they would be able to add significantly

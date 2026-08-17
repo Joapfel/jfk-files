@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22265.png
-
-Convert to Markdown672.
+672.
 
 If the WINTERS operation plan were a draft like the others in this collection, the above conflicting and confusing paragraphs might be explained as variations jotted down as possible approaches to presenting a plan for the future, as yet undecided in direction. This document, however, is the one which--to NOSENKO's puzzlement--had been approved and signed in draft by KOVSHUK, as Chief of the U.S. Embassy Section, American Department, KGB Second Chief Directorate. The preparing case officer, KUSKOV, had furthermore indicated to the typing pool that it was to be typed in one copy, which gives the document the appearance of a draft which had been or was about to be made a matter of official KGB record.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7627.png
-
-Convert to MarkdownCOPIES MADE
+COPIES MADE
 
 here in Mexico City. Subject also said that Alejandro and his
 firm were good customers of Mundos Tours, and that Alejandro

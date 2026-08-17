@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24300.png
-
-Convert to MarkdownSECRET
+SECRET
 
 his services during the coming year. Thus my foregoing proposal arose from a desire on my part not to terminate an asset of proved capabilities without giving the agent in question suitable opportunity to become useful once more.
 

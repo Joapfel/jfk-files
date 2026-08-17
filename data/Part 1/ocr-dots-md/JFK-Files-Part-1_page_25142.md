@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25142.png
-
-Convert to MarkdownSECRET (Who Pllod I)
+SECRET (Who Pllod I)
 
 <table>
     <thead>

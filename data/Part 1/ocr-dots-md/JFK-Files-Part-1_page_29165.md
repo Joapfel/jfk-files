@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29165.png
-
-Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents) : none
+SEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents) : none
 
 1. NAME ____________________ RELATIONSHIP ____________________ AGE ____________________
 

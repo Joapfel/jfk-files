@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1425.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>0A9947</td>
     <td colspan="2">WHEELER ROBERT P</td>

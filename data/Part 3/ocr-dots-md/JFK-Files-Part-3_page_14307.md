@@ -1,3 +1,1 @@
-# JFK-Files-Part-3_page_14307.png
-
-Convert to Markdownwith the Bureau of the Budget if the DCI made the Comptroller responsible for all funding, including covert operations; and the DCI replied that in his opinion he could compart- mentalize the work of the Comptroller in a way which would facilitate dealing with the Bureau of the Budget concerning covert action matters.
+with the Bureau of the Budget if the DCI made the Comptroller responsible for all funding, including covert operations; and the DCI replied that in his opinion he could compart- mentalize the work of the Comptroller in a way which would facilitate dealing with the Bureau of the Budget concerning covert action matters.

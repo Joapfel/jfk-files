@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16044.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">R. LEHRMAN:gt</td>
     <td rowspan="4">

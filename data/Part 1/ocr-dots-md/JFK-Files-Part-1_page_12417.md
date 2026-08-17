@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12417.png
-
-Convert to Markdownrie nocturna al poblado.-
+rie nocturna al poblado.-
 
 2. 2. Generalmente los mineros forman grupos de traba-jo constituyendo peque-nos sociados entre - los que se repartirá la ganancia que logran oq tonar, pero como coro-cen do recursos indiapan-sublos so ven obligados a incluir como socio-a personas que les presten los implementos do trabajo o que financian su alimentación, con-s tituyedo esta forma una especie da explota — ción si se toma en cuenta que generalmente exa-gan los cantidades consumidas por los mine-roa. Los compradores de diamantes aprovechan - la descesidad de vender los diamantes encontro-dos por los mineros, para pagarlo a precios - muy por debajo de su valor real y los especula-dora, aprovechan para elevar los precio da -- los alimentos, medicinas, etc., llegando en o-portunidades de escaséz o vender hosts en Ba - 40 un kilogramo de arroz. Actualmente dada la competencia y los constantes viajes que efec-tuen el lugar las diferentes líneas aeropu-bre ellas: "ASERCA", "AEROVEN", "GATIZSA", "LA TINCARGA", "AEROTECNICA" y "COMERAVIA", los -- precios han dejado de ser tan exagerados.-
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22393.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A Oh, yes. Radio is a very big part of it.
 

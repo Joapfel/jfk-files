@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28044.png
-
-Convert to MarkdownRZF: 27 JUL 65
+RZF: 27 JUL 65
 
 SECRET
 (When Filled In)

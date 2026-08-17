@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1017.png
-
-Convert to MarkdownTHE WASHINGTON POST
+THE WASHINGTON POST
 
 14 May 1978
 

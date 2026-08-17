@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28328.png
-
-Convert to MarkdownSelect Committee on Assassinations
+Select Committee on Assassinations
 
 U.S. House of Representatives
 

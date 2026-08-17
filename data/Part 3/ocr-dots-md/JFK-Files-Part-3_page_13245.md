@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13245.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 PRESIDENT'S COMMISSION
 ON CIA ACTIVITIES

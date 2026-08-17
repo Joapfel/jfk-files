@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17323.png
-
-Convert to Markdown12 September 1963
+12 September 1963
 
 Dear Billard:
 

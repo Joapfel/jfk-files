@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25518.png
-
-Convert to Markdown-18-
+-18-
 
 FS: ...where you and your husband worked where he was manager, you were the first people to live in that place?
 

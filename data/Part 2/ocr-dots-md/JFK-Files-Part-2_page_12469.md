@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12469.png
-
-Convert to Markdownb. As means of obtaining closer control, obtain signed statement set out below whenever feasible and practical. In those instances in which it is not practical to secure a signed statement from an informant or double agent, advise Bureau of complete details. The SAC and the Agent handling the informant or double agent should determine the appropriate time in the informant's operation when the statement should be completed.
+b. As means of obtaining closer control, obtain signed statement set out below whenever feasible and practical. In those instances in which it is not practical to secure a signed statement from an informant or double agent, advise Bureau of complete details. The SAC and the Agent handling the informant or double agent should determine the appropriate time in the informant's operation when the statement should be completed.
 
 I, ____________, have voluntarily agreed to cooperate with the Federal Bureau of Investigation in a matter affecting the security of the United States. I consider it a patriotic duty to so cooperate and agree to maintain this relationship in strict confidence. I understand that I am not a Federal employee and will not represent myself as such. I further agree not to make any disclosure or exploit in any way information which I may obtain or any activity in which I may engage on behalf of the Federal Bureau of Investigation, both while I am actively associated with the Federal Bureau of Investigation and thereafter, unless authorized to do so by the Bureau.
 

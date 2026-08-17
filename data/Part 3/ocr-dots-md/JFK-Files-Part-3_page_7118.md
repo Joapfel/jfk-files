@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7118.png
-
-Convert to MarkdownJ. J. McDermott to Jenkins Memo
+J. J. McDermott to Jenkins Memo
 RE: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
 
 Committee regarding the storage of information and the clearance of the staff.

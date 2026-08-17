@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24761.png
-
-Convert to Markdownarms and explosive devices and to the use of high level emissaries to persuade Trujillo to abdicate. By the end of the year, a broad plan of general support to anti-Trujillo forces, both within and without the country, was approved.
+arms and explosive devices and to the use of high level emissaries to persuade Trujillo to abdicate. By the end of the year, a broad plan of general support to anti-Trujillo forces, both within and without the country, was approved.
 
 A. Diplomatic Development --
 Withdrawal of U.S. Personnel

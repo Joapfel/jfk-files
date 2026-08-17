@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25248.png
-
-Convert to Markdown# FIELD INFORMATION REPORT
+# FIELD INFORMATION REPORT
 
 EVALUATION OF SOURCES: A Company in the 8th Division (Cuba) in the 0th Division (Soviet Union) and a unit from the 4th Division (U.S.A.) are considered as sources of intelligence. Appraisal is based on evaluation made by experts.
 

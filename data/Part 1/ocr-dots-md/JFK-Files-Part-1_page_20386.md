@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20386.png
-
-Convert to MarkdownEMPLOYEE'S COPY
+EMPLOYEE'S COPY
 
 <table>
     <thead>

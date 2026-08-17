@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11697.png
-
-Convert to MarkdownIV. Extent and Nature of Current Supervision
+IV. Extent and Nature of Current Supervision
 
 Periodic reports on individuals and organizations as well as informant coverage relating to BOCOV are analyzed and correlated by SA Bernardo M. Perez. Involved is review of incoming letters, memoranda, reports and semiannual progress letters detailing informant coverage and subversive strength. Analysis of this material provides a basis for detecting weaknesses and making arrangements for counterintelligence moves.
 

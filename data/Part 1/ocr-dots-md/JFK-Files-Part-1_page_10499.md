@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10499.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">021.871<br/>(C-circled)</td>
     <td>16-38-96</td>

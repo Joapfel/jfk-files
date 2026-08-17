@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15197.png
-
-Convert to Markdown23 October 1959
+23 October 1959
 
 Dear Paul,
 

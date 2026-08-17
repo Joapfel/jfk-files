@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20519.png
-
-Convert to MarkdownRE: PROPOSED DEMONSTRATIONS. WASHINGTON, D. C. AND SAN FRANCISCO, CALIFORNIA, NOVEMBER 20, 1971, FOR ABORTION LAW REPEAL SPONSORED BY WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC)
+RE: PROPOSED DEMONSTRATIONS. WASHINGTON, D. C. AND SAN FRANCISCO, CALIFORNIA, NOVEMBER 20, 1971, FOR ABORTION LAW REPEAL SPONSORED BY WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC)
 
 a daily newspaper of general circulation in the Cleveland, Ohio, area, and related that the Cleveland Student Mobilization Committee to End the War in Vietnam (SMC) had held its first meeting on September 13, 1970, since summer recess to plan statewide anti-war activities for the fall. The above article reported that LAURIE PERKUS, age 21, had been appointed a full time committee staff member of the Cleveland SMC.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21069.png
-
-Convert to Markdown<table><thead><tr><td>DATE</td></tr></thead><tbody><tr><td>5/10/67</td></tr></tbody></table>
+<table><thead><tr><td>DATE</td></tr></thead><tbody><tr><td>5/10/67</td></tr></tbody></table>
 
 APPROPRIATE AGENCIES AND FIRM OFFICES ADVISORY BOARD SLIP(S) OF CLASS DATE
 

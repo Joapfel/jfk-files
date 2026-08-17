@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13233.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 objective for which we want him to perform his task, he was
 not told precisely what we want him to do. Instead, he was

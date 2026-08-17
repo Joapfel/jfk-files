@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19277.png
-
-Convert to MarkdownWA ---10---
+WA ---10---
 
 NK ----4----
 

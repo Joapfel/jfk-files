@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25748.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">SECRET</th><th>OFFICE SYMBOL<br>C/WHD</th></tr></thead><tbody><tr><td rowspan="3">DISPATCH</td><td rowspan="2">DATE TYPED<br>29 December 1960</td><td rowspan="3">EXT.<br>2555</td></tr><tr><td>DISPATCH SYMBOL AND NUMBER<br>HMM-9364</td></tr><tr><td>HEADQUARTERS FILE NUMBER<br>201-119523</td></tr><tr><td rowspan="7"></td><td rowspan="7">CROSS REFERENCE TO<br><br>CLASSIFICATION<br>SECRET</td><td colspan="2">ORIGINATING<br>OFFICE<br>WH/3/Mexico OFFICER JOSEPH C LEHRING DEW</td></tr><tr><td colspan="2">COORDINATING<br>OFFICE SYMBOL<br>L.H./Pers 29.12.60</td></tr><tr><td></td><td>OFFICER'S NAME<br>P.C.Bowen</td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td>RELEASING<br>OFFICE SYMBOL<br>DATETRACY</td></tr><tr><td></td><td>RELEASING<br>OFFICER'S SIGNATURE<br>J.S.Holman J.O.Hing</td></tr></tbody></table>
 

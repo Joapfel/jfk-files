@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24117.png
-
-Convert to Markdownattributable to the U.S. Government. This function was broadened
+attributable to the U.S. Government. This function was broadened
 to include self-insurance for many risks involved in covert operations,
 including property risks incurred by operational activities of Agency-
 owned air and marine companies. From an early date, the complex has

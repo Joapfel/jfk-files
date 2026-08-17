@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14090.png
-
-Convert to MarkdownFOR SECRET
+FOR SECRET
 
 The Chairman asked the DCI whether the MONGOOSE activity presented any particular intelligence problem in the Cuba situation. Mr. McCone said that it had not. He said that in the MONGOOSE activity the Special Group and the Attorney General had given a great deal of consideration to the need for intelligence collection with respect to Cuba, but the intelligence needed was primarily for covert action rather than other purposes. Nevertheless, the MONGOOSE activity contributed to the over-all intelligence collection effort on Cuba. Mr. McCone recalled that there was a hiatus in the collection of intelligence on Cuba after the Bay of Pigs invasion, and when he took office in November 1961 Mr. McCone was surprised to learn that no interrogation of Cuban refugees was taking place. Thereafter, following discussions with the President and the Attorney General they got the refugee interrogations under way.
 

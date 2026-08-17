@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26807.png
-
-Convert to MarkdownA) To Cuba:
+A) To Cuba:
 
 1) July 1962, returned Mexico December 1962
 

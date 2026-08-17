@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1255.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 Office of Legal Counsel
 
 COMMENTS ON PERSONAL FILES

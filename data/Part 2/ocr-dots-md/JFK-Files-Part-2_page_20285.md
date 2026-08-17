@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20285.png
-
-Convert to Markdown24979
+24979
 
 1 - R. H. Horner
 1 - H. J. Rozansus

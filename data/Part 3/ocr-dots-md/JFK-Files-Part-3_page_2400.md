@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2400.png
-
-Convert to Markdown# 1. International Conference on Vietnam
+# 1. International Conference on Vietnam
 
 Stockholm was the scene of the International Conference on Vietnam held from July 6 through July 9, 1967. The World Peace Council, an international communist front organization, was one of the principal organizers of this conference. Among the 452 persons who attended the conference were delegates from communist countries. Among those present from the United States were Dr. Benjamin Spock; CPUSA National Committee member Herbert Aptheker; the Reverend James Bevel; Amy Swerdlow, of Women's International League for Peace and Freedom; and Simon Casady, then an official of the National Conference of New Politics.
 

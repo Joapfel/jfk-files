@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11452.png
-
-Convert to MarkdownINDEX FOR SECTION 87D
+INDEX FOR SECTION 87D
 
 References a: to page.
 

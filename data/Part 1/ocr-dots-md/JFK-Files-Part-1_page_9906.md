@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9906.png
-
-Convert to Markdown2.
+2.
 
 dealing with him. Carmen Molina commented to LIRING/3 that she felt
 sure she could help Rowton in his business and political problems and

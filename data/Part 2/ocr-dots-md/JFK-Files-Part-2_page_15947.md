@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15947.png
-
-Convert to MarkdownRUSH stated on January 27, 1969, that Chicago Police Department officers were responsible for BPP loss of telephone service.
+RUSH stated on January 27, 1969, that Chicago Police Department officers were responsible for BPP loss of telephone service.
 
 1/28/69)
 

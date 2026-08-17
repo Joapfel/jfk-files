@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15789.png
-
-Convert to Markdownstate or state area, and local committees and staff
+state or state area, and local committees and staff
 where said rules or rules of the BLACK PANTHER
 PARTY were violated.
 

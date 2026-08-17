@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11540.png
-
-Convert to MarkdownII. Mark canceled across face of each such card being retained and file it in the reserve index.
+II. Mark canceled across face of each such card being retained and file it in the reserve index.
 
 III. Consider whether the subject's name should be placed in section A of the reserve index. If his name should be included in section A, submit form FD-122a,
 

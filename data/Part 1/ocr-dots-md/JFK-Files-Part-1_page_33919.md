@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33919.png
-
-Convert to Markdown# BROOKLYN, NEW YORK
+# BROOKLYN, NEW YORK
 
 > " I enclose a copy of a prayer...
 

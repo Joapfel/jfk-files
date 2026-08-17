@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21392.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 29 Nov. 1962 (PHiladelphia)
 RE: Semen Spiridon Pohorlyj

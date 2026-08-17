@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25710.png
-
-Convert to MarkdownLee Harvey Oswali
+Lee Harvey Oswali
 
 Race White
 Sex Male

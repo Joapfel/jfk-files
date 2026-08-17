@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2582.png
-
-Convert to Markdown## Full Response
+## Full Response
 
 f. The current office of assignment or last known address of the following persons who, in 1964, were employed at the Newark, New Jersey, office of the FBI:
 

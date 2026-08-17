@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7746.png
-
-Convert to Markdownsation or otherwise preoccupied, he can sometimes be quite a dangerous driver.
+sation or otherwise preoccupied, he can sometimes be quite a dangerous driver.
 
 10.03.07 A well-controlled individual who has a glide (or grace) in his walk. He has little or no interest in "fixing things" but usually knows the best places to get things done and is inclined to be quite particular in how things are done for him. He appears to have relatively little knowledge of the mechanics of an automobile, but appreciates and takes good care of a good automobile. He drives with confidence, but usually at a fast pace with not too much awareness of others.
 

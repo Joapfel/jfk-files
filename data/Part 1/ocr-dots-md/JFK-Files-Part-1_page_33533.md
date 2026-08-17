@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33533.png
-
-Convert to MarkdownOMF 0 0 0 0 0 1
+OMF 0 0 0 0 0 1
 
 CLASSIFICATION
 

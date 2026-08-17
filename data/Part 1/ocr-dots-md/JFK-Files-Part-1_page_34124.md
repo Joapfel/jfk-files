@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34124.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>INDEX: ☐ YES ☐ NO ____________</td></tr></thead><tbody><tr><td>CLASSIFY TO FILE NO. _______________</td></tr><tr><td>X-REF TO FILE NO. _______________</td></tr><tr><td>FILE RID ☐ RET. TO BRANCH ☐ _______________</td></tr><tr><td>DESTROY ☐ SIO. _______________</td></tr></tbody><tfoot><tr><td colspan="2">PERSON/UNIT NOTIFIED<br/>File, Joscroft</td></tr><tr><td colspan="2"><table border="1" style="width:100%; border-collapse: collapse;"><thead><tr><th>1</th><th>2</th><th>3</th><th>4</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td></tr></tbody></table></td></tr><tr><td>ACTION WHIS L ☑<br/>FILE JR. WHS RITAN CL CHOPS CILIC 2 CA2 CALPROP Fl Fihntt 2</td><td>ADVANCE COPY ☐ ________ ☐ ________ ☐ ________ <br/> UNIT ________ TIME ________ BY ________</td></tr></tfoot></table>
 

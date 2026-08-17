@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11529.png
-
-Convert to MarkdownRecommend entire document be classified "Secret,"
+Recommend entire document be classified "Secret,"
 
 XGDS 1, 2, 3.
 

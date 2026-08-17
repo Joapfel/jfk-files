@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16828.png
-
-Convert to Markdown25 January 1962
+25 January 1962
 
 SUBJECT: Request for LIEUT. Project Renewal
 

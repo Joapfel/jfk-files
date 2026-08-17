@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7579.png
-
-Convert to MarkdownUNITED STATES
+UNITED STATES
 
 ERNMENT
 

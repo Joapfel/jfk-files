@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4503.png
-
-Convert to MarkdownDate : 08/10/98
+Date : 08/10/98
 
 Page : 1
 

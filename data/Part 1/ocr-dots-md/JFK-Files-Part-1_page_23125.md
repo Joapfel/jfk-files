@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23125.png
-
-Convert to MarkdownJunio 23 de 1967
+Junio 23 de 1967
 
 (Dr.) Rogelio Díaz Guerrero
 Presidente Electo

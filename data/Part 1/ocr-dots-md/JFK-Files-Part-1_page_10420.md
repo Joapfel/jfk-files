@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10420.png
-
-Convert to Markdown14-0000
+14-0000
 
 # SEC-1 17 July.1968
 

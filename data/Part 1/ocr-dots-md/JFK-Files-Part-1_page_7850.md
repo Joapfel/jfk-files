@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7850.png
-
-Convert to Markdown6. On 31 August, KAZANTSEV told LIROCKET-1 that Semen Tarasovich BAZAROV (201-049257) was again interested in taking English lessons from LIROCKET-1. LIROCKET-1 commented that he might be able to accommodate BAZAROV only from mid-September to the end of November. KAZANTSEV left the room and contacted BAZAROV. Upon returning KAZANTSEV stated that BAZAROV would have pressing obligations in connection with the forthcoming anniversary and Olympics and could not begin classes until sometime thereafter.
+6. On 31 August, KAZANTSEV told LIROCKET-1 that Semen Tarasovich BAZAROV (201-049257) was again interested in taking English lessons from LIROCKET-1. LIROCKET-1 commented that he might be able to accommodate BAZAROV only from mid-September to the end of November. KAZANTSEV left the room and contacted BAZAROV. Upon returning KAZANTSEV stated that BAZAROV would have pressing obligations in connection with the forthcoming anniversary and Olympics and could not begin classes until sometime thereafter.
 
 7. On September, KAZANTSEV commented that he would like to continue studying English because he expected to return PCS to his country at the end of 1967 or early 1968. KAZANTSEV acknowledged that he might be asked to stay on during the Olympics. However, he indicated that this was unlikely to prevent his from returning. KAZANTSEV reiterated his desire to depart Mexico in the near future.
 

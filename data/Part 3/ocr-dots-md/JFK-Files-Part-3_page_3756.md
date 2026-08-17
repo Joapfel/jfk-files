@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3756.png
-
-Convert to MarkdownAPR
+APR
 
 XEROX
 4 1968

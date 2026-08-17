@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18974.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">
      (a) First Special Service School attended:

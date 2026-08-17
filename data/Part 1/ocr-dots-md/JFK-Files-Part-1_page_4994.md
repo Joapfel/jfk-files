@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4994.png
-
-Convert to Markdown76WLO-15-83(B)
+76WLO-15-83(B)
 SECRET
 
 September 1976

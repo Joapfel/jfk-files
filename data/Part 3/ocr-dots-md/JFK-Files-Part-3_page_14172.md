@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14172.png
-
-Convert to Markdown(88. 9/6/62 Continued
+(88. 9/6/62 Continued
 
 > "with several others still in crates. This was not reported by CIA
 > in the Checklist but was reported in the CIB of 8 September. Actually,

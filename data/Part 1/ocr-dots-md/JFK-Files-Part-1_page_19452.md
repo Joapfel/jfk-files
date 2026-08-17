@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19452.png
-
-Convert to MarkdownOSS : ... 1001
+OSS : ... 1001
 
 OSS PERSONNEL ACTION REQUEST
 (To be Signed and Submitted in Triplicate)

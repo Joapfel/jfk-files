@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17310.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 MEDICAL CENTER
 
 The attached article entitled, "Right On To The Spurgeon 'Jake' Winters Free Medical Care Center", appeared in the January 10, 1970, edition of the BPP paper a newspaper published in Berkeley, California.

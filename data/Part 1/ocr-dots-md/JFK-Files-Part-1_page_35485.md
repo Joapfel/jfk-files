@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35485.png
-
-Convert to MarkdownLos equipos de trabajo se divi-
+Los equipos de trabajo se divi-
 vidían en interfaces y extraí-
 das. Los interiores estarán for-
 mados por alrededor de cuarto

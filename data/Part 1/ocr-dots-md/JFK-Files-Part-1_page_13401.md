@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13401.png
-
-Convert to MarkdownSECRET
+SECRET
 
 24 MAY 1973:7032
 

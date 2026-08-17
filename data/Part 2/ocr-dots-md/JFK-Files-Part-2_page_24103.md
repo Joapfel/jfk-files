@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24103.png
-
-Convert to Markdowngovernment personnel, as well as conduct by private citizens having no relation
+government personnel, as well as conduct by private citizens having no relation
 to the U.S. government. In addition, subsection (a), dealing with conspiracies
 within the United States, applies to "any other person," whether or not a United
 States citizen. Noncitizens who conspire within the United States to assassi-

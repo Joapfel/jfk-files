@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12521.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, Alien Affairs Staff
 Office of Security

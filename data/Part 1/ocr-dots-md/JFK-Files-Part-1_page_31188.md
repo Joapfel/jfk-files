@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31188.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## SPECIFIC DUTY NO. 1 - (Continued)
 

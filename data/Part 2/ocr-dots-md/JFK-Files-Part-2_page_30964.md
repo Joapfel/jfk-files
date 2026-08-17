@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30964.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LZ L C
 Liberation Army of Cuba

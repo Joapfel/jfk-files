@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3770.png
-
-Convert to Markdown# Shaw Trial Attorneys Ordered to Keep Quiet
+# Shaw Trial Attorneys Ordered to Keep Quiet
 
 NEW ORLEANS (AP)— Criminal District Court Judge Edward Haggerty Jr. today ordered the prosecution and defense in the Clay L. Shaw's Kennedy assassination conspiracy trial to refrain from pre-trial publicity. He told them to quit discussing evidence.
 

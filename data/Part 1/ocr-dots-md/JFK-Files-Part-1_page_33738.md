@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33738.png
-
-Convert to Markdown-2-
+-2-
 
 subcommittee was appointed to examine the situation; this committee is composed of Mr. P. A. Dolbeare, Dr. Levering Tyson and Mr. Frank Altschul. The subcommittee was informed by the Board of Directors that, should the Czechoslovaks fail to overcome their differences by the end of January, all payments to the Czechoslovak National Council would cease as of that time. The Board had agreed, however, that a credit of $25,000, appropriated to the Council, would remain with it and could be used for support during the course of the following month. It was considered that these funds would act as a hedge against other outside funds to which Mr. Zenkl appears to have access.
 

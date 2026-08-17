@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1264.png
-
-Convert to MarkdownSEC. VIII. PUBLICATIONS
+SEC. VIII. PUBLICATIONS
 
 <table><tr><td>List below the type of writing (non-fiction: professional or scientific articles, general interest subjects, current events, etc; fiction: novels, short stories, etc.) of any published materials of which you were author or co-author.</td></tr><tr><td>"The Korean and Their Living Space", Korea Review Sept. 1949</td></tr><tr><td>"A Frontier Experiment with Higher Education", Penna History Jan. 1949</td></tr><tr><td>Understanding Our State Experiment, Maryland and Sons, Carlisle, Pa. 1949</td></tr></table>
 

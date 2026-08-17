@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13912.png
-
-Convert to MarkdownThe Honorable Edward H. Levi
+The Honorable Edward H. Levi
 
 Page Two
 

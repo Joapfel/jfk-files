@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21541.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RECEIPT
 JUN 24 1975

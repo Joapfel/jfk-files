@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29917.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 4. Mr. Murphy returned from France in 1974 and was assigned as a National Intelligence Officer with responsibility to the DCI in the area of Special Activities. He has served in this assignment of high trust and responsibility until his retirement.
 

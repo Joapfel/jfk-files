@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19398.png
-
-Convert to MarkdownMemorandum • UNITED STATES GOVERNMENT
+Memorandum • UNITED STATES GOVERNMENT
 
 DATE: 16 July 1946
 

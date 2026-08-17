@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26840.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Now, since they belong to us we could levy ceratin require ments on them if we wanted to, which we did very infrequently because the common interests, -- we have a common interest in what NSA has an interest in and unless there were one particular operation going that they wanted to cover exactly what the Cubans were doing, then we would task our people with that.
 

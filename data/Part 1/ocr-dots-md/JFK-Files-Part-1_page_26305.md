@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26305.png
-
-Convert to Markdown# Informe sobre VICTOR RICO GALAN
+# Informe sobre VICTOR RICO GALAN
 
 22 octubre 1966
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25688.png
-
-Convert to Markdown6. We do not have a copy of the Cubana manifest for the 22 November 1963 flight from Mexico City to Havana, but we have determined that the following persons were on that flight:
+6. We do not have a copy of the Cubana manifest for the 22 November 1963 flight from Mexico City to Havana, but we have determined that the following persons were on that flight:
 
 | NAME | NATIONALITY | OCCUPATION |
 |---|---|---|

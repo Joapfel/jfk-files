@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_380.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 Civil Rights Division
 
 # COMMENTS ON PROPOSED PROCEDURES

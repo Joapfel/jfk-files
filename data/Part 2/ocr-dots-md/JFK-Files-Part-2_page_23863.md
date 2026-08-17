@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23863.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 All right. Without objection, then, that will be the
 decision of the Committee.

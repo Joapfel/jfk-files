@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7696.png
-
-Convert to MarkdownIn May 1967 Subject was reportedly discussing Soviet travel via KLM with de MIER (6) (1, 6).
+In May 1967 Subject was reportedly discussing Soviet travel via KLM with de MIER (6) (1, 6).
 
 38). [kdx (Llc.) Oscar *OBREGON, Jr., not further identified.
 

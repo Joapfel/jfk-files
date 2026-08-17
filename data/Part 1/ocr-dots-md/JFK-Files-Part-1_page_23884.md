@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23884.png
-
-Convert to Markdowncriticism. You know, we make a lot of noise and pay a lot of money do so, and we won't do this anymore."
+criticism. You know, we make a lot of noise and pay a lot of money do so, and we won't do this anymore."
 
 A number of groups, apparently so. You know, they have created the so-called Spanish Communist Party, the rest being Marxist-Leninist, and this was one of the conditions. There are talks going on in France between the French group and the Marseilles group and that was once again, the conditions of the Marseilles people who were tied up with Verses had nothing to do with them. On the other hand there are students talking between the two groups and a young left-wing group, they call themselves the Drapeau Rouge group. It's a very small group anyway. That again was a condition. They put out a magazine, a news letter, called Drapeau Rouge which had been mainly written-- it's one single edition-- mainly written by the Communists. So obviously, the wind has turned very much against strange things too. To Maspero, him(them). Verses has said, however, that he is not very long ago at a cocktail party, he said, "I don't see why people reproach me for accepting aid from African friends and comrades- African comrades, no longer Chinese comrades. He also says that he admitted that they had made mistakes, that the magazine had been too sectarian, dogmatic, (Verses said this to Maspero?) Yes.Anderson told me that.
 

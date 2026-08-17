@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3655.png
-
-Convert to Markdownb. Last year when this came up, the French were inclined to go along with some such idea.
+b. Last year when this came up, the French were inclined to go along with some such idea.
 
 c. They have indicated to us that they still feel Sihanouk should not be turned down, and Sihanouk is obviously hopeful that they will exert pressure on us and the British.
 

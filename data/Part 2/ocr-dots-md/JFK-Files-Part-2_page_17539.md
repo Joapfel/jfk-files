@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17539.png
-
-Convert to MarkdownV. ACTIVITIES
+V. ACTIVITIES
 
 WILLIE JAMES CALVIN, also known as "Jew Man"
 Captain of Defense and JEWEL COOK, Field Secretary, Chicago BPP,

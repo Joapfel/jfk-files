@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11408.png
-
-Convert to Markdown(3) Arrangement
+(3) Arrangement
 
 This index is to be maintained in two sections, section A and
 section B. Each section will be maintained alphabetically on

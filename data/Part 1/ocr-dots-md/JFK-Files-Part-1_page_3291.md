@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3291.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: AMT-2
 FROM: ANDIAL-2

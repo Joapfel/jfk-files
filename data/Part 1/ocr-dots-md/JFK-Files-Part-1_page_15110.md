@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15110.png
-
-Convert to Markdown# CONTACT REPORT
+# CONTACT REPORT
 
 **DATE:** 23 May 1962, 10:00 to 11:45 hours
 

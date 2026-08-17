@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13530.png
-
-Convert to Markdown2319
+2319
 
 MR. BISSELL: Well, I think I can honestly say it didn't particularly occur to me at that time. I read the usual newspaper accounts of the assassination, but it wasn't until a good deal later that these facts about Oswald surfaced and I will honestly say that really didn't occur to me, that there was a connection.
 

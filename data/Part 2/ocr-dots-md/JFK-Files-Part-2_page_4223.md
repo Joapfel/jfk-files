@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4223.png
-
-Convert to MarkdownCastro will feel secure, his political and military structure will be manageable, and Cuba will be used by Castro and the Soviets more aggressively in the future than it has in the past in disturbing Western Hemisphere countries.
+Castro will feel secure, his political and military structure will be manageable, and Cuba will be used by Castro and the Soviets more aggressively in the future than it has in the past in disturbing Western Hemisphere countries.
 
 This is the situation I fear, and I think our policy makers whose negotiations are trending toward the establishment of a set of conditions and commitments which will make the third case mentioned above a probability, should have the benefit of our thinking as to the consequences. In doing this, equal attention should be given to the first two alternatives.
 

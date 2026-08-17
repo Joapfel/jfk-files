@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22370.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Special Activities Staff. It was headed by Desmond Fitzgerald.
 

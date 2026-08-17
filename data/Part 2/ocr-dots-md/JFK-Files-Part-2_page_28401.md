@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28401.png
-
-Convert to MarkdownFACTER, Jeffrey
+FACTER, Jeffrey
 
 OFFICE OF THE CLERK
 U.S. HOUSE OF REPRESENTATIVES

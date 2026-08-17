@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9641.png
-
-Convert to Markdown11. REQUIKS: (any additional pertinent information)
+11. REQUIKS: (any additional pertinent information)
 
 Not personally interested in a job but he and other officials of the corporation (or officers) are interested in being of any assistance they can.
 

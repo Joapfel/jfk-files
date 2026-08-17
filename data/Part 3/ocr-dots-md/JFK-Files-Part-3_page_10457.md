@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10457.png
-
-Convert to MarkdownNR 009 CE CODED
+NR 009 CE CODED
 
 5:33 PM NITEL MARCH 25, 1975 KCL
 

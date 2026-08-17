@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10310.png
-
-Convert to MarkdownD. Alarms
+D. Alarms
 
 All exterior doors to the auditorium will have contact (microswitch) alarms. The Remington Rand safes, being obsolete, will be protected by a proximity alarm. The compartmented storage room and an adjacent reading area will be protected by a volumetric alarm. For fire protection a smoke detector/rate of rise alarm will be installed in the compartmented area. All alarms will enunciate at the guard desk at the entrance to the auditorium. The ADT Company will install and maintain the alarms.
 

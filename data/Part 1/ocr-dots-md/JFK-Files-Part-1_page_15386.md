@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15386.png
-
-Convert to Markdown<table><thead><tr><td>CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td>SECRET<br/>PERSON/UNIT NOTIFIED<br/><br/><table border="1"><tr><td>[Image: SECRET SIGNATURE]</td><td>[Image: Coded Formula]</td></tr><tr><td>SUBMIT ALL TO US, UNIT 101</td><td>SUBMIT ALL TO US, UNIT 102</td></tr><tr><td>ADVANCE COPY</td><td>RECEIVED</td></tr></table><br/>TIME<br/><br/>FILE, DOP, WH & A, AFM</td></tr></tbody></table>
+<table><thead><tr><td>CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td>SECRET<br/>PERSON/UNIT NOTIFIED<br/><br/><table border="1"><tr><td>[Image: SECRET SIGNATURE]</td><td>[Image: Coded Formula]</td></tr><tr><td>SUBMIT ALL TO US, UNIT 101</td><td>SUBMIT ALL TO US, UNIT 102</td></tr><tr><td>ADVANCE COPY</td><td>RECEIVED</td></tr></table><br/>TIME<br/><br/>FILE, DOP, WH & A, AFM</td></tr></tbody></table>
 
 SECRET 341736Z
 DIR INFO WAVE CITE LOP 6156

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13653.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 back-up support so that you could be assured that you were not under surveillance at the meeting?
 

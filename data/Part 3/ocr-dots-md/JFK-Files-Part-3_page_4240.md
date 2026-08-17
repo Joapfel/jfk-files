@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4240.png
-
-Convert to MarkdownPRESS RELEASE
+PRESS RELEASE
 NOVEMBER 7, 1975
 
 The press statement released by the Navy today relating to its drug research on human subjects for the period 1947 through 1954 indicates liaison concerning this project was maintained by the Navy with other Governmental agencies, including the FBI.

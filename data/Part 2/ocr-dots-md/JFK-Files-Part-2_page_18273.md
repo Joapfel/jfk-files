@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18273.png
-
-Convert to MarkdownAugust 21, 1975
+August 21, 1975
 
 MEMORANDUM FOR THE FILE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22089.png
-
-Convert to Markdowng. Electronic Operations Against the U.S. Embassy
+g. Electronic Operations Against the U.S. Embassy
 
 (i) Introduction
 

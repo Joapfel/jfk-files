@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24489.png
-
-Convert to Markdownauthorities, incidents terrorizing the population and kidnappings, as in the case of Colombia, or more specifically, Medellin and Cali.
+authorities, incidents terrorizing the population and kidnappings, as in the case of Colombia, or more specifically, Medellin and Cali.
 
 "The plan of the communist sympathizers is designed to create a climate of uncertainty on the continent again," said the Lina daily, adding that all kinds of terrorist incidents, attacks, kidnappings, etc., are being used.
 

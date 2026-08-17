@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16193.png
-
-Convert to MarkdownSergeant Daniel R. Groth,
+Sergeant Daniel R. Groth,
 ET AL
 CHICAGO POLICE OFFICERS
 FRED A. HAMPTON (DECEASED)

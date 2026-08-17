@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34928.png
-
-Convert to MarkdownPROTECTIVE MUTUAL LIFE INSURANCE
+PROTECTIVE MUTUAL LIFE INSURANCE
 
 Florida Branch Office.
 

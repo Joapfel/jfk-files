@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16327.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 Dule.
 

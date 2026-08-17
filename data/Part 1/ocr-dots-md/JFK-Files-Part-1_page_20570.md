@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20570.png
-
-Convert to MarkdownWe considered the possibility of a waiver of the regula-
+We considered the possibility of a waiver of the regula-
 tion but ran into another problem here. The act specifically
 provides that the Director may prescribe rules and regulations,
 but continues with the language, "Each rules and regulation

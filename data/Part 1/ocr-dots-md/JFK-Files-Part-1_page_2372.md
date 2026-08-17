@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2372.png
-
-Convert to MarkdownSECRET
+SECRET
 
 was not until circa April 1964 that any effective action was taken to locate and remove the microphone system to which GOLITSYN had given a lead in late December 1961 - early January 1962.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27031.png
-
-Convert to Markdown20. All files regarding the testing of mind or behavior influencing drugs on unsuspecting subjects, and any records pertaining to the destruction of materials on the subject.
+20. All files regarding the testing of mind or behavior influencing drugs on unsuspecting subjects, and any records pertaining to the destruction of materials on the subject.
 
 21. All indices regarding the testing of the effects of radiation, electric shock, harassment substances (1950-1975), as well as the testing of drugs on volunteers (1950-1975)
 

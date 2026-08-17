@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29810.png
-
-Convert to MarkdownBIOGRAPHIC INFORMATION
+BIOGRAPHIC INFORMATION
 
 DATE: 1 July 1959
 

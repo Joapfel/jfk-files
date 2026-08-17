@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12320.png
-
-Convert to MarkdownSECRET 15170EZ MAR 73 STAFF
+SECRET 15170EZ MAR 73 STAFF
 
 CITE MADRID (8645)
 

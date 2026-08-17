@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9008.png
-
-Convert to MarkdownDecember 19, 1968
+December 19, 1968
 
 Mr. Miguel Tirado
 2925 Waverley Drive

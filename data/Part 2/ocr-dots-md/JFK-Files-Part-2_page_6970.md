@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6970.png
-
-Convert to Markdownbeen released.
+been released.
 
 The board has also been aggressive in identifying and acquiring significant assassination-related records that have been in the hands of private citizens and local governments. Just a couple of examples:
 

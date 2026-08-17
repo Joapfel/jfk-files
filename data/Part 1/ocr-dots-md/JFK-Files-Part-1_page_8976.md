@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8976.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Japanese of Central America because they're the tough workers. Also there is a considerable amount of Salvador- anian capital that is in various industries throughout Central America which is an interesting thing to me. The comparison to the Japanese seems to be very appropriate in this situation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11749.png
-
-Convert to Markdownsecurity field has shown that intelligence recruitment of individuals visiting communist countries is an established practice. These investigation and/or interviews would not include subjects of pending cases handled in other Sections in this Division. Examples of the latter would be travel to Red China by New Left types or black extremists who are subjects of continuing investigation.
+security field has shown that intelligence recruitment of individuals visiting communist countries is an established practice. These investigation and/or interviews would not include subjects of pending cases handled in other Sections in this Division. Examples of the latter would be travel to Red China by New Left types or black extremists who are subjects of continuing investigation.
 
 4. Close examination of the situation as regards our sources in the Chinese field now employed at or having access to the United Nations who could be directed against the Chicom immediately. This must be a critical examination closely supervised with the expectation that some of our existing sources and others who may be developed could be directed in early contacts with the Chicom Embassy in Ottawa, Canada. Our objective here is to develop within the United Nations itself sources who can supply us with quality information on the Chicom, who will almost certainly enter the United Nations within the next year.
 

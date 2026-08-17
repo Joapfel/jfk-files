@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25701.png
-
-Convert to MarkdownHW 50955 DocId:32423630 Page 434
+HW 50955 DocId:32423630 Page 434
 
 <table><tr><td colspan="2">Luis Index</td></tr><tr><td>10-0ct 7983</td><td>☐ FILE IN CS FILE NO.</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23772.png
-
-Convert to MarkdownI around and preaching all over the world about our high ethical standards and then when we are shown that we don't live up to our own standards, that's what brings us the retribution.
+I around and preaching all over the world about our high ethical standards and then when we are shown that we don't live up to our own standards, that's what brings us the retribution.
 
 But I still think that we ought to notwithstanding that this is an opportunity for some linkage with the Constitution. But I don't press the point. I just offer it.
 

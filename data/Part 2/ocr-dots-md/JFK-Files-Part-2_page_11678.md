@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11678.png
-
-Convert to MarkdownSECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 (3) Letters advising the Bureau of changes are to be set up as indicated:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24686.png
-
-Convert to Markdown(O'Donnell, 9/11/75, p. 21). But Lumumba had left UN custody at this point to travel toward his stronghold at Stanleyville. This did not deter QJWIN:
+(O'Donnell, 9/11/75, p. 21). But Lumumba had left UN custody at this point to travel toward his stronghold at Stanleyville. This did not deter QJWIN:
 
 VIEW CHANGE IN LOCATION TARGET, QJWIN
 ANXIOUS GO STANLEYVILLE AND EXPRESSED

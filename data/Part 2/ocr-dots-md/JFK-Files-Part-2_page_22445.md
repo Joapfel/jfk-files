@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22445.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q. Or the period leading up to the Bay of Pigs?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9077.png
-
-Convert to MarkdownSECRET
+SECRET
 
 us that he had been advised by a CIA official that the FBI would be furnishing operational guidance to him. We had never become involved in any such arrangement, and we later determined that a CIA official had been an error in making the above described misrepresentation. We protested the CIA official's handling of this matter. (Re: D)
 

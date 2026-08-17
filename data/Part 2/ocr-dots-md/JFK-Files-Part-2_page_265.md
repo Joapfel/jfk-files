@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_265.png
-
-Convert to Markdown<table><thead><tr><td>DATE</td><td>TO BE SPECIFIED IN WRITING</td></tr></thead><tbody><tr><td>C/M/F/D</td><td>10/5/65</td></tr></tbody></table>
+<table><thead><tr><td>DATE</td><td>TO BE SPECIFIED IN WRITING</td></tr></thead><tbody><tr><td>C/M/F/D</td><td>10/5/65</td></tr></tbody></table>
 
 <table><tr><td colspan="2">C/MT/D<br/>10/5/65</td><td>C/M/F/D<br/>WILLIAM V. ERCE</td></tr></table>
 

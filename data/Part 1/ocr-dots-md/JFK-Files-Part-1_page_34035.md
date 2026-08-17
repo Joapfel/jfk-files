@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34035.png
-
-Convert to MarkdownTABLE NO. 1
+TABLE NO. 1
 
 CUBA: FOREIGN TRADE
 1959 - 1966

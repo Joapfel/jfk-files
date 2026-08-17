@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5084.png
-
-Convert to Markdownget too close to the most famous killer in all of South America. "Over there—at that table. That's him."
+get too close to the most famous killer in all of South America. "Over there—at that table. That's him."
 
 I told Bosch that not only hadn't they asked me whom I was going to see, but that they had somehow missed the compact tape recorder in my briefcase. Bosch, as it turned out, was anxious to talk to a foreign reporter, saying that the Venezuelan government had prevented other interviews. For six hours, over the din of homemade drums in a nearby courtyard, he poured out his story.
 

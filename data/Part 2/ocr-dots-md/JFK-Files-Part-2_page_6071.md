@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6071.png
-
-Convert to Markdown"Social Backgrounds and Judicial Recruitment: A Nineteenth-Century Perspective on the Lower Federal Judiciary," The Western Political Quarterly 29 (June 1976): 243-57. (not included)
+"Social Backgrounds and Judicial Recruitment: A Nineteenth-Century Perspective on the Lower Federal Judiciary," The Western Political Quarterly 29 (June 1976): 243-57. (not included)
 
 "Andrew Jackson and the Judiciary: The Michigan Territorial Judiciary as a Test Case, 1828-1832," Michigan History 59 (Fall 1975): 131-51. (not included)
 

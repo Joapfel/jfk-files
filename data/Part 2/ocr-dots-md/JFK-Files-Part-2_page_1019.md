@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1019.png
-
-Convert to MarkdownImportant that they've made their secret jobs obvious — which has not only brought them early, jealously, and doubt, but has made it very hard for them to do their job of intelligence-gathering properly.
+Important that they've made their secret jobs obvious — which has not only brought them early, jealously, and doubt, but has made it very hard for them to do their job of intelligence-gathering properly.
 
 "Do you know that CIA people are paid double salaries to serve abroad?" the new political officer in Singapore said to me when I showed him and his family around the Singapore Swimming Club on the Sunday after he arrived. "They get paid twice as much as you or I do. They get paid for their cover jobs and then paid again for their bank-y-pahky work. That's why they live better than we do."
 

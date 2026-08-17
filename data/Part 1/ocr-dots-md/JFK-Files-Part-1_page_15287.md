@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15287.png
-
-Convert to MarkdownDave likes to watch cowboy and gangster films, and the children programs. He liked that letter because the participants spoke very slowly and he could understand the language.
+Dave likes to watch cowboy and gangster films, and the children programs. He liked that letter because the participants spoke very slowly and he could understand the language.
 
 Periodically, Dave would question the undersigned on schedule for the day and when told what it would be it seemed that he would fall to hear what was told to him and later on would propose the same question. Dave did not like the idea that he had to start English from basic he wanted to have something more advance.
 

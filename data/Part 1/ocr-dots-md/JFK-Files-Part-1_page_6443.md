@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6443.png
-
-Convert to Markdownsuch a project and requested the release of one or more of his staff to act as co-authors so that the political issues involved as well as support. It is stated he had once discussed the matter with other officials but no decision was reached until later.
+such a project and requested the release of one or more of his staff to act as co-authors so that the political issues involved as well as support. It is stated he had once discussed the matter with other officials but no decision was reached until later.
 
 To put our counterpoint forward for this project,
 

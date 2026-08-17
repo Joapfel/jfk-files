@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30777.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HEADQUARTERS
 FIELD RESEARCH UNIT - FAR EAST COMMAND

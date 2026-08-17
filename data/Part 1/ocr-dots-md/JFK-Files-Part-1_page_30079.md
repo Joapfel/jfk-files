@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30079.png
-
-Convert to MarkdownHerman Edward Kimsey
+Herman Edward Kimsey
 
 December 11, 1916
 

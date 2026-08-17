@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24900.png
-
-Convert to MarkdownHelms and McCone testified that the Presidents under which they served never asked them to consider assassination.
+Helms and McCone testified that the Presidents under which they served never asked them to consider assassination.
 
 There was no evidence whatsoever that President Johnson knew about or authorized any assassination activity during his Presidency.
 

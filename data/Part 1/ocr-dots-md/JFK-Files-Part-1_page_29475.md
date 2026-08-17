@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29475.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><tr><td>1. Agency and organizational designation</td></tr><tr><td>DDP/SAS</td></tr><tr><td>3. Employee's name (and social security account number when appropriate)</td></tr><tr><td>DEVUONO, Irving C. (F) CAREER AGENT</td></tr><tr><td>2. Payroll period</td></tr><tr><td>6. Grade and salary</td></tr><tr><td>$12,880</td></tr></table>
 

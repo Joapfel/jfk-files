@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5537.png
-
-Convert to MarkdownChicago, Illinois
+Chicago, Illinois
 
 November 10, 1971
 

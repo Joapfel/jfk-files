@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23607.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of radio propaganda from Ponce, Puerto Rico, which is under the direction of Horacio ORNES, Secretary General of Vanguardia Revolucionaria Dominicana (VRD). This radio program is heard in the Dominican Republic as the voice of the ORNES organization.
 

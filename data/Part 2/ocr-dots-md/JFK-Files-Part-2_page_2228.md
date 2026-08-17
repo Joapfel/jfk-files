@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2228.png
-
-Convert to MarkdownNov. 27, 1951
+Nov. 27, 1951
 
 2A
 

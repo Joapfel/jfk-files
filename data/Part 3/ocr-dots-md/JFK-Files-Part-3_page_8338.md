@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8338.png
-
-Convert to Markdownthese instructions, since he felt that CIA knew what
+these instructions, since he felt that CIA knew what
 should be done in this type of case. He received a
 telephone call from the DA's Office and a statement
 was read to him to the effect that the information

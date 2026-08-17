@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7580.png
-
-Convert to Markdownmostly as regards tumors. So they are interested in carcinogenesis and
+mostly as regards tumors. So they are interested in carcinogenesis and
 in fact Moskalav asked me a question following my paper on carcinogenesis,
 he said nothing on acute, short-term effects of low doses of radiation,
 so presumably they are not concerned with these,

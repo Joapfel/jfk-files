@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34218.png
-
-Convert to Markdownof aggression: Communist Cuba.
+of aggression: Communist Cuba.
 
 November 23, 1968: "New Shadow Over Cuba".- Dean Rusk's statements in Rio have superlative importance when he states the American stand regarding the defense of the Hemisphere from Communist aggression, whether with the concurrence of the other countries of the Continent, or unilaterally. On the other hand, we are informed of an epidemic of foot-and-mouth disease in Ukraine and European Russia which is affecting most of the Soviets' cattle production. All this indicates that the future holds no future in Cuba, if we may play with words, and that responsible men in the Castro regime and armed forces have only one possible course of action left: to remove Castro and return Cuba to democracy and well-being.
 

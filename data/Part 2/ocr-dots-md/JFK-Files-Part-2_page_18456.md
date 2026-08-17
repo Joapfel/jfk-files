@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18456.png
-
-Convert to Markdownk. To whom were any results of the
+k. To whom were any results of the
 surveillance disseminated?
 
 1. As to each person to whom information was disseminated, please state

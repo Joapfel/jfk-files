@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6729.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # CIA TALKING POINTS
 

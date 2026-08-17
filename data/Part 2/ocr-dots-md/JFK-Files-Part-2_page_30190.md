@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30190.png
-
-Convert to MarkdownFlanagan, Thomas Mark
+Flanagan, Thomas Mark
 
 USHORODOZ A
 US HOUSE OF REP

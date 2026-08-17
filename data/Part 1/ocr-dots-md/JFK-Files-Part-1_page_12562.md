@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12562.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">RECLASSIFIED</td>
     <td>FOR OFFICE USE ONLY</td>

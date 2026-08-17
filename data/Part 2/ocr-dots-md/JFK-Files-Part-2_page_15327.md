@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15327.png
-
-Convert to MarkdownTO : MR. L. V. BOARDMAN
+TO : MR. L. V. BOARDMAN
 
 FROM : MR. A. H. BERMONT
 

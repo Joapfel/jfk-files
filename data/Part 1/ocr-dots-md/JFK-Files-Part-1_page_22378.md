@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22378.png
-
-Convert to Markdown10 February 1964 (Reported to the FBI on 12 February 1964)
+10 February 1964 (Reported to the FBI on 12 February 1964)
 
 10 February 1964 (Reported to the FBI on 12 February 1964)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22294.png
-
-Convert to Markdown701.
+701.
 
 NOSENKO said FRIPPEL was his agent and said, repeatedly: "I recruited him myself." In 1962 no other KGB officer was mentioned by NOSENKO, who quoted from a number of his conversations with FRIPPEL. In 1964 NOSENKO said he and CHELNOKOV "had carried out the recruitment together," but NOSENKO was the case officer. According to FRIPPEL's account, CHELNOKOV was the senior officer in the recruitment and in the later meetings.
 

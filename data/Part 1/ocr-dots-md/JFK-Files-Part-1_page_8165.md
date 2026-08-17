@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8165.png
-
-Convert to Markdown13 July 1961
+13 July 1961
 
 MEMORANDUM FOR: Chief, Finance Division
 Attention: Contract Agent Section

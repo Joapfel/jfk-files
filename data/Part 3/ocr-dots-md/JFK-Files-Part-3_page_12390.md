@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12390.png
-
-Convert to Markdownwith all information and materials that it has on the subject. There will be a mutual effort by the Committee and the agencies to provide special handling techniques to convey or secure any particularly sensitive information or materials as appropriate.
+with all information and materials that it has on the subject. There will be a mutual effort by the Committee and the agencies to provide special handling techniques to convey or secure any particularly sensitive information or materials as appropriate.
 
 In abuse or impropriety interviews/preliminary testimony, the following procedures will prevail.
 

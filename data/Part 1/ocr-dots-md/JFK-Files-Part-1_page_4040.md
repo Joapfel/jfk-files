@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_4040.png
-
 s, as well as the usual repair and spare parts.
 
 **Installations:** As can be seen from diagram nr 1, the area occupied by the shipyard is relatively small. Some 15,500 square meters. It consists of a reinforced-concrete ramp with 4-inch railings, and an area 150 meters long by 20 meters. The central part of this area is a depth of 7 meters. The Central Yard contains a lateral cradle (25 x 17 x 1 meter), which is on a concrete base (117 x 25 x 1 meter); three sections of the cradle (42 x 20 meters) with the third section terminating near the shipbuilding machine (33 x 22 x 11 meters). Two identical buildings are planned for the shop, with carpentry offices and warehouses, on a total working area of 1200 square meters. A building will house two 75-kilowatt electric power plants, spare parts and general electrical equipment. A 350-gallon underground petroleum tank will be installed along side of this building to provide the fuel. A 6,000-gallon petrikin fresh-water tank with its well and turbine will complete the first phase of the plan. The second phase will be carried out during the year of production.

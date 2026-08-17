@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16379.png
-
-Convert to Markdown# TO THE OPPRESSED PEOPLE
+# TO THE OPPRESSED PEOPLE
 
 Intelligence is enhanced by one's ability to observe objectively, participate objectively, and form an objective opinion.
 

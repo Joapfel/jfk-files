@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1203.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 13 February 1958
 

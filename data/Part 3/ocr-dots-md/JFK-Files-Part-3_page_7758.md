@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7758.png
-
-Convert to MarkdownPREVENTIVE INVESTIGATIONS
+PREVENTIVE INVESTIGATIONS
 
 While there has been some disagreement by one or two supervisory personnel in Domestic Intelligence Division as to how long an investigation may be carried on under statutory authority or whether a "preventive" investigation can be carried on under that authority, it is my own contention that intelligence- type investigations can be carried out under statutory authority; that there is no constraint imposed by law governing the length of time in which an investigation can be conducted. There are many reasons why continuing investigative activity would be necessary, even when a statutory violation is involved. In most cases involving the national security a conspiracy of some sort is involved. Conspiracies frequently go on for years. When the preservation of the Government is involved, who is to say that we either prove a conspiracy within a specific period of time or stop investigating.
 

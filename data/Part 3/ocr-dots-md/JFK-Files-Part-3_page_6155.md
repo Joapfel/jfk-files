@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6155.png
-
-Convert to Markdown5-88 (2-99-92)
+5-88 (2-99-92)
 
 1. Name "NATIONAL GUARDIAN" "EVERY GUARDIAN ASSOCIATES, INCORPORATED
 

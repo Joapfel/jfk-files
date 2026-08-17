@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17920.png
-
-Convert to Markdown<table><tr><td>Assoc. Dir.</td></tr><tr><td>Dep.-A.D.-Adm.</td></tr><tr><td>Dep.-A.D.-Inv.</td></tr><tr><td>Asst. Dir.:</td></tr><tr><td>Admin.</td></tr><tr><td>Corp. Syst.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Fax & Com.</td></tr><tr><td>Ltd.</td></tr><tr><td>P.O. Eval.</td></tr><tr><td>S.A./جز</td></tr><tr><td>Tran.</td></tr><tr><td>Legal Coun.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director Sec'y</td></tr></table>
+<table><tr><td>Assoc. Dir.</td></tr><tr><td>Dep.-A.D.-Adm.</td></tr><tr><td>Dep.-A.D.-Inv.</td></tr><tr><td>Asst. Dir.:</td></tr><tr><td>Admin.</td></tr><tr><td>Corp. Syst.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Fax & Com.</td></tr><tr><td>Ltd.</td></tr><tr><td>P.O. Eval.</td></tr><tr><td>S.A./جز</td></tr><tr><td>Tran.</td></tr><tr><td>Legal Coun.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director Sec'y</td></tr></table>
 
 FEDERAL BUREAU OF INVESTIGATION
 COMMUNICATIONS SECTION

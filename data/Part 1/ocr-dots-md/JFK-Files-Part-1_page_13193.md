@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13193.png
-
-Convert to MarkdownS O R T TELEPHONE LESSON PAGE 2
+S O R T TELEPHONE LESSON PAGE 2
 
 1. AS AT THIS LEVEL.
 

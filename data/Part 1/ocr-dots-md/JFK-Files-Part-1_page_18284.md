@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18284.png
-
-Convert to MarkdownCIA INTERNAL USE ONLY
+CIA INTERNAL USE ONLY
 
 <table>
    <tr>

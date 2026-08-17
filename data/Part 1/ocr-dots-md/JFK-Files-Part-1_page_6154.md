@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6154.png
-
-Convert to MarkdownMr. Robert S. Young
+Mr. Robert S. Young
 Freedom of Information Coordinator
 Central Intelligence Agency, Washington
 

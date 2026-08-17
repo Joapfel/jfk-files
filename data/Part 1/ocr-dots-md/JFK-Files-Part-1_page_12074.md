@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12074.png
-
-Convert to MarkdownSECRET
+SECRET
 7 a
 
 30. EMPLOYMENT HISTORY. (Continued)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11266.png
-
-Convert to Markdownd. Other Marxist revolutionary groups
+d. Other Marxist revolutionary groups
 A long-established group which would come under this category is the Proletarian Party of America, a relatively small organization.
 
 There also are a few small groups composed of ex-members of the Communist Party, USA, who have voluntarily left the party or who have been expelled, usually for factionalism.

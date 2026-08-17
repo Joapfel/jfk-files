@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28487.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 JULY 7, 1977
 

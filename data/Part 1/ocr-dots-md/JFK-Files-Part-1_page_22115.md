@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22115.png
-
-Convert to Markdown# 4. Overseas Assignments
+# 4. Overseas Assignments
 
 ## a. Attempt to Obtain Assignment in Ethiopia (1960)
 

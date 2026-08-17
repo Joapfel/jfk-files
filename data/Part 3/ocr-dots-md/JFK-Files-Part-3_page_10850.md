@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10850.png
-
-Convert to Markdowna. CIA would not conduct investigation of any foreign official in U.S. and if CIA felt such investigation warranted, FBI should be consulted.
+a. CIA would not conduct investigation of any foreign official in U.S. and if CIA felt such investigation warranted, FBI should be consulted.
 
 b. No foreign official would be approached for recruitment by CIA without its conferring with FBI.
 

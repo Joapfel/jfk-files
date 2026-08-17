@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31397.png
-
-Convert to Markdownd. NCFE then informs this division of progress being made and supposedly requests authority to depart from such completed policy papers.
+d. NCFE then informs this division of progress being made and supposedly requests authority to depart from such completed policy papers.
 
 To date two such policy directives have been written. The first was a plan for the reorganization of the Romanian National Council. It was submitted to NCFE, and their criticisms and suggestions have been incorporated. The plan is now being executed.
 

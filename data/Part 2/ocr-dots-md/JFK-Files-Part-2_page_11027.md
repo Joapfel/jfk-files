@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11027.png
-
-Convert to MarkdownOctober 27, 1965
+October 27, 1965
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 109

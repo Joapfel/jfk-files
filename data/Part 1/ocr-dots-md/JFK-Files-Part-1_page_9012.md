@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9012.png
-
-Convert to Markdown22 October 1963
+22 October 1963
 
 MEMORANDUM FOR: OF/CSTU/CAAS
 THROUGH : DO/Personnel

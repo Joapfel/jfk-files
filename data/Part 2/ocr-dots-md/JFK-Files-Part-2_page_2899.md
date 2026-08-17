@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2899.png
-
-Convert to Markdown7. Required indicators:
+7. Required indicators:
 
 A. For presence of S/N on letters to the agent: All letters to agent will contain S/N.
 

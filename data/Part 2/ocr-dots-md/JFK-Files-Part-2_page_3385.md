@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3385.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 124. Memo for DDP from J. C. King, 17 Mar 60, sub: Personnel Assignments to Branch 4, WH Division. S.
 

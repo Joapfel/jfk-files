@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28459.png
-
-Convert to Markdown<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>John J. Farmer, Jr.</td><td>6/8/77</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>231 86 6887</td><td><input type="checkbox" checked disabled> Appointment</td></tr><tr><td>Employing Office or Committee</td><td><input type="checkbox" disabled> Salary Adjustment</td></tr><tr><td>Assassinations</td><td><input type="checkbox"> Termination (At close of business on effective date)</td></tr></table>
+<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>John J. Farmer, Jr.</td><td>6/8/77</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>231 86 6887</td><td><input type="checkbox" checked disabled> Appointment</td></tr><tr><td>Employing Office or Committee</td><td><input type="checkbox" disabled> Salary Adjustment</td></tr><tr><td>Assassinations</td><td><input type="checkbox"> Termination (At close of business on effective date)</td></tr></table>
 
 (If type of action is an Appointment or Salary Adjustment, complete the following information.)
 

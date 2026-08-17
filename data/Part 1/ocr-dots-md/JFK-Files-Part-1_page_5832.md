@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5832.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET 222391Z JAN 71 CITE WH/MIAMI 0125
 

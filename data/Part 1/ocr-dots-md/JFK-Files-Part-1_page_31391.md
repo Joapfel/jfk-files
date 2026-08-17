@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31391.png
-
-Convert to MarkdownDecember 8, 1957
+December 8, 1957
 
 Dear Allen,
 

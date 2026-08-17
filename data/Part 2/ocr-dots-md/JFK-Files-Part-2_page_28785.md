@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28785.png
-
-Convert to Markdown# Resume - Joan Talbert Thornell
+# Resume - Joan Talbert Thornell
 
 1/72 - Staff Director
 10/72 The National Black Political Convention, Inc.

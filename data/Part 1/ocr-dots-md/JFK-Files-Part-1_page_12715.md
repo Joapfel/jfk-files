@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12715.png
-
-Convert to MarkdownTO : WH/3/Venezuela
+TO : WH/3/Venezuela
 
 ATTENTION: Laura Cooley
 

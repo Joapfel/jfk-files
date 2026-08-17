@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2995.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 INTERNAL USE ONLY
 
 Journal - Office of Legislative Counsel

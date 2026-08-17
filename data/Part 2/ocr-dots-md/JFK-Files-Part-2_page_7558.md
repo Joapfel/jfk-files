@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7558.png
-
-Convert to MarkdownMr. D. G. Williams
+Mr. D. G. Williams
 
 October 25, 1971
 

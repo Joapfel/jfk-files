@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27035.png
-
-Convert to MarkdownIV. All files regarding the following projects, incidents or entities discussed in the so-called "Family Jewels - 694 pages," the responses to Director Schlesinger's request for reports on questionable activities: [Page references in parentheses are to the pagination of the "694 pages" as received by the Select Committee from CIA.]
+IV. All files regarding the following projects, incidents or entities discussed in the so-called "Family Jewels - 694 pages," the responses to Director Schlesinger's request for reports on questionable activities: [Page references in parentheses are to the pagination of the "694 pages" as received by the Select Committee from CIA.]
 
 1. CIA contact of three persons involved with CIA field support group regarding the Watergate Special Prosecutor Task Force inquiry (p.52-53)
 

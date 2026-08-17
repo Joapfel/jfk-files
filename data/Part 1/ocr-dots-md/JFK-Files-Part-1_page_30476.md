@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30476.png
-
-Convert to Markdown21 OCT 1968
+21 OCT 1968
 
 MEMORANDUM FOR: Secretary, CSCS Board
 

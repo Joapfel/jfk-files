@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16395.png
-
-Convert to MarkdownNicaragua. Leads Not to be Disseminated
+Nicaragua. Leads Not to be Disseminated
 
 AMTS/1 Operation
 

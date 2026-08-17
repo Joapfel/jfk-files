@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30022.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="4">GEOGRAPHIC AREA AND FOREIGN TRAVEL</th></tr><tr><th>NAME OF REGION OR COUNTRY</th><th>TYPE OF SPECIALIZED KNOWLEDGE</th><th>DATES OF TRAVEL OR RESIDENCE</th><th>DATE & PLACE<br>(May 6 1955 AM '68)</th></tr></thead><tbody><tr><td>1.</td><td></td><td></td><td></td></tr><tr><td>2.</td><td></td><td></td><td></td></tr></tbody></table>
 

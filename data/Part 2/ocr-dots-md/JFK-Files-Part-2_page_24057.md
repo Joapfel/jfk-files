@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24057.png
-
-Convert to Markdownupon our government,* the use of underworld figures involves
+upon our government,* the use of underworld figures involves
 the following dangers:
 
 a. The use of underworld figures for "dirty business" gives them the power to blackmail the government and to avoid prosecution, for past or future crimes. For example, the figures involved in the Castro assassination operation used their involvement with the CIA to avoid prosecution. The CIA also contemplated attempting to quash criminal charges against QJWIN in a foreign tribunal.

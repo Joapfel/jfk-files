@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24708.png
-
-Convert to Markdownyou in the passage of fifteen years, that sense of shock remains?
+you in the passage of fifteen years, that sense of shock remains?
 
 Johnson: Right. Yes, sir. (Johnson, 6/18/75, p. 8)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24096.png
-
-Convert to Markdownof plausible denial--but because the persons involved could not bring themselves to state in plain language what they intended to do and may have, in some instances, assumed, rightly or wrongly, that the listening superiors did not want the issue squarely placed before them. Assassinate, murder and kill are words many people do not want to speak or hear. They describe acts which should not even be proposed, let alone plotted. Failing to call dirty business by its rightful name may have increased the risk of dirty business being done.
+of plausible denial--but because the persons involved could not bring themselves to state in plain language what they intended to do and may have, in some instances, assumed, rightly or wrongly, that the listening superiors did not want the issue squarely placed before them. Assassinate, murder and kill are words many people do not want to speak or hear. They describe acts which should not even be proposed, let alone plotted. Failing to call dirty business by its rightful name may have increased the risk of dirty business being done.
 
 (c) The Danger of Generalized Instructions.
 

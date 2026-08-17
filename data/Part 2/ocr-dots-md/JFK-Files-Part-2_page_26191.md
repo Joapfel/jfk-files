@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26191.png
-
-Convert to MarkdownAmericans started showing up on the scene,
+Americans started showing up on the scene,
 there was a very paternalistic feeling of
 "Well, these are our people,--these Vietnamese
 or Khmer, and you keep your

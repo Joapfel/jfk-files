@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31687.png
-
-Convert to MarkdownMay 5, 1953.
+May 5, 1953.
 
 Mr. E. M. Levitas,
 Executive Editor,

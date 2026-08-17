@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32224.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 This course of action has the advantage of attaining the objective more rapidly and under more controlled conditions than the alternative stated by the Coordinator. Indeed, this may be the only course of action that will accomplish the ultimate objective.
 

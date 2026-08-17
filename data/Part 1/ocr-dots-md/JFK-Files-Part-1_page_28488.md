@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28488.png
-
-Convert to Markdown21 May 1951
+21 May 1951
 
 TO: Personnel Director, CIA
 

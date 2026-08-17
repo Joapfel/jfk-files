@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_6784.png
-
 , Levison recommended猎人 Pitts U'Dell, who has been let to the National Committee on the CPUSA in December, 1963, under the pseudonym, in Cornelia Junck. He was accepted Levison's suggestion and employed U'Dell in the organization, the Southern Christian Fellowship Conference (S.C.F.C.). In 1963, Levison was identified U'Dell as a基督 fundamentalist of the type of T. P. Palmyra, FL, in which he was associated with King, to whom he sent a message from the pulpit. However, U'Dell continues to associate with King, to his discomfорт.
 
 **NOTE:** See memorandum, Smith to Sullivan, 7/17/63, RSG:JMS/aab:jdd, re: SENATOR A.S.

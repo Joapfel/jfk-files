@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26769.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Most of my operations were run out of Europe.
 

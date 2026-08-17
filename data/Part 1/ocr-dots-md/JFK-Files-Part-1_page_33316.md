@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33316.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 At the same time network authorities made it difficult under a variety of pretexts for opposition spokesmen to air their views in contravention of the State television statute. For example, the authorities frequently obliged all television channels and radios to carry official statements and denied opposition spokesmen equal time, resorting to the legal fiction that the official statements were transmitted voluntarily.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22051.png
-
-Convert to Markdownhere [on one of the notes NOSENKO brought with him to the meeting]. We did not work with him, and we retired the case to Archives, and did not turn him over to anyone. Here is his address. The street is ... I worked with him myself at the end of 1961 and the beginning of 1962. And when I was leaving Moscow to come here for the Disarmament Conference in 1962 I turned him over for contact to GRYAZNOV. I said goodbye to him and he was scheduled to leave the USSR permanently in April, back to Syria.
+here [on one of the notes NOSENKO brought with him to the meeting]. We did not work with him, and we retired the case to Archives, and did not turn him over to anyone. Here is his address. The street is ... I worked with him myself at the end of 1961 and the beginning of 1962. And when I was leaving Moscow to come here for the Disarmament Conference in 1962 I turned him over for contact to GRYAZNOV. I said goodbye to him and he was scheduled to leave the USSR permanently in April, back to Syria.
 
 **Question:** What did you do against ZUJUS?
 

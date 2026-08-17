@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15977.png
-
-Convert to MarkdownFBI document dated
+FBI document dated
 27 July '73 from Miami.
 Subject: Mitchell Livingston Aeriel, III
 Edwin Marger

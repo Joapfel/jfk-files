@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29365.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>NOTIFICATION OF CANCELLATION OR CANCELMENT OF OFFICIAL COVER BACKSTOP</td>
         <td>ATE<br/>5 AUG 1971</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9725.png
-
-Convert to MarkdownThe New Natural Government of America fully recognizes that there has been considerable mis-treatment of the non-whites in America. We don't take any blame for it but we also do not get upset at our ancestors because of it.
+The New Natural Government of America fully recognizes that there has been considerable mis-treatment of the non-whites in America. We don't take any blame for it but we also do not get upset at our ancestors because of it.
 
 It is our firm opinion that the cultures of the White and Non-Whites will never mix well. There will always be race hatred on both sides. Segregation did not work, Integration is not working which leaves us with one solution: Separation.
 

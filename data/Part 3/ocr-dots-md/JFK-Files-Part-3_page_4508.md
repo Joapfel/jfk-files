@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4508.png
-
-Convert to MarkdownUnited States Department of Justice
+United States Department of Justice
 Federal Bureau of Investigation
 
 Pittsburgh, Pennsylvania

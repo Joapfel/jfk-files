@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23921.png
-
-Convert to Markdown# I. Background
+# I. Background
 
 Rafael Trujillo came to power in the Dominican Republic in 1930. For most of his tenure, the United States government supported him and he was regarded throughout much of the Caribbean and Latin America as a protégé of the United States.
 

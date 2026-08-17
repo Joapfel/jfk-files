@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8739.png
-
-Convert to MarkdownSECRET / CONCLUSIVE
+SECRET / CONCLUSIVE
 
 - 61 -
 

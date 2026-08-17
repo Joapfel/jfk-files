@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4802.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: It was exactly the same way as when the Soviets got into the Tsarist's files and exposed all the secret treaties and everything else. It's exactly the same thing. I have no objection to their coming in and looking at the stuff.
 

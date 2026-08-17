@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10927.png
-
-Convert to Markdownbased on a specific request from Mr. Murphy on 12/5/55 that we
+based on a specific request from Mr. Murphy on 12/5/55 that we
 place technical surveillances on all Egyptian establishments
 in the United States. Since then, technical surveillances have
 been placed on numerous establishments of foreign countries

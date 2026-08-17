@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_723.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>104-10290-10210</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1367.png
-
-Convert to MarkdownSECRET
+SECRET
 
 f. In 1959, on a trip to Santiago, Chile, SZULC claimed to be "cleared" and requested an interview with an Agency representative. This was the first of numerous such requests. In addition, it was in about 1959 that he also began making a point of telling Agency personnel the names of other Agency officers he had identified.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_280.png
-
-Convert to MarkdownSECRET
+SECRET
 
 next three months period. For each meeting she prepares an "activities report". In this report she outlines her activities for the preceding week, the tasks she was working on, the people she was in contact with and the results. She also lists the tasks she will work on during the coming week, the people she will see, etc.
 

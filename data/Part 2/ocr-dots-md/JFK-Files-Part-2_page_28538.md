@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28538.png
-
-Convert to Markdown# Congress of the United States
+# Congress of the United States
 ## Committee on International Relations
 ### House of Representatives
 

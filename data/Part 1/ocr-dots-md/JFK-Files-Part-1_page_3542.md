@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3542.png
-
-Convert to Markdownclear. The Cuban people have always maintained that they are willing to die."
+clear. The Cuban people have always maintained that they are willing to die."
 
 A-1 then alludes to the Alliance for Progress which he refers to as an Alka Seltzer in the Pacific. He maintains he is not against the Alliance for Progress but rather that something should also be done for Cuba.
 

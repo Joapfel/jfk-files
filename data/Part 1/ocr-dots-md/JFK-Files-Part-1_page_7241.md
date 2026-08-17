@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7241.png
-
-Convert to Markdown4. own firm was making the hotel reservations in the Soviet Union for him. Subj said he had met once before with Rothenstreich years ago, but didn't know anything about him.
+4. own firm was making the hotel reservations in the Soviet Union for him. Subj said he had met once before with Rothenstreich years ago, but didn't know anything about him.
 
 Subj also mentioned a widow in his sixties, David Nosofsky, who left for the Soviet Union on 2 Sep - Nosofsky had a brother in Kiev.
 

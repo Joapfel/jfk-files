@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30973.png
-
-Convert to MarkdownFor the writer to indicate his agreement with a plan which appears to him to be arbitrary, short-sighted and irrational, would be completely out of character for a person who has spent almost thirty years in the intelligence field, and has a justifiable pride in his status as a professional intelligence officer. As a professional, writer also realizes when the handwriting, however illegible it might be, is on the wall, and, that if the decision has already been made to retire him involuntarily, then retired he will be --- involuntarily. Little as it may matter, writer desires to emphasize that nothing in this memorandum should be construed to indicate writer's personal accord or approval.
+For the writer to indicate his agreement with a plan which appears to him to be arbitrary, short-sighted and irrational, would be completely out of character for a person who has spent almost thirty years in the intelligence field, and has a justifiable pride in his status as a professional intelligence officer. As a professional, writer also realizes when the handwriting, however illegible it might be, is on the wall, and, that if the decision has already been made to retire him involuntarily, then retired he will be --- involuntarily. Little as it may matter, writer desires to emphasize that nothing in this memorandum should be construed to indicate writer's personal accord or approval.
 
 5. According to writer's records, as of 30 June, next,
 he will have completed the following government service:

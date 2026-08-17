@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18841.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 Soviet visas are assured their passports should be endorsed that when appropriately visaed, each is valid for one round trip to the USSR for a period not to exceed three weeks.
 

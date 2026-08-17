@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17871.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="4">TABLE OF VENUE ON ALL ORGANISE</th></tr><tr><td>CLIENT</td><td>C.</td><td>N.</td><td>T.</td></tr><tr><td>X</td><td>A. M.</td><td>Y.</td><td>T.</td></tr><tr><td colspan="4"></td></tr><tr><td colspan="2">APPROVAL OF COMMITTEE</td><td colspan="2"></td></tr><tr><th>PIN</th><th></th><th>TOTAL<br>ON HAND</th><th>TOTAL<br>PROPOSED T.VA</th></tr></thead><tbody><tr><td>A.</td><td>COI</td><td>0</td><td>1</td></tr><tr><td>B.</td><td>2-DIR. 5 pass.</td><td></td><td></td></tr><tr><td>C.</td><td>3-DIR. 6 pass.</td><td></td><td></td></tr><tr><td>D.</td><td>3-DIR. 6 pass.</td><td></td><td></td></tr><tr><td>E.</td><td>Vesicule transf. from L-N-6. LP 6. A cancelled.</td><td></td><td></td></tr><tr><td>F.</td><td>H.</td><td></td><td></td></tr><tr><td>G.</td><td></td><td></td><td></td></tr><tr><td>H.</td><td>1809S</td><td></td><td></td></tr><tr><td>I.</td><td>S</td><td>M</td><td>L</td></tr><tr><td>J.</td><td>N.</td><td>R.</td><td>T.</td></tr><tr><td>K.</td><td>CRF</td><td>U</td><td>S</td></tr><tr><td>(signed)</td><td>L. E. Moranda</td><td>30 JUN</td><td>1969</td></tr></tbody></table>
 

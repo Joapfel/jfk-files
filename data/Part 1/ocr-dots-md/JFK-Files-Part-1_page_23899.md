@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23899.png
-
-Convert to Markdown18 February 1965
+18 February 1965
 
 SECOND SESSION
 

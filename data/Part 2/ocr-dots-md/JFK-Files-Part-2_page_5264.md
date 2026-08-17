@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5264.png
-
-Convert to MarkdownSUBJECT: Courtesy Visit of JFK Assassination Records Review Board
+SUBJECT: Courtesy Visit of JFK Assassination Records Review Board
 
 - Locations of certain stations and facilities.
 

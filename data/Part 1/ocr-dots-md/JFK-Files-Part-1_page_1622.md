@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1622.png
-
-Convert to MarkdownSC-02164-58
+SC-02164-58
 
 2. By 5 July 1956, the fourth flight, the USSR was aware of the purpose of the missions and were taking counter action. One positive action was the standdown of civil flights while the mission aircraft was over the USSR, and a second action which is believed related is the moving of MIG-19 aircraft into East Germany and Poland on 7 July 1956. Also MIG-19's were moved into Hungary at about this time.
 

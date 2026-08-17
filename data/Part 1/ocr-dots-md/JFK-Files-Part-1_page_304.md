@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_304.png
-
-Convert to Markdown14-00000
+14-00000
 
 12. Cesar DIOSADO - Customs
 13. Jose Ricardo RABEL Nunez (Belive still in Cuba)

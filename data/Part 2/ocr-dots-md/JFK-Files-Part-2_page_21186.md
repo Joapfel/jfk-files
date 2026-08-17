@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21186.png
-
-Convert to Markdown9. [JOSEPH GAFFEY](#)
+9. [JOSEPH GAFFEY](#)
 
 Pages 203 and 204 relate to JOSEPH GAFFEY, a military enlisted man in Moscow who was a target of KGB. KGB attempted to lure him into downtown Moscow using SVETLANA IVANOVA. It was related that NOSENKO stated GAFFEY had refused her invitations and KGB had no derogatory information regarding him.
 

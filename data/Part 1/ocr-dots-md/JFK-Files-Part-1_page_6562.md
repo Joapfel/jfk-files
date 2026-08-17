@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6562.png
-
-Convert to MarkdownMAY 15, 2 SL PM '82
+MAY 15, 2 SL PM '82
 
 XYYXY ZEA
 SECRET

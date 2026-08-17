@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21333.png
-
-Convert to Markdownonly four Falangists, "who do not know what war means".
+only four Falangists, "who do not know what war means".
 
 In general he pretends to be slow and tries to get out of the questions with trifling answers. We think it is because he feels constrained by a Falangist who is with him. He declares that he is against Serrano Suner, but he says he is quite favourable to Franco because he promulgates laws which favour the people and is a partisan of neutrality besides. When we give him examples, especially that of the Blue Divison, to show him what Franco's neutrality amounts to, he maintains that they are all volunteers. He says they are always speaking in favour both of Germany and the Allies, because Franco wishes to stand well with both sides. He says that when the state of "non-belligerence" was established the people were content because before that they were afraid of being involved in the war. This fear, he says, is not so strong now. When asked what he would do if he were in Spain and the Spanish people were involved in the war he answered - "I would go to the mountains or spend a bullet on the first officer who tried to force me". He says that many Spaniards would do the same if Spain were forced into the war, because it would be so terrible.
 

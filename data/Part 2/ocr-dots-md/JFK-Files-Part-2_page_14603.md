@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14603.png
-
-Convert to MarkdownSAC, Washington Field
+SAC, Washington Field
 
 1 - New York
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34417.png
-
-Convert to Markdown# SENSITIVE
+# SENSITIVE
 
 Subject: Apparent Russian Interest inсанctions on Soviet Union, Moscow Telephone Lines.
 

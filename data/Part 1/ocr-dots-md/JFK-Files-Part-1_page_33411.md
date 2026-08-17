@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33411.png
-
-Convert to MarkdownCABLE SEC DIGEM BY Y PER
+CABLE SEC DIGEM BY Y PER
 
 TOTAL COPIES 30-1 BY
 S E C R E T

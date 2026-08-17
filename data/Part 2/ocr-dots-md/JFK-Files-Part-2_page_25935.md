@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25935.png
-
-Convert to Markdown**TESTIMONY OF WILLIAM BRANCH**
+**TESTIMONY OF WILLIAM BRANCH**
 
 The CHAIRMAN. Will you identify yourself for the record?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22742.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. You have to understand the enemy intelligence service before you're going to penetrate it, and you have to be secure from penetration yourself, and you then have to run that penetration very securely and on a very compartmented basis.
 

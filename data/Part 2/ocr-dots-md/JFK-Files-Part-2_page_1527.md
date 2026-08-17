@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1527.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="3">FIELD REASSIGNMENT QUESTIONNAIRE</th>

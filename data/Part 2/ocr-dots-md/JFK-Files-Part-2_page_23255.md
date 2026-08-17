@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_23255.png
-
 .
 
 Mr. Baron. That was the way Mr. O'Donnell described it, although in this lengthy memo which apparently precedes the dispatch of QJWIN to the Congo there is no mention of Mr. O'Donnell.

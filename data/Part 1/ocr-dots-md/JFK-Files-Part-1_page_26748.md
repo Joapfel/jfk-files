@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26748.png
-
-Convert to Markdown# Keel 72-ICO-29
+# Keel 72-ICO-29
 
 4 May 1965
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6042.png
-
-Convert to Markdownamong all the Delegations and a day was appointed for their publication in
+among all the Delegations and a day was appointed for their publication in
 all places of the continent. Thus, a great success was achieved. This
 same the photographs were published in almost all the Latin American news-
 papers, and, later, they were even published in extra-continental press.

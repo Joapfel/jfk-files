@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21933.png
-
-Convert to Markdown31 January 1964: Yuriy Ivanovich GUK was reassigned from the KGB Second Chief Directorate "in something like 1952," NOSENKO said, "exactly just about the time when I came from the GRU to the KGB. He was already gone by that time."*
+31 January 1964: Yuriy Ivanovich GUK was reassigned from the KGB Second Chief Directorate "in something like 1952," NOSENKO said, "exactly just about the time when I came from the GRU to the KGB. He was already gone by that time."*
 
 **February 1964:** After his defection on 4 February 1964, NOSENKO prepared an official statement about his biography. He said that he had entered the KGB in 1952, and he shifted the dates of most of the events during the 1945-1955 period one year backwards from the version given in 1962. This was discussed with NOSENKO, and he repeated the new dates; he then studied and approved an official statement on his biography (for the Intelligence Community) which contained the new dates, including his claim that he entered on duty with the KGB in about May 1952.
 

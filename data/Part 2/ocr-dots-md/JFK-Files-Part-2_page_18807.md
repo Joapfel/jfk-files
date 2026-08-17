@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18807.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 JAFFE'S. Marsha Corp record has been checked and no derogatory Information has been developed.
 

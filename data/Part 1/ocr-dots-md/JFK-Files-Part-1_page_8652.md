@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8652.png
-
-Convert to MarkdownPRODUCT SALES REPORT
+PRODUCT SALES REPORT
 
 1. Salesman KAREN ELLY + HUSBAND
 2. Supervisor DRS. JOHN FRANCIS

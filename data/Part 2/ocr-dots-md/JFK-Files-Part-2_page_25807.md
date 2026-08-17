@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25807.png
-
-Convert to MarkdownThis document is prepared for your request and is not a formal statement of facts. Its purpose is to provide information outside your Committee. It may not be disclosed to unauthorized personnel without the express approval of the FBN.
+This document is prepared for your request and is not a formal statement of facts. Its purpose is to provide information outside your Committee. It may not be disclosed to unauthorized personnel without the express approval of the FBN.
 
 TO : Mr. Belmont
 

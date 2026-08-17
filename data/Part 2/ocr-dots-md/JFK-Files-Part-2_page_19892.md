@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19892.png
-
-Convert to MarkdownMAY 1 1972
+MAY 1 1972
 
 NR Ø10 CV CODE
 9:35 PM URGENT 5/1/72 RJB

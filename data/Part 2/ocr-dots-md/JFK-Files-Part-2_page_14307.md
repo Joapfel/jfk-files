@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14307.png
-
-Convert to MarkdownMR 006 NK PLAIN
+MR 006 NK PLAIN
 5:37PM NITEL MAY 12, 1975 JCG
 
 TO DIRECTOR (62-116395)

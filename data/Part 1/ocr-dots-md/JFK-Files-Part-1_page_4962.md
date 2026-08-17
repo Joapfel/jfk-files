@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4962.png
-
-Convert to MarkdownIN 0691.01
+IN 0691.01
 
 TDH:RDB-3115/1725B-7E
 

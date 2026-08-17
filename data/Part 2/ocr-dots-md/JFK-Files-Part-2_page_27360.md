@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27360.png
-
-Convert to MarkdownA-I (J)
+A-I (J)
 
 2
 

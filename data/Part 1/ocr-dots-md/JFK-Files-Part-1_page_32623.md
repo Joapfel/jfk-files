@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32623.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Earl J. Williamson
 1 April 1970 to 31 March 1971

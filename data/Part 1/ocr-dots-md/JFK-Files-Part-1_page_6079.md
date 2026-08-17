@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6079.png
-
-Convert to MarkdownA 17 de outubro, Castro comemou tais leis pela televisão e de seu discurso se deluz, implícita, a definição socialista da Revolução. Dizer ele: "O programa de Moneada foi cumprido". Mais os trabalhadores que tinham memória não poderiam acreditar. Disse Castro naquele dia: "A terceira lei revolucionária outorgava (no caso de um triunfo o ataque ao Quartel Moncada) aos trabalhadores e empregados o direito de participarem de trinta por cento das utilidades em todas as grandes empresas industriais, mercantis e de mineração, incluindo as centrais açucareiras. Excetuavam-se as empresasmeramente agricolas, tendo em vista a implantação futura de outras leis agrárias".
+A 17 de outubro, Castro comemou tais leis pela televisão e de seu discurso se deluz, implícita, a definição socialista da Revolução. Dizer ele: "O programa de Moneada foi cumprido". Mais os trabalhadores que tinham memória não poderiam acreditar. Disse Castro naquele dia: "A terceira lei revolucionária outorgava (no caso de um triunfo o ataque ao Quartel Moncada) aos trabalhadores e empregados o direito de participarem de trinta por cento das utilidades em todas as grandes empresas industriais, mercantis e de mineração, incluindo as centrais açucareiras. Excetuavam-se as empresasmeramente agricolas, tendo em vista a implantação futura de outras leis agrárias".
 
 Decidilamente, o programa do Moncada não se havia cumprido.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9642.png
-
-Convert to MarkdownAugust 30, 1946
+August 30, 1946
 
 MEMORANDUM TO Mr. Lightsey
 

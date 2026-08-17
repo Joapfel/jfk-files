@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1874.png
-
-Convert to Markdown# IDENTITY SHEET
+# IDENTITY SHEET
 
 TRUE
 

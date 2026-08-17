@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25833.png
-
-Convert to MarkdownT S S   E V A L U A T I O N
+T S S   E V A L U A T I O N
 
 NAME Raymond H. GERTZE DIVISION WA/71
 SUBJECT Audio Briefing

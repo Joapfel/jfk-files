@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7563.png
-
-Convert to MarkdownCOUNTRY: USSR
+COUNTRY: USSR
 
 SUBJECT: Dr. Y. I. Moskalev, Institute of Biophysics, Moscow/Professional Interests/Personal Characteristics/Foreign Travel
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24599.png
-
-Convert to Markdownto overthrow Castro". (Summary Record of NSC Standing Group Meeting No. 7/63, May 28, 1963, p. 1.) McNamara said that sabotage would not be "conclusive" and suggested study of "economic pressures which could upset Castro." Robert Kennedy said "the U.S. must do something against Castro, even though we do not believe our actions would bring him down". (Id., p. 2) In conclusion, Bundy summarized by stating that the task was "to decide now what actions we would take against Castro, acknowledging that the measures practical for us to take will not result in his overthrow". (Id., p. 2.)
+to overthrow Castro". (Summary Record of NSC Standing Group Meeting No. 7/63, May 28, 1963, p. 1.) McNamara said that sabotage would not be "conclusive" and suggested study of "economic pressures which could upset Castro." Robert Kennedy said "the U.S. must do something against Castro, even though we do not believe our actions would bring him down". (Id., p. 2) In conclusion, Bundy summarized by stating that the task was "to decide now what actions we would take against Castro, acknowledging that the measures practical for us to take will not result in his overthrow". (Id., p. 2.)
 
 (d) The Special Group's Authorization of a Sabotage Program Against Cuba
 

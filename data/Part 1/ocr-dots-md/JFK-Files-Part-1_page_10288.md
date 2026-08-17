@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10288.png
-
-Convert to Markdownnos asomemos porque se le antoja vernos desnudos un poquítin. Cosa un joven jeje de Estado Mayor que dirige, antes qu lo nadie, la batalla. Poro me parece que hablábamos de alguien, en algún lugar del México. Y como momentáneamente no sé
+nos asomemos porque se le antoja vernos desnudos un poquítin. Cosa un joven jeje de Estado Mayor que dirige, antes qu lo nadie, la batalla. Poro me parece que hablábamos de alguien, en algún lugar del México. Y como momentáneamente no sé
 
 si so trataba do alguna referencia, es elgo sentido, política, permitaseme que laga un parentesis preventivo para ubi came en mi normal estado de respon sabilidad. Alguna de ustedes podría ayu darome, digo yo.
 

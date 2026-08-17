@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18929.png
-
-Convert to Markdown<table><thead><tr><th>TO</th><td>DIRECTOR, FBI (105-129821)</td></tr></thead><tbody><tr><td>FROM</td><td>SAC, NEW YORK (134-11361)</td></tr><tr><td>SUBJECT:</td><td>IS-CH<br/>ReNYlet to Bureau dated 4/23/69, captioned "SAC IS-CH" and WFO airtel to Bureau dated 5/1/69, captioned "SAC aka, IS-CH" (Bufile 105-14704).<br/>Enclosed for the Bureau are eight copies and for WFO, one copy, of an LHM captioned "SAM JAFFE". The LHM is classified "Secret" since disclosure of the information contained therein would tend to identify a highly placed source, whose identity, if revealed, would seriously effect the national security.</td></tr></tbody></table>
+<table><thead><tr><th>TO</th><td>DIRECTOR, FBI (105-129821)</td></tr></thead><tbody><tr><td>FROM</td><td>SAC, NEW YORK (134-11361)</td></tr><tr><td>SUBJECT:</td><td>IS-CH<br/>ReNYlet to Bureau dated 4/23/69, captioned "SAC IS-CH" and WFO airtel to Bureau dated 5/1/69, captioned "SAC aka, IS-CH" (Bufile 105-14704).<br/>Enclosed for the Bureau are eight copies and for WFO, one copy, of an LHM captioned "SAM JAFFE". The LHM is classified "Secret" since disclosure of the information contained therein would tend to identify a highly placed source, whose identity, if revealed, would seriously effect the national security.</td></tr></tbody></table>
 
 NY T-1 in the LHM is NY 5115-S.
 

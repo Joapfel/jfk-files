@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_586.png
-
-Convert to Markdown104-10066-10076
+104-10066-10076
 
 MEMO FOR FILE
 SUBJECT C : OTS (late TSD) and Jim McCord's Cuban Activities:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6220.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 112038Z
 DIR INFO DOST CITE WAVE 5664

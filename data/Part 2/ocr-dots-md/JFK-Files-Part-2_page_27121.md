@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27121.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 derived therefrom are misleading with regard to the events
 in Portugal, Vietnam and other areas where we are in com-

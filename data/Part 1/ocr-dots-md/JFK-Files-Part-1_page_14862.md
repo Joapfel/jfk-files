@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14862.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>ORIG<br/>UNIV<br/>EXT<br/>DATE</td><td>George A. Fill<br/>SR/DOB<br/>8331<br/>10 February</td></tr><tr><td>TO<br/>FROM<br/>CONF.<br/>INFO</td><td>FRANKFURT PARIS<br/>DIRECTOR<br/><u>SR 6</u><br/>CI, CI/OA, F1, F1/OPS, EE 4, WE 4, OS 2, S/C 2</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>ORIG<br/>UNIV<br/>EXT<br/>DATE</td><td>George A. Fill<br/>SR/DOB<br/>8331<br/>10 February</td></tr><tr><td>TO<br/>FROM<br/>CONF.<br/>INFO</td><td>FRANKFURT PARIS<br/>DIRECTOR<br/><u>SR 6</u><br/>CI, CI/OA, F1, F1/OPS, EE 4, WE 4, OS 2, S/C 2</td></tr></tbody></table>
 
 <table><tbody><tr><td rowspan="2">C E D E N C E</td><td>DEFERRED</td><td>FEB 17 17 17 17:59</td></tr><tr><td>X ROUTINE</td><td>REG'D CABLE SECT.</td></tr><tr><td>PRIORITY</td><td colspan="2">INITIALS</td></tr><tr><td colspan="2">OPERATIONAL<br/>IMMEDIATE</td><td>INITIALS</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34933.png
-
-Convert to MarkdownHavann, September 11, 1967
+Havann, September 11, 1967
 
 Mr. John Paulbath
 Protective Mutual Life Insurance

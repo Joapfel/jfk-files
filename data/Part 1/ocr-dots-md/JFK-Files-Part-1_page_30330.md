@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30330.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9 JAN 1967
 

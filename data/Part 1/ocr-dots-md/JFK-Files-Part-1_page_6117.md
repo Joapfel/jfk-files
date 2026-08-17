@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6117.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. Background:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7687.png
-
-Convert to MarkdownSubject was first reported in contact with AVILA in April 1966 in connection with travel booking. Subject made (1). On 2 Jun 1966 Subject flirted with her, and said he would invite her to a volleyball game (1). During the rest of 1966 Subject invited her out a few times, told her he was married but that his wife was not in Mexico, asked her if she knew anyone in the U.S. Embassy. In April 1967 Subject reluctantly agreed to issue a visa to Dr. KUTTLER (q. v.), whose travel AVILA was arranging, and asked as a return favor that she introduce him to some of her friends. (26). In June 1967 Subject reportedly stopped AVILA coming out of work to ask her about the Israeli War (6).
+Subject was first reported in contact with AVILA in April 1966 in connection with travel booking. Subject made (1). On 2 Jun 1966 Subject flirted with her, and said he would invite her to a volleyball game (1). During the rest of 1966 Subject invited her out a few times, told her he was married but that his wife was not in Mexico, asked her if she knew anyone in the U.S. Embassy. In April 1967 Subject reluctantly agreed to issue a visa to Dr. KUTTLER (q. v.), whose travel AVILA was arranging, and asked as a return favor that she introduce him to some of her friends. (26). In June 1967 Subject reportedly stopped AVILA coming out of work to ask her about the Israeli War (6).
 
 8). Cella *BAYARDI Torres, no traces.*
 

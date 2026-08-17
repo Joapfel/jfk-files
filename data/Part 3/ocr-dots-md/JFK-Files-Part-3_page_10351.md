@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10351.png
-
-Convert to MarkdownPHILIP S. HAY, N.C.
+PHILIP S. HAY, N.C.
 WILLIAM C. MINN.
 WALTER R. DIXON, KY.
 FRED MORGAN, N.C.

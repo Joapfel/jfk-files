@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27296.png
-
-Convert to MarkdownSECRET
+SECRET
 
 new and well placed agent assets. He has supervised effectively Divisional planning designed to exploit to the maximum the opportunities presented by the increasing Soviet diplomatic presence in the area.
 

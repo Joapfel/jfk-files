@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3643.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th colspan="4">ROUTING</th></tr><tr><th>TO:</th><th colspan="2">NAME AND ADDRESS</th><th>DATE</th><th>INITIALS</th></tr></thead><tbody><tr><td>1</td><td colspan="2">CIA/IPC</td><td></td><td></td></tr><tr><td>2</td><td colspan="2"></td><td></td><td></td></tr><tr><td>3</td><td colspan="2"></td><td></td><td></td></tr><tr><td>4</td><td colspan="2"></td><td></td><td></td></tr></tbody></table>
 

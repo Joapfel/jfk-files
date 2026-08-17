@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3829.png
-
-Convert to MarkdownAUFRANCE, Russell L.
+AUFRANCE, Russell L.
 
 (1951-55)
 

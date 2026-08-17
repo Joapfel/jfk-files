@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4613.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 BRENNAN stated "RUBY" was worried about her parents knowing she was in Cuba, and she expressed concern about the large number of Chinese men at the Commodore Hotel, Havana, whom she saw eating on one occasion, and stated she did not like it at all.
 

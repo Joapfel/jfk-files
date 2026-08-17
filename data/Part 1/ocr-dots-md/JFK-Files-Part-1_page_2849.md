@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2849.png
-
-Convert to MarkdownAMERICAN EMBASSY SECTION - January 1960-January 1962)
+AMERICAN EMBASSY SECTION - January 1960-January 1962)
 
 DEPUTY CHIEF of the AMERICAN EMBASSY SECTION - 1960-1962:
 Summary and Conclusion

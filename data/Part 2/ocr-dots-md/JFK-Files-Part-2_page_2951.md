@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2951.png
-
-Convert to MarkdownSECRET
+SECRET
 
 20 April 1963 At NSC meeting on Laos, President Kennedy requests study of increased pressures against North Vietnam.
 

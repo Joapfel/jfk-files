@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11015.png
-
-Convert to Markdowng. If an item to be submitted appears on more than one page of the news­
+g. If an item to be submitted appears on more than one page of the news­
 paper, the words "Continued on page...,"
 the subheadline on the con-
 tinued page, and the words "Continued from page..." should not be

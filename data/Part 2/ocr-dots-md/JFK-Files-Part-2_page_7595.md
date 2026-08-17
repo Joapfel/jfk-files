@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7595.png
-
-Convert to Markdown13-00000
+13-00000
 
 6 de M.
 

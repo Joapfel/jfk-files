@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29278.png
-
-Convert to Markdown1. DEVUONO received an annuity of $4,272 per year ($356 per month) from the military for 21 years of service.
+1. DEVUONO received an annuity of $4,272 per year ($356 per month) from the military for 21 years of service.
 
 2. This military annuity will be cancelled.
 

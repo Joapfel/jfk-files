@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3222.png
-
-Convert to Markdown1834
+1834
 
 has taken over control of a domestic group and the Communist Party is operated by the Soviet Union. We would furnish that information as we do. Every copy of our reports goes to the Department of Justice.
 

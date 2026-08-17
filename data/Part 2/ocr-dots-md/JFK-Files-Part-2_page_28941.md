@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28941.png
-
-Convert to Markdown# Form OA-C107 (5-64) Form Approved by Comptroller General, U.S. January 28, 1955
+# Form OA-C107 (5-64) Form Approved by Comptroller General, U.S. January 28, 1955
 
 DETERMINATION OF RESUMPTION OF AWARD
 

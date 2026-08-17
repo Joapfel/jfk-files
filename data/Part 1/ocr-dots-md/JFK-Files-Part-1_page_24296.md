@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24296.png
-
-Convert to MarkdownSECRET
+SECRET
 
 F. Ness felt that should we pursue the above as a long-term operational goal for QRPHONE/1, the city in which this takes place is almost irrelevant. He could do it perhaps as well in an African setting as in Europe and his cover status i.e., with LPWEAKLY, really makes no difference because the Chicom would test the fiber man himself and would not be deterred by his external trappings.
 

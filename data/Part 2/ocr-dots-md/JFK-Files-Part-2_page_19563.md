@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19563.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 ***
 SEATTLE WORL ACT FOR PEACE (SWAP)
 

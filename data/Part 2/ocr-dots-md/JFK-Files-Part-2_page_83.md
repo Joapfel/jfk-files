@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_83.png
-
-Convert to MarkdownW11-9J1
+W11-9J1
 
 The Station feels that in directing its efforts in both the above directions, it will have at least a good starting point when operations in the Dominican Republic begin. Naturally, per previous correspondence, all of these operations would be worked from out side the Dominican Republic utilising third country methods. The Station does not believe that any of the prospective assets, other than SKEDADDLE, should become aware of our interest in them under the present circumstances. It is felt that were we to carry operational development of these assets any further at this time that we would run the risk of having them go cold and possibly sour as we could not actually put them to work under present conditions. We feel that this is the best method of keeping our assets on ice.
 

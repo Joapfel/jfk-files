@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21848.png
-
-Convert to MarkdownThe Bissell/Tweedy cable informed the Chief of Station that he was to continue to use this indicator for
+The Bissell/Tweedy cable informed the Chief of Station that he was to continue to use this indicator for
 
 ALL [CABLE] TRAFFIC THIS OP, WHICH YOU INSTRUCTED HOLD ENTIRELY TO YOURSELF. (CIA Cable, 9/19/60.)
 

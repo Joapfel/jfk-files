@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2435.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DAL-108-72
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23448.png
-
-Convert to MarkdownMr. Douglas said that in any case he would be prepared to have
+Mr. Douglas said that in any case he would be prepared to have
 the Department of Defense investigate the availability of specific
 locations that would be suitable.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32809.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, TRO/AB
+MEMORANDUM FOR: Chief, TRO/AB
 
 VIA : Office of Security/Alien Affairs Staff
 SUBJECT : Request for Aliens Documentation for AMOTIN-117

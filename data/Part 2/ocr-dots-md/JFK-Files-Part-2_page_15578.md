@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15578.png
-
-Convert to MarkdownLR
+LR
 
 FRED HAMPTON stated that the demonstrations by the BPP at the Federal Building in Chicago during the trial are for the purpose of telling the facts to the people. He stated that BPP is somewhat allied with the faction of MIKE KLONSKY, current member of the National Interim Committee (NIC) of the SDS and current leader of the Revolutionary Youth Movement II (RYM II) faction of SDS, but that the current leadership of SDS, called the Weatherman faction, are a "bunch of damn fools".
 

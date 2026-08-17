@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24516.png
-
-Convert to Markdownthereupon the President said, "I agree with you completely." Szulc stated
+thereupon the President said, "I agree with you completely." Szulc stated
 
 further:
 

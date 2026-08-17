@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7352.png
-
-Convert to Markdown# Guidelines for Providing Information
+# Guidelines for Providing Information
 to Congressional Oversight Committees on
 Foreign Intelligence and Security Services
 

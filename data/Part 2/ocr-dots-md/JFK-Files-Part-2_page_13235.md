@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13235.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA)
+RE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA)
 
 "Q: There were none.
 

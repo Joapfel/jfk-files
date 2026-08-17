@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12725.png
-
-Convert to Markdown(9) Movement of subjects between offices and transfers of security index cards
+(9) Movement of subjects between offices and transfers of security index cards
 
 (a) Subjects of security index cards
 

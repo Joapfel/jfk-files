@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27913.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="3">CONTRACT FOR OFFICERS' INSTRUCTIONS</th></tr><tr><th>NAME</th><th>DUE DATE</th><th>DATE OF CLOSURE</th></tr></thead><tbody><tr><td>Kosman, Thomas J.</td><td>MAY 26, 1957</td><td>13</td></tr><tr><td>24 June 1957</td><td>May 1957</td><td>OS-7</td></tr><tr><td></td><td></td><td>OCT/JOEP</td></tr><tr><td colspan="3">OFFICER POSITION COMMITTEE OFFICE POSITION</td></tr><tr><td colspan="3">Junior Officer Trainee</td></tr></tbody></table>
 

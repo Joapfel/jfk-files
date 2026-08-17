@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_979.png
-
-Convert to MarkdownHSCA Chron, page 12
+HSCA Chron, page 12
 
 17 May 78 MEXICO CITY 45093 re planned contacts of HSCA visitors
 

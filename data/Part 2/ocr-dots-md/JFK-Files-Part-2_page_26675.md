@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26675.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4100 Third Street, S.E., Washington, D.C. 20003
 

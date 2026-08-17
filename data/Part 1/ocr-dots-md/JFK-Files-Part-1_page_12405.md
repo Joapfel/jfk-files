@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12405.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">A SECRETARIAT DISSEMINATION</td>
     <td>ISSUED MIAMI</td>

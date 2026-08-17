@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19774.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>COURSE</td><td>DATE ENTERED</td><td>DATE COMPLETED</td><td>REMARKS</td></tr></thead><tbody><tr><td>INTELLIGENCE ORIENTATION (or equivalent)</td><td>19 Mar.</td><td>6-21 Apr. 1962</td><td>(1st two weeks only)</td></tr><tr><td>OPERATIONS SUPPORT (or equivalent) (Phase 2)</td><td>2 April</td><td>20 April 1962</td><td></td></tr><tr><td>OPERATIONS FAMILIARIZATION (or equivalent)</td><td></td><td></td><td></td></tr><tr><td>CI OPERATIONS</td><td></td><td></td><td></td></tr><tr><td>ADMINISTRATIVE PROCEDURES</td><td></td><td></td><td></td></tr><tr><td>MANAGEMENT</td><td>1 April</td><td>15 April 1965</td><td></td></tr><tr><td>SUPERVISION</td><td></td><td></td><td></td></tr><tr><td>Stاذ. J. Sell, Assistant, 18 Nov.</td><td></td><td>21 Nov. 1962</td><td></td></tr></tbody></table>
 

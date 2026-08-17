@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6544.png
-
-Convert to Markdownextremely reasonable despite Castro's intransigence, is waiting for signs of more favorable change in Cuba.
+extremely reasonable despite Castro's intransigence, is waiting for signs of more favorable change in Cuba.
 
 Later the US image should change to one in which the US is being "led" by the majority of the OAS into OAS initiated and sponsored pressures against Cuba. These would consist of measures less than those certain to overthrow Castro but going beyond the earlier measures, in the expectation that resulting internal pressures might eliminate Castro or provide an occasion for decisive action. Pressures would be applied in such fashion as to represent both a carrot to the Cuban people to get rid of Castro regime and a stick toward the present regime. Still later the US stance should become publicly, "at last" to join the OAS majority in seeking vigorous pressures on the Castro regime without yet irrevocably committing US prestige to decisive action.
 

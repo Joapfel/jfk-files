@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3454.png
-
-Convert to Markdown# Report # DD-837, CE, 30 Apr 64 (cont.)
+# Report # DD-837, CE, 30 Apr 64 (cont.)
 
 FADKOM to divorce her husband.
 

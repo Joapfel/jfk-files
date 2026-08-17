@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2539.png
-
-Convert to MarkdownJune 23, 1975
+June 23, 1975
 
 The Committee has authorized the staff to con-
 duct an investigation of matters pertaining to the

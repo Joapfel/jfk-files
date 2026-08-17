@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5990.png
-
-Convert to Markdown**CIA-IR-16 U-2 Files.** The DS&T provided the Board a copy of the U-2 shelflist. We also searched for records filed under Richard Bissell's name. We received no follow-on request from the Board.
+**CIA-IR-16 U-2 Files.** The DS&T provided the Board a copy of the U-2 shelflist. We also searched for records filed under Richard Bissell's name. We received no follow-on request from the Board.
 
 **CIA-IR-16 FBIS-USR-92-112.** The DS&T provided to the Board a translation of articles about a KGB file on Oswald.
 

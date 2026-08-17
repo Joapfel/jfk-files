@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3611.png
-
-Convert to Markdownf. As part of the same campaign, the North Vietnamese have told the French they believe sentiment is growing in the US for withdrawal of US forces. They reportedly plan to keep the heat on to encourage it.
+f. As part of the same campaign, the North Vietnamese have told the French they believe sentiment is growing in the US for withdrawal of US forces. They reportedly plan to keep the heat on to encourage it.
 
 g. Hanoi is at the same time trying quietly to encourage the belief that it is ready to be reasonable.
 

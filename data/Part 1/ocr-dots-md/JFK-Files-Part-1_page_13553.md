@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13553.png
-
-Convert to Markdown16:28
+16:28
 
 REINO ESTEVEZ, por parte de la Revolución Cubana, que necesita hablar con Fidel Castro. ¿Está contento con su未来? Sí, está contento, y no sabe cómo va a irlo. Si no le pido que vayan al palacio, no voy a ser capaz de hacer lo mismo. HAIZ está seguro que Fidel Castro no está en su cuarto, porque él se encuentra en Cuba y él habrá ido a cenar a su lado. Pero creo que vuelvo por la tarde. REJANO pide que le diga en cuanto llegue que se comunícanos con él, ya sé si está健康, que tiene urgencias imminentes que hablar con él, "puedo tener unChat", que se ha eludido de que tengan-nos que ver. Especialmente, y de una manera de como, y es-toy verdamente satisfecho". HAIZ el con el que "agotan" el.cnidio, pero que en cuanto vea a Fidel Castro, dirá que REJANO lo es, because con ver determina- urgencia. (HAIZ lo confi re confichta en forma ruda en todo mundo e inclusive al otro personal de la Embajada, pero en este caso se dirige a REINO llamándolo JUANITO) y le habla con mucho co-mediriento.
 

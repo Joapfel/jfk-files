@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16512.png
-
-Convert to MarkdownJohn Coorey, CS/AAS, called. He wants A's reentry permit returned
+John Coorey, CS/AAS, called. He wants A's reentry permit returned
 to him for delivery to INS. Al Aircraft was supposed to do this, but
 apparently did not.
 

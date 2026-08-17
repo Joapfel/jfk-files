@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14987.png
-
-Convert to Markdown# WIRE TAPS AND OTHER COVERAGE UTILIZED IN THE INTERNAL SECURITY FIELD
+# WIRE TAPS AND OTHER COVERAGE UTILIZED IN THE INTERNAL SECURITY FIELD
 
 Wire taps are utilized only in the internal security field and when absolutely essential to carrying out our investigative responsibilities. Their number varies and as of this date we have 42 wire taps in operation. In addition, at the specific request of the National Security Agency, we have electronic coverage on teletypes of 40 foreign diplomatic establishments.
 

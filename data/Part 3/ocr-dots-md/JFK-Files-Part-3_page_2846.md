@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2846.png
-
-Convert to Markdown(Mount Clipping in Space Below)
+(Mount Clipping in Space Below)
 
 <table><tr><td>Senate Committee Rejects Request By CIA, FBI to Monitor Inquiry</td></tr></table>
 

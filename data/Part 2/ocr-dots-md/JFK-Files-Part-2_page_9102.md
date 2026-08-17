@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9102.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 East Coast. The subject has twice been arrested for possession of weapons since September, 1973, and has been in receipt of white-hate extremist literature. DRAGER has shown a propensity for violence in the past and has allegedly admitted participation in a bombing. DRAGER has shown a willingness and capability to engage in terrorism or other such acts which would result in the interference with or a threat to the survival and effective operation of National, State or local governments.
 

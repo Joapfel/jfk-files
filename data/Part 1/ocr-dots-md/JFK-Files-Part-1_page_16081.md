@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16081.png
-
-Convert to Markdownthe sniper's position or that of an adjacent friendly unit.
+the sniper's position or that of an adjacent friendly unit.
 
 (iii) Qualification firing will be conducted during the first week of the course. Silhouette targets shall be fired at 100,800 yards and 900 meters with eight targets being fired by each man during two qualifying courses. Ten points will be awarded for a first round hit and five points for a second round hit. A maximum score is 160 points. A minimum qualifying score is 130.
 

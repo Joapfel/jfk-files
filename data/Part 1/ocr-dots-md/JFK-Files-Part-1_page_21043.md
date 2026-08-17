@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21043.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (when filled in)
 
 DATE 29 MAY 72

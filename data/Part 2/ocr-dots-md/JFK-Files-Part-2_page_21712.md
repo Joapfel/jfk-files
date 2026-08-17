@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21712.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 because we're going to slop over into this other matter that Mr. Liebengood wants to talk about tomorrow.
 

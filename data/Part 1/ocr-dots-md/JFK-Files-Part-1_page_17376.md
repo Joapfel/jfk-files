@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17376.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 594<br/>TO : DIRECTOR<br/>FROM : MEXICO CITY<br/>ACTION : C/WH 5<br/>INFO : ADDP, C/C1, C/F1 2, C/FE 6, S/C 2</td><td><table><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>Ave.</td><td>4</td><td></td></tr><tr><td>5</td><td></td><td></td></tr><tr><td>6</td><td></td><td></td></tr></tbody></table></td></tr><tr><td></td><td>OCT 18 2052 62</td></tr><tr><td></td><td>Routine.</td></tr><tr><td></td><td>IN 41954</td></tr></tbody></table>
 

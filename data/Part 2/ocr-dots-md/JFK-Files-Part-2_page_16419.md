@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16419.png
-
-Convert to MarkdownA 26 page pamphlet entitled "Essays from the Minister of Defense Huey Newton," was observed at the Chicago BPP Headquarters, 2350 West Madison Street, Chicago, Illinois on June 4, 1969.
+A 26 page pamphlet entitled "Essays from the Minister of Defense Huey Newton," was observed at the Chicago BPP Headquarters, 2350 West Madison Street, Chicago, Illinois on June 4, 1969.
 
 Hundreds of these pamphlets were contained in open boxes in a manner that suggested they were available for general distribution.
 

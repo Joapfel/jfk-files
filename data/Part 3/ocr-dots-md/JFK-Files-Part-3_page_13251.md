@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13251.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. MR. OLSEN: Before you left?
 2. MR. STURGIS: No, four to six weeks after we took over the country, July 1, four to six weeks was the first attempt. That was in the last of January or the first week in February 1959, four or five weeks.

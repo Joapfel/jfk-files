@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_581.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE THREE MEXICO CITY 3994 SECRET
 

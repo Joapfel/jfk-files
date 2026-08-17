@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33851.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In reply refer to: W-1995
 S

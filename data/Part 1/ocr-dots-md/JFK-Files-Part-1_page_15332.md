@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15332.png
-
-Convert to Markdown# G. CHARACTERISTIC TRAITS IN HIS ACTIVITY.
+# G. CHARACTERISTIC TRAITS IN HIS ACTIVITY.
 
 ## 1. Irrational instability.
 

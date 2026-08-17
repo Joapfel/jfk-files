@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2474.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>EVALUATOR'S ORGANIZATION</th><th>CLASSIFICATION<br>(UNCLASSIFIED)</th><th>DATE EVALUATED</th><th>NAME OF EVALUATOR<br>(LT.)</th></tr></thead><tbody><tr><td>DEAAP-LAI</td><td></td><td>23 Feb '68</td><td>Jon Heggan (LT.)</td></tr></tbody></table>
 

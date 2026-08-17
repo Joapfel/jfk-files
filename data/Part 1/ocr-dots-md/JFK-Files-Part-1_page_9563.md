@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9563.png
-
-Convert to Markdown7 February 1980
+7 February 1980
 
 CONCLUSION OF CONFERENCE
 

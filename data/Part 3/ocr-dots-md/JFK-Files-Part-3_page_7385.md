@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7385.png
-
-Convert to Markdown NW 88608 DocId:32989588 Page 58
+NW 88608 DocId:32989588 Page 58
 
 <table>
   <caption>13. RELATIVES (Continued)</caption>

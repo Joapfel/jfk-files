@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6576.png
-
-Convert to MarkdownWe have the possibility of insuring that so long as Cuba remains
+We have the possibility of insuring that so long as Cuba remains
 Communist it will serve as an open, bleeding wound that will weaken the
 Communist cause generally. This strategic concept is one which the
 Communists have tried to use against us.

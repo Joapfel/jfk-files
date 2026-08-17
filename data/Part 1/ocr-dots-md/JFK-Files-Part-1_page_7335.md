@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7335.png
-
-Convert to MarkdownValentín S. Loguimen
+Valentín S. Loguimen
 Consul, Secretario de la Embajada de la U. R. I.S.
 Consul de la U.R.I.S.
 

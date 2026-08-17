@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21217.png
-
-Convert to MarkdownNOSENKO made no comment regarding this name on
+NOSENKO made no comment regarding this name on
 
 October 31, (N-3), and November 20 (N-33)
 

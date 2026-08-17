@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23182.png
-
-Convert to Markdown2-0-11-95
+2-0-11-95
 
 Date: 6/28/74
 Report no.: 00-M-303/10770-65

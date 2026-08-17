@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24353.png
-
-Convert to MarkdownSECRET/RCAT
+SECRET/RCAT
 
 FBI info
 Gibson concerning Richard

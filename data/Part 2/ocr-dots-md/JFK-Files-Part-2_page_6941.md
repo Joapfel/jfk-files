@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6941.png
-
-Convert to Markdownthe assassination and whether the public interest in disclosure
+the assassination and whether the public interest in disclosure
 outweigh other concerns). Additionally, without such persons on
 the Review Board, it may be difficult to persuade the public that
 all pertinent materials will be disclosed, thus undercutting the

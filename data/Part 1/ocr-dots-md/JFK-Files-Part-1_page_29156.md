@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29156.png
-
-Convert to MarkdownSEC. VIII. PUBLICATIONS
+SEC. VIII. PUBLICATIONS
 
 <table>
    <tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8775.png
-
-Convert to MarkdownAMSLOUCH Project 28-6-33
+AMSLOUCH Project 28-6-33
 
 RIOD 2944 (IN 83322) dated 18 December 1963
 

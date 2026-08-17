@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13306.png
-
-Convert to MarkdownP. 14
+P. 14
 
 Was there any FBI-CIA liaison concerning Oswald's intention
 to attend Albert Schweitzer College in Switzerland? Was

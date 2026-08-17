@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16497.png
-
-Convert to MarkdownCABLE SEC DISSEM BY: Z PER
+CABLE SEC DISSEM BY: Z PER
 
 PERSON/UNIT NOTIFIED:
 

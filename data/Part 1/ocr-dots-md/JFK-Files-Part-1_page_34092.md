@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34092.png
-
-Convert to MarkdownFRANCO SHIPPING CONTINUES IN THE CUBA SEA TRADE
+FRANCO SHIPPING CONTINUES IN THE CUBA SEA TRADE
 
 Franco Shipping Company has been responsible for 18.1% of the total Free-
 world sea trade with Communist Cuba for the January-September 1966 period.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7275.png
-
-Convert to MarkdownMemorandum for Mr. Bassett
+Memorandum for Mr. Bassett
 
 Re: SENSTUDY 75
 

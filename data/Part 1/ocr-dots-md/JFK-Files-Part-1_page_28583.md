@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28583.png
-
-Convert to Markdown38 August 1962
+38 August 1962
 
 MEMORANDUM
 

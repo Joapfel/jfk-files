@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17906.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA AIR
 (Signify Air or Sea Pouch)

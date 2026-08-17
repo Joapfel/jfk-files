@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7165.png
-
-Convert to MarkdownEX-10A
+EX-10A
 
 RE:23/-
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_13236.png
-
 to help him with carrying the equipment and to act as lookout. He said he would prefer to do the job during working hours; for this he would get three or four others to help him and force someone in the office to open the safe."
 
 18. Dispatch dated February 2, 1962, from Chief of Station Luxembourg to Headquarters, Chief, KUTUBE/D. It discusses the efforts of the Luxembourg station to provide acceptable cover for Mankel in Germany, where the Agency has

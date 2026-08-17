@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10774.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">DOCUMENT TRANSFER AND CROSS REFERENCE</td>
    </tr>

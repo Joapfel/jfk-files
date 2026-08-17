@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8963.png
-
-Convert to Markdown6 August 1962
+6 August 1962
 
 The following information was derived from a transcrip-
 tion of a tape made during a meeting with Edward TICHBORN

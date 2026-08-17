@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3484.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 a whole lot of intelligence information and had come to the conclusion that
 the Chinese Communists were making a tremendous effort in this field

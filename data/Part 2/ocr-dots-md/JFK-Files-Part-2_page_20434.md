@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20434.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 # U.S. POLICY IN VIETNAM,
 

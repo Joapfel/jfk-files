@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30651.png
-
-Convert to Markdown# KGB Operations Made It Possible They Could Have Been Laid Low Operationally
+# KGB Operations Made It Possible They Could Have Been Laid Low Operationally
 
 **Military**
 

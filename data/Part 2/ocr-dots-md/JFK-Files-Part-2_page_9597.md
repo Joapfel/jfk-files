@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9597.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 Right Wing group in the San Diego area. He was reportedly studying that organization and considering becoming a member.
 

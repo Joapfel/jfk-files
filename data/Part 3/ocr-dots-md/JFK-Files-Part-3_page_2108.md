@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2108.png
-
-Convert to MarkdownLS 66-26:12
+LS 66-26:12
 
 E F T O
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31109.png
-
-Convert to Markdown21 February 1951
+21 February 1951
 
 The Honorable Richard B. Wigglesworth
 U. S. House of Representatives

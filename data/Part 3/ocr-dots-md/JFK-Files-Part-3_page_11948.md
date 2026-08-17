@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11948.png
-
-Convert to MarkdownTHE CHINESE UNIT
+THE CHINESE UNIT
 
 4-E
 

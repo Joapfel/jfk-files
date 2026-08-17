@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1821.png
-
-Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+C-O-N-F-I-D-E-N-T-I-A-L
 (when filled in)
 
 # TRAINING REPORT

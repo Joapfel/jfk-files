@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6411.png
-
-Convert to Markdown# Notes
+# Notes
 
 * "Nevertheless, it may be noted that there are various stateless persons in Hong Kong, with their respective passports in order, awaiting accreditation on one of the five cities of the long Long-Duoro Airs line: the "BESSAYNE," "HYS," "JISINO," "KERRING," and "TALLINNA." (1)
 

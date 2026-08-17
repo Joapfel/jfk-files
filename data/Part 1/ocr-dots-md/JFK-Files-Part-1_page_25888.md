@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25888.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>SECRET 121014Z JUN 70 CITE BERG 8708</td></tr></table>
 

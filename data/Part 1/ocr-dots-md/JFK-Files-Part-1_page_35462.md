@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35462.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Dr. MIRO said there was no way to determine the accuracy of the figures given of planes, guns, etc. received from the Soviet bloc (and Italy and Canada) but even if the figures were exaggerated 100 per cent, they would still be impressive.
 

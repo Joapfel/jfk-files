@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32188.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 to date, it appears that all of these decisions call for actions which have already been considered by your Committee. You will note that in some instances action responsibility on an NSC decision or NASAN has been transferred to the Special Group (Mr. Alexis Johnson).
 

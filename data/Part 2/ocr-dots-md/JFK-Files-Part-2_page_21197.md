@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21197.png
-
-Convert to Markdownand NOSENKO were Chief and Deputy Chief of 1st
+and NOSENKO were Chief and Deputy Chief of 1st
 Section, 1st Department. It appears that his
 previous recollection of transfer before GOLITZYN's
 defection was in error.

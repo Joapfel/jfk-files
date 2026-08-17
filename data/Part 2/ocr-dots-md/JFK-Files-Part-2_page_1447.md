@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1447.png
-
-Convert to MarkdownSECRET
+SECRET
 
 cover personnel. Unfortunately a heart attack during the past year slowed Mr. Wheeler down for a while but he has made a good recovery and his performance on the whole has been very strong.
 

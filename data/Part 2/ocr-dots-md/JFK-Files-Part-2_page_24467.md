@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24467.png
-
-Convert to Markdown"I would like to recast the time that this took place. This was August of '62. This was at the start of the so-called Missile Crisis. . . .
+"I would like to recast the time that this took place. This was August of '62. This was at the start of the so-called Missile Crisis. . . .
 
 "A tentative decision had been made at that point that the only sensible thing to do with [the Roselli operation] was to terminate it as rapidly and cleanly as it could be done. . . . I am sure that I had discussed with Roselli, at least on a tentative basis, by August, the probable necessity of terminating this. . . ."
 

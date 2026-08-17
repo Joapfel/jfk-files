@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13779.png
-
-Convert to Markdown3. FBI Foreign Counterintelligence Operations
+3. FBI Foreign Counterintelligence Operations
 
 The Committee seeks to determine the nature of
 FBI counterintelligence operations directed at

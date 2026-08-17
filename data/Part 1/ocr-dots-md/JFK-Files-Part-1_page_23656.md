@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23656.png
-
-Convert to Markdown4. OBJECTIVES
+4. OBJECTIVES
 
 A. To re-establish personal contact with AMTRUNK-10 and to secure his full cooperation in spotting dissidents within the higher levels of the military for the purpose of organizing a conspiracy against Fidel Castro.
 

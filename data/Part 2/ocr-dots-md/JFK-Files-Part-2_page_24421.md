@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24421.png
-
-Convert to MarkdownThe truckload of equipment was finally picked up by either Varona or Roselli's agent, Maceo (I.G., pp. 49-50; Roselli, p. 40). Harvey testified that the arms "could" have been for use in the assassination attempt, but that they were not given to Varona solely for that purpose (Harvey, 7/11, p. 9).
+The truckload of equipment was finally picked up by either Varona or Roselli's agent, Maceo (I.G., pp. 49-50; Roselli, p. 40). Harvey testified that the arms "could" have been for use in the assassination attempt, but that they were not given to Varona solely for that purpose (Harvey, 7/11, p. 9).
 
 Roselli kept Harvey informed of the operation's progress. Sometime in May 1962, he reported that the pills and guns had arrived in Cuba (Harvey, 6/25, p. 64; Roselli, pp. 34, 42-43). On June 21, he told Harvey that Varona had dis-patched a three-man team to Cuba. The Inspector General's Report described the team's mission as "vague" and conjectured that the team would kill Castro or recruit others to do the job, using the poison pills if the opportunity arose (I.G., p. 51).
 

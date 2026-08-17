@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7681.png
-
-Convert to MarkdownMr. RANKIN. Would that be true, Mr. Helms, even after the Commission completed its report, you would keep the matter open if there was anything new that developed in the future that could be properly presented to the authorities?
+Mr. RANKIN. Would that be true, Mr. Helms, even after the Commission completed its report, you would keep the matter open if there was anything new that developed in the future that could be properly presented to the authorities?
 
 Mr. HELMS. Yes. I would assume the case will never be closed.
 

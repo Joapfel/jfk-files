@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7141.png
-
-Convert to MarkdownRussians: No, no, the question is what do you think personally about Communism? What are your own beliefs?
+Russians: No, no, the question is what do you think personally about Communism? What are your own beliefs?
 
 Diddle: (getting the wind up at this point) Primarily, I must be described as a nationalist.
 

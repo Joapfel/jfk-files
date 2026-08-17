@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23084.png
-
-Convert to MarkdownProfesor
+Profesor
 Dr. Alfonso Villán
 Catedra de Psicología Médica
 Universidad Autónoma de México

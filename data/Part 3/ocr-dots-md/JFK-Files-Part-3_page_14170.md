@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14170.png
-
-Convert to Markdown(81. 9/4/62 Continued)
+(81. 9/4/62 Continued)
 
 "information available as fast as it is obtained and properly verified.
 There is no evidence of any organized combat force in Cuba, from any

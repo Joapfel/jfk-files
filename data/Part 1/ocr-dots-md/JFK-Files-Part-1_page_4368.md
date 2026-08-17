@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4368.png
-
-Convert to MarkdownComparecencia del Doctor
+Comparecencia del Doctor
 MANUEL ARTIME
 en el Programa "Pan Americana",
 Transmitido por el Canal 10-TV de Miami,

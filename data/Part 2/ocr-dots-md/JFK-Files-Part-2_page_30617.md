@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30617.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6/27/74 memo by
 Phillips to FBI M.W.

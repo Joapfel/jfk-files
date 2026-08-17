@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13122.png
-
-Convert to MarkdownEUR Addresses of DIR 92664
+EUR Addresses of DIR 92664
 
 - [x] Barcelona
 - [x] Berlin

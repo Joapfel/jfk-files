@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2903.png
-
-Convert to MarkdownWARD & PAUL
+WARD & PAUL
 
 2489
 

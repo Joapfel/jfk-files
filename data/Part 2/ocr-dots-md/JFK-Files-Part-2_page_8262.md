@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8262.png
-
-Convert to Markdown12 April 1951
+12 April 1951
 
 DIMITROV told (his handler - CIA) that he was to tell FLORIMOND by 13
 April whether he would work with him. DIMITROV asked for instructions.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29088.png
-
-Convert to MarkdownSECRET/RDCAT
+SECRET/RDCAT
 
 MEMORANDUM FOR THE RECORD
 

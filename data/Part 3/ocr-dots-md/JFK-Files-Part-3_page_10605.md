@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10605.png
-
-Convert to MarkdownThe Senate Select Committee (SSC) letter of July 14, 1975, to K. William O'Connor, Esq., requested a response to Item #3.
+The Senate Select Committee (SSC) letter of July 14, 1975, to K. William O'Connor, Esq., requested a response to Item #3.
 
 Item #3 is set forth as follows:
 

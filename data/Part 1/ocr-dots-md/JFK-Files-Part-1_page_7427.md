@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7427.png
-
-Convert to MarkdownFor Support authorize the 75/25 percent sharing of the excess allowable costs up to 60 percent above his quarter's allowance.
+For Support authorize the 75/25 percent sharing of the excess allowable costs up to 60 percent above his quarter's allowance.
 
 15
 

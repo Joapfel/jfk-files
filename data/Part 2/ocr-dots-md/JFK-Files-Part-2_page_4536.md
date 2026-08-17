@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4536.png
-
-Convert to Markdown4. The latest cable from the field (IN 18883) reports that that plans are going satisfactorily. Bishop Boza Masvidal is a prominent lay leader, he is now visiting Camaquey to solicit the support of the local E-B Bishop. Jose Lavastida, a prominent lay leader, is in Santiago to seek the help of the Santáago Bishop. Tentative plans call for a congress or rally on Assumption Day, 15 July.
+4. The latest cable from the field (IN 18883) reports that that plans are going satisfactorily. Bishop Boza Masvidal is a prominent lay leader, he is now visiting Camaquey to solicit the support of the local E-B Bishop. Jose Lavastida, a prominent lay leader, is in Santiago to seek the help of the Santáago Bishop. Tentative plans call for a congress or rally on Assumption Day, 15 July.
 
 The station has asked that the entire effort at least begin within Cuba, without outside support from FRD or WRUL.
 

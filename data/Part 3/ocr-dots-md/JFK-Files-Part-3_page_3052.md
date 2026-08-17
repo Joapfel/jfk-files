@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3052.png
-
-Convert to MarkdownPAGE FIVE
+PAGE FIVE
 
 JACKSONVILLE:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31065.png
-
-Convert to Markdown12 January 1978
+12 January 1978
 
 MEMORANDUM FOR: Lee H. Wigren
 VIA : Head of Career Service

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8086.png
-
-Convert to MarkdownThe Committee has not yet received a formal response to those
+The Committee has not yet received a formal response to those
 letters. Appendix A sets out those documents which have not yet
 been supplied to the Committee pursuant to the March 19 letter
 and follow-up correspondence.

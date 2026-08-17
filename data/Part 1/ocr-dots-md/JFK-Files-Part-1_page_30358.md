@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30358.png
-
-Convert to MarkdownCERTIFICATE
+CERTIFICATE
 
 This is to certify that
 James W. McCord

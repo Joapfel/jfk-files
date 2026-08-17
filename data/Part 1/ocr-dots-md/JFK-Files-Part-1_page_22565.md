@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22565.png
-
-Convert to MarkdownSECRET-eyes ONLY
+SECRET-eyes ONLY
 
 in being called as a physician learned the identities of the assassins,
 General Diaz said he could not allow Dr. Reid to go free. General

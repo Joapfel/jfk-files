@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25713.png
-
-Convert to MarkdownLittle Rock, Arkansas
+Little Rock, Arkansas
 
 June 4, 1963
 

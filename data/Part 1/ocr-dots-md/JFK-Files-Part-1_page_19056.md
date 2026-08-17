@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19056.png
-
-Convert to Markdown- LOBER, Karl-Ernst, geb. 6.8.1927 in Nanzlau/Schl.,
+- LOBER, Karl-Ernst, geb. 6.8.1927 in Nanzlau/Schl.,
 
 wohnhaft: Schleswig, Kolonnenweg 31,
 

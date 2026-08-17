@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24351.png
-
-Convert to MarkdownCIA Domestic Real Property Holdings*
+CIA Domestic Real Property Holdings*
 
 CIA has a variety of real property holdings in the United States ranging from the major, overt Headquarters complex in McLean, Virginia, to small leased "safehouse" apartments in many cities.
 

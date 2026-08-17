@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6912.png
-
-Convert to Markdowninclusiveness, and as a result learn a bit more about the
+inclusiveness, and as a result learn a bit more about the
 operations of our government and our foreign policy in the early
 1960's, I think we will benefit. My only concern would be that
 the search becomes so broad that it delays action of the release

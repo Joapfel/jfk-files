@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31614.png
-
-Convert to Markdown# W.E.B. DU BOIS CLUBS OF AMERICA - BERKELEY BRANCH;
+# W.E.B. DU BOIS CLUBS OF AMERICA - BERKELEY BRANCH;
 W.E.B. DuBois Youth Club - Berkeley Chapter;
 Berkeley W.E.B. DuBois Club, Berkeley DuBois Club;
 East Bay DuBois Club

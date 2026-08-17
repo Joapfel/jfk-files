@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_724.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>1</td><td>RIGGS</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>1</td><td>RIGGS</td></tr></tbody></table>
 
 TO : DIRECTOR
 

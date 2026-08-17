@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_926.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (When Placed In) TDCS
 

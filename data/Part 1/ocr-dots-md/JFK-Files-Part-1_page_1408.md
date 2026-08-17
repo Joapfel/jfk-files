@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1408.png
-
-Convert to MarkdownUNDER SEPARATE COVER
+UNDER SEPARATE COVER
 
 TO: UFGA-21422
 

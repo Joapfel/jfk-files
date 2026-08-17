@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31647.png
-
-Convert to Markdown1 July 1953
+1 July 1953
 
 MEMORANDUM FOR: DIRECTOR OF CENTRAL INTELLIGENCE
 SUBJECT: Comments on Arthur Page's letter of 29 June 1953

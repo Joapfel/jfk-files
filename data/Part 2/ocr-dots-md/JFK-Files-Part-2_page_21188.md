@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21188.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1961, and probably she was not yet employed at the time of
 his mailing of a letter on July 2, 1961 (W)

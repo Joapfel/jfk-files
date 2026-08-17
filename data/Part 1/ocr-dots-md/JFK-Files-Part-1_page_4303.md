@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4303.png
-
-Convert to MarkdownMr. Carl J. James
+Mr. Carl J. James
 P.O. Box 9549
 Arlington 22203, Virginia.
 

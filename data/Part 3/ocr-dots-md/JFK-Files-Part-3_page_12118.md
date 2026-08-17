@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12118.png
-
-Convert to MarkdownF10-405a (Rev. 4-28-80)
+F10-405a (Rev. 4-28-80)
 
 Furnish complete listing quarterly - by the 10th of January, April, July, October; remaining months furnish only pertinent changes.
 

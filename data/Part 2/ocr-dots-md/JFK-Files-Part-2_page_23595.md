@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23595.png
-
-Convert to MarkdownFILE:
+FILE:
 
 ## 3. CIA Activities in Chile:
 

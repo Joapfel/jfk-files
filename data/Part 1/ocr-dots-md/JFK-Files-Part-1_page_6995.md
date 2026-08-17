@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6995.png
-
-Convert to MarkdownTO : DIRECTOR
+TO : DIRECTOR
 FROM : ROME
 ACTION: WE 6
 INFO : DDP, CI, CI/OPS, CI/OA, CI/SI, FI, EE 4, SAS 8, RF 2

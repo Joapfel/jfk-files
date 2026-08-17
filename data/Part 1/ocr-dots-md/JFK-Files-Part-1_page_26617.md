@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26617.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 30
 
 <table><tr><td>Ohio</td><td>J. STEWART/nr</td></tr><tr><td>Unit:</td><td>WI/1</td></tr><tr><td>EZ:</td><td>3654</td></tr><tr><td>Date:</td><td>15 AUG '66</td></tr></table>

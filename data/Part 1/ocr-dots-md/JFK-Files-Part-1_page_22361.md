@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22361.png
-
-Convert to Markdown- Another phase of the preparations would have been KOSEKUO's actual and consumable participation in operations, greatly as a KGB officer. Presumably this would be done so that Westerners (e.g., BARGHOORN, TRIppEL, and W.E. JOHNSON) could certify that they had seen KOSENKO in some such role.*
+- Another phase of the preparations would have been KOSEKUO's actual and consumable participation in operations, greatly as a KGB officer. Presumably this would be done so that Westerners (e.g., BARGHOORN, TRIppEL, and W.E. JOHNSON) could certify that they had seen KOSENKO in some such role.*
 
 - The KGB presumably would have restricted the number of its officers aware of some or all of the operational plan; it would nonetheless be faced with the problem of how public knowledge of KOSENKO'S defection might affect others in the service. KGB officers abroad uninformed of the operational plan might be indiscreet with foreigners, in meeting Western double agents, or before microphones in their homes and offices, making such remarks as "I never heard of this man KOSENIKO" or speculating close to the mark. Thus the KGB might have tried to support the false fides of KOSENKO.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14663.png
-
-Convert to Markdown# SPECIAL INVESTIGATIVE DIVISION
+# SPECIAL INVESTIGATIVE DIVISION
 ## FUGITIVE SECTION
 
 Cassius Marcellus Clay

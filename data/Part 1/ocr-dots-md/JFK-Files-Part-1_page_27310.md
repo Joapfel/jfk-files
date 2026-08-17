@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27310.png
-
-Convert to MarkdownSECRET
+SECRET
 
 22 June 1961
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5014.png
-
-Convert to MarkdownThe general feeling of a future military takeover in the U.S.
+The general feeling of a future military takeover in the U.S.
 
 Proposed delegates to the National Steering Committee Meeting.
 

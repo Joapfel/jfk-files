@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28531.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">OLD SALARY RATE</th><th rowspan="2">Grade</th><th rowspan="2">Step</th><th rowspan="2">Salary</th><th rowspan="2">Last Date</th></tr><tr><th>Grade</th><th>Step</th><th>Salary</th></tr></thead><tbody><tr><td>14</td><td>2</td><td>$12,670</td><td>12/13/60</td><td>14</td><td>3</td><td>$12,730</td><td>06/11/61</td></tr></tbody></table>
+<table><thead><tr><th colspan="4">OLD SALARY RATE</th><th rowspan="2">Grade</th><th rowspan="2">Step</th><th rowspan="2">Salary</th><th rowspan="2">Last Date</th></tr><tr><th>Grade</th><th>Step</th><th>Salary</th></tr></thead><tbody><tr><td>14</td><td>2</td><td>$12,670</td><td>12/13/60</td><td>14</td><td>3</td><td>$12,730</td><td>06/11/61</td></tr></tbody></table>
 
 IN ACCORDANCE WITH THE PROVISIONS OF P. L. 86-568 AND DGI MEMO DATED 1 AUGUST 1956, SALARY IS ADJUSTED AS FOLLOWS EFFECTIVE 10 JULY 1960.
 

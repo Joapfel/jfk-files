@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6824.png
-
-Convert to MarkdownJune 14, 1966
+June 14, 1966
 
 MR. TOLSON:
 

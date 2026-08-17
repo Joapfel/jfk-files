@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3155.png
-
-Convert to Markdown1767
+1767
 
 Senator Hart of Michigan. Well, we have differing
 views with respect to motives and the purpose of the Panther

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25870.png
-
-Convert to MarkdownThe RCMP Liaison Office
+The RCMP Liaison Office
 2450 Massachusetts Ave. N.W.
 Washington, D.C. 20008
 

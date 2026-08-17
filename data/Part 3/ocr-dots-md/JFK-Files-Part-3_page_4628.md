@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4628.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 living but in his opinion she probably had a boyfriend who kept her, that she did a bit of traveling with her boyfriend but always returned to visit her children.
 

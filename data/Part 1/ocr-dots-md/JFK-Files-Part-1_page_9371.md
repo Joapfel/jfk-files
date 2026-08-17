@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9371.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9 August 1980
 

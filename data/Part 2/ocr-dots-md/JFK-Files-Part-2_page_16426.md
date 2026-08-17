@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16426.png
-
-Convert to MarkdownHMH
+HMH
 
 10
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33669.png
-
-Convert to MarkdownSECRET
+SECRET
 
 b. All cables bearing on the subject be coordinated with PT Division, or that branch having responsibility for RCPE problems.
 

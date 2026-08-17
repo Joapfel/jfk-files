@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6970.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="3">5-88 (2-20-58)</td>
     </tr>

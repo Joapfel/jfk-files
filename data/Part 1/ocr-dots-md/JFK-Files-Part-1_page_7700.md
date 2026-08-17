@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7700.png
-
-Convert to Markdown55). Ralph WIEGANDT (P-225-1), German who came to Mexico in 1955 and has paint factory, member of French Club.
+55). Ralph WIEGANDT (P-225-1), German who came to Mexico in 1955 and has paint factory, member of French Club.
 
 On 13 Mar 1967 Mrs. Ruth WIEGANDT, using the familiar form of address with Subject, invited Subject and his wife to Sunday dinner (1). In April 1967 it was reported that Subject was quite friendly with the WIEGANDTs at the Franch Club (15).
 

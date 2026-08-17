@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12221.png
-
-Convert to MarkdownIN 06/1103
+IN 06/1103
 
 TDFR DB-915/17256-76
 

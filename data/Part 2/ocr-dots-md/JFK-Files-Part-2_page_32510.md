@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32510.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. <u>Control of Movement of Cuban Propaganda</u>
 

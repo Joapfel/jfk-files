@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31521.png
-
-Convert to MarkdownSECRET
+SECRET
 
 11 July 1952
 

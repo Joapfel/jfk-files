@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17955.png
-
-Convert to MarkdownNR Ø2 SD COD ED
+NR Ø2 SD COD ED
 
 12:11AM MARCH 26, 1975 NITEL GDF
 

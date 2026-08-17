@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12548.png
-
-Convert to Markdownc. U. S. Government employees
+c. U. S. Government employees
 
 These subjects are of special interest to Department of Justice.
 

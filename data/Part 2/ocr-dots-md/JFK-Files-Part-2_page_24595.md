@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24595.png
-
-Convert to MarkdownCastro death contingency under a category comprising subjects not involving U.S. initiatives, e.g., "occurrence of revolt or repression in the manner of Hungary", attributable interference by Castro in other countries", and "the reintroduction of offensive weapons". (Bundy Ex. 6-G, 4/29/63).
+Castro death contingency under a category comprising subjects not involving U.S. initiatives, e.g., "occurrence of revolt or repression in the manner of Hungary", attributable interference by Castro in other countries", and "the reintroduction of offensive weapons". (Bundy Ex. 6-G, 4/29/63).
 
 After the meeting of April 23, 1963, the Standing Group assigned to CIA's Office of National Estimates* the task of estimating possible developments if Castro should die. (Bundy Ex. 6-H, Memorandum for Members of the Standing Group, May 2, 1963).
 

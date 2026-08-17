@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31666.png
-
-Convert to Markdown# FAIR PLAY FOR CUBA COMMITTEE, BAY AREA CHAPTER, also known as Bay Area Fair Play for Cuba Committee (BAFPCC)
+# FAIR PLAY FOR CUBA COMMITTEE, BAY AREA CHAPTER, also known as Bay Area Fair Play for Cuba Committee (BAFPCC)
 
 The "New York Times" newspaper on November 20, 1960 carried an article captioned "Pro-Castro Body Reports U.S. Gain," which reported that the Fair Play for Cuba Committee (FPCC) had 5,000 paid-up members in the United States. The article declared that the FPCC had headquarters at 799 Broadway, New York City, New York, and had chapters in other cities including one in San Francisco.
 

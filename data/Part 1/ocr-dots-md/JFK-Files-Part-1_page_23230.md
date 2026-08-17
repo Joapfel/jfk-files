@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23230.png
-
-Convert to MarkdownJournalistic - AGV p. 4
+Journalistic - AGV p. 4
 
 b) The security aspects of the Dallas corporation were very good I believe. Since freelance writing at best is considered a weak cover, this corporation connection gave me a more solid standing with more serious creditors such as landlords, banks and the larger merchandizing houses. In addition to the above, this cover was utilized very conveniently in operational instances where a realistic approach story was needed. Communists were approached on the basis of a political polling - this could be narrowed right down to soliciting information on the communist party as a political party. Again, it was always nice to have a business card with addresses and telephone numbers that could be given as immediate reference to any type of security interrogation.
 

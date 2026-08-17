@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23484.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE
+SENATE SELECT COMMITTEE ON INTELLIGENCE
 CONCLUDING REMARKS
 
 You will, I hope, permit me some personal, but I think not unimportant observations. I hope that you will complete your work as expeditiously as possible as I feel very strongly the need for a viable Central Intelligence Agency operating, of course, within its charter. I believe that the present furor about C.I.A. is impeding it in the performance of its mission and the sooner it is able to go about its business, not in a fish bowl, the better our country will be served. I believe that we will continue to need effective, intelligent collection and analysis for our policy makers and I think there will be occasions when covert activities should be undertaken in the interests of our National security.

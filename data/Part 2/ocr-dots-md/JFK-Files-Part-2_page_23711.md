@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23711.png
-
-Convert to Markdownthat.
+that.
 
 Mr. Aaron. I think that's a fair point. The question, I guess, the case at which the certification would run most would add to what already is in the sentence preceding it which is review by the Committee which the Attorney General is to chair, would be the case in which the Attorney General is aware of a particular activity, is aware that it is illegal but just doesn't do anything about it on the theory that it is somebody else's business. And he doesn't really, he doesn't have an obligation in this category of matters to render a judgment and bring it to the attention of the President or the Congress.
 

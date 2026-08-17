@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1666.png
-
-Convert to Markdown97-NO-APRQ FORM NO. 84
+97-NO-APRQ FORM NO. 84
 
 # Office Memorandum • UNITED STATES GOVERNMENT
 

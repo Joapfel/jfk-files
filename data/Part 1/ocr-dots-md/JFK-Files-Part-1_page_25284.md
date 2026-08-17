@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25284.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HOT-2038
 Page 11

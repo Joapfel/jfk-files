@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9756.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # CABLE SECRETAP AT DISSEMINATION:
 

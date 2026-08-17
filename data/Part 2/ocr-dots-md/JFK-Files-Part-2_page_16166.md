@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16166.png
-
-Convert to MarkdownFED-052 (Rev. 1/85-64)
+FED-052 (Rev. 1/85-64)
 
 Date February 18, 1970
 

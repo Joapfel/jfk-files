@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11019.png
-
-Convert to MarkdownJanuary 29, 1960
+January 29, 1960
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 112

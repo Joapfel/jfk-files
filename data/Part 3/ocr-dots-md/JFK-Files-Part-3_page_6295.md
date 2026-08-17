@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6295.png
-
-Convert to Markdown# FBI Relationships with the Senate and House Select Committees
+# FBI Relationships with the Senate and House Select Committees
 
 ## Senate Select Committee
 

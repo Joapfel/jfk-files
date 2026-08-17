@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26243.png
-
-Convert to MarkdownSECRET
+SECRET
 
 It has meant too that the State Department, often apprised of an
 operation only in its later stages, is under great pressure to

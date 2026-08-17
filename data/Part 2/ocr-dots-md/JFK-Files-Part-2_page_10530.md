@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10530.png
-
-Convert to MarkdownMEMORANDUM FOR: Executive Director/Comptroller
+MEMORANDUM FOR: Executive Director/Comptroller
 
 VIA : Acting Deputy Director for Plans
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6524.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Director, Domestic Contact Service
 ATTN: Support Division/Alien Branch (Neagoy)

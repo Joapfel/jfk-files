@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6344.png
-
-Convert to MarkdownCSI-0319/95
+CSI-0319/95
 
 8 March 1995
 

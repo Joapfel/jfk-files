@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4858.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On October 2, 1967, MM T-4 advised that NORMAN ROTHMAN travelled to Las Vegas, Nevada on September 27, 1967, for the purpose of meeting with EDHUMMELSTEIN and GENEEDWIN, both of Memphis, Tennessee. HUMMELSTEIN is the president and founder of Faith Memphis Plates, while EDWIN is a building contractor in that city. This trio met for the purpose of finalizing the organization of junket flights to the New Frontier Hotel and Casino, Las Vegas, Nevada. They will be equal partners with one-third each, however, ROTHMAN will not be carried on the books as a member of this organization.
 

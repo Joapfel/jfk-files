@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35682.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">MESSAGE FORM<br/>TOTAL COPY:</td>
     <td><table border="1"><thead><tr><th>Routing AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>1</td><td>8</td></tr><tr><td>2</td><td>9</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table></td>

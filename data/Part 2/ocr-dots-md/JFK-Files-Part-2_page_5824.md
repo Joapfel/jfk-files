@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5824.png
-
-Convert to MarkdownCSI-0331/93
+CSI-0331/93
 
 25 October 1993
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26175.png
-
-Convert to Markdownmeal or something, and had some way of
+meal or something, and had some way of
 dampening a fattening the most emotional irritations
 that would take place, just how out of people
 being seemed polite at the time so the content

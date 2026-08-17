@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13924.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. McCone referred to the Vietnam situation as being very bad, with a disintegration of relations between the Diem regime and the Vietnamese and the U. S. The situation is so bad we may have to get out of the war. The U. S. could live with Diem's antagonism but he has lost popular support and winning the war would be a hollow victory. The U. S. has had no success in getting Diem to mend his policy. The shooting into a crowd of Buddhists and the deaths of 8 of them began an impossible situation, and the August raids on the pagodas were the last straw. If the Diem regime were to be disposed of, there's no one to replace him, and even though a military coup were pulled off; CIA does not believe it could stay in power. CIA is maintaining contact with the military to keep watch on them (but there is no CIA support as has been publicly alleged).
 

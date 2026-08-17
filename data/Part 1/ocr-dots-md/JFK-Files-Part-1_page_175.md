@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_175.png
-
-Convert to Markdown22 NOV 1968
+22 NOV 1968
 
 **MEMORANDUM FOR:** Deputy Director for Plans
 **THROUGH:** Assistant Deputy Director for Plans

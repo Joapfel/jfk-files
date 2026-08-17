@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1620.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NAME OF EMPLOYEE (Last, First, Middle)</td><td>NAME AND RELATIONSHIP OF DEPENDENT*</td><td>CLAIM NUMBER</td></tr><tr><td>WOODS, JAMES S.</td><td>SELF</td><td>70-0961</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6534.png
-
-Convert to Markdown(b) Exploit the presence of the Red Army in Cuba by driving a wedge between the Soviet soldier instructors and the Cuban population. Efforts to attain this objective would include the use of live double agents, planted rumors, incidents created by guerrilla insurgents, and propaganda designed to identify the hardship of the peasant with the Soviet invasion.
+(b) Exploit the presence of the Red Army in Cuba by driving a wedge between the Soviet soldier instructors and the Cuban population. Efforts to attain this objective would include the use of live double agents, planted rumors, incidents created by guerrilla insurgents, and propaganda designed to identify the hardship of the peasant with the Soviet invasion.
 
 (c) Developing action plans for Cubans to kidnap, harass and destroy Russian technicians. Offer rewards, through slandestine sources, for destruction of Russian personnel.
 

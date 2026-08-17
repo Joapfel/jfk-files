@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26996.png
-
-Convert to Markdown178-10003-10016
+178-10003-10016
 
 30 August 1962
 

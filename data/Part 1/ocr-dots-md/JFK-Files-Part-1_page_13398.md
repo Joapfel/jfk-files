@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13398.png
-
-Convert to MarkdownSECRET
+SECRET
 
 201 No. 234658
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22490.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The following grey areas were delineated by Papich:
 

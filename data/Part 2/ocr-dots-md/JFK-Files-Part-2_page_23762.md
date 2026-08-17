@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23762.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 WIND PAUL
 

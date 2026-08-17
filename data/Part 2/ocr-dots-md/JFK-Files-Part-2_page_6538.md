@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6538.png
-
-Convert to Markdownd. Troop Information Program
+d. Troop Information Program
 
 Expand greatly the current Latin American troop information program in order to educate the Latin American servicemen (and their civilian contemporaries) to the subversive danger they face.
 

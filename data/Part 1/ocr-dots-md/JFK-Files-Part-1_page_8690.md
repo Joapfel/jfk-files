@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8690.png
-
-Convert to Markdown14-00009
+14-00009
 
 8.06 Cuando oye un nombre por primera vez
 

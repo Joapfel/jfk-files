@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34689.png
-
-Convert to Markdownto UFGA-27636, 22May67
+to UFGA-27636, 22May67
 
 Miami, May 7, 1967
 

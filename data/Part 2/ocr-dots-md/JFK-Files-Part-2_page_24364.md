@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24364.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # CIA Domestic Real Property Summary Sheet
 

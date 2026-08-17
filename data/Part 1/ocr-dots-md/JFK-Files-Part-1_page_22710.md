@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22710.png
-
-Convert to MarkdownCuban Asks to Be Snot For Plot to Kill Castro
+Cuban Asks to Be Snot For Plot to Kill Castro
 
 HAVANA (AP) — A former Cuban army major has asked a revolutionary tribunal to sentence him to death because he agreed to shoot Prime Minister Fidel Castro.
 

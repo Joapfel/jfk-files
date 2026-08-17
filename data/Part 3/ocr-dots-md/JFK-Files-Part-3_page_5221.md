@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5221.png
-
-Convert to MarkdownPART E. TITLE III OF THE OMNIBUS CRIME CONTROL AND SAFE
+PART E. TITLE III OF THE OMNIBUS CRIME CONTROL AND SAFE
 STREETS ACT OF 1968
 
 1. All agents assigned to Squad #4, handling CIP matters, are thoroughly familiar with all aspects of Title III.

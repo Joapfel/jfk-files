@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15059.png
-
-Convert to MarkdownMr. Loo H. Poller
+Mr. Loo H. Poller
 Assistant Attorney General for Administration
 
 February 6, 1983

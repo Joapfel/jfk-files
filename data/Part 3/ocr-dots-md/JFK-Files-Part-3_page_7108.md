@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7108.png
-
-Convert to Markdown2. All agreements on jurisdiction or operational authority between the CIA and other U.S. intelligence and law enforcement agencies.
+2. All agreements on jurisdiction or operational authority between the CIA and other U.S. intelligence and law enforcement agencies.
 
 3. All legal opinions, memoranda or other materials analyzing the 1947 and 1949 Acts, Executive Orders or National Security Intelligence Directives in regard to:
    (a) the authority of CIA to conduct covert actions

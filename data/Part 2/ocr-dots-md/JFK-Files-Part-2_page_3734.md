@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3734.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 7
 

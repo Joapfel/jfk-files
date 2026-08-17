@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13219.png
-
-Convert to Markdown-Is Clemente Peustino ROSA Carriles Army Serial No. C 2 312 445
+-Is Clemente Peustino ROSA Carriles Army Serial No. C 2 312 445
 
 Jg: 15 Feb 1928 Third Army Control Symbol: AB 517726
 

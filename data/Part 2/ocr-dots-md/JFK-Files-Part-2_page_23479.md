@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23479.png
-
-Convert to MarkdownSECRET - ENDS ONLY
+SECRET - ENDS ONLY
 
 notice before any OAS committee actually visited Guatemala and that it might be possible even then to avoid actual investigation on the spot. Mr. Bissell said that if we do have a week, evacuation could be carried out by Agency aircraft; if more speed is required DOD assistance might be necessary. Mr. Douglas, with Mr. Dulles and Mr. Bissell concurring, felt that the possibility of emergency evacuation to Florida under the guise of ordinary refugees should be kept in mind.)
 

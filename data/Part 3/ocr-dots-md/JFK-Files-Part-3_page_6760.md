@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6760.png
-
-Convert to Markdown630b N. Lakewood
+630b N. Lakewood
 Chicago, Ill. 60626
 
 April 17, 1967

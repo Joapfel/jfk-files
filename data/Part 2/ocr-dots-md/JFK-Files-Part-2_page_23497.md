@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23497.png
-
-Convert to MarkdownAfter the BAY OF PIGS, Gray called President EISENHOWER and offered to show him all of the memos that Gray had prepared on Presidential meetings on Cuba. Gray said that JOHN EISENHOWER obtained the memos and brought them to Gettysburg. Gray and President EISENHOWER reviewed the memos. Gray said that the President objected to the word "planning" in reference to a Cuban invasion, on the basis that there was no actual military planning. EISENHOWER suggested that the page should be retyped to change the word "planning". Gray said they did retype the page.
+After the BAY OF PIGS, Gray called President EISENHOWER and offered to show him all of the memos that Gray had prepared on Presidential meetings on Cuba. Gray said that JOHN EISENHOWER obtained the memos and brought them to Gettysburg. Gray and President EISENHOWER reviewed the memos. Gray said that the President objected to the word "planning" in reference to a Cuban invasion, on the basis that there was no actual military planning. EISENHOWER suggested that the page should be retyped to change the word "planning". Gray said they did retype the page.
 
 Gray said that although in his mind and EISENHOWER's, there was no military "planning", definitely EISENHOWER knew that Cuban exiles were being trained for an amphibious landing in Cuba.
 

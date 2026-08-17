@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31894.png
-
-Convert to MarkdownSECRET
+SECRET
 
 KAN: 22 JULY 76
 

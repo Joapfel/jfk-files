@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2738.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>CS-6</td>

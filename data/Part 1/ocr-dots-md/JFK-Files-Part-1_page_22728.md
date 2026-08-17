@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22728.png
-
-Convert to Markdown13. Subject cannot be expected to devote any major portion of his time to our work until he has built up his cover and is oriented in his new surroundings. Although fluent in the language, he will probably encounter a good deal of new terminology.
+13. Subject cannot be expected to devote any major portion of his time to our work until he has built up his cover and is oriented in his new surroundings. Although fluent in the language, he will probably encounter a good deal of new terminology.
 
 14. Subject has entered into a tentative oral contract to perform services for us for a salary of $50.00 per month. This can be made into a written contract at any time.
 

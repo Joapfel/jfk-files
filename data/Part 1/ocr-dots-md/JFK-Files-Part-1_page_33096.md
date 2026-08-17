@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33096.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">SECRET</th></tr></thead><tbody><tr><td>ORIG:</td><td></td></tr><tr><td>UNIV:</td><td></td></tr><tr><td>TXT:</td><td></td></tr><tr><td>DATE:</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">SECRET</th></tr></thead><tbody><tr><td>ORIG:</td><td></td></tr><tr><td>UNIV:</td><td></td></tr><tr><td>TXT:</td><td></td></tr><tr><td>DATE:</td><td></td></tr></tbody></table>
 
 <table><tbody><tr><td colspan="3">S E C R E T</td></tr><tr><td>CASE SECRETARY DISSEMINATION</td><td>INDEX ☐</td><td>RETURN TO ____________ BRANCH ☐ FILE 210</td></tr><tr><td>BY ____ PER ____</td><td>DESTROY ☐</td><td>FILE IN CG FILE NO.</td></tr><tr><td rowspan="2">CONF:</td><td>NO INDEX ☐</td><td></td></tr><tr><td>RID COPY</td><td>INFO: FILE VR</td></tr></tbody></table>
 

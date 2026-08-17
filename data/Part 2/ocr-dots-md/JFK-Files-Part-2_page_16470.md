@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16470.png
-
-Convert to Markdown# IN DEFENSE OF SELF DEFENSE
+# IN DEFENSE OF SELF DEFENSE
 
 By Huey P. Newton
 

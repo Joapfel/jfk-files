@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15936.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 United States Attorney, Office of Special
 Investigation, 113th MI Group, Region 1, Evanston,

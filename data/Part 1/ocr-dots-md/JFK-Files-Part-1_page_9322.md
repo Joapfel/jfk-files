@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9322.png
-
-Convert to Markdown14-00000
+14-00000
 
 Re "Stalin" Photos
 ---

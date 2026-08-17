@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6835.png
-
-Convert to MarkdownSECRET/MOFORN
+SECRET/MOFORN
 CONTINUED CONTROL
 
 e) A letter from Victor Bellance Ltd., signed by Hilary REDMOND and dated 29 September, is in answer to an order placed by Subject's wife.

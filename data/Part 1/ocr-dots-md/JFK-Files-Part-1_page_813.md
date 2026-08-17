@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_813.png
-
-Convert to Markdown14,000.00
+14,000.00
 
 CONTINUATION OF
 DISPATCH

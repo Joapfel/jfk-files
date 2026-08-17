@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_77.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HONG KONG
 

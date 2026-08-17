@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10810.png
-
-Convert to Markdowny er a esta ciu-
+y er a esta ciu-
 
 “del Pino,
 

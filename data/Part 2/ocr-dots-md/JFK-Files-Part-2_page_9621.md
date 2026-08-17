@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9621.png
-
-Convert to Markdown1. Use deceptive measures. SubSCRIBE to one or more left-wing periodicals or get on the mailing list of some "peace movement". This will keep the postal specotrs guessing as to which side you are really on. While doing this our members can be of great assistance in searching this left-wing literature for names and addresses of fellow travelers and forwarding this information for our Central Intelligence files. We desperately need people to assist in this work. Please inquire as to detailed instructions for such activity.
+1. Use deceptive measures. SubSCRIBE to one or more left-wing periodicals or get on the mailing list of some "peace movement". This will keep the postal specotrs guessing as to which side you are really on. While doing this our members can be of great assistance in searching this left-wing literature for names and addresses of fellow travelers and forwarding this information for our Central Intelligence files. We desperately need people to assist in this work. Please inquire as to detailed instructions for such activity.
 
 2. Always use two envelopes in sending mail to any patriotic organizations or to any other member of our own organization. Do not put a return address on the outer envelope. Put your return address on the inside envelope with the words, "return postage guaranteed".
 

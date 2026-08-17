@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11308.png
-
-Convert to MarkdownFederal Bureau of Investigation
+Federal Bureau of Investigation
 COMMUNICATIONS SECTION
 
 MAR 25 1975

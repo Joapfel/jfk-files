@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27213.png
-
-Convert to MarkdownG-C-H Files
+G-C-H Files
 
 F. Plans Staff
 

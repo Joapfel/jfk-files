@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29389.png
-
-Convert to MarkdownSECRET (When Filled In)
+SECRET (When Filled In)
 
 OFFICE OF COMMUNICATIONS
 

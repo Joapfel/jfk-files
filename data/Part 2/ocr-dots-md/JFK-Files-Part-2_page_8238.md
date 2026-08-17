@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8238.png
-
-Convert to MarkdownB. The WPC awarded the JOLIOT-CURIE GOLD MEDAL posthumously to the Reverend Martin Luther KING. The medal was accepted by the Reverend Ralph ABERNATHY and the Reverend Wyatt T. WALKER, "an American peace fighter." A photograph of the presentation ceremony also included William DOUTHARD and Mrs. Addie WYATT as U.S. delegates to the Conference;
+B. The WPC awarded the JOLIOT-CURIE GOLD MEDAL posthumously to the Reverend Martin Luther KING. The medal was accepted by the Reverend Ralph ABERNATHY and the Reverend Wyatt T. WALKER, "an American peace fighter." A photograph of the presentation ceremony also included William DOUTHARD and Mrs. Addie WYATT as U.S. delegates to the Conference;
 
 C. U.S. delegates Ruth GAGE-COLBY and Sylvia KUSHNER spoke at a meeting of Indochinese and American delegates; and
 

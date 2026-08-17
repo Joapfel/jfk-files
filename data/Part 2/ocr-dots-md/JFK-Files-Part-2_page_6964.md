@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6964.png
-
-Convert to MarkdownREP. HASTERT: Okay, thank you very much.
+REP. HASTERT: Okay, thank you very much.
 The gentleman from Ohio.
 
 REP. STEVEN LATOURETTE (R-OH): Thank you, Mr. Chairman. Mr. Chairman, I want to thank you for having this hearing today and for also expediting the markup on 1553, and give praise to the co-sponsors, our chairman, Mr. Burton, Mr. Waxman, and also to Congressman Stokes.

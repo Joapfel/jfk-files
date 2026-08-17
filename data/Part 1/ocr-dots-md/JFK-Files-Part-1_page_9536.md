@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9536.png
-
-Convert to MarkdownADDRESS 9 B. 16th St. New York City
+ADDRESS 9 B. 16th St. New York City
 
 St & No.
 Newspaper

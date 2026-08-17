@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25206.png
-
-Convert to MarkdownMW 50955
+MW 50955
 
 DocID:32423615 Page 95
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30068.png
-
-Convert to Markdown<html><body>DO NOT WRITE IN THIS SPACE</body></html>
+<html><body>DO NOT WRITE IN THIS SPACE</body></html>
 
 APPLICATION NO.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30541.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 **Additional Motivation**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21959.png
-
-Convert to MarkdownD. Coup Planning and Attempts After October 15
+D. Coup Planning and Attempts After October 15
 
 The decision to "de-fuse" General Viaux was passed to Viaux's (father-in-law) on October 17. The (in-law) responded that it did not matter because they had decided to proceed with the coup in any case.
 

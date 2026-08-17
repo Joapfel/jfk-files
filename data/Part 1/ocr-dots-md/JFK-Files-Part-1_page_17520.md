@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17520.png
-
-Convert to MarkdownPROJECT LIFEAT
+PROJECT LIFEAT
 
 PROJECT OUTLINE, PART II
 

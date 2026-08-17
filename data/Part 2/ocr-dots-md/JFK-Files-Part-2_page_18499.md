@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18499.png
-
-Convert to Markdownsurveillances in operation on, thirty days before,
+surveillances in operation on, thirty days before,
 and thirty days after testimony by the Director be-
 fore the House Appropriations Committee from 1965. to
 the present.)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16789.png
-
-Convert to Markdown7. CIGET - Subject, the youngest of the five group, is a very intelligent, broad and comprehensive young man. He possesses considerable variety, intensive and imagination, and on numerous occasions came up with ideas on proposed exercises. His written composition were well prepared, and he is a good boy in the field problems. Given his youth, he should be given to find unnecessary risks, but it is believed him with some experience and time he will make an excellent officer. Like all men and others, in accepts criticism normally and on all occasions when observed by the matter of course adding well what has fellow workers.
+7. CIGET - Subject, the youngest of the five group, is a very intelligent, broad and comprehensive young man. He possesses considerable variety, intensive and imagination, and on numerous occasions came up with ideas on proposed exercises. His written composition were well prepared, and he is a good boy in the field problems. Given his youth, he should be given to find unnecessary risks, but it is believed him with some experience and time he will make an excellent officer. Like all men and others, in accepts criticism normally and on all occasions when observed by the matter of course adding well what has fellow workers.
 
 6. COMMENTS
 

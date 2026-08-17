@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6529.png
-
-Convert to MarkdownThis involves action taken in response to specific needs, as during the 1962 attempts to export Cuban revolutionaries to Central America. These were countered, and probably aborted, by the presence of U.S. Navy destroyers patrolling the coastal areas of Costa Rica at the request of the government of that country.
+This involves action taken in response to specific needs, as during the 1962 attempts to export Cuban revolutionaries to Central America. These were countered, and probably aborted, by the presence of U.S. Navy destroyers patrolling the coastal areas of Costa Rica at the request of the government of that country.
 
 ### (4) Overflight.
 

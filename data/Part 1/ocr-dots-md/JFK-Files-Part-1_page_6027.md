@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6027.png
-
-Convert to MarkdownD. R. E.
+D. R. E.
 
 DIRECTORIO REVOLUCIONARIO ESTUDIANTIL
 

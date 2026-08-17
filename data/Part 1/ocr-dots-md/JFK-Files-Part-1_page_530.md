@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_530.png
-
-Convert to Markdown14-00000
+14-00000
 
 led her. There is a part of her normally conservative
 character that would like to break away and try new things

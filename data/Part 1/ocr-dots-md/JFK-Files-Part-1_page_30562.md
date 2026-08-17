@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30562.png
-
-Convert to Markdown6 January 1948
+6 January 1948
 
 MEMORANDUM:
 

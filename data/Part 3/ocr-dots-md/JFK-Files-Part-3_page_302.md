@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_302.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## BLACK PANTHER PARTY
 Formerly Known As

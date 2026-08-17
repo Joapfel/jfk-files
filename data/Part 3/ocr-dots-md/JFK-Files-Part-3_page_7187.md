@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7187.png
-
-Convert to MarkdownSECRET
+SECRET
 
 THE ROLE OF COUNTERINTELLIGENCE
 

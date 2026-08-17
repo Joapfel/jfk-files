@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2097.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FORM DSP-14</td>
     <td>BUDO EAU NO. 47-MO71.3<br/>APPROVED EXPIRES August 31, 1954</td>

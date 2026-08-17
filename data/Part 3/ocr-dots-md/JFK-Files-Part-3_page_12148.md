@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12148.png
-
-Convert to MarkdownI have noted the Inspector's comments and I will continue to provide the type of direction and supervision to which those comments are directed.
+I have noted the Inspector's comments and I will continue to provide the type of direction and supervision to which those comments are directed.
 
 Section Chief W. A. Branigan
 (1/22/71 - WAB:hke)

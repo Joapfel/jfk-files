@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9180.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 17 May 1945
 

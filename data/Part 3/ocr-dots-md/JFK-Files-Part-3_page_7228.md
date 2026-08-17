@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7228.png
-
-Convert to MarkdownJ. B. ADAMS
+J. B. ADAMS
 DEPUTY ASSOCIATE DIRECTOR
 
 2/12/75

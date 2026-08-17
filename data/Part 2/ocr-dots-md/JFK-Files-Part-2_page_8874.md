@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8874.png
-
-Convert to Markdown104-10528-10053
+104-10528-10053
 
 <table><tr><td colspan="4">SECRET</td></tr><tr><td>Orig:</td><td>STEPHEN I. MUNGER/AVH</td><td></td><td></td></tr><tr><td>Unit:</td><td>DC/WE/4/X</td><td></td><td></td></tr><tr><td>Ext:</td><td>5559</td><td></td><td></td></tr><tr><td>Date:</td><td colspan="3">30 SEP 1963</td></tr><tr><td>To:</td><td colspan="3">MEXICO ROME WAVE</td></tr><tr><td>From:</td><td colspan="3">DIRECTOR</td></tr><tr><td>CONF:</td><td colspan="3">CANE 2</td></tr><tr><td>INFO:</td><td colspan="3">DDP, ADDP, C/CI, C/FI 2, C/WH 5, C/SAS 5, RF, VR</td></tr><tr><td>CIT DIR</td><td colspan="3">72347</td></tr></table>
 

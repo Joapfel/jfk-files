@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13641.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 gone into the sabotage attempts, MONGODB, etc., and found out
 2 that Bobby Kennedy did play a role in the sabotage attempts.

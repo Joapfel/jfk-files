@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5674.png
-
-Convert to MarkdownSECRET
+SECRET
 
 references in summaries to the founding of the station and, most important, the visit by the HSCA to Mexico City.
 

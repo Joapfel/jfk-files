@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6906.png
-
-Convert to Markdown662 ER/
+662 ER/
 
 CLASSIFIED MESSAGE
 

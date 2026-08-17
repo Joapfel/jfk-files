@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15213.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 TO : W. C. Sullivan
 FROM : S. B. Donahoe

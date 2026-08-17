@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12637.png
-
-Convert to Markdownof the general subject areas and periods of employment in which
+of the general subject areas and periods of employment in which
 the Committee is primarily interested. The agency will then check
 the subject's personnel history file and advise the Committee of
 any exceptionally sensitive aspects of the subject's employment

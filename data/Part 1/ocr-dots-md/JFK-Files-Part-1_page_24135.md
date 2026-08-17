@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24135.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Volta. I can't know, sir.
 

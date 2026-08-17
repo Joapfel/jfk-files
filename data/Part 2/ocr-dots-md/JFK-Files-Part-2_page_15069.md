@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15069.png
-
-Convert to Markdownof Departmental attorneys and investigative personnel from
+of Departmental attorneys and investigative personnel from
 several different Federal investigative agencies. The FBI
 was invited to assign personnel but declined because of its
 overall commitments requiring utilization of all of its

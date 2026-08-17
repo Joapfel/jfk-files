@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19838.png
-
-Convert to MarkdownFEB 16 1972
+FEB 16 1972
 
 FOR CODE DE CODE
 6:07 PM URGENT 2-16-72 ETA

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5152.png
-
-Convert to Markdown15 NOV 1976
+15 NOV 1976
 
 MEMORANDUM FOR: Deputy Director of Central Intelligence
 

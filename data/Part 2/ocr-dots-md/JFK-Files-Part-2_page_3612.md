@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3612.png
-
-Convert to Markdown13-00000
+13-00000
 
 (Cont'd)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25186.png
-
-Convert to MarkdownSource: AENIGMAG/2
+Source: AENIGMAG/2
 Date acquired: September 1966
 
 Edward 'GHORRA', Lebanese Ambassador, 1960-63

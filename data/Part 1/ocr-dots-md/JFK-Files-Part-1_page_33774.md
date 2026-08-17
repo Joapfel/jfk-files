@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33774.png
-
-Convert to Markdownthose messages of friendship and hope for the peoples behind the Iron Curtain. By thus taking the offensive and putting the Communists on notice that this is a great expression of unanimity on the part of the American people — any attempt on the part of the Communists to deprecate or interfere with the program would lend itself to psychological warfare use. This coincides with General Clay's statement in his letter of February 14th to the various state chairmen.
+those messages of friendship and hope for the peoples behind the Iron Curtain. By thus taking the offensive and putting the Communists on notice that this is a great expression of unanimity on the part of the American people — any attempt on the part of the Communists to deprecate or interfere with the program would lend itself to psychological warfare use. This coincides with General Clay's statement in his letter of February 14th to the various state chairmen.
 
 We are not underestimating the magnitude of such an operation here or abroad. To gain the maximum psychological benefit, at least 100,000 balloons should be used. It could be a hard-hitting demonstration of the effectiveness of the Crusade for Freedom.
 

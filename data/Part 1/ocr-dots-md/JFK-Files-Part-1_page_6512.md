@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6512.png
-
-Convert to Markdown14-00000
+14-00000
 
 Office Memorandum of 1/7 · United States Central Intelligence Agency
 

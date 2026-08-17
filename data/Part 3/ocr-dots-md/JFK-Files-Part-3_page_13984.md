@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13984.png
-
-Convert to Markdownthere will be a meeting to discuss a new policy toward Cuba.
+there will be a meeting to discuss a new policy toward Cuba.
 
 In Answer to an inquiry from Dr. Land, General Carter said that Mr. Bundy has no deputy to act in his absence; that the DCI briefs the President on intelligence matters and Mr. Bundy briefs him on foreign policy matters; and that the White House staff has not seemed to have settled into any new mechanism since November 22. General Carter said that the President gets the CIA daily intelligence check list which is handed to the President by one or another member of the White House staff, not necessarily the same one each time. Also, CIA has added a weekly check list review, and it is understood that the President reads them. Mr. McCone sees the President at least twice a week and attends all policy meetings except on occasions when the DCI has to be absent, in which case General Carter attends in his stead.
 

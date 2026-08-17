@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7581.png
-
-Convert to MarkdownCONTACT REPORT
+CONTACT REPORT
 
 SUBJECT: LIROCKET-1
 DATE OF MEETING: 27 June 1967

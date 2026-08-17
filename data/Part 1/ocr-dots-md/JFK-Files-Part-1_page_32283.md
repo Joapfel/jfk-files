@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32283.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 JLB: 24 JUN 65

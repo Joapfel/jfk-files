@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5921.png
-
-Convert to Markdown10/04/ SOP 111
+10/04/ SOP 111
 
 SECRET
 

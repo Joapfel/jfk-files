@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9745.png
-
-Convert to MarkdownDecember 5, 1947
+December 5, 1947
 
 MEMORANDUM FOR MR. HOOVER,
 DIRECTOR, FEDERAL BUREAU OF INVESTIGATION

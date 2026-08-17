@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25393.png
-
-Convert to MarkdownRowan Tap
+Rowan Tap
 
 Rosselli said that he understood that Giancana had
 asked Maheu for a tap on Dan Rowan. Maheu gave

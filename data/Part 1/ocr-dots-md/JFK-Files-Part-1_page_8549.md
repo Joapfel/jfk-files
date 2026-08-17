@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8549.png
-
-Convert to MarkdownAugust 6, 1962
+August 6, 1962
 
 Contact Report
 

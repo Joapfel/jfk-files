@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25003.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 pretty much paralleled his thinking. And I had been quite
 contrary to Vice President Nixon's campaign on that issue

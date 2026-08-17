@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3000.png
-
-Convert to MarkdownSR/CI/Research Items for Warren Commission
+SR/CI/Research Items for Warren Commission
 
 1. 21 Jan. 1964 Questions to be submitted to the Soviet Government.
 2. 22 Jan. 1964 Questionnaire for Marina OSWALD.

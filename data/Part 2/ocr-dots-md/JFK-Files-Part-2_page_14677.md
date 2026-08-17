@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14677.png
-
-Convert to Markdownthe Manhattan and Brooklynsections of the
+the Manhattan and Brooklynsections of the
 American Labor Party but outside of New York
 City they have been unable to win control."
 

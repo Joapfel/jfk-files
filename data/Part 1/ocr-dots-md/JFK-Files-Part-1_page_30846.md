@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30846.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16 FEB 1972
 

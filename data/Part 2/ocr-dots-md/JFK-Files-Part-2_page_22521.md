@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22521.png
-
-Convert to MarkdownWiley stated that he learned from a former police- man who served under Batista that every G-2 station in Havana had cached 400 Czech machine guns and approximately two million rounds of ammunition. Source told Wiley that he knew this to be true because he had worked putting these items there. Wiley himself definitely discounts this story.
+Wiley stated that he learned from a former police- man who served under Batista that every G-2 station in Havana had cached 400 Czech machine guns and approximately two million rounds of ammunition. Source told Wiley that he knew this to be true because he had worked putting these items there. Wiley himself definitely discounts this story.
 
 Wiley reported that a source had obtained from another source who worked at this place that there were 200 Russian or East German (European) technicians at the Baracoa (ph) base.
 

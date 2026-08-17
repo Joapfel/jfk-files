@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3170.png
-
-Convert to MarkdownINTELLIGENCE ACTIVITY:
+INTELLIGENCE ACTIVITY:
 
 **January 1962 (In Quito):** observed casing a State Dept. building with the Cuban Commercial Attache in Quito. Close contact with Cuban diplomats and local CP leaders.
 

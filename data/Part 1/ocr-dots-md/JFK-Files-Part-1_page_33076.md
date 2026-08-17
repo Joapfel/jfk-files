@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33076.png
-
-Convert to MarkdownSECRET RYBAT TELEPOUCH
+SECRET RYBAT TELEPOUCH
 
 ORIGINATOR:
 

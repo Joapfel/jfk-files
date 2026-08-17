@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5349.png
-
-Convert to MarkdownRobert Chilton;
+Robert Chilton;
 Luther C. Fonner, Jr.;
 Jack Ferguson;
 Reed McWhorter;

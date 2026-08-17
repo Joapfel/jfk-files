@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5452.png
-
-Convert to MarkdownHTP-1067
+HTP-1067
 TDCSDB-315/02303-67
 
 <table>

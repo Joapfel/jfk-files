@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3713.png
-
-Convert to MarkdownThe Ambassador
+The Ambassador
 
 12 May 1969
 

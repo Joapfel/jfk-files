@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9692.png
-
-Convert to Markdown#6. Cancellation of the national debt immediately.
+#6. Cancellation of the national debt immediately.
 
 #7. Immediate elimination of foreign, Jewish and enemy control in banking and financing institutions.
 

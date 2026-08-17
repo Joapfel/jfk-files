@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3251.png
-
-Convert to Markdownhas merit in view of the limited amount of time the Attorney
+has merit in view of the limited amount of time the Attorney
 General can give to personal supervision and the after-the-fact
 role of legislative oversight regarding the separate agency.
 

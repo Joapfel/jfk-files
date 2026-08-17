@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3057.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 a paper outlining the Agency's thoughts on the programs
 which had been initiated against the Castro Govern-

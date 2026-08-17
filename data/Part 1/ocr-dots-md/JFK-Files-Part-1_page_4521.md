@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4521.png
-
-Convert to Markdown**SECRET /SENSITIVE**
+**SECRET /SENSITIVE**
 
 Director, Domestic Contact Service
 

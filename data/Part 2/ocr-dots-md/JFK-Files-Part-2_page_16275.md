@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16275.png
-
-Convert to Markdown# WALTER ALLEN
+# WALTER ALLEN
 
 ## APPENDIX
 

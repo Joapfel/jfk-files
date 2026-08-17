@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26140.png
-
-Convert to Markdownway down to the south. He probably wouldn't do it; he'd chew the wire in two here.
+way down to the south. He probably wouldn't do it; he'd chew the wire in two here.
 
 O'BRIEN: Oh my God. It's a wonder he hasn't electrified himself. [Laughter]
 

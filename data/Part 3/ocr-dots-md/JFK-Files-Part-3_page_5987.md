@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5987.png
-
-Convert to Markdown63-64-037-1-1
+63-64-037-1-1
 63-73-022-1-1
 
 offset by unclaimed depreciation on his automobile for that year. He will

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2994.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 VARLAMOVA, Inga 159, 167, 169
 VASSALL, William John C. 18, 23, 24, 30, 31, 110, 149

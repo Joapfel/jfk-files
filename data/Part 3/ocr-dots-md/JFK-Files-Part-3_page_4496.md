@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4496.png
-
-Convert to Markdownhe noticed the following described employees in the store.
+he noticed the following described employees in the store.
 
 1. A young man who worked behind the "wire cage" where merchandise was pounced, six feet, light colored hair, mid-20's.
 

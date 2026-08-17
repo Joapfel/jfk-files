@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16882.png
-
-Convert to Markdown9 March 1970
+9 March 1970
 
 TO : Case Officer
 

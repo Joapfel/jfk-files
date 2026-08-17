@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16590.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET I 221603Z JAN 71 CITE STOCKHOLM 1375
 

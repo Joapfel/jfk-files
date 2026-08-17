@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29085.png
-
-Convert to Markdown<table><tr><td>SCHEDULE<br>D<br>FORM 540</td></tr></table>
+<table><tr><td>SCHEDULE<br>D<br>FORM 540</td></tr></table>
 
 CALIFORNIA
 CAPITAL GAINS AND LOSSES

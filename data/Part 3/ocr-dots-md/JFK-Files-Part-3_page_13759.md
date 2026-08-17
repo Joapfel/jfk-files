@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13759.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Other Factors on Which Castro's Subversive Capability Will Depend
 

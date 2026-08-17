@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2900.png
-
-Convert to Markdown1 with respect to retention of such information, or do we need the clear guidelines on the destruction of these materials when the investigation purposes for which they were collected have been served?
+1 with respect to retention of such information, or do we need the clear guidelines on the destruction of these materials when the investigation purposes for which they were collected have been served?
 
 2 Mr. Kelley. We feel that there should be a good close look at the retention of material, and we would of course like to have an input. But we welcome consideration of this.
 

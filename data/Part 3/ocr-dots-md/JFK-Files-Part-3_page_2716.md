@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2716.png
-
-Convert to Markdown1912
+1912
 
 the meeting.
 

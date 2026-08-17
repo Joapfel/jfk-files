@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8165.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>DISPATCH</td><td>MARKED FOR INDEXING</td></tr><tr><td>Chief, Chief, Chief,</td><td>NO INDEXING REQUIRED<br/>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>FROM Chief,</td><td>MICROFILM</td></tr><tr><td>SCHEME</td><td></td></tr><tr><td>ACTION REQUIRED - CONFIDENTIAL</td><td>Kpl 9 Jul '68</td></tr></tbody></table>
 

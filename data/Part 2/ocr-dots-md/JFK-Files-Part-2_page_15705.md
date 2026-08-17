@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15705.png
-
-Convert to MarkdownGAN BY CHAIRMAN F
+GAN BY CHAIRMAN F
 SEND CHECKS OR M
 ORDERS
 

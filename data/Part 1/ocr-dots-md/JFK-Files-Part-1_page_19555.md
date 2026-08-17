@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19555.png
-
-Convert to Markdown# RESISTANCE AND DEPENDENCY REPORT
+# RESISTANCE AND DEPENDENCY REPORT
 
 ## Instructions
 

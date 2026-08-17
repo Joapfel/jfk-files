@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2973.png
-
-Convert to Markdown1911
+1911
 
 1. Senator Hart of Michigan. This is what should require us to rethink this whole business.
 2

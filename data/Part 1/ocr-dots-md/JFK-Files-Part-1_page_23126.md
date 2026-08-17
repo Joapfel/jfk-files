@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23126.png
-
-Convert to MarkdownGeorgia 123
+Georgia 123
 Mexico 18, D.P.
 XXXXXXXXXXXXXX
 XXXXXXXXXXXXXX

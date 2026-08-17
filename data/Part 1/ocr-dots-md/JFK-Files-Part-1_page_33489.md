@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33489.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">CABLE SEC DISEM BY L PER</td><td>TOTAL COPIES 33.1 RUN BY</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td>SECRET</td></tr><tr><td colspan="3">ADVANCE COPY ISSUED SLOTTED BY AT X</td><td rowspan="2"><table border="1" style="width:100%; border-collapse: collapse;"><tr><th colspan="2" style="text-align:center; padding:5px;">STAFF</th></tr><tr><td style="padding:5px;">1</td><td style="padding:5px;">4</td></tr><tr><td style="padding:5px;">2</td><td style="padding:5px;">3</td></tr><tr><td style="padding:5px;">3</td><td style="padding:5px;">6</td></tr></table></td></tr><tr><td>ACTION UNIT<br/>EUR 8</td><td>I N F O</td><td>RF FILE VR 19AN, SSS, SB8, WHS</td></tr><tr><td>ACTION #</td><td colspan="2"></td></tr></table>
 

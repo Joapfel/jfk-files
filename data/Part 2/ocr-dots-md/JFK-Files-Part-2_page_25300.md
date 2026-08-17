@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25300.png
-
-Convert to Markdown1975
+1975
 
 No: 265-25 22
 

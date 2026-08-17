@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25296.png
-
-Convert to MarkdownVIA AIR
+VIA AIR
 (Specify Air or Sea Pouch)
 
 DISPATCH NO. HMM-4-5438

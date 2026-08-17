@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18774.png
-
-Convert to MarkdownTo: George E. Mcll Don
+To: George E. Mcll Don
 
 From: Transactions & Records Division
 

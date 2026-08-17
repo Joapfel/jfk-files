@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6984.png
-
-Convert to MarkdownMR. TUNHEIM: I think it will, Mr. Barrett. The board is releasing every record.
+MR. TUNHEIM: I think it will, Mr. Barrett. The board is releasing every record.
 
 The question is whether certain information on these records gets redacted or
 not. For every redaction we are attaching a specific release date. Some of the

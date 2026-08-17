@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28788.png
-
-Convert to Markdown14-0000
+14-0000
 
 DEPARTMENT OF STATE
 PAYROLL CHANGE SLIP

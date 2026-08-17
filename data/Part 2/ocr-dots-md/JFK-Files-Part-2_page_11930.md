@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11930.png
-
-Convert to Markdown14. Make every effort to prevent discontinued informant from becoming involved in situations which may prove embarrassing to informant or Government. Immediately after he testifies for first time, SAC should have serious talk with informant in presence of Agent who handled informant. This interview should be conducted in field office and informant told that:
+14. Make every effort to prevent discontinued informant from becoming involved in situations which may prove embarrassing to informant or Government. Immediately after he testifies for first time, SAC should have serious talk with informant in presence of Agent who handled informant. This interview should be conducted in field office and informant told that:
 
 a. He will no longer be operated by Bureau
 

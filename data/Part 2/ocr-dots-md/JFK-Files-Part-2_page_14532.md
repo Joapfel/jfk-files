@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14532.png
-
-Convert to MarkdownTO : MR. L. V. BOARDMAN
+TO : MR. L. V. BOARDMAN
 
 DATE: November 18, 1955
 

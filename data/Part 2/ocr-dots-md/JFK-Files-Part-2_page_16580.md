@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16580.png
-
-Convert to Markdown1
+1
 
 **DETAILS: AT CHICAGO, ILLINOIS**
 

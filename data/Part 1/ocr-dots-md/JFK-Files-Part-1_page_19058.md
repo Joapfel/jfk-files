@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19058.png
-
-Convert to MarkdownVII. Sonstige Funktionen im Parteivorstand
+VII. Sonstige Funktionen im Parteivorstand
 
 Leiter der Abteilung Kasse:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8720.png
-
-Convert to Markdown13.06
+13.06
 
 Hocar:
 

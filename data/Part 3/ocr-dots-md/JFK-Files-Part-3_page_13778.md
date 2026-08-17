@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13778.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 The following quotations are taken from broadcasts in the spring of 1962:
 

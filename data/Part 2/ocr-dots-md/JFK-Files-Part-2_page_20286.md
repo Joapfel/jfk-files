@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20286.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 Memorandum
 
 TO Mr. W. C. Sullivan

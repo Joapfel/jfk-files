@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9701.png
-
-Convert to MarkdownDate of transcription 7/29/74
+Date of transcription 7/29/74
 
 1
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25076.png
-
-Convert to Markdown(16) One of the members of this group, Memele Cubillas Perez, told Angel Miguel Arencibia Vira, Rolando Galdos Renzola and others of a plot against Castro to occur at 11 St. Vedado.
+(16) One of the members of this group, Memele Cubillas Perez, told Angel Miguel Arencibia Vira, Rolando Galdos Renzola and others of a plot against Castro to occur at 11 St. Vedado.
 
 (17) In early 1965, counterrevolutionaries Julio Omar Cruz Cecilia, Fermin Gonzalez Carballo and Giraldo ReynaIdo Diego Solano -- members of an RCA sub-group known as "Ejercito de Liberacion Nacional" -- were working on a plot against Castro in Santiago de las Vegas. This plan was dropped in favor of a plan to hit Castro at the Latin American Stadium, with another group in a nearby building set up to fire machine guns into the crowd to create panic and facilitate the escape.
 

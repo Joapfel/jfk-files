@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13396.png
-
-Convert to Markdownany State, (2) or which seek to overthrow the Government of
+any State, (2) or which seek to overthrow the Government of
 the United States, or any State or subdivision thereof, by
 unlawful means: (Emphasis added).
 

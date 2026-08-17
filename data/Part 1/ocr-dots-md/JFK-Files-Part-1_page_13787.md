@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13787.png
-
-Convert to Markdown-00000
+-00000
 
 CLASSIFIED MESSAGE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7661.png
-
-Convert to MarkdownRe: Supervisory Reorganization of Functions and Personnel; Crime Research Division
+Re: Supervisory Reorganization of Functions and Personnel; Crime Research Division
 
 Research and coordination of materials in connection with speeches, by-line articles and feature stories made or published by the Director; preparation of memoranda concerning books on law enforcement; review and analysis of magazine and newspaper manuscripts concerning FBI prepared by outside authors who request. FBI review for accuracy; compilation of data and narrative form of material presented in the FBI's Annual Reports; outlines and research for speech data requested by Bureau officials; maintenance of indices on research materials.
 

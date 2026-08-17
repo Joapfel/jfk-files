@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31886.png
-
-Convert to Markdown8 APR 1969
+8 APR 1969
 
 AVHGB-C
 SUBJECT: MARTI, Manuel (NMN), PFC, US 52 773 870

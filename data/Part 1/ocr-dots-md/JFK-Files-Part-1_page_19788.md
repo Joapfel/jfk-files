@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19788.png
-
-Convert to Markdown3 July 1962
+3 July 1962
 
 MEMORANDUM FOR: Chief, Administrative & Training Staff
 

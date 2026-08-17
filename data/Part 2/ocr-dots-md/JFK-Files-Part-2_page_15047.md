@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15047.png
-
-Convert to Markdown# DOMESTIC INTELLIGENCE OPERATIONS
+# DOMESTIC INTELLIGENCE OPERATIONS
 
 ## Communist Party, USA*
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25308.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 FLALCO, José M.
 Agustión Lara no. 8-D

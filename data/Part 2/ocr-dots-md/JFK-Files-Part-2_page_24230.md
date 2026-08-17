@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24230.png
-
-Convert to Markdown(a) Notwithstanding any other provision of law, sums made available to the Agency by appropriation or otherwise may be expended for purposes necessary to carry out its functions, including —
+(a) Notwithstanding any other provision of law, sums made available to the Agency by appropriation or otherwise may be expended for purposes necessary to carry out its functions, including —
 
 (1) personal services, including personal services without regard to limitations on types of persons to be employed, . . .
 

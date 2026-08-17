@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13806.png
-
-Convert to Markdown# CENTRAL INTELLIGENCE AGENCY
+# CENTRAL INTELLIGENCE AGENCY
 
 This material contains information affecting the National Defense of the United States within the meaning of theendir-18. U.S.C. Sees. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
 

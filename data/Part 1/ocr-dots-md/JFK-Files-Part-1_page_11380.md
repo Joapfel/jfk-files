@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11380.png
-
-Convert to Markdown15 March 1963
+15 March 1963
 
 SAS 63-108
 

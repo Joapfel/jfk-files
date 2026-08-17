@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12081.png
-
-Convert to Markdown(1) All positions were occupied as of close of business 1/8/71, although one resignation was pending (described in item 2 below).
+(1) All positions were occupied as of close of business 1/8/71, although one resignation was pending (described in item 2 below).
 
 (2) Miss Agnes M. Klima, Clerk-Stenographer, GS-4, assigned to Stenographic Pool, submitted her resignation effective 1/14/71 and acknowledgement of same was dated 1/6/71. This stenographic position was approved to be filled by assigning a GS-4 Clerk (Miss Barbara A. Hatcher) who had passed the stenographic test and request for replacement for Miss Hatcher dated 1/8/71 was submitted. Miss Hatcher actually was transferred to the stenographic position in the pool as of beginning of business 1/11/71 when her replacement, Miss Cheryl D. Carpenter, reported to this Section for assignment.
 

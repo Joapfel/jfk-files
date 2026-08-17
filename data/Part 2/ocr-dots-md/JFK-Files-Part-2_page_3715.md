@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3715.png
-
-Convert to MarkdownTHE TARIFF DISPARITIES ISSUE
+THE TARIFF DISPARITIES ISSUE
 
 The tariff disparities issue which has plagued preparations for the Kennedy Round for many months originates in the fact that there are substantial differences between the EEC and US tariffs on individual items, even though over-all tariff levels are roughly the same. Because the EEC common external tariff was arrived at by averaging the tariffs of the member states, the EEC tariff schedule is characterized by the absence of "peaks and lows"; in the US schedule, on the other hand, the rates vary much more, and some individual tariffs remain very high in comparison with those of the EEC. Accordingly, the EEC and the French in particular have long insisted that a 50-percent cut in tariffs by both the US and the EEC would leave the US with substantial protection on certain items and deprive the EEC of bargaining power to effect their future reduction.
 

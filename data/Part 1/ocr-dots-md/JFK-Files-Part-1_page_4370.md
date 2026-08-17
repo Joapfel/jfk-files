@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4370.png
-
-Convert to MarkdownNORMAN DIAZ
+NORMAN DIAZ
 
 des personas de Latino-América; entre ellos, Lleras Camargo de Colombia. Sus resultados han influido, inclusive, en las elecciones de Costa Rica.
 

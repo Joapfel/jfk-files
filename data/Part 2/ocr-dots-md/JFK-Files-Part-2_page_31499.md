@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31499.png
-
-Convert to MarkdownII. COMMUNIST PARTY (CP) AND RELATED ACTIVITIES
+II. COMMUNIST PARTY (CP) AND RELATED ACTIVITIES
 
 A. Communist Activities
 

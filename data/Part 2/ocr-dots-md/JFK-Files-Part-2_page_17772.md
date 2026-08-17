@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17772.png
-
-Convert to Markdown# Supplemental Agreement No. III
+# Supplemental Agreement No. III
 to the Delimitations Agreement
 (As Amended June 8, 1950)
 

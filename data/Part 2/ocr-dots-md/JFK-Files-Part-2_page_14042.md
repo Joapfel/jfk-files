@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14042.png
-
-Convert to MarkdownLegal Counsel to Mr. Adams
+Legal Counsel to Mr. Adams
 RE: SENSTUDY 75
 
 that the Bureau had furnished former SA Sentinella a detailed briefing of his rights and a briefing as to what was contained in the Rules of the Committee prior to his interview. Mr. O'Conner again requested that we prepare a letter protesting this matter.

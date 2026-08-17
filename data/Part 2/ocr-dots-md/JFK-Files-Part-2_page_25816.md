@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25816.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26/1 - AS - Fanfoni-001. Matter -
 no file Penney.

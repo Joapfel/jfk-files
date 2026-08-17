@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18992.png
-
-Convert to MarkdownSAMUEL ADASON JAFFE
+SAMUEL ADASON JAFFE
 
 During interview on concerning his handwritten report, WF T-2 furnished substantially the same information. He stated he did not know whether Jaffe was a KGB agent or operative contact; however, he knew Kuskov was meeting with Jaffe and had obtained some information from him. WF T-2 indicated that Kuskov obtained an agreement with the 10th Department that the 1st Department would work against Jaffe in order to have an agent who could move in American Embassy circles in Moscow. WF T-2 said he thought Kovshuk had contact with Jaffe, probably posing as a diplomat and using the name Komarov. The informant does not know whether or not Gryaznov knew Jaffe.
 

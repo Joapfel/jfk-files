@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9790.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 for Administration
 
 August 14, 1974

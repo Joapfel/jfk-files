@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_510.png
-
-Convert to MarkdownRESTRICTED HANDLING
+RESTRICTED HANDLING
 
 CLASSIFIED MESSAGE
 

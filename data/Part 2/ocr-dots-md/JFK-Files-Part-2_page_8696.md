@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8696.png
-
-Convert to MarkdownAMCOVE Operation 19-6-93/2,3,4
+AMCOVE Operation 19-6-93/2,3,4
 
 WAVE 7356 (IN 58343) dated 10 November 1963
 

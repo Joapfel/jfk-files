@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27317.png
-
-Convert to MarkdownA - Memo from Knoche to Roethe - 2 May 75
+A - Memo from Knoche to Roethe - 2 May 75
 
 B - Memo for Dir. of Security - 16 Jan 70 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17377.png
-
-Convert to Markdown<table><thead><tr><th>DISPATCH</th><th></th><th>PROCESSING</th></tr></thead><tbody><tr><td colspan="2">TO<br/>Chief, WH Division</td><td>PRO POSID<br/>ACTION<br/><br/>WARNING FOR INDEXING<br/><br/>NO INDEXING REQUIRED</td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td>per CSN 43-43</td><td>DAILY QUALIFIED<br/>HEADQUARTERS DESK<br/>CAN JUDGE INDEXING<br/><br/>ARSTRACT<br/><br/>MICROFILM</td></tr><tr><td>SUBJECT<br/>Monthly Activities Report on Project LIENVOY</td><td>ACTION REQUIRED - REFERENCES</td><td></td></tr></tbody></table>
+<table><thead><tr><th>DISPATCH</th><th></th><th>PROCESSING</th></tr></thead><tbody><tr><td colspan="2">TO<br/>Chief, WH Division</td><td>PRO POSID<br/>ACTION<br/><br/>WARNING FOR INDEXING<br/><br/>NO INDEXING REQUIRED</td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td>per CSN 43-43</td><td>DAILY QUALIFIED<br/>HEADQUARTERS DESK<br/>CAN JUDGE INDEXING<br/><br/>ARSTRACT<br/><br/>MICROFILM</td></tr><tr><td>SUBJECT<br/>Monthly Activities Report on Project LIENVOY</td><td>ACTION REQUIRED - REFERENCES</td><td></td></tr></tbody></table>
 
 The following is the report on the LIENVOY Project for the month of September 1962:
 

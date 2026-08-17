@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7366.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>PCS to Madrid - Per diem/misc exp</td>

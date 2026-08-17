@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15975.png
-
-Convert to Markdown4. Electrical-steps
+4. Electrical-steps
 
 5. Electrocution-door handles switch.
 

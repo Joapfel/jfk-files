@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22394.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q But the intention was to reach Cuba.
 

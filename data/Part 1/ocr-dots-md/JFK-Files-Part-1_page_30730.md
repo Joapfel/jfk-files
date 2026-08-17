@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30730.png
-
-Convert to Markdown14-0000
+14-0000
 
 # TRAINING EVALUATION
 ## Phase III, Course 2

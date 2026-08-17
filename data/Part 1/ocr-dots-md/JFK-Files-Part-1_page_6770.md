@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6770.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CLASSIFICATION</td>
     <td>CLASSIFICATION</td>

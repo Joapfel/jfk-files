@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8716.png
-
-Convert to MarkdownV. VIDA FAMILIAR
+V. VIDA FAMILIAR
 
 13. Estado civil
 

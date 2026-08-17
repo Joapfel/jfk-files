@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6536.png
-
-Convert to Markdown(a) Translation into Spanish and printing of
+(a) Translation into Spanish and printing of
 50,000 sets of the series of ten pamphlets
 entitled, "Democracy versus Communism".
 

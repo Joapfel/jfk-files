@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13797.png
-
-Convert to Markdown9. In what activities has the FBI engaged since April 28, 1971, the purpose or effect of which has been to disrupt domestic groups or discredit U.S. citizens or which bear any other similarity to the purposes or effects of COINTELPRO activities?
+9. In what activities has the FBI engaged since April 28, 1971, the purpose or effect of which has been to disrupt domestic groups or discredit U.S. citizens or which bear any other similarity to the purposes or effects of COINTELPRO activities?
 
 10. What restrictions, directives, or other measures have been adopted by the FBI and the Justice Department to limit or regulate the use of such disruptive techniques?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35001.png
-
-Convert to MarkdownPAYROLL
+PAYROLL
 
 ANNUAL "T" FORM
 Page No. 11

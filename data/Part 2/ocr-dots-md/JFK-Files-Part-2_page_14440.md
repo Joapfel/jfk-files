@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14440.png
-
-Convert to MarkdownSECRET
+SECRET
 
 any other projects relating to "surveillance, telephone tap, surreptitious entry or other action" taken on behalf of the Agency against U.S. citizens in the United States).
 

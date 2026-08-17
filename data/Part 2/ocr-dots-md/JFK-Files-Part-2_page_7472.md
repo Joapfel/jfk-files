@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7472.png
-
-Convert to Markdown104-10408-10316
+104-10408-10316
 
 Declassified and Approved for Release
 by the Central Intelligence Agency

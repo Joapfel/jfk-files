@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9320.png
-
-Convert to Markdown25 August 1950
+25 August 1950
 
 MEMORANDUM FOR RECORD
 

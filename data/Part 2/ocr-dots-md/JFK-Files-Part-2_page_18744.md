@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18744.png
-
-Convert to MarkdownOffice Men. um • UNITED : OVERNMENT
+Office Men. um • UNITED : OVERNMENT
 
 TO : MR. A. H. BELMONT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22986.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 Therefore, when we were standardizing weapons to our
 2 paramilitary teams, things like that, weapons would be discussed

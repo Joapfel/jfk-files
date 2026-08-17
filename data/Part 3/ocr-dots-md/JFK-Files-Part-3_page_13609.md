@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13609.png
-
-Convert to MarkdownDate:10/16/95
+Date:10/16/95
 
 JFK ASSASSINATION SYSTEM
 

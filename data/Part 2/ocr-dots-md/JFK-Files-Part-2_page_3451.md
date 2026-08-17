@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3451.png
-
-Convert to MarkdownSECRET SENSITIVE NOFORM
+SECRET SENSITIVE NOFORM
 
 had to be reviewed, and not only for the purpose of
 determining what it was all about. Significant segments of

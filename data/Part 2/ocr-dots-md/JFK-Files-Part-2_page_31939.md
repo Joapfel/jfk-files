@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31939.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">AMG/AREG/MSF</td>
     <td>amr</td>

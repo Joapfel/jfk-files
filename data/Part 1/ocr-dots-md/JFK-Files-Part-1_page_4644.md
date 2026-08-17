@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4644.png
-
-Convert to Markdown<table><tr><td colspan="2">SECRET</td></tr><tr><td colspan="2"><table><tr><td>NAME</td><td>AGE</td><td>ARREST</td></tr><tr><td>JOE BOSCH</td><td>35</td><td>NOV 18 76</td></tr></table></td></tr><tr><td colspan="2">STAFF</td></tr><tr><td>JACKSON</td><td>JANET</td><td>09:14</td></tr></table></td></tr></table>
+<table><tr><td colspan="2">SECRET</td></tr><tr><td colspan="2"><table><tr><td>NAME</td><td>AGE</td><td>ARREST</td></tr><tr><td>JOE BOSCH</td><td>35</td><td>NOV 18 76</td></tr></table></td></tr><tr><td colspan="2">STAFF</td></tr><tr><td>JACKSON</td><td>JANET</td><td>09:14</td></tr></table></td></tr></table>
 
 T 11:00AM
 

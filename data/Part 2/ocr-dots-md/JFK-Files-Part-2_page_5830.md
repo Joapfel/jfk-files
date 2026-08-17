@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5830.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: (U) New Search of CI Files for JFK Assassination Records
 

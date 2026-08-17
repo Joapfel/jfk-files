@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7334.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RELEASING OFFICER
 CLASSIFICATION

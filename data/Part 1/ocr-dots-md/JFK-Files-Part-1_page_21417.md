@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21417.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: Director
 Federal Bureau of Investigation

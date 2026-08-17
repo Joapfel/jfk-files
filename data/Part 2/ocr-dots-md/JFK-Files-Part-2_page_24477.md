@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24477.png
-
-Convert to Markdown(iii) White House Officials Denied Knowledge of Assassination Efforts and Gave the Opinion that President Eisenhower Was Not Informed.
+(iii) White House Officials Denied Knowledge of Assassination Efforts and Gave the Opinion that President Eisenhower Was Not Informed.
 
 1. Gordon Gray. Gordon Gray served as President Eisenhower's Special Assistant for National Security Affairs from July 1958 to the end of the Eisenhower Administration on January 20, 1961. (Gray, p. 4.) In this capacity, Gray served as the President's representative on the Special Group. (Gray, p. 4.) President Eisenhower specifically instructed Gray that all covert actions impinging on the sovereignty of another country must be deliberated by the Special Group. (Gray, p. 6.) Gray testified that during the period July 1958 to January 20, 1961, the Special Group never approved an action to assassinate Castro (Gray, p. 6) and no such suggestion was made by Bissell. (Gray, p. 37.)
 

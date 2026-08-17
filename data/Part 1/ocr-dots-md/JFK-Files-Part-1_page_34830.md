@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34830.png
-
-Convert to Markdown-3-
+-3-
 
 principal himself or his heirs has the legal right to revoke a trusteeship even in the mishandling of funds. Based on a review of pertinent documents and a discussion with Mrs. Evie Vidal, who is probably more knowledgeable of the facts and nuances of this problem than anyone else, I have listed below some recommendations for your consideration:
 

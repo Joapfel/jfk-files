@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21609.png
-
-Convert to MarkdownFILE:
+FILE:
 
 Regarding CIA Far East Division, Papich recalls proposals for developing cover in the U. S. for going overseas. Ober advised Papich of the development of sources in the U. S. to cover overseas targets. Papich would write a memo on the situation and provide any relevant FBI information. He also discussed with Ober giving FBI assets to CIA if they travel overseas. Papich stresses that FBI sources are sent overseas. He encouraged working through CIA but never got very far. Papich gives the example of an FBI source who went to Italy and reported back through CIA.
 

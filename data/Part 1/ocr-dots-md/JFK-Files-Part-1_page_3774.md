@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3774.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>HMMW-2005</td><td>5 JUN 79</td></tr><tr><td></td><td>CLASSIFICATION</td><td>CONFILE NUMBER</td></tr><tr><td></td><td>SECRET</td><td>53-6-4</td></tr></tbody></table>
 

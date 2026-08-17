@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8718.png
-
-Convert to Markdown13.04.01
+13.04.01
 
 En general, como matrimonio son:
 Visiblemente compatibles ___ Normalmente compatibles ✓

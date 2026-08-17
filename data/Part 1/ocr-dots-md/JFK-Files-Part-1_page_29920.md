@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29920.png
-
-Convert to Markdown7 May 1974
+7 May 1974
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

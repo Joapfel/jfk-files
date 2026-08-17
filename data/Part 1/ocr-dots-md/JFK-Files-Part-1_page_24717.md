@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24717.png
-
-Convert to Markdowne. **UAR**
+e. **UAR**
 
 (1) Michel *Hamed.** Low ranking member of Embassy. Met once, January 1968. No further progress or efforts made.
 

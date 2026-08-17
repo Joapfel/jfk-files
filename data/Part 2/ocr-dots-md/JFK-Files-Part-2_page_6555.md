@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6555.png
-
-Convert to Markdown13-00000
+13-00000
 
 seek Mexican concurrence in using new equipment (IL-18) on the Havana-Mexico City route. We should persuade Mexico to refuse the new aircraft on grounds of safety, facilities, or other reasons. We should also encourage Great Britain or other sources to cut off spare parts (unilateral U.S. action).
 

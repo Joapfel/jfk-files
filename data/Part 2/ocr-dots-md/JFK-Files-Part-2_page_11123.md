@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11123.png
-
-Convert to Markdownin a key facility, copies of reports bearing the dual character,
+in a key facility, copies of reports bearing the dual character,
 "Security of Government Employees; Security Matter - C," should
 be furnished to appropriate intelligence agencies of the armed
 services by the field offices as shown in sections 69, volume

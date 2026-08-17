@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6921.png
-
-Convert to MarkdownAll information contained herein is unclassified. DATE N-13-00 by SP-28A/M-16
+All information contained herein is unclassified. DATE N-13-00 by SP-28A/M-16
 
 5-88 (2-89-89)
 

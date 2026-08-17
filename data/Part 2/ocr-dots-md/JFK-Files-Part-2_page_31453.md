@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31453.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/1r
 
 She said that capitalism cannot solve the problems of the people but the development of Socialism can.

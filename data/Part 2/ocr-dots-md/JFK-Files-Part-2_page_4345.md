@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4345.png
-
-Convert to MarkdownSATURDAY
+SATURDAY
 
 <table><tr><td>SEPTEMBER 1960</td></tr><tr><td>S M T W T F S</td></tr><tr><td></td></tr><tr><td>1 2 3</td></tr><tr><td>4 5 6 7 8 9 10</td></tr><tr><td>11 12 13 14 15 16 17</td></tr><tr><td>18 19 20 21 22 23 24</td></tr><tr><td>25 26 27 28 29 30</td></tr></table>
 

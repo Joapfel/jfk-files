@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7568.png
-
-Convert to MarkdownMr. Cleveland
+Mr. Cleveland
 
 4-3-75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19659.png
-
-Convert to MarkdownEVE ONLY
+EVE ONLY
 SECRET
 
 29 APR 1959

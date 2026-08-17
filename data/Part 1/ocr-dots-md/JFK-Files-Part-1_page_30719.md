@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30719.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # Sections 7 through 10 be completed by immediate supervisor
 

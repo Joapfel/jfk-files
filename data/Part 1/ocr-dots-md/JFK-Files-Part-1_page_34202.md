@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34202.png
-
-Convert to MarkdownCommodities
+Commodities
 
 # Soviet Grain Imports Expected to Continue Despite Big Plans to Boost Farm Output
 

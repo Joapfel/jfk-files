@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19289.png
-
-Convert to Markdown100-59802
+100-59802
 GOW:jal
 
 Source 9 is FBI Post Office Box 416 under name JUNE LASKA;

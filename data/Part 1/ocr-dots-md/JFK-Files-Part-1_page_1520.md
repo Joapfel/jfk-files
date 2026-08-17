@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1520.png
-
-Convert to Markdown5. All information relating to this Agreement is classified secret. Both CIA and the Company agree that the most stringent safeguards will be taken to protect this information, including the existence of the agreement. Any information in any form that must be given to a third party by either CIA or the Company will be done in strict conformance with the laws safeguarding national security information, and only with full consultation between CIA and the Company.
+5. All information relating to this Agreement is classified secret. Both CIA and the Company agree that the most stringent safeguards will be taken to protect this information, including the existence of the agreement. Any information in any form that must be given to a third party by either CIA or the Company will be done in strict conformance with the laws safeguarding national security information, and only with full consultation between CIA and the Company.
 
 6. This agreement is effective 1 October 1976 and shall remain in full effect for an indefinite period, subject to cancellation at any time upon sixty (60) days' notice by either party thereto.
 

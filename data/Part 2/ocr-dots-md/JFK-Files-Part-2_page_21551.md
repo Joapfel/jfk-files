@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21551.png
-
-Convert to Markdown1 pills?
+1 pills?
 
 2 Mr. O'Connell. The man that created them is Dr. Raymond
 

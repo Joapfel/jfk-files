@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24768.png
-
-Convert to MarkdownThese events are discussed below under subheading A.
+These events are discussed below under subheading A.
 
 Evidence reflecting the degree of knowledge of those events possessed by senior American officials is treated thereafter. As used herein, "senior American officials" means individuals in the White House or serving as members of the Special Group.
 

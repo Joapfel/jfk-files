@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3565.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DO BASE NEW YORK, TEGUCIGALPA
 INFO MANAGUA WH/MIAMI

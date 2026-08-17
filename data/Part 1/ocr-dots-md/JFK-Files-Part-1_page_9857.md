@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9857.png
-
-Convert to Markdown20 March, 1968.
+20 March, 1968.
 
 Subject: LIVING/3 Contacts with FAR Guatemala in Mexico City.
 

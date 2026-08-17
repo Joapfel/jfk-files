@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_197.png
-
-Convert to MarkdownLICOOKY Project Progress Report
+LICOOKY Project Progress Report
 
 1 October 1965 - 30 April 1966
 

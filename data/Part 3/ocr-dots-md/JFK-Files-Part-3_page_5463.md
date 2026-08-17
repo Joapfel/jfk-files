@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5463.png
-
-Convert to MarkdownII. Outstanding previously requested materials; delivery
+II. Outstanding previously requested materials; delivery
 requested by Friday, August 1, 1975:
 
 A. Immediate and continuous delivery/access to underlying materials pertaining to specific COINTELPRO operations, as listed previously and subsequently by SSC staff.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_194.png
-
-Convert to MarkdownSociedad
+Sociedad
 
 Fiesta de María José Chopitea
 

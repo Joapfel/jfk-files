@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7907.png
-
-Convert to MarkdownIDENTITY SHEET
+IDENTITY SHEET
 
 IDENTITY A Valentin Serdyavich LOGANOV
 

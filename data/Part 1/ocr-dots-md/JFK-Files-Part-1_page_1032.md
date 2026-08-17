@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1032.png
-
-Convert to Markdown14-00000
+14-00000
 
 ROCKEFELLER COMMISSION / Select Committee to Study Governmental Operations with respect to Intelligence Activities, Senate (following documents are footnoted in Final Report)
 

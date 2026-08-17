@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22559.png
-
-Convert to Markdown(Apparently the summary and status report and Contact List to which Mr. Allen refers is the previous quoted memo of 9 January.)
+(Apparently the summary and status report and Contact List to which Mr. Allen refers is the previous quoted memo of 9 January.)
 
 During February and March 1963, SRS representatives met with Wiley for discussion of an objective to place a skilled and controlled source in the newspaper community in Washington, D. C. who would have normal, routine, and ready access to the Washington writing and radio colony. The long range plan was to have Wiley move to Washington, and begin extensive writing and lecturing to establish his prestige, and to slowly curtail his other activities except for keeping his "excellent Cuban and anti-Castro connections." The basic plan was to be forwarded to the Director of Security by the Chief, SRS, for consideration. Tentative approval must have been received inasmuch as on 26 March 1964, Morse Allen requested the assistance of Eugene Lyons for information as to an assessment of Wiley's work, and the best method for establishing prestige for a writer. Wiley was not identified by name.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1034.png
-
-Convert to MarkdownSHAW, Clay
+SHAW, Clay
 
 1. MEMO FOR THE RECORD (6 Sept 77, Russ Holmes)
 

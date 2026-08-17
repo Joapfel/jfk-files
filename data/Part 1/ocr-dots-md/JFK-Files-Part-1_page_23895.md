@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23895.png
-
-Convert to Markdown14-00000
+14-00000
 
 In Oct of 62 before I went to Algiers, but when I came to Paris I saw
 Finet who had a large amount of Algerian currency in his flat, the

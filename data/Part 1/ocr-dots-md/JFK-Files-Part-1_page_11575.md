@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11575.png
-
-Convert to Markdown13 January, 1969
+13 January, 1969
 
 Subject: LIRING/3 Report of Activities for the Period 7-13 January, 1969.
 

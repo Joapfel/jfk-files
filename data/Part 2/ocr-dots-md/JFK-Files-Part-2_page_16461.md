@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16461.png
-
-Convert to Markdownthe dictatorship of the proletariat has no room for the omnipotent administrator; there's no room for the exploiter. So therefore he must go to the countryside to regain his body; he must work. He is really done a favor, because the people force him to unite his mind with his body by putting them both to work. At the same time the intellectual teaches the people political ideology, he educates them, thus uniting the mind and the body in the peasant. Their minds and bodies are united and they control their country. I think this is a very good example of this unity and it is my idea of the perfect man.
+the dictatorship of the proletariat has no room for the omnipotent administrator; there's no room for the exploiter. So therefore he must go to the countryside to regain his body; he must work. He is really done a favor, because the people force him to unite his mind with his body by putting them both to work. At the same time the intellectual teaches the people political ideology, he educates them, thus uniting the mind and the body in the peasant. Their minds and bodies are united and they control their country. I think this is a very good example of this unity and it is my idea of the perfect man.
 
 ## The Guerrilla
 

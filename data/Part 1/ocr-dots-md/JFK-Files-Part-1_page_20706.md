@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20706.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filed in)
 
 UMS: 18 JULY 79

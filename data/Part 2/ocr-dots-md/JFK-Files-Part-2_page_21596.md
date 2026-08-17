@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21596.png
-
-Convert to MarkdownFILE: SECRET
+FILE: SECRET
 
 Regarding FBI service and support to other agencies, Hoover was "goddamned careful". He was sensitive to any "risks" and thus any request for FBI support had to be established firmly. Hoover never responded "let them do it" within the United States. Hoover did not give other agencies any blessing or approval for questionable domestic activities such as the case of the Bolivian official mentioned above.
 

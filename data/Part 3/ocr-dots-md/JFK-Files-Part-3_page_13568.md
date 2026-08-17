@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13568.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. that it would overwhelm the Executive office. That is what
 2. happened in the OMB as the character of what Federal Government

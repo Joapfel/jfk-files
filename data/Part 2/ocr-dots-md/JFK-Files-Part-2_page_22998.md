@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22998.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 civic officials and law enforcement agencies in being allowed to operate free or the law? For instance, were you allowed to put vessels onto the water which were not properly registered, or which could be held immune for inspection by the Coast Guard or other maritime authorities, and were you allowed to send people through the streets of Southern Florida who may have been armed or violating local law in some other way, who were held immune by arrangements that you had with law enforcement agencies?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30350.png
-
-Convert to Markdownmy love to the family, and in spite of my respect to the
+my love to the family, and in spite of my respect to the
 memory of the father, I can repeat that if he was alive I would
 also would do the same, that is all.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24482.png
-
-Convert to MarkdownI UP SECRET
+I UP SECRET
 
 questions they asked was whether the Agency could say it was acting pur-
 suant to Government policy -- or as they put the question: "Can CIA state

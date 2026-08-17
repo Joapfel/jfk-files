@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14074.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Agenda For August 7: (Continued)
 

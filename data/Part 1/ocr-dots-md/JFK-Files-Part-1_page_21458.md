@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21458.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG: RITA PERGUS
 UNIT: SR/2/CB

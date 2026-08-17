@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30764.png
-
-Convert to Markdown4
+4
 
 was not "Special Intelligence"
 was "Investigations"

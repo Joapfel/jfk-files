@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8672.png
-
-Convert to Markdown13-00000
+13-00000
 
 SC-01755-77
 

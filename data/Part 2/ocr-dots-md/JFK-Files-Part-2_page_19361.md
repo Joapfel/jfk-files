@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19361.png
-
-Convert to MarkdownHELENA, MONTANA
+HELENA, MONTANA
 
 November 27, 1967
 

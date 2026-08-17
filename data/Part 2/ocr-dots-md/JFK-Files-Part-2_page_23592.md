@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23592.png
-
-Convert to MarkdownINTERVIEW WITH RICHARD GOODWIN
+INTERVIEW WITH RICHARD GOODWIN
 
 Date: May 27, 1975
 Place: Goodwin's residence, 1536 32nd St. NW

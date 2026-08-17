@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10891.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td rowspan="7">PROJECT<br>LIT MAT / SP</td>

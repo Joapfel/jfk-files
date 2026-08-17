@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9169.png
-
-Convert to Markdowndriven out. This blandness seemed to characterize the view of almost all Britishers in the Far East, although the viceroy of India expressed regret that, for the sake of the Indians, British control in India would "not survive another fifty years".
+driven out. This blandness seemed to characterize the view of almost all Britishers in the Far East, although the viceroy of India expressed regret that, for the sake of the Indians, British control in India would "not survive another fifty years".
 
 Mrs. Luce visited the headquarters of the A.V.G. She expressed the hope that they would not be kept alive as a unit; but that their experience in fighting Japanese planes would be transferred to American pilots in training, especially at Karachi. She felt that neither the A.V.G. nor General Stillwell should return to China, despite their obvious value in maintaining and American link and American prestige. General Stillwell has apparently dispirited himself, under most trying circumstances, by his comradeship with the Chinese and his willingness to share front-line dangers and hardships. At a time when the Chinese are extremely sensitive, General Stillwell's attitude and action were of great importance.
 

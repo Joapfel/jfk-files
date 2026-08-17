@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7377.png
-
-Convert to Markdown3-26 (Rev. 3-20-64)
+3-26 (Rev. 3-20-64)
 
 Director
 Federal Bureau of Investigation

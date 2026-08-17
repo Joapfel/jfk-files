@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17517.png
-
-Convert to Markdowna. Wayne C. DRABAND has natural cover of a retired U.S. civil servant presently in Mexico with his wife, an employee of a U.S. government agency.
+a. Wayne C. DRABAND has natural cover of a retired U.S. civil servant presently in Mexico with his wife, an employee of a U.S. government agency.
 
 b. LIEMBRACE-8 has natural cover of a retired U.S. businessman of many years residence in Mexico City.
 

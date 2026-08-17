@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26020.png
-
-Convert to Markdownto do--not only the military advisory missions, but when other agencies would get in and be working on these things, to themselves become interested in the military doing such things, and aiding and abetting, including economics projects and educational work and so on.
+to do--not only the military advisory missions, but when other agencies would get in and be working on these things, to themselves become interested in the military doing such things, and aiding and abetting, including economics projects and educational work and so on.
 
 O'BRIEN:
 

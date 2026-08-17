@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28086.png
-
-Convert to Markdown# RESUME
+# RESUME
 
 Carolyn (Carole) V. Hansen Amato
 4201 South 31st Street, Apartment 317

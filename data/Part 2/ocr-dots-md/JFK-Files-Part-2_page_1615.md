@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1615.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 INTERNAL
 USE ONLY

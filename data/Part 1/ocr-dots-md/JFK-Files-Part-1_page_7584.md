@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7584.png
-
-Convert to Markdownto KAZANTSEV. In any event, KAZANTSEV was very happy with the outcome
+to KAZANTSEV. In any event, KAZANTSEV was very happy with the outcome
 and with Subject's work in preparing him for the test. In fact, he said
 that although he had originally started taking lessons from Subject only
 to prepare for the test, he was so satisfied with his progress that he

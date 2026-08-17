@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_787.png
-
-Convert to MarkdownSECRET
+SECRET
 
 U. On 18 May 63, Baracan (III), Soviet Counselor, drove L-9 to the Cuban Embassy from Bayocan. DUNIN, who in L-9 had been in extremely "sharp", "realistic" and "talented" told L-9 the delivery must be done safely.
 

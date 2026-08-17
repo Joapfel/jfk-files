@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23064.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 Mr. Baron. Which was released recently by George McGovern, to whom Castro had sent this report.
 

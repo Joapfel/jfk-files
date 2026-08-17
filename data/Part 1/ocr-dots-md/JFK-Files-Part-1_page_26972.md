@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26972.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OMF 0 0 0 0 0 0 0
 

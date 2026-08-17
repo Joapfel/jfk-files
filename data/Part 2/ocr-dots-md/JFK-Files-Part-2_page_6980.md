@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6980.png
-
-Convert to MarkdownNoblesville High School have interned with the review board, with the fifth scheduled for the week of June 16th of this year. When this group completes its work, a total of 56 of our students will have participated in this unique and truly educational opportunity.
+Noblesville High School have interned with the review board, with the fifth scheduled for the week of June 16th of this year. When this group completes its work, a total of 56 of our students will have participated in this unique and truly educational opportunity.
 
 I might add that except for the first group, succeeding student groups have studied, researched and prepared for their internship on their own time, outside normal class meetings. The most recent group to participate did so over spring break. The fact that students wanted to spend their vacation working with government records reflects the interest that the JFK assassination has for students.
 

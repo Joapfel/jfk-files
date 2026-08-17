@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11632.png
-
-Convert to MarkdownSECURITY INFORMANT, PROGRAM
+SECURITY INFORMANT, PROGRAM
 
 HEM:cb
 

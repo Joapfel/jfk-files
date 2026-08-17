@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29783.png
-
-Convert to Markdown# MEXICO CITY -- CIA
+# MEXICO CITY -- CIA
 
 ## Anderson (cont'd):
 

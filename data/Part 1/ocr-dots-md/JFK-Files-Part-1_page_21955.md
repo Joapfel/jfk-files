@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21955.png
-
-Convert to Markdown109.
+109.
 
 NOSENKO has described eleven KGB approaches to Americans based on compromising evidence obtained with the assistance of VOLKOV and/or YEFREMOV and several other cases in which Americans were suspected of being homosexuals on the basis of the evaluation of these two. Additionally, CIA records indicate that at least six Americans, not reported on by NOSENKO, have had contacts with one or both of these agents in Moscow. Of these six, three were CIA agents, one a U.S. graduate student, another a psychiatrist visiting Soviet institutions, and the last Charles W. THAYER, the well-known diplomat and author. With one or possibly two exceptions, all the contacts of VOLKOV and YEFREMOV reported by NOSENKO or other sources took place during the period from April to November 1959. The known exception was the KGB approach to W.E. JOHNSON in January 1962;* the possible exception was the contact with the American psychiatrist, which took place in 1959 or early 1960 but cannot be dated precisely. Finally, NOSENKO has described the contacts between VOLKOV, YEFREMOV, and the American Robert BARRETT in the summer of 1959 but does not know of their contacts in the summer of 1961, shortly before BARRETT was approached on the basis of com- promising information obtained in 1959.**
 

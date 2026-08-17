@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15985.png
-
-Convert to MarkdownIII. TRAVEL AND ARRESTS OF
+III. TRAVEL AND ARRESTS OF
 CHICAGO BLACK PANTHER PARTY (BPP)
 
 A. Travel of Chicago BPP

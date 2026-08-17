@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2279.png
-
-Convert to MarkdownFrank Patrick Bishop
+Frank Patrick Bishop
 
 004736
 DOB : 25 April 1914

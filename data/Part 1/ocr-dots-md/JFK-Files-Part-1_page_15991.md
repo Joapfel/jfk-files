@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15991.png
-
-Convert to MarkdownIT'S
+IT'S
 SANDAL SEASON
 AT NANKIN'S
 

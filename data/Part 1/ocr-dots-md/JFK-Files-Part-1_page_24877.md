@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24877.png
-
-Convert to Markdown1. **Establish cover position:**
+1. **Establish cover position:**
 
 Since much of my activity would involve travel to foreign countries, I should establish a position with some organization involved in international business. I would strongly suggest that I try forming an association with Bernard McKenna, who has an international law practice. He has helped in funding Dialogos, so I would assume that he might be willing to cooperate. Should you agree, I could drop up to New York and set up the details with him personally. Ted Prounis, who helped in the Volman-Alba deal, is another possibility.
 

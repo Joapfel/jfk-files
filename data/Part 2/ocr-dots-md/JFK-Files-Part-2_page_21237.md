@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21237.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 YURI V. ZAITSEV, Attache, Soviet Embassy in Washington in
 1955; became employed by State Department in 1958; was

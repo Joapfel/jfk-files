@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7061.png
-
-Convert to MarkdownOffice, and ultimately the Department of State spent a substantial amount of time resolving the issues that arose in the appeal process, and for those important records that were at issue, the Review Board considered its time well-spent. The Review Board similarly dealt with other key records and spent as much time as was necessary to deliberate and decide upon those records.
+Office, and ultimately the Department of State spent a substantial amount of time resolving the issues that arose in the appeal process, and for those important records that were at issue, the Review Board considered its time well-spent. The Review Board similarly dealt with other key records and spent as much time as was necessary to deliberate and decide upon those records.
 
 The postponement-by-postponement review at each early Review Board meeting proved to be a slow and careful process. The postponement-by-postponement review proved to be a necessary educational process for the Board members. The Board members were a group of five citizens who were selected not for their familiarity with the subject of the assassination, but for their professional competence in history and law. Thus, through reviewing individual documents at its early meetings, the Board essentially educated itself about the assassination.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18068.png
-
-Convert to MarkdownPROJECT LIONION RENEWAL REQUEST
+PROJECT LIONION RENEWAL REQUEST
 
 A. Objectives:
 

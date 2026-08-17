@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32488.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Item 1: Employment History -->
         <tr>

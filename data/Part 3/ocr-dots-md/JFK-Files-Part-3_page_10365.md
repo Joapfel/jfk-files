@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10365.png
-
-Convert to MarkdownFebruary 23, 1949
+February 23, 1949
 
 Subject: Delimitation of Investigative Duties of the Federal Bureau of Investigation, the Office of Naval Intelligence, the Intelligence Division of the Army, and the Office of Special Investigations, Inspector General, U. S. Air Force.
 

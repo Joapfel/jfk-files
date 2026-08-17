@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_13496.png
-
 should have his loyalty only to the President and not to any one department, and my own feeling is that the present situation creates some bottlenecks, administrative bottlenecks that should not exist.
 12
 13

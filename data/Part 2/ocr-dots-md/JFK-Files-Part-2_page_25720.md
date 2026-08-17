@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25720.png
-
-Convert to MarkdownJack Anderson and Les Whitten
+Jack Anderson and Les Whitten
 
 # Behind John F. Kennedy's Murder
 

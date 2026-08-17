@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8552.png
-
-Convert to MarkdownATTACHMENT
+ATTACHMENT
 
 August 6, 1969
 

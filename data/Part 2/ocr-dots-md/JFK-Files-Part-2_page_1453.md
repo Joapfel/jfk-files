@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1453.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7 APR 1969.
 

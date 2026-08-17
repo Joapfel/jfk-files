@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4592.png
-
-Convert to Markdown- 4 -
+- 4 -
 
 (4) Prepare draft CI requirements for FI/D analysts (accomplished).
 

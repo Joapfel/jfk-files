@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3765.png
-
-Convert to MarkdownLX-3254
+LX-3254
 
 Miami, 12 June 1967
 

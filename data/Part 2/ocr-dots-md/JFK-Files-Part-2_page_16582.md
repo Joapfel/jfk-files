@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16582.png
-
-Convert to MarkdownThe Department's letter requested that if the victims or other persons in the premises at the time of the raid declined to be interviewed, Mr. JERRIS LEONARD, Assistant Attorney General, Civil Rights Division, should be notified immediately without waiting for the completion of the report of this investigation.
+The Department's letter requested that if the victims or other persons in the premises at the time of the raid declined to be interviewed, Mr. JERRIS LEONARD, Assistant Attorney General, Civil Rights Division, should be notified immediately without waiting for the completion of the report of this investigation.
 
 It is noted that the telegram of December 5, 1969, addressed to United States Attorney General JOHN MITCHELL reads as follows:
 

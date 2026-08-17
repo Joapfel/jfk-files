@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18300.png
-
-Convert to Markdown10 MAY 1960
+10 MAY 1960
 
 MEMORANDUM FOR: Assistant Director for Operations
 SUBJECT: William P. Burke, Memorandum of Performance

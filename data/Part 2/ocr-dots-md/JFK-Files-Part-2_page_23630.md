@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23630.png
-
-Convert to MarkdownINTELLIGENCE INVESTIGATION
+INTELLIGENCE INVESTIGATION
 
 Foreign & Military Subcommittee Meeting
 

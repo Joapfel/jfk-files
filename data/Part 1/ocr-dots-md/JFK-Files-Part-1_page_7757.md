@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7757.png
-
-Convert to Markdown12.02.03 He is a somewhat sensual, rather soft man who is very considerate of women. He is prone to hold a woman's hand overly long when talking to her and frequently puts his arms around women he admires. He often uses flattery and compliments but does so rather graciously. Most women usually like his attentiveness.
+12.02.03 He is a somewhat sensual, rather soft man who is very considerate of women. He is prone to hold a woman's hand overly long when talking to her and frequently puts his arms around women he admires. He often uses flattery and compliments but does so rather graciously. Most women usually like his attentiveness.
 
 12.02.04 He is a sensual person, but is embarrassed and insecure about it. He is a rather soft man who tries hard to be inoffensive. However, he will frequently follow attractive women with his eyes when he thinks no one is looking. He is also prone to brush against or touch women "accidentally" whenever he gets a chance.
 

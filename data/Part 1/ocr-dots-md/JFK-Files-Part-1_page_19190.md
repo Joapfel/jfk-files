@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19190.png
-
-Convert to MarkdownSTANDARD FORM 50 (8 PART)
+STANDARD FORM 50 (8 PART)
 
 NEW APRIL 1981
 PUBLISHED BY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7475.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NO FOREIGN DISSEMINATION
 

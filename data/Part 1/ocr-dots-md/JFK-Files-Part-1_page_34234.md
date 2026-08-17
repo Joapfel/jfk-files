@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34234.png
-
-Convert to Markdown"Viet Nam, Congo and the Dominican Republic".- There are the topics of world-wide Communist agitation. In all three countries, the plans of the Communists met failure, and China and Russia may be seen licking the wounds of their failures. In the Congo, 2,000 lives were saved from Communist ravagery. In Viet Nam, plans for aggression and dominance of South Eastern Asia have been held in check. And in the Dominican Republic, Inter-American forces guarantee the security of the Hemispheres.
+"Viet Nam, Congo and the Dominican Republic".- There are the topics of world-wide Communist agitation. In all three countries, the plans of the Communists met failure, and China and Russia may be seen licking the wounds of their failures. In the Congo, 2,000 lives were saved from Communist ravagery. In Viet Nam, plans for aggression and dominance of South Eastern Asia have been held in check. And in the Dominican Republic, Inter-American forces guarantee the security of the Hemispheres.
 
 December 30, 1965:
 

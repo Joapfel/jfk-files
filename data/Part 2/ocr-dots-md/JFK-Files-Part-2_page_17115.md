@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17115.png
-
-Convert to MarkdownSource advised three individuals, alleged Chicago BPP members attended a meeting in Milwaukee, Wisconsin. When these individuals left the meeting they had in their possession, two M-1 Carbines allegedly purchased from an unidentified BPP member in Milwaukee. These three individuals stated they were returning to Chicago.
+Source advised three individuals, alleged Chicago BPP members attended a meeting in Milwaukee, Wisconsin. When these individuals left the meeting they had in their possession, two M-1 Carbines allegedly purchased from an unidentified BPP member in Milwaukee. These three individuals stated they were returning to Chicago.
 
 ; 8/18/69)
 

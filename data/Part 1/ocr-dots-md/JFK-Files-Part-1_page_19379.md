@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19379.png
-
-Convert to MarkdownAPR 17
+APR 17
 
 SF4
 

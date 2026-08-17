@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10569.png
-
-Convert to Markdown**EDITORIAL...Continuación.**
+**EDITORIAL...Continuación.**
 
 Vamos los escobas a ellos para administrar a Cuba lo que les conviene en vulgares compliques de esta política que ha condicionado la esclavitud al pueblo cubano que se creó, en su ingeniería, emprazos en su soberanía por los papeles mojados de los censados de Rio. Cubanos, Bogotá y cor la Letra muerta es la doctrina Monroe.
 

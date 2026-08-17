@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22666.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH STAB. AND NO.</th></tr></thead><tbody><tr><td>SECRET/JOAKIN</td><td>HEM-4-12611 - KARL-1955</td></tr><tr><td>TO<br/>INFO</td><td>HEADQUARTERS, LIE NO<br/>50-6-67/2</td></tr><tr><td>FROM<br/>Subject: Chief of Station, Mexico City</td><td>DATE<br/>10 April 1959</td></tr><tr><td>ACTION REQUIRED<br/>See para 3</td><td colspan="2">RE: "43-2" -- (CHECK "X" ONE)<table><tbody><tr><td>MARKED FOR INDEXING</td></tr><tr><td>NO INDEXING REQUIRED</td></tr><tr><td>INDEXING CAN BE JUDGED BY QUALIFIED HQ. DESK ONLY</td></tr></tbody></table></td></tr><tr><td colspan="3"><strong>REFERENCE(S)</strong><br/>1. HEH-4-6-20, dated 11 June 1958<br/>2. HEH-4-7-302, dated 13 February 1959<br/>3. HEH-4-7-407, dated 6 March 1959</td></tr></tbody></table>
 

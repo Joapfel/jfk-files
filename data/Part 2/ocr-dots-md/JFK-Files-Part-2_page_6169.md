@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6169.png
-
-Convert to Markdown56 Md. L. Rev. 1, *37
+56 Md. L. Rev. 1, *37
 
 in all public matters is highly desirable. n210 Full disclosure is to be
 preferred over partial; the full truth is better than something less, and the

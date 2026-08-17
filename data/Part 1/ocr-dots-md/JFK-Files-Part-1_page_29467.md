@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29467.png
-
-Convert to MarkdownAttachment
+Attachment
 
 Section D., 3.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19116.png
-
-Convert to MarkdownBAC, San Francisco
+BAC, San Francisco
 
 CONFIDENTIAL
 

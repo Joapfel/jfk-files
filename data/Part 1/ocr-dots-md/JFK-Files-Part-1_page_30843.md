@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30843.png
-
-Convert to MarkdownROUGH DRAFT
+ROUGH DRAFT
 
 P. J. Seidel
 

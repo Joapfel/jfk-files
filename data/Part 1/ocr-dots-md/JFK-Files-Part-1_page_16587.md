@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16587.png
-
-Convert to MarkdownEDITIONS
+EDITIONS
 
 CABLE SECRETARY DISSEMINATION
 

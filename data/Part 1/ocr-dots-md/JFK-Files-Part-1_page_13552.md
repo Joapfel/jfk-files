@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13552.png
-
-Convert to MarkdownEXCERPT
+EXCERPT
 
 REPORT NO. HMM-6343
 

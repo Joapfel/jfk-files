@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24532.png
-
-Convert to MarkdownBundy, speaking to the Group,
+Bundy, speaking to the Group,
 
 "... made it clear that this did not constitute a blanket approval of every item in the paper and that sensitive ones such as sabotage, for example, will have to be presented in more detail on a case by case basis." (Memo of Special Group Augmented meeting, September 14, 1962, p. ).
 

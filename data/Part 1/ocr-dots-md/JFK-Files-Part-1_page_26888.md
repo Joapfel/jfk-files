@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26888.png
-
-Convert to MarkdownMay 3,1965
+May 3,1965
 
 Report on flight evaluation of: Tony Fato & Orlando Izquierdo
 Helicopter Bell 47G.-855 hp Franklin engine.

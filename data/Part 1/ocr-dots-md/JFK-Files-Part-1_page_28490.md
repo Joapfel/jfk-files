@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28490.png
-
-Convert to MarkdownSECRET
+SECRET
 
 W. D. MILES
 Assistant Director

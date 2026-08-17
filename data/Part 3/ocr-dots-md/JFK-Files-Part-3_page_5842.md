@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5842.png
-
-Convert to MarkdownSAC, Los Angeles
+SAC, Los Angeles
 
 6/25/70
 

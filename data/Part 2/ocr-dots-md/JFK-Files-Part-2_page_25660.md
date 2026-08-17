@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25660.png
-
-Convert to Markdown# Jim Braden: Where He Is Today
+# Jim Braden: Where He Is Today
 
 Immediately following the assassination of President Kennedy, Eugene Brading (Jim Braden) had an upturn in his personal finances.
 

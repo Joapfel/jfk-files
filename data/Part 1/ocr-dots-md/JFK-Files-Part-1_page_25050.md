@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25050.png
-
-Convert to Markdown5. Based on his activities and associations while in Mexico City, Mexico, this office considers Subject to be a staff officer of the Soviet Committee for State Security (KGB).
+5. Based on his activities and associations while in Mexico City, Mexico, this office considers Subject to be a staff officer of the Soviet Committee for State Security (KGB).
 
 6. For additional information concerning Subject, you are referred to the Federal Bureau of Investigation.
 

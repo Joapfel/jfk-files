@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29487.png
-
-Convert to MarkdownReconstruction of the CIA Mexico City Station and Headquarters Actions Prior to the Assassination of President John F. Kennedy.
+Reconstruction of the CIA Mexico City Station and Headquarters Actions Prior to the Assassination of President John F. Kennedy.
 
 A. Introduction--CIA Interest in and Liaison with FBI Regarding American Citizens in Contact with Soviet Bloc Embassies in Mexico City.
 

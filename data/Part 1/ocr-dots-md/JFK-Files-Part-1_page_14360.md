@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14360.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="4">EXTRACT AND CROSS REFERENCE</th></tr><tr><td colspan="4">DOCUMENT IDENTIFICATION</td></tr><tr><th>DOC. SYMBOL & NO.</th><th>DATE OF DOC.</th><th>FILE CLASSIFICATION OF RECORD COPY</th><th></th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td></tr><tr><td colspan="2">DOC. SUBJECT</td><td colspan="2"></td></tr><tr><td colspan="4">SOURCE INFORMATION</td></tr><tr><th>SOURCE CRYPTONYM</th><th>DATE OF INFO.</th><th>EVALUATION</th><th></th></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td colspan="4">TEXT OF EXTRACT (Also cite doc. distribution, Distribution No., etc. - if applicable)</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6097.png
-
-Convert to Markdown1/8/76
+1/8/76
 
 Date of Request.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13196.png
-
-Convert to Markdown# Notes from the Sturgis Investigation
+# Notes from the Sturgis Investigation
 
 **Note: This is not a complete transcription of all the notes. It is a summary of the main points discussed in the meeting and any relevant information added or corrected by the investigator.**
 

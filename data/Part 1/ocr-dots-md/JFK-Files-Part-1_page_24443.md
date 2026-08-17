@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24443.png
-
-Convert to MarkdownSecret
+Secret
 
 LUSTRIKER REPORT #231, Kulpas
 

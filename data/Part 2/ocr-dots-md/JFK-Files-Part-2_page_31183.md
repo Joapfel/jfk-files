@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31183.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Orta "lost his position in the Pune Munition Office on 26 January 1946, which phony for the operation was still going on in Miami and in Washington" Accordingly to the official version Orta accepted for years a mole on the Friday-Monday 1946, and he left the office for a couple of weeks. Before returning there "L1967 For Rpt p275 If the mod were close enough to Orta to have killed him smanpil in air out if Cuba, then they had to burn out Orta had lost his position necessity? The other probably exists, he just the mole never left the United States and there are available funds at hand when we write brought into the pot the gusmen alírte per se, so to whether the mod was precisely Phu von an mission plot and the CFA operations or, what appears more likely, simply using the Agency for this ulterior motor's priority outlined.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2000.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Item 5 -->
         <tr>

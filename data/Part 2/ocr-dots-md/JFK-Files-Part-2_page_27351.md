@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27351.png
-
-Convert to MarkdownA - Memo from Knoche to Belin - 29 Apr 75
+A - Memo from Knoche to Belin - 29 Apr 75
 
 B - Memo "What Could Castro Have Known?" - 24 Apr 75
 

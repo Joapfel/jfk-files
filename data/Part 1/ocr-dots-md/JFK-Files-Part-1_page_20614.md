@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20614.png
-
-Convert to MarkdownU. Y. WILSON, M.D.
+U. Y. WILSON, M.D.
 DEPARTMENT OF RADIOLOGY
 Drs. CROOVER, CHANEY AND LINN
 

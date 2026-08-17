@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11596.png
-
-Convert to MarkdownII. Double Agents
+II. Double Agents
 
 A double agent is an individual under Bureau control who has been recruited and given intelligence assignments by SBIS. Double agent development is given great emphasis since this is a primary method to obtain valuable information concerning hostile intelligence operations, targets, techniques and personnel. At the time of the last inspection, this Section listed 138 double agents, 296 potential double agents, and 49 inactive double agents. Figures for August 1, 1971, are 133, 291, and 47 for the respective categories. Apart from statistics, the most significant accomplishment lies in the quality of the double agent operations which has developed since the last inspection. A representative number of these situations are set forth below.
 

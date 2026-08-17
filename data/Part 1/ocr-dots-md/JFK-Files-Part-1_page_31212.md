@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31212.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="3">SECTION E</th></tr><tr><td colspan="3">NARRATIVE DESCRIPTION OF MANNER OF JOB PERFORMANCE (1/2)</td></tr></thead><tbody><tr><td colspan="3">Stress strengths and weaknesses demonstrated in current position. Indicate suggestions made to employee for improvement of his work. Give recommendations for his training. Describe, if appropriate, his potential for development and for assuming greater responsibility. Explain reasons. Amplify or explain, if appropriate, ratings given in SECTIONS B, C, and D to provide the best basis for determining future personnel actions.</td></tr><tr><td colspan="3">As Chief of SR's Research Section on Soviet Intelligence, Mr. Wigren's performance has continued to be superior in the same manner as described in Section E of last year's report. In addition to this he has worked closely with OIR on the revamping of the CI Operations Course. He has been particularly effective in organizing and leading briefings on the RIS given to chiefs and operations officers of foreign intelligence services during their visits to Washington, and in leading a seminar designed to assist SR personnel in handling liaison briefings.<br/>His success is carrying out a planned approach to SR's CI research problems, using personnel who have relatively little substantive experience, has been especially gratifying.</td></tr></tbody></table>
 

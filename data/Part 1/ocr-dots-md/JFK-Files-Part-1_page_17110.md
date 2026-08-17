@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17110.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. I recommend renewal of Project LIEMPTY as pre-sented.
 

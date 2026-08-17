@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18080.png
-
-Convert to MarkdownSECRET/KAPOK
+SECRET/KAPOK
 
 REQUEST FOR PROJECT RENEWAL
 

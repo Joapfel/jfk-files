@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21396.png
-
-Convert to MarkdownSECRET
+SECRET
 
 This reference in the file captioned "Deserters" pertains to an article which appeared on 3/20/68 in "Tidsignal", a leftist newspaper in Sweden, entitled "This is How LBJ's Agents Operate in Sweden" by Bo Hammer (not further identified). The article concerned alleged activities of US agents in Sweden to persuade American deserters in Sweden to return to the Army. It alleged that Richard Gibson, who professed himself to be a journalist and pretended to belong to the Black Power movement had been instrumental in persuading Ray Jones, one of the first deserters from the US Army in Sweden, to return to Frankfurt. Gibson, who lived in London, Eng., was said to have visited Sweden no less than four times and on his last trip had claimed to represent American Negro leader Robert Williams who was in China. According to the article Gibson's main interest at that time seemed to have been Jones. Jones' relationship with Gibson and attempts by the deserters to unmask American agents in Sweden were set out including their contacting Gibson in London for that purpose. Details set out.
 

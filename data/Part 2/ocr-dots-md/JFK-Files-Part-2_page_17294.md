@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17294.png
-
-Convert to MarkdownB. Events preceding federal grand jury investigation
+B. Events preceding federal grand jury investigation
 
 Between the time of this incident on December 4, 1969, and the impaneling of this grand jury on January 5, 1970, the air was full of charges and countercharges concerning what happened. A description of the spiraling escalation of public explanations, disputes, versions and commentary is instructive in understanding the way the grand jury investigation proceeded and serves to give useful background for some of the factual problems it found.
 

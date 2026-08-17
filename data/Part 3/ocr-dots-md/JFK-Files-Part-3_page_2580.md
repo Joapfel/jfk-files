@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2580.png
-
-Convert to Markdowndates, together with the purpose of such
+dates, together with the purpose of such
 dissemination. (D.6.a.b.c.d.)
 
 c. All records, vouchers, travel authorizations,

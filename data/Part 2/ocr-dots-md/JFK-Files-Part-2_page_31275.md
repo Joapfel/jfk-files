@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31275.png
-
-Convert to MarkdownHeads before the Hene Commission. Hurmer states that he battery is still held; therefore the information you request does not exist (CIA FO:14 LUF 96-2-87 AN)
+Heads before the Hene Commission. Hurmer states that he battery is still held; therefore the information you request does not exist (CIA FO:14 LUF 96-2-87 AN)
 
 When Leadership responds to this answer with a request for
 

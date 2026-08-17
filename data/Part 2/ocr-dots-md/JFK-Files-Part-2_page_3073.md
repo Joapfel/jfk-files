@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3073.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 sugar industry, King's paper did reflect considerable emphasis on disruption of that economic sector. Another item which Col. King saw fit to include in his memorandum was the following:
 

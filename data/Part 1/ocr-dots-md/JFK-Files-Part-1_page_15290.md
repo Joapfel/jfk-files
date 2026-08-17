@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15290.png
-
-Convert to Markdown# CONTENTS.
+# CONTENTS.
 
 Pages:
 - Brief of David's Activities II - VI

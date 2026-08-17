@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10906.png
-
-Convert to Markdownintelligence information, in accordance with policies,
+intelligence information, in accordance with policies,
 procedures and practices established as provided in
 paragraph 3a of NSCID No. 1, by the Director of Central
 Intelligence with the concurrences of the U. S. Intelli-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29558.png
-
-Convert to MarkdownMr.
+Mr.
 
 Dear Mr.,
 

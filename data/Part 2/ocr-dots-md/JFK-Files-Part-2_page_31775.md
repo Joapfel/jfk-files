@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31775.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH/dp
 
 The article said SCHEER stated "We invoke the devil theory of communism to explain the reality of desperate social revolution." SCHEER concluded "Vietnam is only the extension of this unhealthy American characteristic, not an isolated example of mistaken policy. It is an integral part of a policy of corrupt self-seeking deception." After explaining that ROBERT SCHEER visited South Vietnam twice, the article quoted SCHEER as saying, "I think we have to realize that the Vietnamese are indeed fighting for their freedom - but their freedom from us. They are nationalists trying to create a national revolution, and they can't be explained away with a label."

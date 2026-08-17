@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32797.png
-
-Convert to Markdownencircumstance and situation ranging from no action, through action taken in self defense by a wounded sentry or those assisting him, through increased defense conditions, placing personnel in positions protected from fire, and return of fire if appropriate and required as determined by the Commander Naval Base, Guantanamo. The precise nature of the U.S. response cannot be determined in advance. A single shot from an unseen sniper resulting in injury or death to a sentry is one thing, a continued sniping fusillade from a number of persons is another.
+encircumstance and situation ranging from no action, through action taken in self defense by a wounded sentry or those assisting him, through increased defense conditions, placing personnel in positions protected from fire, and return of fire if appropriate and required as determined by the Commander Naval Base, Guantanamo. The precise nature of the U.S. response cannot be determined in advance. A single shot from an unseen sniper resulting in injury or death to a sentry is one thing, a continued sniping fusillade from a number of persons is another.
 
 "(e) Sabotaging of base facilities"
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1588.png
-
-Convert to Markdown19-00001
+19-00001
 
 2 September 1961
 

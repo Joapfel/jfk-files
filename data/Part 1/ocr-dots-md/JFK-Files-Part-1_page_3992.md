@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3992.png
-
-Convert to MarkdownMiami 4 de Junio de 1965
+Miami 4 de Junio de 1965
 
 Sra. del Consejo de Liberacion
 P.O. Box 8697.Baltimore 40 Md.

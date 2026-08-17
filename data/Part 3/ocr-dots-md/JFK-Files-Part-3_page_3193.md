@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3193.png
-
-Convert to Markdown1805
+1805
 
 How did the Bureau come to place the so-called women's
 lib movement under surveillance, and I say so-called because

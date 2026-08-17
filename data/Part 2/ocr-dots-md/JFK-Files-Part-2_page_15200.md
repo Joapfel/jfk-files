@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15200.png
-
-Convert to MarkdownSee, meno Wannall to Sullivan, 5/21/62,
+See, meno Wannall to Sullivan, 5/21/62,
 "Intelligence Coverage of Non-Soviet-Bloc
 Countries (Annual Evaluation)."
 

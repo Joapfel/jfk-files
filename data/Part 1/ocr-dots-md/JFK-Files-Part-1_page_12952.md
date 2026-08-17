@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12952.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>ADVANCE COPY</td>
         <td><input type="checkbox" checked></td>

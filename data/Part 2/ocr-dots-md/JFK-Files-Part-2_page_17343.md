@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17343.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 1. An end to the "white man's robbing of the black by such vices as dope and prostitution."
 

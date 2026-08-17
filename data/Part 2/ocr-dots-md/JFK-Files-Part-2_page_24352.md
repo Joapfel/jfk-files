@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24352.png
-
-Convert to Markdownd. Non-official properties (identified as private firms which may be wholly or partially controlled by CIA and housing CIA employees) of which there are forty-one (41).
+d. Non-official properties (identified as private firms which may be wholly or partially controlled by CIA and housing CIA employees) of which there are forty-one (41).
 
 Attachment 1 lists CIA domestic real property and provides specific addresses for all overt and nominal CIA real property holdings. Official cover properties, safehouses, and non-official properties are listed by general location. Numbers of personnel and utilization purpose are shown for each category of real property.
 

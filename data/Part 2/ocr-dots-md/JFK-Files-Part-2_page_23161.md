@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23161.png
-
-Convert to Markdownas to whether this would be a useful thing to do. And as I have testified before, my recollection is I told him I thought I would find this conversation interesting, but I didn't think it was worth his doing because he had too high a profile, and it would not be a good thing to do from the point of view of attribution in relationship to a clandestine agent.
+as to whether this would be a useful thing to do. And as I have testified before, my recollection is I told him I thought I would find this conversation interesting, but I didn't think it was worth his doing because he had too high a profile, and it would not be a good thing to do from the point of view of attribution in relationship to a clandestine agent.
 
 Mr. Johnston. And let me go through what you have just told me.
 

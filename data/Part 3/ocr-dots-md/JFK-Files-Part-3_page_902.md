@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_902.png
-
-Convert to Markdown# CONCLUSION
+# CONCLUSION
 
 The constitutional issue here is, as was the issue in Nardone, a policy question. Given today's climate and public attitude towards electronic surveillances in general, unchecked Presidential (White House) power, the distinction between use of electronic surveillance for intelligence purposes vs. use for criminal prosecution, and the Supreme Court's tradition of avoiding constitutional issues if it can decide a case on lesser issues, I am inclined to think the Court would grasp the "out" of the Section 605 evidentiary issue, thus leaving the constitutional issue unresolved and allowing Presidentially approved foreign intelligence electronic surveillances to continue for the time being.
 

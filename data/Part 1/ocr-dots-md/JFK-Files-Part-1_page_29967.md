@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29967.png
-
-Convert to MarkdownATTACHMENT TO FITNESS REPORT (PART II) POTENTIAL
+ATTACHMENT TO FITNESS REPORT (PART II) POTENTIAL
 
 **Section E, Paragraph 13:**
 

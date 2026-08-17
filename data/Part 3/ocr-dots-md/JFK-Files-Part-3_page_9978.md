@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9978.png
-
-Convert to Markdownand providing criminal sanctions for unauthorized
+and providing criminal sanctions for unauthorized
 disclosures;
 
 --establishing effective injunctive recourse,

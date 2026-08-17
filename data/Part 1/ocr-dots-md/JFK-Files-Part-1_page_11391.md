@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11391.png
-
-Convert to MarkdownTO : DIRECTOR
+TO : DIRECTOR
 
 FROM : MEXICO CITY
 

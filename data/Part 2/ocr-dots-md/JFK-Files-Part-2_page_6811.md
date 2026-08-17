@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6811.png
-
-Convert to MarkdownThe Honorable Dan Burton
+The Honorable Dan Burton
 
 DCI/OCA/Liaison Grp/JPMeehan:dms/37976 (29 Dec 97 INTERIM)
 OCA 97-1969 (FN:wdata/action/liaison/burton.doc)

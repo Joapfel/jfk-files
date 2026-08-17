@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27146.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 5. That counterintelligence designees abroad work under the nominal command of Chiefs of Stations but that they engage in counterintelligence work full time and that they have privacy channels of communications with the Headquarters counterintelligence unit which will ensure that access to their sensitive information remains on a compartmented, need-to-know basis.
 

@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_27915.png
-
-Convert to MarkdownMr. Koonan was a bit slow in adjusting to the requirements of the course, but during the last two weeks he showed definite progress in his grasp of the production problems. His oral presentations improved steadily, and his final briefing was excellent, both in substance and in presentation. Mr. Koonan is a very pleasant young man, interested and cooperative, and gives promise of doing a sound intelligence officer.
+Mr. Koonan was a bit slow in adjusting to the requirements of the course, but during the last two weeks he showed definite progress in his grasp of the production problems. His oral presentations improved steadily, and his final briefing was excellent, both in substance and in presentation. Mr. Koonan is a very pleasant young man, interested and cooperative, and gives promise of doing a sound intelligence officer.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22365.png
-
-Convert to Markdownfor Vienna in October 1953 GOLITSYN was Deputy Chief of the
+for Vienna in October 1953 GOLITSYN was Deputy Chief of the
 Emigre Sector, Counterintelligence Department, Foreign Intelligence
 Department, Foreign Intelligence Directorate. GOLITSYN has not
 indicated the nature of his responsibilities in either of these

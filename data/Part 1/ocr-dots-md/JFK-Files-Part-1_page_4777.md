@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4777.png
-
-Convert to MarkdownVI. 22 Apr 76
+VI. 22 Apr 76
 
 New York: Through Gustavo Marin I learned about a general coordination of ABDALA with persons of other counterrevolutionary groups to create a more concrete and stronger program of terrorist actions. It is in this manner that ABDALA directly participated in the founding of the so-called Cuban Front of National Liberation (FNC), whose fundamental objective was to carry out terrorist acts. The talks on the founding of the FNC were held by the ABDALA leadership and Orlando Bosch, Dr. Vásquez Leyva and Dr. Humberto Fontana. I was introduced to a counterrevolutionary by the name of Octíerres, a militant of ABDALA who directly participated in the revolution against the Cuban Consulate in Madrid, Spain. A powerful explosive was placed at the entrance of the Cuban offices in Madrid, causing severe material damages. The offices were totally destroyed and the rest of the offices were seriously damaged as well as other floors of the building where the consulate was located. Present at the time of the explosion were the Cuban consul, his wife and other officials.
 

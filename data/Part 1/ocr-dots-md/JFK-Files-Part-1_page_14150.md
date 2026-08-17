@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14150.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (Career Agent Biographic Data p. 2)
 

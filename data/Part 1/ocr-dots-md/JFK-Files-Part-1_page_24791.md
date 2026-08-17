@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24791.png
-
-Convert to MarkdownIDENTITY
+IDENTITY
 
 Edward G. TICHBORN
 

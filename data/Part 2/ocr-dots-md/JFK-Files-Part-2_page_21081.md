@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21081.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ## DOUBLE AGENTS FOR BUREAU
 

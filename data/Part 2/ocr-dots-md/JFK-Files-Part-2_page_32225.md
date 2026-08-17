@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32225.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 SENSITIVE
 SECRET

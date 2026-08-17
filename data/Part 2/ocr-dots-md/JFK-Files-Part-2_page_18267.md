@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18267.png
-
-Convert to MarkdownTO: Director, Federal Bureau of Investigation
+TO: Director, Federal Bureau of Investigation
 
 DATE: May 23
 

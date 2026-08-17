@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25093.png
-
-Convert to Markdown14-00000
+14-00000
 
 c."Froilan." The latter is possibly identical with a "Froilan TIRADO" who called Subject on 29 March 1965. There are no Station traces on Froilan TIRADO.
 

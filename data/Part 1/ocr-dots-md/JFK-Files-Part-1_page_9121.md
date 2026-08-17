@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9121.png
-
-Convert to MarkdownFilm Companies and Publications
+Film Companies and Publications
 
 Los S.
 Pons Quirós

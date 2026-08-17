@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30310.png
-
-Convert to MarkdownMr. Chairman, ladies and gentlemen, I arrived in the United States in 1964, 12th of February. I felt something was going wrong because the attitude on the part of the officers from CIA who was dealing with me, I felt was going wrong, by a number of remarks, their behavior. Besides, I was in a psychological process. It's a very big thing, when you are coming to live in a new country. I left the country where I was born, never mind, my defection was strictly on ideological basis, but still psychologically is very big thing and very serious thing.
+Mr. Chairman, ladies and gentlemen, I arrived in the United States in 1964, 12th of February. I felt something was going wrong because the attitude on the part of the officers from CIA who was dealing with me, I felt was going wrong, by a number of remarks, their behavior. Besides, I was in a psychological process. It's a very big thing, when you are coming to live in a new country. I left the country where I was born, never mind, my defection was strictly on ideological basis, but still psychologically is very big thing and very serious thing.
 
 A very short period of time, April 4, I was invited on check-up for the doctor, and this checkup turned to be arrest.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8545.png
-
-Convert to MarkdownATTACHMENT A cont'd
+ATTACHMENT A cont'd
 
 | Item No. | MSS p. no. | Official Public Disclosure |
 |---|---|---|

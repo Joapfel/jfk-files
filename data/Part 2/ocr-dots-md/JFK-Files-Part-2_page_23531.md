@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23531.png
-
-Convert to MarkdownThe other documents indicate the thinking that went on up
+The other documents indicate the thinking that went on up
 to the point where the Lansdale group was established as
 the coordinated effort against Cuba.
 

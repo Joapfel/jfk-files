@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3683.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 29 MAR 63<br/>TO : DIRECTOR<br/>FROM : JAWAYE<br/>ACTION : OK 8<br/>DOD : DI, B/DC1, DOP, ADD, DOD 6, CA 2, CA/PES, CA/PROP CA/O 4, CI/OPS, CI/IC 2, FI, FI/D, FI/INT 2, IM, BAS 5, DD/I, AD/CI 2, AB/MK, S/C 2</td><td>SECRET</td><td>ROUTING<br/>1 4<br/>2 2<br/>3 6</td></tr><tr><td colspan="3">MAR 29 6224Z 63</td></tr><tr><td colspan="3">ROUTINE</td></tr><tr><td colspan="3">IN 96635</td></tr><tr><td colspan="3">TOCS</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 29 MAR 63<br/>TO : DIRECTOR<br/>FROM : JAWAYE<br/>ACTION : OK 8<br/>DOD : DI, B/DC1, DOP, ADD, DOD 6, CA 2, CA/PES, CA/PROP CA/O 4, CI/OPS, CI/IC 2, FI, FI/D, FI/INT 2, IM, BAS 5, DD/I, AD/CI 2, AB/MK, S/C 2</td><td>SECRET</td><td>ROUTING<br/>1 4<br/>2 2<br/>3 6</td></tr><tr><td colspan="3">MAR 29 6224Z 63</td></tr><tr><td colspan="3">ROUTINE</td></tr><tr><td colspan="3">IN 96635</td></tr><tr><td colspan="3">TOCS</td></tr></tbody></table>
 
 COPY
 

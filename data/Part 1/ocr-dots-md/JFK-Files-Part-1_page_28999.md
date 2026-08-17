@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28999.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE : 19 JUNE 1955</td></tr></table>
 

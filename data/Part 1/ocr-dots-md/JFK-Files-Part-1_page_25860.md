@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25860.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ATTACHMENT TO TRAINING MEMO
 

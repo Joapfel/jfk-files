@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24624.png
-
-Convert to Markdown3. CIA Encourages Congolese Efforts to "Eliminate" Lumumba, Who is Viewed as a "Grave Danger" Even After Being Deposed and Placed in UN Protective Custody
+3. CIA Encourages Congolese Efforts to "Eliminate" Lumumba, Who is Viewed as a "Grave Danger" Even After Being Deposed and Placed in UN Protective Custody
 
 On September 5, 1960, President Kasavubu dismissed Premier Lumumba from the government despite the strong support for Lumumba that existed in the Congolese Parliament. After losing the ensuing power struggle with Kasavubu and Mobutu, who seized the government by a military coup on September 14, Lumumba sought protection from the United Nations peace-keeping force. The evidence indicates that the ouster of Lumumba from the government did not alleviate the concern about him in the United States government.
 

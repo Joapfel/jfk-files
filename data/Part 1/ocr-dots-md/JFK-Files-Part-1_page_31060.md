@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31060.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="3">CLASS :E:1; MESSAGE</th></tr></thead><tbody><tr><td>DATE</td><td>: 7/60</td><td>ROUTINE</td></tr><tr><td>TO</td><td>:</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>:</td><td>MEXICO CITY</td></tr><tr><td>ACTION</td><td>:</td><td>C/W 2</td></tr><tr><td>INFO.</td><td>:</td><td>COP, C/CCD 2, C/C1, C/C2, SSA, D/CP, D/C3 2, S/C 2</td></tr></tbody></table>
 

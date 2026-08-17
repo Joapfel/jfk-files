@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6169.png
-
-Convert to Markdown4 December 1975
+4 December 1975
 
 MEMORANDUM FOR: Chairman, Information Review Committee
 

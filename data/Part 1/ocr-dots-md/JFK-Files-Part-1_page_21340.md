@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_21340.png
-
 to a high official. He does not know anything about the survivors. He gives the address of a Cuban who arrived in the "Comillas" with an amputated foot, a volunteer in the Blue Division. (The father of the legionary, when questioned at the port, said he was lame through an accident). He confirms the stories about Queipo and Yague, In Vigo he heard the following story - The Governor of Burgos was imprisoned for black marketing and a son of his, a lieutenant in the army, went to Madrid to see Serrano Suner, who refused to see him and told him to see his secretary; the lieutenant refused and was referred to the Aide-de-Camp. The Aide-de-Camp unfortunately asked him what he wanted and the Governor's son said - "I wanted to put two bullets in S. Suner, but as I can't I'll put them in you instead<sup>c</sup>; he shot him and left him dead.
 
 In Vigo a bad meal cost him 20 pts. He does not know anything about it, but the people say the Germans take everything. When we ask his opinion about the scarcity of rice, olive oil, etc. he ends by saying that he thinks too that the Axis take it.

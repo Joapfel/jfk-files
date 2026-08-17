@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29741.png
-
-Convert to MarkdownJACK W. WOOD
+JACK W. WOOD
 Brig., Gen., USAF
 Air Atache
 

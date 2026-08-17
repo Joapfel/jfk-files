@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31641.png
-
-Convert to Markdown**Secret**
+**Secret**
 **Security Information**
 
 The following received from Condon, Munich

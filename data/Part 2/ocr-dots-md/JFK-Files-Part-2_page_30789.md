@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30789.png
-
-Convert to Markdown11/22/63:
+11/22/63:
 
 Maid told him news.
 

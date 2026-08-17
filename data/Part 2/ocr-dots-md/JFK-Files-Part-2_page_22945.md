@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22945.png
-
-Convert to Markdown43
+43
 
 what Mr. Kissinger was requested to do and what actually
 happened.

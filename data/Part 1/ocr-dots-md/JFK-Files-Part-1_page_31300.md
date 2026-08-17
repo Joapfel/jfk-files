@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31300.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **6. CONSTRUCTIVE IMAGINATION**
 

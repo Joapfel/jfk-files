@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15659.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE : 17 DEC 60</td>
     <td>TO : DIRECTOR<br/>FROM : LEOPOLDVILLE<br/>ACTION: C/AF 3 (MR HOUCK AF DIV NOTIFIED 1515 17 DEC)<br/>INFO : COP, C/C1, C/F1 2, C/EE 3, S/C 2</td>

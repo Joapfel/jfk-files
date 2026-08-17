@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13147.png
-
-Convert to MarkdownEstimable amigo Pilo:
+Estimable amigo Pilo:
 
 Es la tercera canta que te llena,
 en esta hora que te la llevo

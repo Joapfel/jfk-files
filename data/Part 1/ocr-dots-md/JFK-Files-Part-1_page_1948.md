@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1948.png
-
-Convert to Markdown104-10122-10291
+104-10122-10291
 
 EYES ONLY.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13939.png
-
-Convert to MarkdownLetter to Albany
+Letter to Albany
 FBI INTELLIGENCE LETTER
 FOR THE PRESIDENT
 CODE NAME "LILIT"

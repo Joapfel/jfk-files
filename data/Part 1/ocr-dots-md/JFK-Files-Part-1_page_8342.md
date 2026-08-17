@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8342.png
-
-Convert to MarkdownUnwilling to help CIA. I would not be willing to cooperate with the CIA for several reasons.
+Unwilling to help CIA. I would not be willing to cooperate with the CIA for several reasons.
 
 1. First, I don't think you people are really accomplishing anything of value. If the same amount of money that is now spent on espionage were diverted to competitive free enterprise, the standard of living of both countries would rise to levels where no one would have the time for the present suicidal foreign involvements.
 

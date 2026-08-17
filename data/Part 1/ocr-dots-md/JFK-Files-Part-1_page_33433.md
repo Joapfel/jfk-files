@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33433.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>DATE</td><td>Coded</td><td>Arc.</td><td>No.</td><td>P.O. Box</td><td>Metric</td><td>Page</td><td>UP</td><td>PAGE</td></tr></table>
 

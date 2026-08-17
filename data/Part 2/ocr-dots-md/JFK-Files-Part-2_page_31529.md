@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31529.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 JTQ:j1
 
 The name San Francisco Free Speech Forum is the name utilized by the San Francisco County Communist Party to sponsor its public meetings.

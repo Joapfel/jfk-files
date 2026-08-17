@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5294.png
-
-Convert to Markdown17 May 1963
+17 May 1963
 
 Chief, Contact Division
 ATTN: Support (Stunts)

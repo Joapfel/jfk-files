@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2411.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 render Tanzania in return. Prior to their visit-it was believed that hundreds of acres had been set aside in Tanzania for the RNA to set up a commune and that Red China had land-clearing equipment and farm machinery to be utilized on this property.
 

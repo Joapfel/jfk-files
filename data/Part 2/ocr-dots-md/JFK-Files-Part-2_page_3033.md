@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3033.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 duty of the PSP was to work toward unity and overcome
 the counterrevolutionaries. 37/

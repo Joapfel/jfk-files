@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8760.png
-
-Convert to Markdownexpected to impress U.S. Government officials who were
+expected to impress U.S. Government officials who were
 already having talks with Manuel URUTIA Lleo, and
 willing to provide financial assistance to him.
 

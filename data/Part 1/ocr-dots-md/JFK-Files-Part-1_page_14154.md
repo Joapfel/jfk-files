@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14154.png
-
-Convert to Markdown(c) Recruitment pitches, courier work, or related assignments anywhere in Latin America.
+(c) Recruitment pitches, courier work, or related assignments anywhere in Latin America.
 
 (d) Monitoring of diplomatic and commercial activities in the WAVE area.
 

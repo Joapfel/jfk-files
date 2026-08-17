@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23300.png
-
-Convert to Markdown8. Benefits. (a) You will be entitled to death and disability benefits equal to those authorized under the Federal Employees' Compensation Act, as amended. Claims by you, your heirs, or legal representatives under this paragraph will be processed by the Government in accordance with its procedures in such manner as not to impair security.
+8. Benefits. (a) You will be entitled to death and disability benefits equal to those authorized under the Federal Employees' Compensation Act, as amended. Claims by you, your heirs, or legal representatives under this paragraph will be processed by the Government in accordance with its procedures in such manner as not to impair security.
 
 (b) You will be entitled to continuance of pay and allowances in a manner similar to that set forth in the Missing Persons Act (50 U.S.C.A., App. 1001-1015).
 

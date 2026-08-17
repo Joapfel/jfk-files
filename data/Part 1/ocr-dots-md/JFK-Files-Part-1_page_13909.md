@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13909.png
-
-Convert to Markdown520.
+520.
 
 Entrada 1301.- MP pregunta por ROGELIO RODRIGUEZ y J.
 índica que se está. MP:que la diga que habló MELBA

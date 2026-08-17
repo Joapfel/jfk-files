@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10550.png
-
-Convert to Markdown1 - Mr. Farrington (detached)
+1 - Mr. Farrington (detached)
 1 - Mr. Wannall (detached)
 1 - Mr. Mintz (detached)
 1 - Mr. Hotis (detached)

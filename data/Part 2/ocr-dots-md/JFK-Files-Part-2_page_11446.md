@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11446.png
-
-Convert to Markdownto such organization; or, (2) to advise, counsel, or urge any person, with knowledge or notice that such person is a member of such organization, to perform, or omit to perform, any act if such act or omission would constitute a violation of any provision of section 5 (2) (1). (§ 5 (a) (2)) (Title 50, USC, § 784 (2))
+to such organization; or, (2) to advise, counsel, or urge any person, with knowledge or notice that such person is a member of such organization, to perform, or omit to perform, any act if such act or omission would constitute a violation of any provision of section 5 (2) (1). (§ 5 (a) (2)) (Title 50, USC, § 784 (2))
 
 (2) Where an organization is registered, or there is in effect a final order of the Board requiring an organization to register, as a communist-action organization, it shall be unlawful for any officer or employee of the U. S. to issue a passport to, or renew the passport of, any individual knowing or having reason to believe that the individual is a member of such organization. (§ 6 (b)) (Title 50, USC, § 785 (b))
 

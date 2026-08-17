@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10379.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 valuable and economical defector this Agency has ever

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4049.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 that any statement that I do make may be used against me in a court of law. They have advised me that I may have an attorney if I desire. No threats, promises, force, or inducements of any kind have been used to get me to furnish this statement.
 

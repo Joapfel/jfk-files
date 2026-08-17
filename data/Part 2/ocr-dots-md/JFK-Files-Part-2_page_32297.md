@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32297.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to unseat the Castro regime, and would lend weight to arguments that the U. S. may be leaning toward coexistence with the Castro regime.
 

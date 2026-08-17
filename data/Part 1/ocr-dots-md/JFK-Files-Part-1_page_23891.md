@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23891.png
-
-Convert to MarkdownIs he solvent? Yes. But his wife works as a school teacher. They have a car. They pay low rent. Building of very mixed occupancy.
+Is he solvent? Yes. But his wife works as a school teacher. They have a car. They pay low rent. Building of very mixed occupancy.
 
 His father and mother had flat in this building. The father and mother were decorators. Has office on upper ground floor and press on lower ground floor.
 

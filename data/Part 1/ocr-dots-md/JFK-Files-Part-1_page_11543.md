@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11543.png
-
-Convert to MarkdownGuadalajara 17/11/68
+Guadalajara 17/11/68
 
 Gales:
 

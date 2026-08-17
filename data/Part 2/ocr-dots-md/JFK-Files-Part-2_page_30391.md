@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30391.png
-
-Convert to Markdown1.  to advise the DDO or Directorate as to the level of performance,  
+1.  to advise the DDO or Directorate as to the level of performance,  
 2.  the kind of activity conducted, the quality, the proper or  
 3.  improper degree of emphasis. We maintain an overview on behalf  
 4.  of DDO.

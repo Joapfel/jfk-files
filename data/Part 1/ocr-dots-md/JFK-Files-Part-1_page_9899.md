@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9899.png
-
-Convert to Markdown<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CASSIFICATION</th><th>SPOT-SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>F00A-33442</td></tr></tbody></table>
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CASSIFICATION</th><th>SPOT-SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>F00A-33442</td></tr></tbody></table>
 
 b. To continue social development of MOLINA as access agent to Carmen LOZADA (the two women are planning to live together) and a possible entree to the Mexican Olympic Committee and foreign olympic delegation.
 

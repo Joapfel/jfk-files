@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23210.png
-
-Convert to Markdown(5) Outside interests, hobbies, etc.: Athletics in general, outdoor life, photography, writing, jungle lore and chose.
+(5) Outside interests, hobbies, etc.: Athletics in general, outdoor life, photography, writing, jungle lore and chose.
 
 (6) Objective personality evaluation: Subject is an estate, experienced and highly competent career agent. Has possessed an attitude and a personality which are quite suitable for prolonged existence as a deep-cover asset. His personality is well suited for the many agent handling and management responsibilities that he will have in Mexico City.
 

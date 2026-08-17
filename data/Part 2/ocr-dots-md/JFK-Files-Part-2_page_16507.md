@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16507.png
-
-Convert to Markdown12. Panther Members
+12. Panther Members
 
 NO ONE IS A PANTHER MEMBER IN GOOD STANDING UNTIL THEY HAVE COMPLETED the six week training successfully.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32938.png
-
-Convert to Markdown<table><thead><tr><th>ACTION</th><th>ADVANCE COPY</th><th>UNIT</th><th>TIME</th><th>BY</th></tr></thead><tbody><tr><td>C/ EUR 4</td><td>RID COPY ☐ ISSUED ☐ SLOTTED ☐ USED</td><td>1</td><td>3</td><td></td></tr><tr><td>INFO<br/>FILE VR c/w HCOG.5, C/WH6, C/T, C/F2</td><td colspan="4"></td></tr></tbody></table>
+<table><thead><tr><th>ACTION</th><th>ADVANCE COPY</th><th>UNIT</th><th>TIME</th><th>BY</th></tr></thead><tbody><tr><td>C/ EUR 4</td><td>RID COPY ☐ ISSUED ☐ SLOTTED ☐ USED</td><td>1</td><td>3</td><td></td></tr><tr><td>INFO<br/>FILE VR c/w HCOG.5, C/WH6, C/T, C/F2</td><td colspan="4"></td></tr></tbody></table>
 
 SECRET 091236Z CITE MADRID-1378
 

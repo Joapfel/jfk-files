@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3904.png
-
-Convert to MarkdownPUFA- 21693/14
+PUFA- 21693/14
 
 Att. No. 22 to UFGA-21693
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26560.png
-
-Convert to Markdown# FIELD INFORMATION REPORT
+# FIELD INFORMATION REPORT
 
 GRADING OF SOURCE: A Completed source is highly reliable. B fairly reliable. D not at all reliable. F Not relevant. APPLICABLE TO SOURCES OF DOUBTFUL HONESTY OR TRUST REGARDING THE CONTENT, ACCURACY, AND OR CERTAINNESS OF THE REPORT.
 

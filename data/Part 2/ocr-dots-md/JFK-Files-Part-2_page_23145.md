@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23145.png
-
-Convert to MarkdownNN#:55510
+NN#:55510
 
 Doctor 32423459
 

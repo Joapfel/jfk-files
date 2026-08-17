@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16150.png
-
-Convert to Markdowndistingue—the aging Charles Boyer plunked in a spy scenario, looking not so much the part of James Bond as his enigmatic superior, M. All three follow WerBell’s briefing with small nods and half smiles of approval.
+distingue—the aging Charles Boyer plunked in a spy scenario, looking not so much the part of James Bond as his enigmatic superior, M. All three follow WerBell’s briefing with small nods and half smiles of approval.
 
 WerBell talks on, his eyes on the pearl-grey ash of his cigar, his growly voice low. There’s work to be done—lots of it. The day known as U.D.I.—that is, the date when Abaco breaks away from the Commonwealth of the Bahamas, the Unilateral Declaration of Independence—is tentatively set for New Year’s Day of 1975. The operations required to seize control of the island have been disguised as the “uprising” of an “autonomous, locally organized independence movement” with such amazing skill that none of the world’s major press has spotted what is going on. A number of seemingly local organizations and deceptively “ad hoc” groups have sprung up to handle those activities that cannot be kept from public view—propaganda, organization, and so forth. There are: the Abaco Independence Movement (known as A.I.M.); the Abaco Development Council; Friends of Abaco; the “Prosperity ’74” Economic Conference on Abaco.
 

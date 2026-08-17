@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27624.png
-
-Convert to Markdown1977 Inaugural Committee
+1977 Inaugural Committee
 
 February 7, 1977
 

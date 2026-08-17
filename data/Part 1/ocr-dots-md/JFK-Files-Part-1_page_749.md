@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_749.png
-
-Convert to Markdownservice tests the decision is reached not to continue develop-
+service tests the decision is reached not to continue develop-
 ment of a leftist writer group press service, LIANCHOR will be
 converted to a roof project for the administration and funding
 of singleton writer agents. Identity-1, if recruited, will be

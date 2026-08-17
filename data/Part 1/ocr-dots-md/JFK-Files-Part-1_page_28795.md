@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28795.png
-
-Convert to MarkdownNOTIFICATION OF PERSONNEL ACTION
+NOTIFICATION OF PERSONNEL ACTION
 
 <table><tr><td rowspan="2">PS</td><td>NAME (CAPS. LAST, FIRST, MIDDLE)</td><td>DEPT. NBR.</td><td>EMPLOYEE NO. &amp; SEC.</td><td>BIRTHDATE (MM-YY)</td><td>SOCIAL SECURITY NO.</td></tr><tr><td colspan="5"></td></tr><tr><td colspan="3">SHAW, ROBERT T. MR.</td><td>539700M</td><td>06-18-25</td><td>268-28-0199</td></tr><tr><td>2</td><td>VETERAN PREVIOUSLY CREDITS<br/>5 YRS ENLISTED<br/>4 YRS COMPLIANT</td><td>5 YR. CME</td><td>(3) 0</td><td>12-77-78<br/>00-00-00</td><td>US NAVY<br/>0</td></tr><tr><td colspan="3">9 FLDG</td><td colspan="3">10 RETIREMENT<br/>I CONSIDERED<br/>2 UNCONDITIONAL<br/>3 WAIVED</td></tr><tr><td colspan="3">12 NATURE OF ACTION<br/>171 LIMITED APPOINTMENT CODE</td><td colspan="3">13 EFFECTIVE DATE<br/>03-27-63</td></tr><tr><td colspan="3">CODE</td><td colspan="3">14 CIVIL SERVICE OR OTHER LEGAL AUTHORITY<br/>SEC. 522.1 PL 724-79TH AS AMENDED</td></tr><tr><td colspan="3">15 FROM POSITION TITLE AND NUMBER</td><td colspan="3">16 PAY GRADE<br/>17 GRADE</td></tr><tr><td colspan="3"></td><td colspan="3">18 SALARY<br/>pa$</td></tr><tr><td colspan="3">19 NAME AND LOCATION OF EMPLOYING OFFICE</td><td colspan="3">DEPARTMENT OF STATE, WASHINGTON 25, D. C.</td></tr></table>
 

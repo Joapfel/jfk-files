@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15725.png
-
-Convert to MarkdownThe Murder of Bobby Newton and the Arrest of a Panther 8
+The Murder of Bobby Newton and the Arrest of a Panther 8
 
 18.
 

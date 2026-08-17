@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15870.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>CLASSIFIED INFORMATION</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : FRANKFURT</td></tr><tr><td>ACTION: AF7</td></tr><tr><td>INFO : EEX LR FILE</td></tr></table>
 

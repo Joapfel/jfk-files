@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6337.png
-
-Convert to Markdownassassination of President John F. Kennedy; the
+assassination of President John F. Kennedy; the
 assassination itself; and investigations of or inquiries
 into the assassination.
 

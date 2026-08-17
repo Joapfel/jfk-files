@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9559.png
-
-Convert to Markdown8 February 1950
+8 February 1950
 
 MEMORANDUM
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5401.png
-
-Convert to MarkdownHughes, Brent H.
+Hughes, Brent H.
 Exhibits Section
 Exhibits Section
 

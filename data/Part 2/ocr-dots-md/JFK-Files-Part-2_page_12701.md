@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12701.png
-
-Convert to Markdown## Dissemination to Secret Service
+## Dissemination to Secret Service
 
 Under agreement between FBI and Secret Service concerning Presidential protection dated 2-3-65 (set out in entirety in section 102, volume IV, of this manual), reports are disseminated to Secret Service in all security index cases. Furnish Bureau extra copy of reports in these cases.
 

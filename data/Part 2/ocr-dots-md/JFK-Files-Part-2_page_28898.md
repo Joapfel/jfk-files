@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28898.png
-
-Convert to Markdown19. Do you understand that all payments made to you on behalf of a child must be spent or saved for his use and benefit, and do you agree to so apply the benefits? [x] No
+19. Do you understand that all payments made to you on behalf of a child must be spent or saved for his use and benefit, and do you agree to so apply the benefits? [x] No
 
 20. Do you agree to notify the Social Security Administration promptly when you no longer have responsibility for the welfare and care of any child for whom you are filing this application? [x] No
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9475.png
-
-Convert to MarkdownDE T-1
+DE T-1
 
 September 11, 1970
 

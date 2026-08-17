@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18783.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 correspondents in the United States. Informant suggested that subject could remember what informant said during their conversations, and pass this information on to Soviet correspondents. Subject said that it was difficult for him to remember everything.
 

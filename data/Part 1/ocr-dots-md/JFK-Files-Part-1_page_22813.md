@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22813.png
-
-Convert to MarkdownMr. Harold R. Noemayr
+Mr. Harold R. Noemayr
 
 Dear Mr. Noemayr:
 

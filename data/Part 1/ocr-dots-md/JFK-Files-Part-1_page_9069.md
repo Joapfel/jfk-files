@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9069.png
-
-Convert to Markdownh. Fila Henning - wife of Pablo Henning; daughter of one of Venezuela's richest men whose name TICHBORN could not recall; studied at the Maryknoll College, Tarrytown, New York; was sympathetic to Peres Jimenez.
+h. Fila Henning - wife of Pablo Henning; daughter of one of Venezuela's richest men whose name TICHBORN could not recall; studied at the Maryknoll College, Tarrytown, New York; was sympathetic to Peres Jimenez.
 
 2. TICHBORN has also met Mr. Harold Horan who is Executive Secretary of the American Chamber of Congress.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15805.png
-
-Convert to MarkdownChief of Police JACK ZIEGLER, Chicago Heights, Illinois PD advised on December 5, 1969, approximately 200 black youths disrupted morning classes at Bloom Township High School resulting in the dismissal of school for the day. The youths indicated the disruption was caused because of memorial services for HAMPTON. The high school is 25 per cent Negro. No arrests or injuries were reported.
+Chief of Police JACK ZIEGLER, Chicago Heights, Illinois PD advised on December 5, 1969, approximately 200 black youths disrupted morning classes at Bloom Township High School resulting in the dismissal of school for the day. The youths indicated the disruption was caused because of memorial services for HAMPTON. The high school is 25 per cent Negro. No arrests or injuries were reported.
 
 On December 5, 1969, a Bureau Agent of the FBI advised that at approximately 2:15 PM about 75 Northwestern University (NW) students led by members of SDS from NW conducted a demonstration in Downtown Evanston, Illinois, protesting the death of HAMPTON. During the demonstration, Evanston police officers attempted to keep the demonstrators on the sidewalk which resulted in some of the demonstrators resisting the police. Several demonstrators commenced shoving Lieutenant TOM JOYCE of the Evanston PD. Several blows were struck, however, no injuries were suffered by Lieutenant JOYCE and the demonstrators.
 

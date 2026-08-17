@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5838.png
-
-Convert to MarkdownOGC 68-0374
+OGC 68-0374
 
 5 March 1968
 

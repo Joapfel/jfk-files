@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33181.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>CLASSIFICATION</th><th>STATUS</th></tr></thead><tbody><tr><td>SECRET (When Filed)</td><td>DUE TO CONFIDENTIALITY</td></tr><tr><td>ISSUED</td><td>SLOTTED</td></tr><tr><td>BY <u>&nbsp;&nbsp;S&nbsp;&nbsp;</u></td><td>AT <u>&nbsp;&nbsp;151.2&nbsp;&nbsp;</u></td></tr><tr><td>DISSEMINATED BY <u>&nbsp;&nbsp;7/30&nbsp;&nbsp;</u> PER <u>&nbsp;&nbsp;9&nbsp;&nbsp;</u></td><td>ACTION <u>&nbsp;&nbsp;&nbsp;&nbsp;short 5, &nbsp;&nbsp;&nbsp;&nbsp;RID COPY&nbsp;&nbsp;&nbsp;&nbsp;</u></td></tr><tr><td colspan="2">FILE ID: <u>&nbsp;&nbsp;YES&nbsp;&nbsp;</u> NO __________<br/>CLASSIFY TO FILE NO: __________<br/>A-REF TO FILE NO: __________<br/>FILE ID: <u>&nbsp;&nbsp;NO&nbsp;&nbsp;</u> RET. TO __________<br/>DESTROY: __________</td></tr><tr><td colspan="2"><div>PREVIOUSLY DUE TO CONFIDENTIALITY</div><div>PLEASE NOTE IF ANY REFERENCE TO ANOTHER WORK IS INCORPORATED<br/>IN THIS DOCUMENT IS VULNERABLE TO CENSURE OR IMPAIRMENT OF THE INTELLECTUAL PROPERTY OF OTHERS. PLEASE DO NOT ACT WITHOUT INFORMING YOURSELF FIRST AS TO THE COCORRECT APPLICATION OF ALL APPLICABLE LAICES AND REGULATIONS.<br/><u>&nbsp;&nbsp;9/26/80&nbsp;&nbsp;</u> /c/c &nbsp;&nbsp; c/c/1 c/c/2 v<br/>INFO: <u>&nbsp;&nbsp; sold&nbsp;&nbsp;</u> &nbsp;&nbsp; NON-PROFIT &nbsp;&nbsp; NON-PROFIT &nbsp;&nbsp; SEVERE 5<br/>FILE VR. <u>&nbsp;&nbsp;c/c&nbsp;&nbsp;</u> /c/c/1 c/c/2 v</div></td></tr></tbody></table>
 

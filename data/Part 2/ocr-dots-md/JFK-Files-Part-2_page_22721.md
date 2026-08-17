@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22721.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 General and so forth, rather than to go through the normal bureaucratic chain of command out of the CIA and its various components.
 

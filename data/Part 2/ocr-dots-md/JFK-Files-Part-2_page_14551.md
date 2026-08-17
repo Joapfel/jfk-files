@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14551.png
-
-Convert to MarkdownLetter to SAC, Washington Field
+Letter to SAC, Washington Field
 
 Re: INTELLIGENCE COVERAGE OF DIPLOMATIC REPRESENTATIVES OF FRIENDLY FOREIGN NATIONS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10086.png
-
-Convert to MarkdownHon. Frank Church
+Hon. Frank Church
 U.S. Senate
 Washington, D.C.
 

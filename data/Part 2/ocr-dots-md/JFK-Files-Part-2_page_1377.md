@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1377.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and various branch or section heads of the local OMCID establishment, senior military officers of all three services and various branch and section chiefs of the local military establishments. One segment of these activities involves KURKUKE matters of high importance. One of the primary direct responsibilities of incumbent is the origination of KURUKI liaison with these agencies and of equal import is the maintenance of good liaison relationships, stepping in where there is potential trouble, where policy decisions have to be made, where new departures in liaison are necessary (such as joint operational activities with other PMO or other DRYONE agencies).
 

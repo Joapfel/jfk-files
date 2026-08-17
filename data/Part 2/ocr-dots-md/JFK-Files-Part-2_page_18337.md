@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18337.png
-
-Convert to MarkdownHUSTON PLAN:
+HUSTON PLAN:
 
 JUSTICE DOCUMENTS TO BE DECLASSIFIED
 

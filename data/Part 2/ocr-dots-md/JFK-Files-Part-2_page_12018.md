@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12018.png
-
-Convert to Markdown NW 88321 DocId:32989529 Page 1352
+NW 88321 DocId:32989529 Page 1352
 
 [e.] When an informant or former informant is initially considered as a potential witness in a Bureau case, determine whether he paid Federal and state taxes on the income he received from the Bureau for his services. If such taxes have not been paid, obtain all pertinent details and promptly submit recommendations for handling the situation.
 

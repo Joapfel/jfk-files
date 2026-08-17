@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7766.png
-
-Convert to MarkdownUNITED STATES C CERNMENT
+UNITED STATES C CERNMENT
 
 Memorandum
 

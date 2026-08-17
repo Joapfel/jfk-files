@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16548.png
-
-Convert to Markdown2.
+2.
 
 Marital status
 Selective Service No.

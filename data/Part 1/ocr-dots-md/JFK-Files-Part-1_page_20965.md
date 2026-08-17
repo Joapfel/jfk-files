@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20965.png
-
-Convert to Markdown14-0000
+14-0000
 
 Date:
 

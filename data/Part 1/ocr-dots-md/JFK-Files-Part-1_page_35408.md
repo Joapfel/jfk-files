@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35408.png
-
-Convert to MarkdownDr. MIRO said there was no way to determine the accuracy of the figures given of planes, guns, etc. received from the Soviet bloc (and Italy and Canada) but even if the figures were exaggerated 100 per cent, they would still be impressive.
+Dr. MIRO said there was no way to determine the accuracy of the figures given of planes, guns, etc. received from the Soviet bloc (and Italy and Canada) but even if the figures were exaggerated 100 per cent, they would still be impressive.
 
 He added that Castro is daily becoming stronger militarily with weapons and with a large militia of close to 300,000 being trained to use them while the economy continues to deteriorate. Perhaps only half the militia would be effective. But that is reasonable. Thus, he said, the longer the delay in positive military action to overthrow Castro, the greater will be the task. "We must act soon, vigorously and effectively, to insure victory. Another defeat would be disastrous and would make Cubans, Latin Americans and others believe Castro to be invincible. Then would come accommodations and even worse, the implanting of Castro-backed regimes in the hemisphere. And the U. S. would suffer worst of all, being discredited for defeat and "guilt of interference." "In the UN no nation would stand beside the U. S."
 

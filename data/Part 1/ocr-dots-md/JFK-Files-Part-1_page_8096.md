@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8096.png
-
-Convert to MarkdownVictim: The corpse of Luciano Nieves
+Victim: The corpse of Luciano Nieves
 
 Reboso: Joining the mainstream
 

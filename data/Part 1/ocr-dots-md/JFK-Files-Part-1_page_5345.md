@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5345.png
-
-Convert to MarkdownSECRET
+SECRET
 
 XT-529-68
 15 July 1968

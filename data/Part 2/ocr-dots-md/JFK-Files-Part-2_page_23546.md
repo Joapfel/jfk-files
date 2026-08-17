@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23546.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 1. Agreed that Cuban nationals now in the United States will be given refugee status and assisted, under a program to be developed and directed by the Secretary of Health, Education & Welfare, in carrying on their former occupations. Refugees now in Miami will be encouraged to locate in other areas. Cuban nationals entering the United States will be given refugee status.
 

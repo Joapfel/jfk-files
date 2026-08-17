@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23742.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 ## WASHINGTON, D.C. UL
 

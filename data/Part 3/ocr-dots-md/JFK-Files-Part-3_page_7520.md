@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7520.png
-
-Convert to MarkdownNWW-88608_DocId:32989588 Page 193
+NWW-88608_DocId:32989588 Page 193
 
 ENCLUSURE
 

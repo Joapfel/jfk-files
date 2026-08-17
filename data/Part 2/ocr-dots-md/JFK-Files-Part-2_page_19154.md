@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19154.png
-
-Convert to MarkdownJeannette Rankin Speaks Up
+Jeannette Rankin Speaks Up
 
 # War's Unremitting Foe
 

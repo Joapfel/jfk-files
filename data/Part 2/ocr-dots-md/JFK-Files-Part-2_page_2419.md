@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2419.png
-
-Convert to MarkdownJalilabad State Reported from Ilahiyat
+Jalilabad State Reported from Ilahiyat
 
 George J. Macaulay/En
 

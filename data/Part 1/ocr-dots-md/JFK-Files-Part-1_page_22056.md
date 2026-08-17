@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22056.png
-
 s to see if we could get a few words to him to change his mind. He left his group for a moment to get a drink of water. When I made this offer to him that he would not regret it if he stayed, that he would receive great benefits, he panicked and ran back to his group and shortly thereafter he flew off. If he were not spotted by you possibly we would have been able to get at him."
 
 While reviewing a list of personnel assigned to the American Embassy in Moscow in 1963, NOSENKO said on 28 January 1964: "Matthew ZUJUS--how come? That man can't be in Moscow. That's the homosexual code clerk I told you about, [the] homosexual who was urgently sent back to the States with military guards. How come he is back in 1963? In August 1963? He couldn't be there. It is impossible" He was asked whether he was sure of his facts, and NOSENKO answered: "Yes, this must be the same man, but this must be an error in your document. He just cannot be in Moscow."

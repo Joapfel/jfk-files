@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23489.png
-
-Convert to MarkdownNOTE ON GRAY TESTIMONY FOR FAOS:
+NOTE ON GRAY TESTIMONY FOR FAOS:
 
 short summary
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4008.png
-
-Convert to MarkdownLP 65-951
+LP 65-951
 
 was admitted to Bolling Air Force Base Hospital in Washington, D. C. in a comotose condition. When examined by a doctor on March 17, 1955, at Walter Reed Hospital, the subject was conscious, confused and hostile, complaining of a pain in his head. The subject was depressed and expressed the wish that he had died in the crash. Subject had facial disfigurement as a result of the crash. The subject was suspicious of questions asked him. When subject was examined on April 8, 1955, the hostility had disappeared and his suspicions had been lessened. His responses at that time were regarded as normal.
 

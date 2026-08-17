@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9041.png
-
-Convert to Markdown21 June 1968
+21 June 1968
 
 MEMORANDUM FOR: RECORD
 

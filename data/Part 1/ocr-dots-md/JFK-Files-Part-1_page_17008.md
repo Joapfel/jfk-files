@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17008.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO.
 1 APR 55

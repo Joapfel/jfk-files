@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18715.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 Informant is occasionally able to furnish the identity of an individual in contact with an Soviet or Satellite National and can sometimes furnish the identity of individuals in attendance at social functions given by Soviet or Satellite UN representatives.
 

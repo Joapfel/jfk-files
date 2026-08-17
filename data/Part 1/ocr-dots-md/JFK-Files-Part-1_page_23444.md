@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23444.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>Congress Against Discrimination<br>(See Committee to Abolish Discrimination in Maryland)</td>
     <td>Japanese Association of America</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10510.png
-
-Convert to MarkdownSECRET
+SECRET
 
 that the same source also indicated that the coffee-house known as ASU DE WA C&SUGIRU to which he was referring, which is identical with the establishment of this name listed in the 1957 Tokyo Directory, is the type of place which is not frequented by general American nationals stationed in or visiting Tokyo as tourists; rather it caters mainly to indigenous patrons and their guests, or to foreign residents of Tokyo who have been introduced to the place and the management by indigenous patrons. These foreigners then become regular patrons after becoming known to the management. Inasmuch as the above described ASU DE WA (C&SUGIRU coffee-house) generally fits the description of the "Tomorrow is Too Late Club" mentioned by Valentine HAHN as a "night-lab" to which he was taken by George PERIS, it is suggested that they are one and the same establishments.
 

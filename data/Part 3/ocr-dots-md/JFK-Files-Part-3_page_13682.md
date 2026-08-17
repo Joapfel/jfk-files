@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13682.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In other words, when he said, 'minimize the written communications on the operation, he didn't say we won't have any other communications on any other memos on it or any further memorandums on it.'
 

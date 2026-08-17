@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9650.png
-
-Convert to Markdown11. The Office of the General Counsel memo on the subject "Text and Explanation, Public Law 110," dated October 10, 1952.
+11. The Office of the General Counsel memo on the subject "Text and Explanation, Public Law 110," dated October 10, 1952.
 
 12. The Interim Report to the National Security Council by Dulles, Correa, and Jackson, dated May 13, 1948 and entitled "Relations Between Secret Operations and Secret Intelligence."
 

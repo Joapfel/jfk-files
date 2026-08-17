@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13727.png
-
-Convert to MarkdownEl Ministero de Relaciones Exteriores,
+El Ministero de Relaciones Exteriores,
 Pasa por el Diplomático a favor de
 
 Sr. Rogelio Rodríguez López.

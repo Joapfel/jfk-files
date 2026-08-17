@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23667.png
-
-Convert to MarkdownHW 50955 DocId:32423509 Page 41
+HW 50955 DocId:32423509 Page 41
 
 I would be advantageous to separate them.
 

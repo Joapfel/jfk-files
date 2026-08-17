@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6406.png
-
-Convert to Markdown3. On 17 Nov 52, the Press Attache called our attention to State Dept. Control cable 1437, from Bonn, dated 16 Nov 52, a copy of which is attached hereto for your convenience. Basing our request on the information contained in para 1 above, and on the attached cable from Bonn, we submitted queries concerning Subject to both UNION and UNBOUND.
+3. On 17 Nov 52, the Press Attache called our attention to State Dept. Control cable 1437, from Bonn, dated 16 Nov 52, a copy of which is attached hereto for your convenience. Basing our request on the information contained in para 1 above, and on the attached cable from Bonn, we submitted queries concerning Subject to both UNION and UNBOUND.
 
 4. On 23 Jun 53, we received the following reply from UNBOUND:
 

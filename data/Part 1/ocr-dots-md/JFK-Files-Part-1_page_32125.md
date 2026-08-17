@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32125.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (When Filled In)
 
 Date 4 February 1957

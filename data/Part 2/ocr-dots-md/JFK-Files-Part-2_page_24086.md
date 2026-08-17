@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24086.png
-
-Convert to Markdownstrong language used in discussions at the Special Group and NSC, as reflected in minutes of relevant meetings,
+strong language used in discussions at the Special Group and NSC, as reflected in minutes of relevant meetings,
 
 led Dulles to believe that assassination was desired. The minutes contain language concerning the need to "dispose of" Lumumba, an "extremely strong feeling about the necessity for straight forward action", and a refusal to rule out any activity that might contribute to "getting rid of" Lumumba.
 

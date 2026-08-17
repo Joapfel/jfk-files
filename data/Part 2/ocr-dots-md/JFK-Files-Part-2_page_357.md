@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_357.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 25
 
 ORIG: TJFlores/yb

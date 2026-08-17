@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31753.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SF 100-46832
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13183.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>APPLICANT FORM<br/>TOTAL COPY: 22</td></tr><tr><td colspan="2">SECRET</td></tr></table>
 

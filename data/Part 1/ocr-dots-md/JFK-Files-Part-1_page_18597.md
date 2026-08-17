@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18597.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><td>NAME OF EMPLOYEE (Last-Fname-Middle)</td><td>NAME AND RELATIONSHIP OF DEPENDENT*</td><td>CLAIM NUMBER</td></tr></thead><tbody><tr><td rowspan="3">HICKS, Calvin W.</td><td>dau. Lisa malaria</td><td>60-391D</td></tr><tr><td>dau. Mary tonsillectomy</td><td>60-392D</td></tr><tr><td>son, Michael tonsillectomy</td><td>60-393D</td></tr></tbody></table>
 

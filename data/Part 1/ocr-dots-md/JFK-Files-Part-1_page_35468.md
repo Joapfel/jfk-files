@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35468.png
-
-Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
 
 <table><tr><td>PDOB: Havana 6, Apr 11 1925</td></tr><tr><td>teacher</td></tr><tr><td>ODENNY name trace requested by PW 8 Feb 61.</td></tr><tr><td>(WAVE 3457)</td></tr><tr><td>Results: no record</td></tr></table>
 

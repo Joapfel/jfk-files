@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26853.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q. That is Fiedl Castro?
 

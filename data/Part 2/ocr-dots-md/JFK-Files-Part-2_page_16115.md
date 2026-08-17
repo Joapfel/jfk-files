@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16115.png
-
-Convert to MarkdownHAYMON, JOSEPH
+HAYMON, JOSEPH
 
 This is a Panther who is no longer functioning.
 

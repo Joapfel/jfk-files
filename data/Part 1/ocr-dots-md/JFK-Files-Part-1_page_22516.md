@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22516.png
-
-Convert to MarkdownSECRET-ENYS ONLY
+SECRET-ENYS ONLY
 
 The FBI report of its interviews of Ortiz, the SEM investigator,
 gives an excellent account of why the plot fell apart after the

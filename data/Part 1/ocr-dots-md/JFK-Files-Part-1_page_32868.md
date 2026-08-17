@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32868.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>INDEX ☐ YES ☐ NO ____________</td></tr></thead><tbody><tr><td>CLASSIFY TO FILE AD. ____________</td></tr><tr><td>X-REF TO FILE NO. ____________</td></tr><tr><td>FILE RID ☐ RET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ SIG. ____________</td></tr><tr><td>RDOM 8</td></tr><tr><td>ACTION TSD 6</td></tr><tr><td>ADVANCE COPY ☑ RID COPY ____________ ☐ (1500's) ☐ (SLOTTED) ☐ (SUPER)</td></tr></tbody></table>
 

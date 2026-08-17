@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11869.png
-
-Convert to Markdown3. That a review be made of all FD-432's contained
+3. That a review be made of all FD-432's contained
 in the BNPA to insure that all photographs are identified
 with the name of the individual described on the specific form.
 

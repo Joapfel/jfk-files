@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9861.png
-
-Convert to Markdown17 March, 1963
+17 March, 1963
 
 Subject: LIRING/3 Report of Meeting with Carlos Persaval.
 

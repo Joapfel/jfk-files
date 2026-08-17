@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16436.png
-
-Convert to MarkdownFOR MURDER
+FOR MURDER
 
 S.F. PIG MICHAEL O'BRIEN
 

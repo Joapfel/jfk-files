@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18019.png
-
-Convert to MarkdownSenate Select Committee on Intelligence Activities (SEC)
+Senate Select Committee on Intelligence Activities (SEC)
 
 Re: Request Pertaining to Warrantless
 Electronic Surveillances for

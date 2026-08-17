@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25052.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">CABLE SECRETARIAT DISSEMINATION</th><th>CLASSIFIED/RELEASED: TOTAL COPIES 7-5 33</th><th>ROUTING AND/OR INITIALS: DEEMED BY</th></tr></thead><tbody><tr><td colspan="2"><b>PERSON/UNIT NOTIFIED</b></td><td colspan="2"></td></tr><tr><td colspan="2">ADVANCE COPY ☐ ISSUED ☐ SLOTTED</td><td colspan="2"><table><tbody><tr><td>SERIE<br>(When Due In)</td><td>5</td></tr><tr><td>REPRODUCTION OF THIS COPY PROHIBITED</td><td>6</td></tr><tr><td>INDEX: ☐ YES ☐ NO</td><td>7</td></tr><tr><td>CLASSIFY TO CS FILE NO.</td><td>8</td></tr><tr><td>X-REF TO CS FILE NO.</td><td></td></tr><tr><td>☐ FILE NO ☐ RETURN TO</td><td>BRANCH</td></tr></tbody></table></td></tr><tr><td>DIV.: <u>&nbsp;&nbsp;&nbsp;BY&nbsp;&nbsp;&nbsp;</u></td><td>PER: <u>&nbsp;&nbsp;&nbsp;TO&nbsp;&nbsp;&nbsp;</u></td><td colspan="2"></td></tr><tr><td colspan="2">ACTION UNIT WH8</td><td colspan="2">FILE, VR RULAN S88 FZ CL CIGES CILICZ</td></tr></tbody></table>
 

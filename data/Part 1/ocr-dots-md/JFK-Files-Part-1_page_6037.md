@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6037.png
-
-Convert to Markdownpeople of the world towards our desperate calling may be some day achieved and that they may stretch their friendly hand to our patient, but erect, people. For the better understanding of the labor accomplished we will synthesise the main steps taken by this section in the develop ment of the mission the DRE has assigned it.
+people of the world towards our desperate calling may be some day achieved and that they may stretch their friendly hand to our patient, but erect, people. For the better understanding of the labor accomplished we will synthesise the main steps taken by this section in the develop ment of the mission the DRE has assigned it.
 
 ORIGIN OF THE SECTION OF INTERNATIONAL RELATIONS
 

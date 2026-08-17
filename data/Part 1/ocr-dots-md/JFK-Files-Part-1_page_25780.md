@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25780.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      N. 431 (PAGE 1)

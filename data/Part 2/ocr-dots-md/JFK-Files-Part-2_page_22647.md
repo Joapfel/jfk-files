@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22647.png
-
-Convert to MarkdownFROM (Apr 20) 344-45
+FROM (Apr 20) 344-45
 
 WARD & PAUL
 

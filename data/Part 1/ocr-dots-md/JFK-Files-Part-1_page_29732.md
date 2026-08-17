@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29732.png
-
-Convert to MarkdownMYNOS) AW ANDREW MANSYMILEC
+MYNOS) AW ANDREW MANSYMILEC
 
 APRIL, 30, 1917
 FM. 171 - Experience 18-2

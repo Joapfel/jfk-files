@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5787.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 SUBJECT: (U) DO Results of New Search for JFK
 Assassination Records

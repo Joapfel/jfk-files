@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2262.png
-
-Convert to MarkdownHenry Charles Bishop
+Henry Charles Bishop
 
 DOB : 017891 09 February 1932
 

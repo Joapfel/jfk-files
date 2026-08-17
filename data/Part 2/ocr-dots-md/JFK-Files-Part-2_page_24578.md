@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24578.png
-
-Convert to Markdown"I took immediate exception to this suggestion, stating that the subject was completely out of bounds as far as the USG (U.S. Government) and CIA were concerned and the idea should not be discussed nor should it appear in any papers, as the USG could not consider such actions on moral or ethical grounds." (McCone Ex. 4).
+"I took immediate exception to this suggestion, stating that the subject was completely out of bounds as far as the USG (U.S. Government) and CIA were concerned and the idea should not be discussed nor should it appear in any papers, as the USG could not consider such actions on moral or ethical grounds." (McCone Ex. 4).
 
 McCone testified that there was no decision at the August 10 meeting that assassination should not be part of any program, but that "the subject was just dropped" after his objection. (McCone, p. __). McCone's 1967 memorandum stated that
 

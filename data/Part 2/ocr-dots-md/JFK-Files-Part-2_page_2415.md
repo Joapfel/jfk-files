@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2415.png
-
-Convert to MarkdownPossible Identification and Surveillance of "CIA Agents" by the Algerian Security Service
+Possible Identification and Surveillance of "CIA Agents" by the Algerian Security Service
 
 DOMESTIC COLLECTION DIVISION
 Support, Branches, & Staff Support Section

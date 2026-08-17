@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11681.png
-
-Convert to MarkdownIncluded in the index may be individuals in Government, business, or industry. Do not include law enforcement officers unless they are un- usually cooperative or furnish special types of information. Set up the index alphabetically, geographically by states and towns; alpha- betically in the subdivisions; and alphabetically by AEA facility, or by type of information.
+Included in the index may be individuals in Government, business, or industry. Do not include law enforcement officers unless they are un- usually cooperative or furnish special types of information. Set up the index alphabetically, geographically by states and towns; alpha- betically in the subdivisions; and alphabetically by AEA facility, or by type of information.
 
 Maintain the index where it is available to all Agents. An index may be maintained in resident agencies having approved office space which can be securely locked and having locked cabinets in which records can be kept. Source of information cards may be kept by resident Agents not having approved office space but working out of their homes when ever the SAC feels it is practicable to do so and the cards will be securely retained in a locked, steel file cabinet. Cards shall be kept as in the field office. The cards shall pertain only to the territory covered; under such circumstances there shall be no duplicate cards in the field office. Cards are to be deleted when obsolete.
 

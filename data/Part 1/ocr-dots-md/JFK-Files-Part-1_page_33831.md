@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33831.png
-
-Convert to Markdown24 April 1958
+24 April 1958
 
 MEMORANDUM FOR: Chief, Contact Division, CO
 SUBJECT: Your Memorandum 29 February 1958 on "Hungarian Exile Activities"

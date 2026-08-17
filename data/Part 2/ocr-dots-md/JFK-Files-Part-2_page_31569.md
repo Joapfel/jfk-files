@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31569.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:nb
 
 The statement related the Harlem rebellion during the summer of 1964 was the result of high rents, police brutality, crowded housing, unemployment and countless other indignities. The statement remarked that the black people of Harlem and other ghettos throughout the U.S. had been subjected to these conditions for many years. According to the statement, BILL EPTON was the scapegoat of the corrupt establishment that created and intensified these brutal conditions of dehumanization.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26559.png
-
-Convert to Markdown1. Iraq-Syria
+1. Iraq-Syria
 
 a. The shaky new accommodation between the two countries following the recent coup in Iraq has been threatened by Syria's action in granting asylum to Ali Saleh Saadi, the exiled leader of the extremist wing of the Iraqi Baath.
 

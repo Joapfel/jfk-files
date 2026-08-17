@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24840.png
-
-Convert to Markdown13 October). This Viaux kidnapping of Schneider was reported by the Station "as part of a coup that included Valenzuela." (Station 529, 13 October)
+13 October). This Viaux kidnapping of Schneider was reported by the Station "as part of a coup that included Valenzuela." (Station 529, 13 October)
 
 At about this time the Station began to receive encouragement from its other contacts. On October 14, ten days before the Chilean Congress was to vote, the Task Force Log concluded:
 

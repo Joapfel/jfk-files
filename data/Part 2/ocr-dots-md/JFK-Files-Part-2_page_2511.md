@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2511.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. As you know, due to unforeseen and extraordinary factors which arose shortly after PDDONOR's defection, the three documented commitments made to him as outlined in the previous paragraph were not fulfilled until some years after his defection. In this connection, the file indicates that PDDONOR/1 did not start receiving an Agency salary until March 1969, and that it was not until six years later that he began to be paid at the previously promised rate of $25,000 per annum. Accordingly, in order to belatedly satisfy in full the commitments originally made to PDDONOR/1 in 1964, lump-sum payments have been made to him on three occasions in recent years with the approval of senior Agency management. Briefly, these lump-sum payments consisted of:
    a) $125,000 (less taxes) in November 1972 to cover the balance owed for salary during the period April 1964 to March 1969;

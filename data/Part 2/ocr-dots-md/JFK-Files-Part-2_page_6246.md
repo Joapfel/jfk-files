@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6246.png
-
-Convert to Markdown1. The Company concerned is [Prager Publishing]
+1. The Company concerned is [Prager Publishing]
 
 2. A memo by [Summar W. Beckman] "CA/PROP" dated 8/21/64 deals with the publication and royalty problems of [Milovan Djilasi's] books.
 

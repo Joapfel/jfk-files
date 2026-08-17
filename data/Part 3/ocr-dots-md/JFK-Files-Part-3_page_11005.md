@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11005.png
-
-Convert to MarkdownCODE
+CODE
 
 TELETYPE
 

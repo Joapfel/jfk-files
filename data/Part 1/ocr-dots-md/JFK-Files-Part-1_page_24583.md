@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24583.png
-
-Convert to Markdown5. As early as April 1953, he was recuperating from a heart ailment which resulted from a highly nervous condition (15). As of 26 November 1953, he was in Mexico City and still undergoing treatment for a heart condition (15).
+5. As early as April 1953, he was recuperating from a heart ailment which resulted from a highly nervous condition (15). As of 26 November 1953, he was in Mexico City and still undergoing treatment for a heart condition (15).
 
 6. As of 15 February 1959, he had suffered another heart attack and was confined to his bed at home (15). According to BALCARCEL on 19 February 1959, BALCARCEL's replacement as Chief of the PET exile group in Mexico by CARDOZA has caused discontent among PET exiles. BALCARCEL thought the change had been made in order to justify CARDOZA's continued membership on the FOP central committee and felt that CARDOZA was not suited for the post because CARDOZA is ill and in Mexico illegally (15).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_239.png
-
-Convert to MarkdownMEMORANDUM RECEIPT
+MEMORANDUM RECEIPT
 
 TO:
 

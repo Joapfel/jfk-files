@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34171.png
-
-Convert to Markdownd.- Labour:
+d.- Labour:
 
 Average working minutes per ton sugar produced
 (or per ton cane crushed) 30.00 metric tons of sugar per minute,

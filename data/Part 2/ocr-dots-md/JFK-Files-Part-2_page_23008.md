@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23008.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 nature of your contacts with William Harvey in reference to any
 operations he may have in running unilaterally against Castro.

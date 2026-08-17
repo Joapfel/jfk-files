@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21759.png
-
-Convert to Markdown1. Phone (Area 202) 544-6000
+1. Phone (Area 202) 544-6000
 2. WARD & PAUL
 3. 410 First Street, S.E., Washington, D.C. 20003
 

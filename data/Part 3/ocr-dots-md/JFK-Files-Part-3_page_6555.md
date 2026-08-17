@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6555.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 NY 100-99895
 

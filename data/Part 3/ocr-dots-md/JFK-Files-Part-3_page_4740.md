@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4740.png
-
-Convert to MarkdownLA 92-113C
+LA 92-113C
 
 ROBERT W. LINDSAY, General Manager, Half Moon Inn, San Diego, California, advised that MAURICE FRIEDMAN and a large party were registered in two suites at this Inn from 8/22 - 25/63 and that ROSSELLI was present in this group.
 

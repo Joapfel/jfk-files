@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8424.png
-
-Convert to MarkdownThe Consul General
+The Consul General
 
 April 4, 1966
 

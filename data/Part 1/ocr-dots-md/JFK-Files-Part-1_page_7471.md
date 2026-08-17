@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7471.png
-
-Convert to Markdown26 OCT 1965
+26 OCT 1965
 
 TO: Director
 Federal Bureau of Investigation

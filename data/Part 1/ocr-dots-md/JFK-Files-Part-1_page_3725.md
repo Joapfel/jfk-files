@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3725.png
-
-Convert to MarkdownSECRET
+SECRET
 
 He is usually accompanied by Jose FERNANDEZ de la Torre, Manager of Distribuidora Inter-Americana, S. A. "Pepe" is a Cuban and a close friend of mine. He is ARTIME's closest friend in Nicaragua. ARTIME often stays at his home. On a couple of occasions ARTIME has been by to see me with another mutual Cuban friend, Primitivo ABLANEDO, who used to live at El Bluff on the East Coast. "El Gallego" ABLANEDO now lives in Managua and makes his living renting out dump trucks and construction and hauling equipment. On one occasion ARTIME came by with a Cuban I believe was named VILA. Mirta PADRON, another mutual Cuban friend (she teaches Spanish at the American Embassy) tells me that VILA owns a restaurant in Miami but that ARTIME has no connection with this enterprise. A couple of times ARTIME has come by with Frank CONDOM, & short, quiet, red-faced Cuban who owns some jewelry stores in Miami. CONDOM is now pretty well-off financially and is a good friend and business associate of "BebE" REBOZO, who, in turn, is a close friend of President NIXON. I believe CONDOM and, perhaps REBOZO, may be involved in the meat deal.
 

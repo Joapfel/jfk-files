@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25590.png
-
-Convert to MarkdownThe sensitive information was brought to the attention of FBI Director J. Edgar Hoover, and either he or then-Attorney General Robert Kennedy ordered the prosecution of Giancana dropped in order not to compromise national security considerations.
+The sensitive information was brought to the attention of FBI Director J. Edgar Hoover, and either he or then-Attorney General Robert Kennedy ordered the prosecution of Giancana dropped in order not to compromise national security considerations.
 
 The Information about the alleged assassination plot then lay dormant in a secret file in the Department of Justice until early 1969, when Assistant Attorney General Will Wilson requested the file from the Deputy Chief of the Organized Crime Section. The file was returned to Central Files shortly after it was taken out.
 

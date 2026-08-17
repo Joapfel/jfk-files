@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11040.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE: 567<br/>25 JUL 62</td><td>SECRET</td></tr><tr><td>TO: DIRECTOR</td><td></td></tr><tr><td>FROM: MEXICO CITY</td><td></td></tr><tr><td>ACTION: TFW 10</td><td></td></tr><tr><td>INFO: DDP, CI/OPS, CI/IC 2, CI/CA, WH 7, S/C 2</td><td></td></tr></table>
 

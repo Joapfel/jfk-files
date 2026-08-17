@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28417.png
-
-Convert to Markdown# POLL AUTHORIZATION FORM
+# POLL AUTHORIZATION FORM
 
 (Please Use Typewriter
 or Ballpoint Pen)

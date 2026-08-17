@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18102.png
-
-Convert to MarkdownDATE OF CRYPTONYM CHANGE - 20/04/71
+DATE OF CRYPTONYM CHANGE - 20/04/71
 
 KDAFGAN
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4997.png
-
-Convert to Markdown# FBI
+# FBI
 
 Date: 7/30/68
 

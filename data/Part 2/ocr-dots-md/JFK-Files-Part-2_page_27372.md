@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27372.png
-
-Convert to MarkdownA - McGeorge Bundy, April 8, 1975 (with Mr. Belin)
+A - McGeorge Bundy, April 8, 1975 (with Mr. Belin)
 
 B - O'Connell
 

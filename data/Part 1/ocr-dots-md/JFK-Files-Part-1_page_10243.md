@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10243.png
-
-Convert to MarkdownFAR, a counter-propaganda, anti-left radicalization. Far left organizations include the League of Leftist Organizations of the United States (LEFTUS), and the National Council of Trade Unions, which was in the process of being organized into what would become the Labor Council for Labor Relations.
+FAR, a counter-propaganda, anti-left radicalization. Far left organizations include the League of Leftist Organizations of the United States (LEFTUS), and the National Council of Trade Unions, which was in the process of being organized into what would become the Labor Council for Labor Relations.
 
 The program included the formation of the Committee on Labor Relations (CLRR) under the direction of labor leader Harry W. Kornbluth. The CLRR's initial goals were to unite the AFL, CIO and TCI unions under a single national organization. This goal was not achieved until after World War II.
 

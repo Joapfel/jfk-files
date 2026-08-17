@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25262.png
-
-Convert to Markdown<table><thead><tr><th></th><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>NHU</td><td></td><td>11/2/63<br/>1000 hours</td><td>DIEM</td></tr></tbody></table>
+<table><thead><tr><th></th><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>NHU</td><td></td><td>11/2/63<br/>1000 hours</td><td>DIEM</td></tr></tbody></table>
 
 TOP SECRET
 

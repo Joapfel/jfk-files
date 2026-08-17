@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21146.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 [MALIA's] behavior, his manner of studying people and obtaining information from some of them. NOSENKO believed that [MALIA] could have been recruited by KGB and said that PERFILEYEV later regretted that he did not permit an approach to [MALIA].
 

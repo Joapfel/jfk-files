@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21998.png
-
-Convert to Markdownof course, I would go there the same year. I'd go there, and
+of course, I would go there the same year. I'd go there, and
 they would look at me and say: 'How come this man--his name is
 NOSEMYO, and yet he is very similar to the one described by
 That was why it was decided I have to go again under the name

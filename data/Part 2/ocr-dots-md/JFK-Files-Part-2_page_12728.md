@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12728.png
-
-Convert to Markdown( ) attention to existence of a security index card for that individual. In all such instances a specific recommenda› tion must be made concerning cancellation of card. Card may be destroyed upon receipt of Bureau authority to des› ignate subject as a security informant.
+( ) attention to existence of a security index card for that individual. In all such instances a specific recommenda› tion must be made concerning cancellation of card. Card may be destroyed upon receipt of Bureau authority to des› ignate subject as a security informant.
 (f) Subject no longer dangerous or potentially dangerous Instructions set out below should be read in conjunction with 87D 6b (7) (c) herein relating to interviews with security index subjects.
 Frequently, after a subject is included in security index, information is received or investigation develops informa› tion indicating that he is no longer a threat to internal security by reason of physical condition, defection or ex› pulsion from subversive movement, membership in or affilia› tion with which was reason for placing him in security in› dex. Such defection may be shown by lack of activity and obvious disinterest over an extended period of time or upon declaration of opposition to principles of subversive move› ment. Latter may manifest itself in declarations by a sub› ject in presence of confidential informants or other sources, statements to press, or actual contact with Bureau repre› sentatives and admission of previous subversive activity.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18625.png
-
-Convert to MarkdownJune 20, 1968
+June 20, 1968
 
 BY LIAISON
 

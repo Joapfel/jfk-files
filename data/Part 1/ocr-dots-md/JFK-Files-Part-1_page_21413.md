@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21413.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 30 Nov. 1961 (Buffalo)
 

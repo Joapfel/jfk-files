@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6760.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>LET : 2356</td></tr><tr><td>DATE : 19 July 1955</td></tr><tr><td>TO : MEXICO CITY</td></tr><tr><td>FROM : DIRECTOR</td></tr><tr><td>COM : CI</td></tr><tr><td>INFO : COPI, C1/CPS, C1/IC, FI, FI/CPS, FI/RI 2, WH 4, S/C 2</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9521.png
-
-Convert to Markdown(2) Let us Maddox and my handling of the Civil Rights Act of 1964? Case involving Maddox and his operation at the PICKRICK Hospital.
+(2) Let us Maddox and my handling of the Civil Rights Act of 1964? Case involving Maddox and his operation at the PICKRICK Hospital.
 
 # ITEM II
 

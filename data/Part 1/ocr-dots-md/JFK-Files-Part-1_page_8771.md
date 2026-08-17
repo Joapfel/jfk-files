@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8771.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DIPLOMA/DELEGATE</th></tr></thead><tbody><tr><td>VISA</td><td>9-0446057<br/>Sønderborg<br/>IN</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DIPLOMA/DELEGATE</th></tr></thead><tbody><tr><td>VISA</td><td>9-0446057<br/>Sønderborg<br/>IN</td></tr></tbody></table>
 
 Vlkle poort:
 

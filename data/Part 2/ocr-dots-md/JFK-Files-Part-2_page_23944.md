@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23944.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The minutes state that:
 

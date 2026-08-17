@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21593.png
-
-Convert to MarkdownSECRET
+SECRET
 
 example, he has made it clear that his knowledge of SCD activities against members of delegations, foreign businessmen, foreign students, and individuals in the USSR on the invitation of a Soviet organization or a component of the Soviet Government is extremely limited and at best mainly of a collateral nature.
 

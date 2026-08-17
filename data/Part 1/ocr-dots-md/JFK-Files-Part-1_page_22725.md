@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22725.png
-
-Convert to Markdown14-0000
+14-0000
 
 TRS-A-347
 Page 3

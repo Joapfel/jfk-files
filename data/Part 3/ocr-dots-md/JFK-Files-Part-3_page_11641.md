@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11641.png
-
-Convert to MarkdownBureau airtel to all offices dated 9/9/70 advised that
+Bureau airtel to all offices dated 9/9/70 advised that
 a special single fingerprint file on Weatherman fugitives and
 other New Left terrorists has been initiated. The field was
 instructed to submit to the Bureau the identity of New Left terror-

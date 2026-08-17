@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15816.png
-
-Convert to Markdownany women except some middle-aged ones who gave me side ways glances. There
+any women except some middle-aged ones who gave me side ways glances. There
 was plenty of youth but then too they looked at me like a China doll. That's
 enough for my "military service".
 

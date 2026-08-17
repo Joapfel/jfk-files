@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29050.png
-
-Convert to Markdown# Profit (or Loss) From Business or Profession
+# Profit (or Loss) From Business or Profession
 
 (Sole Proprietorship)
 

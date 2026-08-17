@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26806.png
-
-Convert to Markdown4) OCCUPATION: Writer for *Siempre* and *Politica* magazines in Mexico City; both are effective Communist-lining magazines and have large circulations.
+4) OCCUPATION: Writer for *Siempre* and *Politica* magazines in Mexico City; both are effective Communist-lining magazines and have large circulations.
 
 5) PHOTOGRAPH: Available in Subject's 201 file (date of photograph October 1963).
 

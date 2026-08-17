@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12081.png
-
-Convert to Markdown6 December, 1949
+6 December, 1949
 
 Subject: NcVICKAR, JOHN AUGUSTUS JR.
 Address: 28 Avenue Montaigne Paris

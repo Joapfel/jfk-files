@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16687.png
-
-Convert to Markdownb. Relations of the bourgeois political parties with the "Yankee" Embassy, the monopolies, and the churches.
+b. Relations of the bourgeois political parties with the "Yankee" Embassy, the monopolies, and the churches.
 
 c. Political organizations, information on the same, origin, ties. Orientation.
 

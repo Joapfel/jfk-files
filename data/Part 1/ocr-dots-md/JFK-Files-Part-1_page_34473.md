@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34473.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: The Inspector General
 SUBJECT : The Nosenko Case

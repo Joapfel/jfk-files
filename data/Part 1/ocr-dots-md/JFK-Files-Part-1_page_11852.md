@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11852.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>FORM 6-325 A REV. 4-71</td>
         <td style="text-align:right;">FORM APPROVED<br/>COST BUREAU NO 13-R416</td>

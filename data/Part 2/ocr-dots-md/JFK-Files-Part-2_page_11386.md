@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11386.png
-
-Convert to Markdown(10) [Communist infiltration of mass organizations program]
+(10) [Communist infiltration of mass organizations program]
 
 [(a)] Submit semiannual letters March 1 and September 1 under captionsense above program,]Buoile 100-3-106, using following topical outline and headings:
 

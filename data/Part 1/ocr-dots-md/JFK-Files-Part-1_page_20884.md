@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20884.png
-
-Convert to Markdown<table><tr><td colspan="2">SECRET</td></tr><tr><td colspan="2">(When Filled In)</td></tr><tr><td colspan="2">MEDICAL ACTION REQUEST AND REPORT</td></tr></table>
+<table><tr><td colspan="2">SECRET</td></tr><tr><td colspan="2">(When Filled In)</td></tr><tr><td colspan="2">MEDICAL ACTION REQUEST AND REPORT</td></tr></table>
 
 <table><tbody><tr><td>1. REQUEST FOR PHYSICAL EXAMINATION BY<br/>L NAME (Last, First)<br/>PHILLIPS, DAVID A.<br/><br/>3. TO POSITION<br/><br/>E TYPE OF POSITION<br/><input type="checkbox" /> Departmental<br/><input type="checkbox" /> U.S. Field<br/><input type="checkbox" checked disabled> Overseas<br/><br/>11 REPORT OF MEDICAL EVALUATION<br/><input type="checkbox" checked disabled> Qualified for Full Duty (General)<br/><input type="checkbox" checked disabled> Qualified for Departmental Duty Only<br/><br/>Remarks:<br/>WH #1<br/>Full duty/General 8-9-54)<br/><br/></td><td>2. DATE<br/>2 August 1954<br/><br/>5. GRADE<br/>GS 12<br/><br/>7. EVALUATE FOR<br/><input type="checkbox" disabled> EOD<br/><input type="checkbox" checked disabled> Overseas<br/><input type="checkbox" disabled> Returnee<br/><br/></td></tr></tbody></table>
 

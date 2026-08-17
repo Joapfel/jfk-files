@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25531.png
-
-Convert to MarkdownMILHARSHERS undoubtedly assume we have a LILYRIC-like facility, and act accordingly, are another vital element of the REDTOP program.
+MILHARSHERS undoubtedly assume we have a LILYRIC-like facility, and act accordingly, are another vital element of the REDTOP program.
 
 ## LIEMPTY-4
 

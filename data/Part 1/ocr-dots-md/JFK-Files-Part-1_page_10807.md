@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10807.png
-
-Convert to MarkdownSECRET
+SECRET
 
 GONDOLA
 A VISITANTS

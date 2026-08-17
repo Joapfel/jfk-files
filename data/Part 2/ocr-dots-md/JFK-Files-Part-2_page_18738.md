@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18738.png
-
-Convert to MarkdownSTANDARD FORM NO. 54
+STANDARD FORM NO. 54
 
 Office Men's memorandum • UNITED STATES GOVERNMENT
 

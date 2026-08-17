@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28688.png
-
-Convert to MarkdownSECRET
+SECRET
 SECURITY INFORMATION
 
 MEMORANDUM FOR THE FILE OF, Tenent H. Bagley

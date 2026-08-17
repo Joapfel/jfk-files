@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14382.png
-
-Convert to MarkdownReport No. 348 (continued)
+Report No. 348 (continued)
 
 They tell Ruiz that the person that is here is ALARCON; he hasn't seen him, nor has he received any cable about his arrival.
 

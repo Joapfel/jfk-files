@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11808.png
-
-Convert to MarkdownSantiago, 31 de Octubre de 1953
+Santiago, 31 de Octubre de 1953
 
 DTHABEAS
 

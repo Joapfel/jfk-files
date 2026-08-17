@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24809.png
-
-Convert to Markdown2 March 1967
+2 March 1967
 
 (typed 13 March 1967)
 

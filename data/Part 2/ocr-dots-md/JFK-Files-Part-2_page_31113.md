@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31113.png
-
-Convert to Markdown④
+④
 
 With their leader abandoned & in @ jeopardy, Salvat wrote to friends in U.S. that he would kill P/14 personnel involved if anything happened to Miller.
 

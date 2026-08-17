@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27071.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 # F. The New Overflight Program
 

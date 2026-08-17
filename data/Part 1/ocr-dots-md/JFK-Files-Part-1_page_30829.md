@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30829.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td rowspan="2">GEOGRAPHIC PROFILE (List 1) 7 Nov 1959</td>

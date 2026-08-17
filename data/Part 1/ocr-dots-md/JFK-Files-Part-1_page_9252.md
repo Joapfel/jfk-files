@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9252.png
-
-Convert to MarkdownRe "Stalin" biography and/or Stalin photo-book.
+Re "Stalin" biography and/or Stalin photo-book.
 
 That leaves the question whether you are supposed to be working on completion of the "Stalin" biography or on the Stalin photo-book, or on both. What is your own preference?
 

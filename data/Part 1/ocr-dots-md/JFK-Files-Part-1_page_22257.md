@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22257.png
-
-Convert to MarkdownThe only other evidence available is analytical. POPOV was transferred to the Illegals handling unit in Berlin on 28 June 1957, an assignment of high sensitivity. Until mid-August he handled five Illegals, thereafter only one, TAIROVA, in October 1957. Following home leave from 12 December 1957 to 19 January 1958, he was again transferred, this time to a position where Illegals and productive GRU sources of intelligence were not exposed to him. Between March and November 1958 there were signs of a KGB investigation of the Illegals handling unit where POPOV formerly served, and he was recalled to Moscow in November of that year. These facts can be interpreted as follows:
+The only other evidence available is analytical. POPOV was transferred to the Illegals handling unit in Berlin on 28 June 1957, an assignment of high sensitivity. Until mid-August he handled five Illegals, thereafter only one, TAIROVA, in October 1957. Following home leave from 12 December 1957 to 19 January 1958, he was again transferred, this time to a position where Illegals and productive GRU sources of intelligence were not exposed to him. Between March and November 1958 there were signs of a KGB investigation of the Illegals handling unit where POPOV formerly served, and he was recalled to Moscow in November of that year. These facts can be interpreted as follows:
 
 - POPOV's status as a CIA source was not compromised before his transfer to the Illegals handling unit.
 

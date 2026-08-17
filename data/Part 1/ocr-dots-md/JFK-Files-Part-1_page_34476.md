@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34476.png
-
-Convert to MarkdownSECRET
+SECRET
 
 debriefed on counterintelligence matters during five meetings in Geneva. He then returned to the USSR. He came to Geneva again in January 1964 as the security officer for the Soviet disarmament delegation. After a number of meetings with his CIA handlers he defected on 4 February 1964 and was secretly taken to Frankfurt, Germany, crossing the Swiss-German border on the night of 4/5 February with alias U.S. Army identity documents. In Geneva and again upon arrival in Frankfurt, Nosenko wrote out an asylum request, requesting political asylum from the U.S. Government.
 

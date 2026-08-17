@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8032.png
-
-Convert to MarkdownDate of Mail
+Date of Mail
 
 7/15/75
 

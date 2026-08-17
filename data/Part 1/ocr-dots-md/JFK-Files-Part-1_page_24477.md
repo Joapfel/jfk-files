@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24477.png
-
-Convert to MarkdownAppendix to follow
+Appendix to follow
 
 by Naumana Abdul Hamid Khan Khan also from Tashkent.
 

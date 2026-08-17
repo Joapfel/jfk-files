@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17719.png
-
-Convert to MarkdownAttachment to HTPA-185
+Attachment to HTPA-185
 
 <table>
    <tr>

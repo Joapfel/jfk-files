@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1359.png
-
-Convert to MarkdownSECRET / CENSITIVE
+SECRET / CENSITIVE
 
 The follow-up meeting on 9 February (in a safehouse) was attended by HURWITCH, Tad SZULC, Jorge VOLSKY, Dr. Nestor MORENO, and David MORALES, Col. A. DAVIES and Alfonso RODRIGUEZ of the CIA.
 

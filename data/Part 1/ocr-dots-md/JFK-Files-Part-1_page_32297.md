@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32297.png
-
-Convert to Markdown<table><tr><td>SECRET<br/>(When Filled In)</td></tr></table>
+<table><tr><td>SECRET<br/>(When Filled In)</td></tr></table>
 
 MHC : 6 AUG 64
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22038.png
-
-Convert to MarkdownGOLITSYN: Yes. Maybe four days. Then we knew that the American Embassy took a ticket for him [the American target] for the train... And KOSOLAPOV took a ticket in the same compartment. And before the departure we knew exactly from the guide [conductor] of that train that it's the same person--[I'm not certain whether he was a] code clerk or not a code clerk*-- but his name, his real name. It was listed. And I was at the railroad station at that time. I went to see off the delegation, the Soviet delegation.**
+GOLITSYN: Yes. Maybe four days. Then we knew that the American Embassy took a ticket for him [the American target] for the train... And KOSOLAPOV took a ticket in the same compartment. And before the departure we knew exactly from the guide [conductor] of that train that it's the same person--[I'm not certain whether he was a] code clerk or not a code clerk*-- but his name, his real name. It was listed. And I was at the railroad station at that time. I went to see off the delegation, the Soviet delegation.**
 
 Question: See them off?
 

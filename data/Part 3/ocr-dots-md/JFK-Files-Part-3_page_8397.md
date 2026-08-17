@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8397.png
-
-Convert to Markdown# Editorials
+# Editorials
 
 Through editorials, readers are advised of Party positions on national and international issues and are presented with the opinions of the hierarchy on inter-Party matters.
 

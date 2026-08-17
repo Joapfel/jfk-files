@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29260.png
-
-Convert to MarkdownGary Edward Taylor Interview
+Gary Edward Taylor Interview
 
 in the Soviet Union only in a general way and would never be specific. He talked about the society as a whole but never about his position in it. Mr. Taylor had the impression that Oswald did not like living in the Soviet Union. He stated that LHO did mention that he had worked in a radio factory while in Minsk and stated that he made metal chassis. He described his job as being that of a sheet metal worker. However, Taylor stated that Oswald did not go into any details concerning his work. Mr. Taylor described Oswald at this point in the interview as being a very superficial person. He described him as "like a kid coming to school without doing his homework." Mr. Taylor further recalls that he (Mr. Taylor) thought it odd that LHO did not know how to drive a car. Taylor stated that he had been asked by George De Mohrenschildt and a friend of the De Mohrenschildts by the name of George Bouhe to teach LHO how to drive. Taylor stated however that he has no knowledge of Oswald ever learning to drive a car.
 

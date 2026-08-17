@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22290.png
-
-Convert to Markdown697.
+697.
 
 The KGB document supplied by GOLITSYN, however, refers to a number of cases of American tourists who were found by the KGB to be engaged in intelligence collection or intelligence support activities. In addition to McGOWAN, the GOLITSYN document cited the cases of SIMARD, GRAY and FRANCIS, all of them CIA agents detected by the KGB in 1958 and 1959. These years coincide with the time when NOSENKO claims to have been Deputy Chief of the section which was responsible for monitoring and uncovering activities of this sort, but NOSENKO has never mentioned them. Furthermore, the annual reports of the section which NOSENKO would have helped to write, by virtue of his claimed position as Deputy Chief of the American Tourist Section, presumably included all of these cases.
 

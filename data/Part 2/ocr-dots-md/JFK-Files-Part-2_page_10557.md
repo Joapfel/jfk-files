@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10557.png
-
-Convert to Markdown# PROPOSED PROCEDURE
+# PROPOSED PROCEDURE
 
 (1) The Committee will request those documents to which it wishes access.
 

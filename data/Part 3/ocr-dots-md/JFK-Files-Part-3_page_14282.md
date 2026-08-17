@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14282.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The Secretary of State expressed concern at the Agency's planned coverage of Cuba, involving extensive peripheral coverage as well as two legs directly over Cuban air space, all in one flight. He said he had no objection to the peripheral parts and, in fact, thought it useful to continue to establish our right to fly over international waters. On the other hand, he recognized the necessity of obtaining vertical coverage of the Isle of Pines and the eastern portion of Cuba at this time. He felt, however, that it was unwise to combine extensive overflying of international waters with actual overflights. He pointed out that the long peripheral flights would draw undue attention to the mission and, further, should the aircraft fall into enemy hands after an overflight had occurred, this would put the United States in a very poor position for standing on its rights to overfly international waters.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2150.png
-
-Convert to MarkdownCAREER ACCOUNT
+CAREER ACCOUNT
 
 SECRET RYBAT
 

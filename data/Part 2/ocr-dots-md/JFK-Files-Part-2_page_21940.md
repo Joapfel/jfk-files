@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21940.png
-
-Convert to MarkdownSCHNEIDER REPORT
+SCHNEIDER REPORT
 
 <table>
     <thead>

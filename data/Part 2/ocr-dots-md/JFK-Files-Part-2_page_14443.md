@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14443.png
-
-Convert to MarkdownSECRET
+SECRET
 
 made available to "the appropriate law enforcement bodies".
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2643.png
-
-Convert to Markdown2487
+2487
 
 1 crime, investigations of conspiracies to commit crime rather than to leave this very difficult to define and control area of political ideas?
 2

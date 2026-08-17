@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35724.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 9. **James Louis Baker**
 

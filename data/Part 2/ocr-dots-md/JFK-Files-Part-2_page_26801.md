@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26801.png
-
-Convert to MarkdownSECRET
+SECRET
 
 they said they would. They notified their manufacturer's representatives around the world if they got any orders from the Cubans they were to be refused. This type of thing.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21314.png
-
-Convert to Markdown5. Art. 30. (c) and (d) seq.
+5. Art. 30. (c) and (d) seq.
 
 A sum of 10,000.000.000. not on a loan, but direct, will be paid for the expenses incurred by the Republic in its military operations against Italy and its allies, whether on land or at sea, at least until the payment is made over to the government of Italy. The payment is conditional upon the success of these operations.
 

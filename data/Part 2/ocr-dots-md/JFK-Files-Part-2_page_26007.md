@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26007.png
-
-Convert to Markdownin dealing with some of the dissident areas and so on. All I had done was, not planning as much as coming in with sort of a shopping list of what people might look for, and individuals in these countries they might talk to to get information on what was happening.
+in dealing with some of the dissident areas and so on. All I had done was, not planning as much as coming in with sort of a shopping list of what people might look for, and individuals in these countries they might talk to to get information on what was happening.
 
 O'BRIEN: Well, are you in Colombia in the Kennedy administration at all as . . .
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4045.png
-
-Convert to Markdown5 3/4-inch electric drills;
+5 3/4-inch electric drills;
 
 2 Electric buffing and polishing machines;
 

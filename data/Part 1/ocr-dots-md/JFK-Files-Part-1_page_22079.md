@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22079.png
-
 s and marines.**
 
 During interrogations on 20 October 1966, NOSENKO changed his earlier statement that the only operational file he held in the U.S. Embassy Section was that on ABIDIAN. At the same time, he described a leave period that he had not mentioned earlier. NOSENKO said: "When I began to work (in the U.S. Embassy Section), after a month or so, I took the files on the Naval Attaches. And

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18458.png
-
-Convert to Markdown(1) The nature of the information.
+(1) The nature of the information.
 
 (2) The basis for the dissemination.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10167.png
-
-Convert to MarkdownAPR 24 875
+APR 24 875
 
 NR005 OM PLAIN
 

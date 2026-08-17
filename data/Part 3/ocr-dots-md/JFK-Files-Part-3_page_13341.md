@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_13341.png
-
 under Eduardo.
 
 OLSEN: But, am I correct in understanding now that you do not know whether Eduardo was still on the scene or whether he had been replaced?

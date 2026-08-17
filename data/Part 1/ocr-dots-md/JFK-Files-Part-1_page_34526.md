@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34526.png
-
-Convert to Markdown**Excerpts from Meeting No. 2 with Nosenko**
+**Excerpts from Meeting No. 2 with Nosenko**
 
 (Reel No. 1, 11 June 1962. (The quality of the tape is very poor.))
 

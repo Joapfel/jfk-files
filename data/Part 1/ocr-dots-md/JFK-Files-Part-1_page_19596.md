@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19596.png
-
-Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents)
+SEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents)
 
 1. NAME Michael Walton Hoare RELATIONSHIP Son AGE 6
 CITIZENSHIP US ADDRESS 2600 Pemberton, Houston, Texas, U.S.A.

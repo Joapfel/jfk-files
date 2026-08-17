@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6221.png
-
-Convert to Markdown12 Jul 65 109903
+12 Jul 65 109903
 
 SECRET 122323Z
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33578.png
-
-Convert to MarkdownUIG-CL: Conversation at the Department of State on 21 March 1958. Present were Herbert, Joyce, Fritzman and Power from State andapper, Lloyd and Braden from EA.
+UIG-CL: Conversation at the Department of State on 21 March 1958. Present were Herbert, Joyce, Fritzman and Power from State andapper, Lloyd and Braden from EA.
 
 Mr. Fritzman said just returned from a trip abroad and said that he had been censured to make about £6. In order they were as follows:
 

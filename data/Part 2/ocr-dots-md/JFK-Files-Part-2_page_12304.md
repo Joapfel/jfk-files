@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12304.png
-
-Convert to MarkdownIn those instances involving possible
+In those instances involving possible
 prosecution, each statement, whether personally
 written by the informant or Ashed orally and reduced to writing
 by contracting agent, should be filed in this subfile. Executed form

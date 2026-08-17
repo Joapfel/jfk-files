@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20407.png
-
-Convert to MarkdownLA 100-70701
+LA 100-70701
 
 Peace and Freedom; so no attempt has been made to document it herein other than as a "peace-oriented" group.
 

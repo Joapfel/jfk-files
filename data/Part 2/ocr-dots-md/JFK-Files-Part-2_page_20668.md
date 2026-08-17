@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20668.png
-
-Convert to MarkdownENCLOSURE
+ENCLOSURE
 
 NEW LETTER TO CSG.
 LEAFLET 932D

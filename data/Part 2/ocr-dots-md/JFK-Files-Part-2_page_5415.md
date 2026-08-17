@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5415.png
-
-Convert to MarkdownSECRET
+SECRET
 
 * If they do not, the other service may escape damage fully or to some degree.
 

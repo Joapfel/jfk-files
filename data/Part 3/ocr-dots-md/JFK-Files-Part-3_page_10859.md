@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10859.png
-
-Convert to Markdownthe capabilities of the Bureau. The time has arrived for us to adopt and implement a new concept toward foreign intelligence collection. It would be unwise if the Bureau did not move into a leading role and instead applied periphery and tactics conforming with a "holding action." This, in our opinion, is not consistent with the reputation of a progressive and forward looking organization.
+the capabilities of the Bureau. The time has arrived for us to adopt and implement a new concept toward foreign intelligence collection. It would be unwise if the Bureau did not move into a leading role and instead applied periphery and tactics conforming with a "holding action." This, in our opinion, is not consistent with the reputation of a progressive and forward looking organization.
 
 (10) The Bureau does have talent and capability to assume a more active role in clandestine collection of foreign intelligence. We have the potential to handle clandestine collection of foreign intelligence in the U. S. in a more effective manner than any other agency. This can be done in a constructive and prudent manner.
 

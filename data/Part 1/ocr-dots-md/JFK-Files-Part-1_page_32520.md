@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32520.png
-
-Convert to MarkdownMEMORANDUM FOR: Earl J. Williamson
+MEMORANDUM FOR: Earl J. Williamson
 
 SUBJECT : Foreign Divorce Decree
 

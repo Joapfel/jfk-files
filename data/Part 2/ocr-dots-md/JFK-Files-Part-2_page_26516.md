@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26516.png
-
-Convert to MarkdownSECRET
+SECRET
 
 experts, and is being done with advanced
 types of explosives. The shooting has

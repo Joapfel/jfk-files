@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24196.png
-
-Convert to MarkdownSECRET
+SECRET
 
 QRMASTER (Cont'd) - to its manager with full expectation of continued operation with heavy Agency subsidy. At the time of sale, substantial funds were removed from the entity leaving it without sufficient working capital. Consequently, the Agency arranged for a line of credit through a bank guaranteed by the funds removed from the entity. Subsequently, the manager, with Agency permission, sold the entity to a group of foreign nationals. The manager formed his own corporation which contracted with the Agency for services including the continued management of the company sold of which he was still president. A management dispute resulted in the removal of the manager from the first corporation and the bank seized the guarantee for the line of credit which had been drawn down and used as working capital for the first entity. The manager, no longer supported by the Agency, is the channel through which the Agency is to receive repayment of loans which arose out of the line of credit. So far, the Agency has received no payments.
 

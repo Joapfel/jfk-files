@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23450.png
-
-Convert to Markdownon this subject, which had been discussed with the rest of the Group
+on this subject, which had been discussed with the rest of the Group
 on 20 October 1960.
 
 THOMAS A. PARROTT

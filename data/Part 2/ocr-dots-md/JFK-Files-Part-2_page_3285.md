@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3285.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 debate with regard to the outcome of the 1960 elec-
 tion as time passed. In 1964 he would write "Most

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1257.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED INFORMATION</td></tr><tr><td>UNCLASSIFIED</td></tr><tr><td>DATE: 12/30/65</td></tr><tr><td>TO: DIRECTOR</td></tr><tr><td>CONFERENCE: NO. 2217</td></tr><tr><td>INFO: MIGRATION TO INDONESIA</td></tr></table>
+<table><tr><td>CLASSIFIED INFORMATION</td></tr><tr><td>UNCLASSIFIED</td></tr><tr><td>DATE: 12/30/65</td></tr><tr><td>TO: DIRECTOR</td></tr><tr><td>CONFERENCE: NO. 2217</td></tr><tr><td>INFO: MIGRATION TO INDONESIA</td></tr></table>
 
 CITES FOR INFO:
 

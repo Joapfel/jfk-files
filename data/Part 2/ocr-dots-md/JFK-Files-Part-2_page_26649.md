@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26649.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PRESIDENT'S COMMISSION
 ON CIA ACTIVITIES

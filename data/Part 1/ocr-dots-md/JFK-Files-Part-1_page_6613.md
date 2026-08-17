@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6613.png
-
-Convert to Markdownwho wish to demonstrate against the injustice of the norms, step to the right. Others go to the left.” All chose the right. One man was sleeping with joy.
+who wish to demonstrate against the injustice of the norms, step to the right. Others go to the left.” All chose the right. One man was sleeping with joy.
 
 “Immediately we began to march in the street unafraid. We started out with 80 resolute men. By the time we arrived at the government building we were 6,000 strong. Over the tumult of the crowd, a man shouted into my ear, ‘This is the most beautiful day of my life!’”
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_719.png
-
-Convert to MarkdownTO
+TO
 FROM: DIRECTOR
 
 CONCILE

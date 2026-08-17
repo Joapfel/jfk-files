@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25241.png
-
-Convert to Markdown# LEFTIST SUBVERSIVE ACTIVITIES-Soviet Directed Insurgency
+# LEFTIST SUBVERSIVE ACTIVITIES-Soviet Directed Insurgency
 
 Monthly CI Report
 OSI District 30

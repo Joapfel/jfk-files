@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6708.png
-
-Convert to Markdownc. Department of State Dispatch #234 from Moscow dated 2 November 1959
+c. Department of State Dispatch #234 from Moscow dated 2 November 1959
 
 d. Department of State telegram #1448 from Tokyo dated 9 November 1959
 

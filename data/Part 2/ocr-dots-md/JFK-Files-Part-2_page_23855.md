@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23855.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Aaron. Are we going to terminate now?
 

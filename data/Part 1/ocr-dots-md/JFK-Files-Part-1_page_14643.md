@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14643.png
-
-Convert to MarkdownItem #7 (continued)
+Item #7 (continued)
 
 tells him: start they are leaving for Madrid on Friday
 (October 17). On Thursday at 161, he writes Don Juan

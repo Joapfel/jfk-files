@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_22805.png
-
 s and so on, and as a result, if there were matters of exceeding delicacy, that was not the forum at which such matters would be discussed.
 
 2

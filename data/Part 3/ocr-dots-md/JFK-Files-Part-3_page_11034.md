@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11034.png
-
-Convert to MarkdownADDENDUM: LEGAL COUNSEL DIVISION PVD:dkg
+ADDENDUM: LEGAL COUNSEL DIVISION PVD:dkg
 
 4-15-75
 

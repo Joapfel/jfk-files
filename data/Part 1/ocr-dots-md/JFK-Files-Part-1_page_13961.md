@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13961.png
-
-Convert to Markdown# INFORMATION OBTAINED FROM SOURCE "EL GORJO" ON 31 JANUARY AND 1 FEBRUARY, 1970
+# INFORMATION OBTAINED FROM SOURCE "EL GORJO" ON 31 JANUARY AND 1 FEBRUARY, 1970
 
 1. Orlando PRENDES Cuitierrez, First Secretary and DGI Center Chief. PRENDES is a highly intelligent and capable DGI officer who has some nine years experience in his trade. He is well-liked and respected by Manuel PINEIRO Lozada ("Barba Roja"), former Chief of the DGI, and Ramon OROZA Naveran ("Dometrio"), currently Chief of U.S. operations in DGI headquarters, particularly by the latter. PRENDES appears to be a fanatical revolutionary. He also is well-liked and respected by the staff of the DGI Center here, and he in turn is quick to single out each for praise--with the notable exception of Orlando PEREIRA Gonzalez, DGI officer and First Secretary. PRENDES seldom mentions PEREIRA, and Source concludes that he does not like or have much use for PEREIRA.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34821.png
-
-Convert to Markdown-2-
+-2-
 
 | | July (1960) | August (1960) | Sept. (1966) | Total |
 |:---|---:|---:|---:|---:|

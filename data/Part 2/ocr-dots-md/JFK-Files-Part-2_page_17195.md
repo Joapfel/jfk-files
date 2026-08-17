@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17195.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Captain Samuels further advised that these Panthers then called on the high school principal and asked for permission to use the school-wide public address system to broadcast a plea to "cool it". Captain Samuels related that the principal denied this request and ordered the four from the high school premises and Captain Samuels noted that there was no further incident.
 

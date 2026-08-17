@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26341.png
-
-Convert to Markdown<table><tr><td>CONFIDENTIAL</td></tr><tr><td>SECRET<br/>(When Filled In)</td></tr><tr><td>COUNTRY SOUTH VIETNAM</td><td>REPORT NO. TDCSDB-3/655,558</td></tr><tr><td>SUBJECT STATUS OF COUP D'ETAT PLANS OF TRAN KIM TUYEN'S GROUP</td><td>DATE DISTR. 16 JULY 1963</td></tr><tr><td></td><td>PRECEDENCE ROUTINE</td></tr><tr><td>DATE OF INFO. 15 JULY 1963</td><td>REFERENCES IN 80366</td></tr><tr><td>PLACE & DATE ACQ. VIETNAM, SAIGON (15 JULY 1963)</td><td>FIELD REPORT NO. FVS: 9309</td></tr><tr><td>APPRAISAL 3</td><td></td></tr></table>
+<table><tr><td>CONFIDENTIAL</td></tr><tr><td>SECRET<br/>(When Filled In)</td></tr><tr><td>COUNTRY SOUTH VIETNAM</td><td>REPORT NO. TDCSDB-3/655,558</td></tr><tr><td>SUBJECT STATUS OF COUP D'ETAT PLANS OF TRAN KIM TUYEN'S GROUP</td><td>DATE DISTR. 16 JULY 1963</td></tr><tr><td></td><td>PRECEDENCE ROUTINE</td></tr><tr><td>DATE OF INFO. 15 JULY 1963</td><td>REFERENCES IN 80366</td></tr><tr><td>PLACE & DATE ACQ. VIETNAM, SAIGON (15 JULY 1963)</td><td>FIELD REPORT NO. FVS: 9309</td></tr><tr><td>APPRAISAL 3</td><td></td></tr></table>
 
 THIS IS UNEVALUATED INFORMATION. SOURCE GRADINGS ARE DEFINITIVE; APPRAISAL OF CONTENT IS TENTATIVE.
 

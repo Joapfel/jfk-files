@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35377.png
-
-Convert to Markdown(Continue on page No. 2)
+(Continue on page No. 2)
 
 "Annex 3"
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10734.png
-
-Convert to Markdown Coast Guard cables -
+Coast Guard cables -
 ① 1 July 74
 ② 5 July 74
 ③ 23 May 74

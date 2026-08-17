@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32727.png
-
-Convert to MarkdownHavana. At this point, the United Nations was working on the assumption that the visit to Cuba would be concerned with working out modalities of U.N. observation and inspection and "reciprocal measures to assure the peace in the Caribbean."
+Havana. At this point, the United Nations was working on the assumption that the visit to Cuba would be concerned with working out modalities of U.N. observation and inspection and "reciprocal measures to assure the peace in the Caribbean."
 
 The issue was further clouded by Castro's "statement of conditions" issued in Havana on October 28. "The guarantees of which President Kennedy speaks against the invasion of Cuba will not exist without the elimination also of the naval blockade," he declared, "and adoption, among others, of the following measures:":
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2904.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 Exhibit 3 - Temporary Duty Authorization for Lt. Colonel
 Yuriy Ivanovich NOSENKO, 15-30 December 1963

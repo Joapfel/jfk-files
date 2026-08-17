@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6277.png
-
-Convert to Markdown<table><tr><td>COLETIN ANNUAL</td></tr><tr><td>AUGMENTED OFFICE OF "CIRCULA" CORRESPONDENCE DE LOS ANGELES" CALIFORNIA, U. S.A.</td></tr></table>
+<table><tr><td>COLETIN ANNUAL</td></tr><tr><td>AUGMENTED OFFICE OF "CIRCULA" CORRESPONDENCE DE LOS ANGELES" CALIFORNIA, U. S.A.</td></tr></table>
 
 Captain Vicente Fernandez
 Fernandez has publicly commit-

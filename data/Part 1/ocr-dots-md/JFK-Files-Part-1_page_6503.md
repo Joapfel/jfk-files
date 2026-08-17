@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6503.png
-
-Convert to Markdown7 August 1952
+7 August 1952
 
 V
 

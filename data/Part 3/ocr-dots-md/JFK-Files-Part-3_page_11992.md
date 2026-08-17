@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11992.png
-
-Convert to Markdown4-H
+4-H
 
 INTELLIGENCE COVERAGE OF
 FRIENDLY FOREIGN COUNTRIES

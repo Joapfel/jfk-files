@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22060.png
-
-Convert to MarkdownNO OBJECTION as exercised
+NO OBJECTION as exercised
 NATIONAL SECURITY COUNCIL
 
 No DoD objection to public disclosure

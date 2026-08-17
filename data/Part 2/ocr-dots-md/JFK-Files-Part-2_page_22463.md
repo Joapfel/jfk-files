@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22463.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A Normally, the requirements are pretty standard, or they were at that time. But here again, you always have ad hoc type things that pop up from time to time, and have to be surfaced.
 

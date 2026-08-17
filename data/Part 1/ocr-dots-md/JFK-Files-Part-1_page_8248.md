@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8248.png
-
-Convert to MarkdownHenry Preston Lopez
+Henry Preston Lopez
 
 **Biographic Information:**
 

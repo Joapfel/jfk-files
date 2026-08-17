@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27179.png
-
-Convert to MarkdownB-G-G Files (Cont.)
+B-G-G Files (Cont.)
 
 III. Persons Appearing Before the Commission
 (waivers included)

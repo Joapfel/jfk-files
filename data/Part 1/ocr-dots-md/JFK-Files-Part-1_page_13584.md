@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13584.png
-
-Convert to Markdown Entrada. 1127. Hr del Banco Nacional do México con --.
+Entrada. 1127. Hr del Banco Nacional do México con --.
 SIOMARA, por avisarles que llegaron las siguientes órdenes --
 de pago y paguen pasar a cobrarlas: Para el Empleado 635,-
 Sr. ROGELIO RODRIGUEZ 350.80; Sr. LUIS GOMEZ 300.60; SIOMARA

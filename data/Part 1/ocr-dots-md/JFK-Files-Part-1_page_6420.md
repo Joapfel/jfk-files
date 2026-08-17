@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6420.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">OFFICIAL DISPATCH</td></tr><tr><td>VIA: AIR</td><td>LIOPATCH NO. CTA 26615</td></tr><tr><td colspan="2">SECRET<br/>CLASSIFICATION</td></tr><tr><td colspan="2"><u>FEDERIO</u></td></tr><tr><td>TO</td><td>Chief, IO</td><td>DATE:</td><td>JAN 8 1957</td></tr><tr><td>FROM</td><td>Chief of Station, Paris - LCFIPIT</td><td>INFO:</td><td>Chief, W3</td></tr><tr><td>SUBJECT:</td><td>CGENERAL</td><td>Operational</td></tr><tr><td>SPECIFIC</td><td>DTJOURNE</td><td></td></tr></table>
 

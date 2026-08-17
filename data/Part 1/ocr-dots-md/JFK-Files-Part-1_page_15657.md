@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15657.png
-
-Convert to Markdownchiefly due to the fact that he is or has been "stupid" or impulsive -- stupid, impulsive, immature and inexperienced.
+chiefly due to the fact that he is or has been "stupid" or impulsive -- stupid, impulsive, immature and inexperienced.
 
 101. Subject is capable of experiencing melancholy or depressive mood swings. However, he maintains a gay facade and he attempts to relieve his depressive feelings with lightness. Underneath the gay appearance, however, is seriousness. One of the chief motives is his curiosity. He seeks the unknown but when he approaches the unknown, he experiences a certain feeling which he recognizes as a threat to his emotional security and he is ambivalent about proceeding or withdrawing. He has an internal fear of something which he doesn't know or understand. Because of this it may be necessary to provide him with firm support, guidance, and consideration of all the possible eventualities. He has a fear of getting himself into something which he cannot get out of and his immediate reaction is to turn around and go away without having solved the problem. Consequently, he needs a person of greater intelligence who is able to help him to evaluate the realities of his situation or predicament. It must be kept in mind that his self-preservation is stronger than his desire to solve problems.
 

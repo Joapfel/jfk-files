@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20077.png
-
-Convert to MarkdownCG 100-44707
+CG 100-44707
 100-42717
 100-44775
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20970.png
-
-Convert to Markdownaccept or constructive, and you agree to execute whatever documents may be required by CIA to evidence this relationship.
+accept or constructive, and you agree to execute whatever documents may be required by CIA to evidence this relationship.
 
 6. Status. You are not an employee of the United States Government under this agreement and are not entitled to any benefits normally incident to an employee status, except as specifically enumerated herein.
 

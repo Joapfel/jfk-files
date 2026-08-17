@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2366.png
-
-Convert to Markdownemployment the salary or wages for which are paid from any such appropriation shall be guilty of a felony, and, upon conviction, shall be fined not more than $1,000 or imprisoned for not more than 1 year, or both, and that this penalty shall be in addition to, and not in substitution for, any other provisions of law.
+employment the salary or wages for which are paid from any such appropriation shall be guilty of a felony, and, upon conviction, shall be fined not more than $1,000 or imprisoned for not more than 1 year, or both, and that this penalty shall be in addition to, and not in substitution for, any other provisions of law.
 
 The affidavit referred to above is one of those to which you are required to swear (or affirm) on the attached page.
 

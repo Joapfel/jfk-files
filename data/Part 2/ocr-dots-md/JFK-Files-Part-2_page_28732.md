@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28732.png
-
-Convert to Markdown**Resume**
+**Resume**
 
 Robert Karl Tanenbaum
 210 East 68th Street

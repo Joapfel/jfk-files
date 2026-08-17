@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23194.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DELEGATE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11931.png
-
-Convert to MarkdownOffice of the General Counsel
+Office of the General Counsel
 
 October 28, 1975
 Page Two

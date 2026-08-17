@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28732.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>COURSE NO.</td>
     <td>COURSE TITLE</td>

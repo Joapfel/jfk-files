@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18095.png
-
-Convert to MarkdownHonorable Carl T. Rowan
+Honorable Carl T. Rowan
 
 **NOTE:**
 

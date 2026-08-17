@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3107.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="7">CLASSIFICATION</td></tr><tr><td colspan="7" style="text-align: center;">SECRET</td></tr><tr><td colspan="7">MESSAGE HANDLING INDICATOR</td></tr><tr><td>STAFF</td><td colspan="6"></td></tr><tr><td>CONF:</td><td>SE5</td><td>INFO:</td><td>FILE</td><td>Alex, LA4</td><td colspan="2"></td></tr></table>
 

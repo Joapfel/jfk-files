@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21403.png
-
-Convert to MarkdownSAC, Boston
+SAC, Boston
 
 REC-2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35189.png
-
-Convert to Markdown# STATEMENT OF EXPENSES
+# STATEMENT OF EXPENSES
 
 **A.M. "X"**
 

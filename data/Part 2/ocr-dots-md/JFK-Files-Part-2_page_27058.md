@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27058.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Murphy asked the DCI to state the meaning of "MONGOOSE B PLUS". Mr. McCone explained that in the MONGOOSE Group it was originally conceived that Phase I would be one of gathering intelligence on the possibilities for the organization and supply of resistance groups within Cuba, but this effort was "only fairly successful" because Castro has some 100,000 informers in place in Cuba and exercises internal security controls through a system of ration cards, and therefore, CIA did not get as many teams into Cuba as had been hoped. On August 10, Phase II was reached with MONGODB planning for (a) violent actions (b) a relatively high level of actions, or "B-PLUS", and lesser actions, or "B MINUS". Mr. McCone said that he had not been prepared to endorse proposed "B PLUS" actions in the absence of plans for military backing, because of his own speculation that the U.S. would be faced with MRBMs in Cuba. In any case, the MONGODB effort became diverted by considerations of Soviet activities in Cuba, Mr. McCone stated.
 

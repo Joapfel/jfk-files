@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13389.png
-
-Convert to Markdown- 50 -
+- 50 -
 
 OLSEN: All right, Frank, we are on a new tape now. Go ahead and wind up what additional information you want to give us relating to your activities associated with the CIA.
 

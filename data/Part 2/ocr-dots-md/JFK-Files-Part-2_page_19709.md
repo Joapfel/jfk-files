@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19709.png
-
-Convert to MarkdownWFO 100-55290
+WFO 100-55290
 
 Source knew of no radical revolutionary tendencies or activities being planned or contemplated by any of the "Furies" members.
 

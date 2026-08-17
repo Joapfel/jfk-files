@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17458.png
-
-Convert to Markdown# APENDIX
+# APENDIX
 
 ## MUSLIM MOSQUE, INCORPORATED (MMI)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20615.png
-
-Convert to MarkdownPHILLIPS, DAVID A. Terry 45 D
+PHILLIPS, DAVID A. Terry 45 D
 
 SECRET
 

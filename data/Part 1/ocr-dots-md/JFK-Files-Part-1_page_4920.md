@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4920.png
-
-Convert to Markdown<table><thead><tr><th>SECRET</th></tr></thead><tbody><tr><td>FILE, VR. <u>ISSN</u> PS/EG2, IP/AN, IID, OPS/INT 5, CI 4,<br/>SS 4, OSG/IC 2</td></tr><tr><td>T 323938 E1A266</td></tr></tbody></table>
+<table><thead><tr><th>SECRET</th></tr></thead><tbody><tr><td>FILE, VR. <u>ISSN</u> PS/EG2, IP/AN, IID, OPS/INT 5, CI 4,<br/>SS 4, OSG/IC 2</td></tr><tr><td>T 323938 E1A266</td></tr></tbody></table>
 
 T 323938
 

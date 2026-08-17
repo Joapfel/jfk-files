@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_22836.png
-
 ?
 9 Mr. Bundy. I am trying to give an accurate picture of
 10 the number of times, Senator.

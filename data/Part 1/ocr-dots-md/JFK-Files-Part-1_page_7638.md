@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7638.png
-
-Convert to MarkdownDEPARTMENT OF STATE
+DEPARTMENT OF STATE
 
 Anconsul VEMACRUI
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21853.png
-
-Convert to MarkdownFor example, Hedgman testified that he may have "suggested" shooting Lumumba (to Gottlieb) as an alternative to poisoning (Hedgman, 8/21/75, pp. 27-29).
+For example, Hedgman testified that he may have "suggested" shooting Lumumba (to Gottlieb) as an alternative to poisoning (Hedgman, 8/21/75, pp. 27-29).
 
 There was a firm requirement, however, that the means of assassi-
 nation should not be traceable to the United States:

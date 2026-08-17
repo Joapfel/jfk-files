@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5348.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MES espoirs de réussite ainsi que ceux de tous les amis contactés se sont heurtés aux effets négatifs inévitables provenant tant de la nouvelle arrestation de Clémard que des derniers événements survenus en Haiti depuis le 20 mai écoulé. Je t'envoie, pour preuve, copie d'une lettre d'un de ces grands amis, Mr. Howard Burris de Washington, D.C. Je te demande de garder cette lettre strictement confidentielle car je n'aurais pas aimé que le nom de Mr. Burris soit mentionné à quiconque en Haiti. Si cela arrivait, nous pourrions perdre un très bon ami.
 

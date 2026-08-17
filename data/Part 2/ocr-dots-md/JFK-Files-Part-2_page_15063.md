@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15063.png
-
-Convert to MarkdownWILLIAM HENRY RENTSCHLER
+WILLIAM HENRY RENTSCHLER
 
 William Henry Rentschler, aged 43, former news-
 paper reporter, has been co-owner and/or President of a

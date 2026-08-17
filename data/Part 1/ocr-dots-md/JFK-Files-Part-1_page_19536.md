@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19536.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      ELECTION, DECLINATION, OR WAIVER<br/>

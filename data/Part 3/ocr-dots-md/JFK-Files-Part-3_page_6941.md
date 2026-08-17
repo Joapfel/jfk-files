@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6941.png
-
-Convert to MarkdownINFORMATION RECEIVED FROM BUREAU INFORMANT 200
+INFORMATION RECEIVED FROM BUREAU INFORMANT 200
 
 Items are received on repatriates, deportees, defectors, U.S. citizens who went to USSR for permanent residence because of marriage or family and individuals born in U.S. who were taken there when children. Most of this material is of limited value but all individuals are included on CIA's "defector list." However, items are of value when they pertain to individuals known to have been espionage agents or to have subversive relatives in U.S. For example, items on Harry Eisman, deported from U.S. over 30 years ago, have contained little information of interest until recently.
 

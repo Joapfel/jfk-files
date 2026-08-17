@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8445.png
-
-Convert to Markdown<table><tr><td>DD/O 77-3/94</td></tr></table>
+<table><tr><td>DD/O 77-3/94</td></tr></table>
 
 8 April 1977
 

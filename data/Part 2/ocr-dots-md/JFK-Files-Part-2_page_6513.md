@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6513.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 (3) In seq. (additions on this subject should be provided by USLA).
 

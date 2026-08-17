@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17168.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 Source advised the Young Lads is a Chicago youth gang whose members are primarily of Puerto Rican extraction and are principally located in an area on the near North side of Chicago.
 

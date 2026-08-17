@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_912.png
-
-Convert to Markdown<table><tr><td>NAME</td><td>DATE OF BIRTH</td><td>AGE</td></tr><tr><td>POZ, Jerome</td><td>13 Oct 58-19 Dec 58</td><td>6</td></tr><tr><td>DATE OF ENDR.</td><td>FOR CATE.</td><td>FOR CATE.</td></tr><tr><td>9 October 1928</td><td>19 June 1955</td><td>CRR</td></tr><tr><td colspan="3">IF CREDIT AS 10-PERSON, OF PRESENT: USE SECTION</td></tr><tr><td colspan="3">ANALYST</td></tr></table>
+<table><tr><td>NAME</td><td>DATE OF BIRTH</td><td>AGE</td></tr><tr><td>POZ, Jerome</td><td>13 Oct 58-19 Dec 58</td><td>6</td></tr><tr><td>DATE OF ENDR.</td><td>FOR CATE.</td><td>FOR CATE.</td></tr><tr><td>9 October 1928</td><td>19 June 1955</td><td>CRR</td></tr><tr><td colspan="3">IF CREDIT AS 10-PERSON, OF PRESENT: USE SECTION</td></tr><tr><td colspan="3">ANALYST</td></tr></table>
 
 SECTION II: SPECIFIC CHARACTERISTICS OF THE COC-052
 

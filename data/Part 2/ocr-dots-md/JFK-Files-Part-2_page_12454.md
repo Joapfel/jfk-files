@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12454.png
-
-Convert to MarkdownSECTION 107. SECURITY INFORMANTS[AND CONFIDENTIAL SOURCES]
+SECTION 107. SECURITY INFORMANTS[AND CONFIDENTIAL SOURCES]
 
 Be alert to the possibilities of former informant being contacted by representatives of publicity media and as a witness by congressional committees, INS, and state authorities. It will be the SAC's responsibility to know when a former informant is scheduled or is likely to appear at a hearing or make a public appearance of any kind. Prior thereto in each instance, former informant must be contacted and instructions above set forth reiterated by Agent who handled the informant. Emphasize to former informant that he must stick to the truth and make certain he can back up what he says, and if there is any deviation he will be subjected to harassment, criticism, possible libel, slander, or other criminal actions. If he inquires as to whether he should appear or testify or otherwise cooperate with any public or private individual or agency, advise him he must make that decision himself, but if he has appeared as a Government witness in a case which has not been finally adjudicated and decides in the affirmative, he should contact the USA for instructions. Advise Bureau of any such situations and the results of any interviews conducted.
 

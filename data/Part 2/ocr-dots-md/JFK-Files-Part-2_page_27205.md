@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27205.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 FF. Project MOCKINGBIRD
 (8 documents) (SECRET)

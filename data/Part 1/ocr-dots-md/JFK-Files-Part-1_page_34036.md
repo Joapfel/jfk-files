@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34036.png
-
-Convert to MarkdownCHART NO.5
+CHART NO.5
 CUBAN TRADE WITH COMMUNIST COUNTRIES
 1959-1966
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_685.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 COMMUNIST PARTY, USA
 

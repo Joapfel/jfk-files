@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21538.png
-
-Convert to Markdown157-10002-10106
+157-10002-10106
 
 JFK ASSASSINATION SYSTEM
 

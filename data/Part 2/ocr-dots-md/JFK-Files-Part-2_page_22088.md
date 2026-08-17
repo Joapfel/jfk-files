@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22088.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>PERSONS/ENTITIES:</td>
     <td></td>

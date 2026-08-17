@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25331.png
-
-Convert to MarkdownOctober 28, 1976
+October 28, 1976
 
 Reputed Crime Chief
 Accused of Extortion

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3908.png
-
-Convert to MarkdownLos Angeles Free Press
+Los Angeles Free Press
 
 July 25-31, 1975
 

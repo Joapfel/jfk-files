@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21041.png
-
-Convert to MarkdownAttachment #2
+Attachment #2
 
 Item 50. Offset of Income
 

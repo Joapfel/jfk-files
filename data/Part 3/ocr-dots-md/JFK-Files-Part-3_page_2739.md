@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2739.png
-
-Convert to Markdown1935
+1935
 
 tools of law enforcement to protect people from subversive or dangerous ideas, which I find strange and quite profoundly at odds with the philosophy of American government.
 

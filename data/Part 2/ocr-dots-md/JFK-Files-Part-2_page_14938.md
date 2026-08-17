@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14938.png
-
-Convert to MarkdownSPECIAL INVESTIGATIVE DIVISION
+SPECIAL INVESTIGATIVE DIVISION
 FEDERAL JUDGESHIP INVESTIGATIONS
 
 ALFRED BURKA: On 1/11/67 we initiated an investigation of Alfred Burka, a District of Columbia attorney who is being considered for appointment as Judge, District of Columbia Court of General Sessions. Previous applicant investigation in 1953, which was favorable concerning Burka, showed his father was indicted in 1944 for violation of the Internal Revenue Code but the case was not prosecuted. Current investigation of Burka is pending.

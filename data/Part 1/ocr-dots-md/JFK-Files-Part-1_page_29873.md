@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29873.png
-
-Convert to MarkdownSECRET
+SECRET
 (Was Filled In)
 
 RZF: 3 JAN 67

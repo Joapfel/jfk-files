@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10841.png
-
-Convert to Markdown# 3. Live Sources With Evaluation
+# 3. Live Sources With Evaluation
 
 At present we are making active efforts to develop live informant coverage in the diplomatic establishments of 37 non-Soviet bloc countries. This list of so-called "target countries" varies from time to time but essentially we are seeking informant coverage in countries considered critical from an intelligence standpoint such as those leaning towards the Soviet bloc or countries in which the United States has paramount political or military interests or which are otherwise of primary concern. The current list includes virtually all Latin-American countries, a number of Middle East countries, and scattered countries throughout Africa and the Far East.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6307.png
-
-Convert to Markdownwife and for himself give it to him from mine. I authorized him to ask you for it.
+wife and for himself give it to him from mine. I authorized him to ask you for it.
 
 If they would let me, in our province I would place 8 or 5 guerrillas with
 the contacts which I had before and have now, and we would fill that up for those

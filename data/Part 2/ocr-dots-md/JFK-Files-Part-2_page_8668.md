@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_8668.png
-
 director Raul Valdes Vivo. A portion of this interview was monitored from Havana Radio. Text follows.
 
 (Havana, 18 July 1962, FBIS No. 1h0.)

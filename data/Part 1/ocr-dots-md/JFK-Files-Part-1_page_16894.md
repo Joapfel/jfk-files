@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16894.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG:</td><td>Rob Hazen</td></tr><tr><td>UNIT:</td><td>MI/1</td></tr><tr><td>EXT:</td><td>'167/1973</td></tr><tr><td>DATE:</td><td>Ie March 1970</td></tr></table>
 

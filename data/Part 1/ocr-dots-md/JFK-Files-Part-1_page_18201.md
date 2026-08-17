@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18201.png
-
-Convert to MarkdownORIENTE
+ORIENTE
 
 comercio
 

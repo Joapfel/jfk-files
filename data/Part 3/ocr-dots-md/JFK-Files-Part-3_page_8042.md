@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8042.png
-
-Convert to MarkdownJUL 19 1975
+JUL 19 1975
 
 NR 03 SD CODED
 

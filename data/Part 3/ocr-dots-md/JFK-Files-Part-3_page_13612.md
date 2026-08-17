@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13612.png
-
-Convert to Markdown# Oswald Calls to Embassies
+# Oswald Calls to Embassies
 Reported Taped by C.I.A.
 
 By NICHOLAS M. HORROCK

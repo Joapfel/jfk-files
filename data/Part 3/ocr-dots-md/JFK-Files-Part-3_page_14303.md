@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14303.png
-
-Convert to Markdown# Meeting of October 16-17, 1961
+# Meeting of October 16-17, 1961
 
 During the Board meeting of October 16-17, 1961 the Director of Central Intelligence, Mr. Allen Dulles, commented that the "principle of compartmentation" was being violated by CIA in its dealings with the PFIAB because of the CIA's effort to meet the convenience of the Board. Mr. Dulles said that one example of this was the action taken by CIA in furnishing the detailed compilation concerning the proprietary and other cover organizations with which CIA has dealings in its covert action programs. Mr. Coyne observed that material received by the Board from the CIA, and more sensitive information received from other U. S. intelligence agencies, is given a greater degree of security in the Board than in the CIA itself. (For use at this Board meeting a 17-page summary had been prepared in the Board's offices based on an undated document from CIA marked "Top Secret--Eyes Only--Extremely Sensitive" containing a listing and brief description of all CIA cover organizations and proprietary activities, including references to the Asia Foundation, Radio Free Europe, Institute of National Labor Research, World Confederation of Organizations of the Teaching Profession, U. S. National Student Association, and many others.)
 

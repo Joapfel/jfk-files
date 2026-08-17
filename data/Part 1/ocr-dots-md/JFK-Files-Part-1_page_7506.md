@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7506.png
-
-Convert to Markdown1. A happy ending has been written in the case of Horrie L'Appelman, former Communist who is now secretary of the General Hospital Executive of Denver. He has been praised in Washington for "disclosing his Communist past", and his board of directors has voted confidence in him and continued him in his job.
+1. A happy ending has been written in the case of Horrie L'Appelman, former Communist who is now secretary of the General Hospital Executive of Denver. He has been praised in Washington for "disclosing his Communist past", and his board of directors has voted confidence in him and continued him in his job.
 
 2. No doubt all this is fitting; and proper but it doesn't answer the question of why nobody in Denver goes to have known anything about Appelman's Red-tinted past, or why there was anything sensational about his revelation of it in Washington. Since the police state is rightly anathema to American citizens, it seems remarkable that official records should not be in existence and reasonably accessible to people with reason to check up on such a point as past Communist service.
 

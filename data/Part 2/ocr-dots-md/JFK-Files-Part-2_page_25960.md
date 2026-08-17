@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25960.png
-
-Convert to Markdown## § 1504
+## § 1504
 
 # TITLE 18—CRIMES AND CRIMINAL PROCEDURE
 

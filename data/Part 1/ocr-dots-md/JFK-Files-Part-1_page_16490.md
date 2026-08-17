@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16490.png
-
-Convert to Markdown16 October 1975
+16 October 1975
 
 SUBJECT: Contact Report on SLACK-1. (S-1)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29315.png
-
-Convert to Markdown# Investigation Interview Schedule
+# Investigation Interview Schedule
 
 ## Identifying Information
 

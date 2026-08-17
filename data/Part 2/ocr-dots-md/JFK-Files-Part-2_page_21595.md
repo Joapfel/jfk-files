@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21595.png
-
-Convert to MarkdownFILE: SECRET
+FILE: SECRET
 
 had not been eliminated in 1967 the intelligence
 community could have dealt with the New Left

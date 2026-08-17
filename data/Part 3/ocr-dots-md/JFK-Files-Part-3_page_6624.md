@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6624.png
-
-Convert to MarkdownAT-T-3, 8/61
+AT-T-3, 8/61
 
 ABERNATHY on June 9, 1963, conferred with Rev. KING, CLARENCE JONES, and STANLEY LEVISION as to methods of dramatizing a proposed march on Washington, D. C., intending to pressure Congress into enacting Civil Rights legislation.
 

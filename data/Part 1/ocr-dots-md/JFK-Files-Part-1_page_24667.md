@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24667.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BIOGRAPHIC PROFILE
 OF

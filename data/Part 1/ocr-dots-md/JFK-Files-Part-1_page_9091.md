@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9091.png
-
-Convert to Markdown14-0800
+14-0800
 
 UNCLASSIFIED ☐
 

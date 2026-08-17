@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18935.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 to the same apartment swimming pool to which the wife of Mrs. BURIS STRELNIKOV belongs and they see each other almost daily. He said Mrs. STREELNIKOV is very unhappy over recent travel restrictions placed on her husband and is afraid this might interfere with vacation plans, such as trips to beaches this-Summer.
 

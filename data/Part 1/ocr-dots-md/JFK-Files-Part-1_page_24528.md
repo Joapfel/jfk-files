@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24528.png
-
-Convert to MarkdownCOBREO AEREO
+COBREO AEREO
 
 June 2. 5.1969.
 

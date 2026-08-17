@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10831.png
-
-Convert to MarkdownEL Internal Revenue Service está investigando las finanzas de algunos mercados de viviendas operados por cuitas en los que sabe que alguna "Cresos" de la bolíta fueron la mayor parte de las acciones. Pero muy en serio. Porque el dinero del juego debe pagar im- puestos de dutydes como cualquier otra ganan- cias.
+EL Internal Revenue Service está investigando las finanzas de algunos mercados de viviendas operados por cuitas en los que sabe que alguna "Cresos" de la bolíta fueron la mayor parte de las acciones. Pero muy en serio. Porque el dinero del juego debe pagar im- puestos de dutydes como cualquier otra ganan- cias.
 
 A un artesano criollo que acumuló tremenda fortuna en el juego ilícito en Cuba le atribuyen los agentes más de cinco millones de dólares acumulados en Miami en las naranjas de la policía.
 

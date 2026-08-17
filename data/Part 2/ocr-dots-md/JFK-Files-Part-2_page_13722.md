@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13722.png
-
-Convert to MarkdownPHILIP A. HART, MICH.
+PHILIP A. HART, MICH.
 WALTER F. MONDale, MINN.
 WALTER O. HUDDLESTON, KY.
 ROBERT MORGAN, N.C.

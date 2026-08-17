@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10819.png
-
-Convert to MarkdownIt should be noted in considering the proposed change of USIB membership that the Bureau was a member of six of the twenty-six subcommittees which formed the committee make-up of the USIB.
+It should be noted in considering the proposed change of USIB membership that the Bureau was a member of six of the twenty-six subcommittees which formed the committee make-up of the USIB.
 
 Memorandum January 10, 1961, Mr. Belmont to Mr. Parsons outlined the proposed USIB membership change for the Director. It recommended that Bureau make no issue of the proposed recommendation. The Director underlined a passage of the memorandum which stated "In one sense of the word it could be argued the FBI would lose prestige by changing from a regular member to an ad hoc member." The Director approved the recommendation of the memorandum with the following notation: "O.K. but I am not enthusiastic about the change of our status. H." Our status, however, was not changed and the Bureau has continued to hold full membership on the Board.
 

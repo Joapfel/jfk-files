@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15957.png
-
-Convert to Markdown# D. RULES OF THE CHICAGO CHAPTER OF THE BPP
+# D. RULES OF THE CHICAGO CHAPTER OF THE BPP
 
 On May 1, 1969, Chicago chapter of the BPP circulated the following Rules of the Black Panther Party, Chicago, Illinois:
 

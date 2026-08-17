@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24769.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIO: Patricia L. Johnson:ddm</td>
     <td rowspan="2">MESSAGE FORM<br/>TOTAL COPIES: 21</td>

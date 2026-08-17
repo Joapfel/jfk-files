@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6623.png
-
-Convert to MarkdownSECURITY INFORMATION:
+SECURITY INFORMATION:
 
 Chief, Foreign Information Division
 

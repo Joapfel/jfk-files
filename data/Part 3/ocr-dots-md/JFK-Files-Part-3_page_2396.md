@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2396.png
-
-Convert to MarkdownCurrently, these establishments exist in New York City; Washington, D. C.; Pittsburgh; and Chicago with a total complement of over 1,000 communist nationals and about 1,400 dependents. Our investigations have disclosed there are over 350 known or highly suspected intelligence officers or agents among them, of whom about 220 are Soviet nationals.
+Currently, these establishments exist in New York City; Washington, D. C.; Pittsburgh; and Chicago with a total complement of over 1,000 communist nationals and about 1,400 dependents. Our investigations have disclosed there are over 350 known or highly suspected intelligence officers or agents among them, of whom about 220 are Soviet nationals.
 
 In addition to this open or "legal" channel of intelligence operations, the communist-bloc nations utilize highly clandestine "illegal" networks which have no observable contact with the communist official establishments. The members of these networks who are sent here from abroad with fraudulent documents and fictitious cover stories perform intelligence collection tasks as do the communist intelligence agents operating under diplomatic or official cover. In time of emergency or war involving the United States and communist countries, the "illegal" networks would assume the primary collection role for communist countries whose diplomats and officials would be interned or expelled.
 

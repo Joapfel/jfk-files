@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17877.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="4">TOTAL COPY</td>
     <td>☐ COPY ☐ REPRODUCTION PROHIBITED</td>

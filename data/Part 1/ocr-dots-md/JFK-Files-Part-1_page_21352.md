@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21352.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 20 Aug. 1975 (NY)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9063.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. The files show that Tichborn's salary, Dials and Funds was funded through Tichborn by various individuals through an arrangement made by CGS. The AC/WB/6 Interrogated Tichborn on any Foundation funding, Tichborn could recall only one source of Foundation funding, some $2-3,500 given Dials and Funds Editor Ron Hira by the Fairfield Foundation. There is also a reference in the files that one, Louis Mercier, was informed that ODACID also supported Dials.
 

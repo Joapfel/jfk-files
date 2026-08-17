@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16314.png
-
-Convert to Markdown# WHO HAS THE POWER?
+# WHO HAS THE POWER?
 
 1. Who likes the U.S. Government?
 Those who it helps.

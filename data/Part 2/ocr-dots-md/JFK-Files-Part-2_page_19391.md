@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19391.png
-
-Convert to MarkdownAGENCY: G-2, OMI, OSI, SEC. SER.
+AGENCY: G-2, OMI, OSI, SEC. SER.
 RAO (SD, CH, ODI)
 
 <table>

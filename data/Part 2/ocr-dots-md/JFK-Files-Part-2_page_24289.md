@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24289.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the Director has determined that the corporations are no longer required by the Agency in the discharge of its responsibilities; that they are excess to Agency requirements, and he has directed that they be disposed of either by sale or liquidation.
 

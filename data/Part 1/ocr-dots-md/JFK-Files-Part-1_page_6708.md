@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6708.png
-
-Convert to MarkdownJ- Inset Saturday. I took some children to Spanish classes which Mrs. Reynolds' and Mrs. Amrist' Mutisart held once a week. I met Sr. Mutisart (L-89) there. Outisart did not look very friendly at the beginning. I pressure that some comments I made about political groups in New Orleans got to his ears and he did not think much of them.
+J- Inset Saturday. I took some children to Spanish classes which Mrs. Reynolds' and Mrs. Amrist' Mutisart held once a week. I met Sr. Mutisart (L-89) there. Outisart did not look very friendly at the beginning. I pressure that some comments I made about political groups in New Orleans got to his ears and he did not think much of them.
 
 A few days before May 20 I was visiting at the Jodos. A man called Jose Muriaso Puerto was there also. We were commenting about the fact that all of a sudden four or five guys who had been named New Orleans delegates by some "lesi" group were trying to gain strength. Outisart was one of these men (he is supposed to be a close friend of Puerto!).
 

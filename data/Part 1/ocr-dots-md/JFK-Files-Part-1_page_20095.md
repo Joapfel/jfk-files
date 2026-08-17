@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20095.png
-
-Convert to MarkdownSECTION C continued
+SECTION C continued
 
 approaches to operational problems and personalities, and expends considerable
 effort in maintaining a level of specialized knowledge sufficient to backstop his

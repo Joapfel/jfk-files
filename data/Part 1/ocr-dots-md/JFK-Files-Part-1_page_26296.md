@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26296.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>RECEIVING ACTION</th></tr></thead><tbody><tr><td>To:</td><td>: Chief, VII Division</td><td>SECRET</td><td>MAY 13, 1966 (IF AVAILABLE)</td></tr><tr><td>REF:</td><td></td><td></td><td>NO REPRINT REQUIRED</td></tr><tr><td>PROMO:</td><td>: COS, Mexico City</td><td>(FOR QUALITY REVIEW<br/>PLEASE INVOICE AMOUNT)</td><td>CORRECTLY</td></tr><tr><td>SUBJECT:</td><td>: Victor RICO Galan</td><td></td><td>PROOF IS CORRECT</td></tr><tr><td colspan="4">ACTION REQUIRED - REPLACE</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>RECEIVING ACTION</th></tr></thead><tbody><tr><td>To:</td><td>: Chief, VII Division</td><td>SECRET</td><td>MAY 13, 1966 (IF AVAILABLE)</td></tr><tr><td>REF:</td><td></td><td></td><td>NO REPRINT REQUIRED</td></tr><tr><td>PROMO:</td><td>: COS, Mexico City</td><td>(FOR QUALITY REVIEW<br/>PLEASE INVOICE AMOUNT)</td><td>CORRECTLY</td></tr><tr><td>SUBJECT:</td><td>: Victor RICO Galan</td><td></td><td>PROOF IS CORRECT</td></tr><tr><td colspan="4">ACTION REQUIRED - REPLACE</td></tr></tbody></table>
 
 1. Attached for your information is a copy of a piece written and signed by Victor RICO Galan (Attachment "A") which he gave to Elena Carro DE PAZ to pass to LNPURE. She handed it to IDENTITY who in turn gave it to Bernard A. Edgebrook. Attached also is a copy of the covering note written by Mrs. DE PAZ (Attachment "B") and rough translations of both pieces.
 

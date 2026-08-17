@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19116.png
-
-Convert to MarkdownTravail et Culture, 3 rue des Champs-Élysées - Paris (3) Jan. 09.01
+Travail et Culture, 3 rue des Champs-Élysées - Paris (3) Jan. 09.01
 
 Tourisme et Tourisme, 18 rue du Montparc (9). Pro. 30-48 et 50.19
 

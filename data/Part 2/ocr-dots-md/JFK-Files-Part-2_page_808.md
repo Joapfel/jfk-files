@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_808.png
-
-Convert to MarkdownFVO: 1 APR 63
+FVO: 1 APR 63
 
 SECRET
 (When Filled In)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12007.png
-
-Convert to Markdown4-H
+4-H
 
 CUBAN REFUGEE PROGRAM
 

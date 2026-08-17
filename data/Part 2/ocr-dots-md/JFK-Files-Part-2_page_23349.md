@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23349.png
-
-Convert to Markdown1. dispatch Sidney Gottlieb to the Congo on a highly sensitive mission?
+1. dispatch Sidney Gottlieb to the Congo on a highly sensitive mission?
 
 2.
 

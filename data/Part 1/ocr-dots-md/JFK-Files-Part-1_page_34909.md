@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34909.png
-
-Convert to Markdown6 November 1987
+6 November 1987
 
 MEMORANDUM FOR: Mr. Ben DeFolice, C/BSD
 SUBJECT : Files Concerning Payments to Bay of Pigs Dependents

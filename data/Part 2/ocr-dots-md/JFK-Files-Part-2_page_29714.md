@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29714.png
-
-Convert to MarkdownClassification: IUT JOURNALI
+Classification: IUT JOURNALI
 
 (This form is to be used for material extracted
 from CIA—controlled documents.)

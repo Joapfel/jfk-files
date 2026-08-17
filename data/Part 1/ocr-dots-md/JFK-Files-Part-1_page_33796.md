@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33796.png
-
-Convert to MarkdownFREE TRADE UNION COMMITTEE
+FREE TRADE UNION COMMITTEE
 Labor League for Human Rights
 
 Box 65, Radio City Station

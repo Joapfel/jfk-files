@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_53.png
-
-Convert to MarkdownFORM
+FORM
 3-62
 
 610 USE PREVIOUS EDITIONS

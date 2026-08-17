@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5677.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (When Filed In)
 
 E 2 INVOICE CL BY 007622

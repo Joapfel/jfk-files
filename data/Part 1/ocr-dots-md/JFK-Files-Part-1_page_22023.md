@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22023.png
-
-Convert to Markdown(e) Information from other Sources
+(e) Information from other Sources
 
 Information available to CIA indicates that the Attaches of
 the three U.S. military services represented in Moscow shared

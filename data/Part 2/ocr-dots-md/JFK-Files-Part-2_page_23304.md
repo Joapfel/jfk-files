@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23304.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 and pistols were transferred in late January, 1960, subsequent
 2 to an authorization of January 12th, prior to Kennedy's taking

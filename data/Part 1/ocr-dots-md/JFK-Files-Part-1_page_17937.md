@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17937.png
-
-Convert to MarkdownVIA: AIR
+VIA: AIR
 (SPECIFY AIR OR SEA POUCH)
 
 DIS. .[CH NO. HD-4-7613

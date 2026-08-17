@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3311.png
-
-Convert to MarkdownMemorandum to Mr. Sullivan
+Memorandum to Mr. Sullivan
 
 RE: COUNTERINTELLIGENCE PROGRAM
 

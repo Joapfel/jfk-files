@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25952.png
-
-Convert to MarkdownSECRET
+SECRET
 
 - gang cairn under Batiste
 - father died in 54 - shenelle radiol

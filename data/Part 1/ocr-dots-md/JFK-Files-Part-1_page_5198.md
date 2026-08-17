@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5198.png
-
-Convert to MarkdownDEPT OF STATE AIRGRAM A-325
+DEPT OF STATE AIRGRAM A-325
 
 DATE: 16 FEBRUARY 1963
 

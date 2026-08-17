@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24547.png
-
-Convert to Markdown14-00000
+14-00000
 
 The finance minister, in his letter of the 25th, said that there was no reason to doubt the feasibility of the superhighway, and that a mortgage loan on the condition that the government would take care of the building and superconducting at the time the coverage cost of the highway did not exceed 1-2 million dollars (1937, pp. 1165-1168). This estimate, technical personnel were being charged. However, the government got延长ed. -new line company - contractor presented an additional bill in amount of 100 million dollars besides the original estimate.
 

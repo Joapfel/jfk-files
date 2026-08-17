@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22205.png
-
-Convert to Markdown613.
+613.
 
 ## 3. Report by Psychiatrist
 

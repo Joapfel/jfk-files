@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1036.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AUG 15 1965
 

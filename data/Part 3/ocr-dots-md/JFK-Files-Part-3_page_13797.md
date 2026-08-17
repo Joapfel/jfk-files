@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13797.png
-
-Convert to MarkdownOFFICIAL USE ONLY
+OFFICIAL USE ONLY
 
 (Attachment to February 6, 1963 paper: "Current USIA Programs on Cuba")
 

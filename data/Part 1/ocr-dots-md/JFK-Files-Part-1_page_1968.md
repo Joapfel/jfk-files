@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1968.png
-
-Convert to Markdown23 June 1976
+23 June 1976
 
 MEMORANDUM FOR: Chief, Security Analysis Group
 SUBJECT : Manuel L. DE ARMAS

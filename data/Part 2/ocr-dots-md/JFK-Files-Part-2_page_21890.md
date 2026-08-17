@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21890.png
-
-Convert to Markdownin Leopoldville (CIA Cable IN 38052), Leopoldville to Director, 11/4/60). (Chief of) Station Hedgman testified that he had been made aware by cable that (O'Donnell) was coming to the Congo (Hedgman, 8/21/75, p. 40). Hedgman said it was "very possible" that as a new (Chief of) Station he took the dispatch to the Congo of a senior officer like (O'Donnell) as a signal that CIA headquarters was "dissatisfied with my handling" of Gottlieb's instructions (Hedgman, 8/21/75, p. 42).
+in Leopoldville (CIA Cable IN 38052), Leopoldville to Director, 11/4/60). (Chief of) Station Hedgman testified that he had been made aware by cable that (O'Donnell) was coming to the Congo (Hedgman, 8/21/75, p. 40). Hedgman said it was "very possible" that as a new (Chief of) Station he took the dispatch to the Congo of a senior officer like (O'Donnell) as a signal that CIA headquarters was "dissatisfied with my handling" of Gottlieb's instructions (Hedgman, 8/21/75, p. 42).
 
 Hedgman had a general picture of (O'Donnell)'s mission:
 

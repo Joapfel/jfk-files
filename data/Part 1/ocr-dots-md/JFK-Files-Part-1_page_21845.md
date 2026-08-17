@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21845.png
-
-Convert to Markdown# II. SUMMARY OF OPERATIONAL DEVELOPMENTS
+# II. SUMMARY OF OPERATIONAL DEVELOPMENTS
 
 ## A. Introduction
 

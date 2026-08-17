@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12678.png
-
-Convert to Markdown(c) Statement as to subject's availability as potential witness and evaluation of subject's potential as informant or confidential source and whether further contacts contemplated
+(c) Statement as to subject's availability as potential witness and evaluation of subject's potential as informant or confidential source and whether further contacts contemplated
 
 (d) Recommendation that security index card be canceled when statements furnished by subject regarding his subversive activities and associates, considered with other information and factors, indicate subject is no longer dangerous to internal security during emergency
 

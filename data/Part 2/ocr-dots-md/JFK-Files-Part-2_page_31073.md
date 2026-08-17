@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_31073.png
-
 , spoke for him with U.S. authorities. Urged strong organization inside Cuba before outside help could be effective. CHIBAS meets with Bender 9/7/60, says he is in favor of FRD but completely committed to Ray and would check with him.*
 
 4. 27 September 1960.

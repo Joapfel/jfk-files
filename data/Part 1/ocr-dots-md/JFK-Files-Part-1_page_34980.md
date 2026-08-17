@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34980.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>B E C R E T</td><td>SECRET</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>B E C R E T</td><td>SECRET</td></tr></table>
 
 CORZO Izaguirre,velio (Dr.). lawyer and fingerprint technician formerly employed at the Electoral Supromo Tribune and the Electoral Census of havana. Friend and a former student of AMIAID-1, at the University of havana. Resides at 9290 S.W. 4th Terrace, Miami.
 

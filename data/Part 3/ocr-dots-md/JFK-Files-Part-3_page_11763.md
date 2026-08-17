@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11763.png
-
-Convert to Markdown# ANTI-RIOT LAWS AND BOMBING MATTERS
+# ANTI-RIOT LAWS AND BOMBING MATTERS
 
 5-A-l b
 

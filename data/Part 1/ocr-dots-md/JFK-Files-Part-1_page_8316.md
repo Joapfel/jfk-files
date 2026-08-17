@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8316.png
-
-Convert to MarkdownMay 15, 1969.
+May 15, 1969.
 
 Turnover Report
 

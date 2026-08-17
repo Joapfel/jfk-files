@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35706.png
-
-Convert to Markdown21 August 1974
+21 August 1974
 
 MEMORANDUM FOR: Mr. F. I. G. Coleman
 C/OPS/LSN

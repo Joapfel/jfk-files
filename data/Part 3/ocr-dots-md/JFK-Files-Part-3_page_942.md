@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_942.png
-
-Convert to Markdown## 2. Other Than Name Check Requests
+## 2. Other Than Name Check Requests
 
 Any information received by the FBI which is of interest to another Federal Agency is furnished in writing to that agency.
 

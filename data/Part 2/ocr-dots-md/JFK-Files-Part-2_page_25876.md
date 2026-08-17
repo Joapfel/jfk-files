@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25876.png
-
-Convert to MarkdownUNITED STATE
+UNITED STATE
 <u>Memorandum</u>
 
 TO A. H. Belmont

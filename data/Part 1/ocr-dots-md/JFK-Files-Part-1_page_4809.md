@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4809.png
-
-Convert to Markdown14-00000
+14-00000
 
 COSTA RICA
 

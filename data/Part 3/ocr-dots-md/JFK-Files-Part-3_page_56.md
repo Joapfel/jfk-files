@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_56.png
-
-Convert to MarkdownSAC, Albany
+SAC, Albany
 
 July 13, 1972
 

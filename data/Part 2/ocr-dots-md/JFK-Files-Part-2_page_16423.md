@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16423.png
-
-Convert to Markdownis basically not a reading community. There fore it is very significant that the vanguard group first be activists. Without this knowledge of the black community, one could not gain the fundamental knowledge of the black revolution in racist America.
+is basically not a reading community. There fore it is very significant that the vanguard group first be activists. Without this knowledge of the black community, one could not gain the fundamental knowledge of the black revolution in racist America.
 
 The main function of the party is to awaken the people and to teach them the strategic method of resisting the power structure, which is prepared not only to combat the resistance of the people with massive brutality, but to totally annihilate the black community, the black population.
 

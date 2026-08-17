@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29809.png
-
-Convert to Markdown1 July 1959
+1 July 1959
 
 MEMORANDUM FOR: Deputy Director (Plans)
 

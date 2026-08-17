@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5026.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 0116382 SEP 76 STAFF
 

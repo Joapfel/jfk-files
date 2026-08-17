@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12766.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IRD# 72501
 29 June 1973

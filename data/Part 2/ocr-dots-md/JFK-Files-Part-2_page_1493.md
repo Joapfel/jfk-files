@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1493.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
    <caption>FIELD FITNESS REPORT</caption>

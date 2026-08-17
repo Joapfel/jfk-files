@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17743.png
-
-Convert to Markdown... si que lo diu es la tona de posesión, NF que quiere saber la fecha para poder mandar una delegación de su pafs a esa tona. GUEZAN ofrece comunicarse a su tío: NF que grucias.
+... si que lo diu es la tona de posesión, NF que quiere saber la fecha para poder mandar una delegación de su pafs a esa tona. GUEZAN ofrece comunicarse a su tío: NF que grucias.
 
 - 168-
 

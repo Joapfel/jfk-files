@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27940.png
-
-Convert to Markdownlitigation (with occasional assistance) of a bipartite class
+litigation (with occasional assistance) of a bipartite class
 suit involving domestic intelligence activities—so far suc-
 cessfully—and was assigned to work on a case with Ramsey
 Clark (writing the successful brief in his challenge to a

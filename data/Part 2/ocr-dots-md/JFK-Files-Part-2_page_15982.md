@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15982.png
-
-Convert to MarkdownOn May 9, 1969, it was learned Chicago BPP has issued on ultimatum to the BR that they should join the BPP or else. BR have no intention of joining Chicago BPP.
+On May 9, 1969, it was learned Chicago BPP has issued on ultimatum to the BR that they should join the BPP or else. BR have no intention of joining Chicago BPP.
 
 5/9/69)
 

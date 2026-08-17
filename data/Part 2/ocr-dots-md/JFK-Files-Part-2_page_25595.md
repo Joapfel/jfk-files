@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25595.png
-
-Convert to MarkdownROBERT L. MEYER
+ROBERT L. MEYER
 United States Attorney
 
 DAVID R. NISSEN

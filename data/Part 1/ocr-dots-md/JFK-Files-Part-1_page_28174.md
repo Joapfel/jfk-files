@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28174.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO. 51-86
 OCT 1951

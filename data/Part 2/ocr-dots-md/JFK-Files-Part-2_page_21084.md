@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21084.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA did not service the drop because our informant did not exhibit an agreed-to signal. He apparently did not use the signal in order to fully protect himself. On the other hand, CIA was unable to service the drop until August because State Department adamantly refused to give CIA clearance to conduct any activity in Moscow. This position was taken by State because it felt that any operational activity might jeopardize the test ban talks.
 

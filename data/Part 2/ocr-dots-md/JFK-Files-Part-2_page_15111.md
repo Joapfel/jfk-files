@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15111.png
-
-Convert to Markdown**TYPES OF FINGERPRINTS**
+**TYPES OF FINGERPRINTS**
 **ON FILE**
 
 TOTAL:

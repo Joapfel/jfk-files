@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8924.png
-
-Convert to Markdown(Annex A)
+(Annex A)
 
 24 February 1964 (continued)
 

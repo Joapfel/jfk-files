@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21243.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 York, came to Moscow and requested through Intourist to see SAHNO. SAHNO told NOSENKO that he knew this man and asked NOSENKO to accompany him to a meeting with him. The meeting took place in the office of ANKUDINOV, Chief of Intourist and VLADIMIR BABKIN, Chief of an Intourist Department, was also present. The meeting was purely social and there was no recruitment attempt. On March 15, 1968 (N-164), NOSENKO in discussing this case, stated that this man was probably manager of a hotel and merely wanted to see SAHNO out of politeness.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13922.png
-
-Convert to Markdown20:47
+20:47
 
 ALTOQUÉNCALE (CICCO), de la embajada de Cuba, se comunica con F. L. A'KING y le preguntan tué se le ofrece. TELEMA reapon de que le urge mucho hablar con ROGELIO RODRIGUEZ o con RA- CON CASA CUENCA hoy mismo en la noche y a la hora que sea, pues deje hacerlo antes de salir de Mexico mañana, ya que a las 08:00 hs. tiene que estar en el Aeropuerto. NICO manifiesta que ha estudo tratando de comunicarse con ROGELIO y con CUEÑCA inútilmente, prometiendo que en cuanto localice a alguno de los dos le pasará el recado.
 

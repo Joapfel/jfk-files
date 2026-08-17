@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8401.png
-
-Convert to Markdown4-0000
+4-0000
 
 RE: G. P. Valero
 DATE: 11 DEC 1968

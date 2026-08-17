@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18801.png
-
-Convert to MarkdownLeave Unit
+Leave Unit
 
 2 April 1948
 

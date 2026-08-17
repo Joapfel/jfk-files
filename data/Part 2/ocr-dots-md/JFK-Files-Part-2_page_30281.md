@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30281.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Klein. Now, would you turn to the next to the last page. It has a 13 on the right hand side.
 

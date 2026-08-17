@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4639.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 called 4/12/62; to telephone GA 3-7291, called 4/30/62,
 and GA 5-2661, called 4/30/62, all from Garcia Instant

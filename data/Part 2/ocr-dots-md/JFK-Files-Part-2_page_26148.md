@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26148.png
-
-Convert to Markdownlike that the next morning, and somebody there
+like that the next morning, and somebody there
 Among the Americans should have been sensitive
 enough to have said, "Well, aren't you feeling
 well for something, you know, and had gotten

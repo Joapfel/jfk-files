@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12687.png
-
-Convert to Markdown(3) Special section
+(3) Special section
 
 Retain cards on individuals in following categories in special section for reasons stated. Maintain special section in sub-sections as follows:
 

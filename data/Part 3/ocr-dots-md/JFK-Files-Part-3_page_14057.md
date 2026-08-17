@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14057.png
-
-Convert to MarkdownHandie via C.U. Hali
+Handie via C.U. Hali
 Control System
 
 - 24 -

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25054.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Dawson. After an intelligence operation blows, in the sense that it is uncovered in connection with the Govern- ment of the US is found, are you aware that oftentimes a routine order goes out to estand down intelligence, to take positiveactions in that area, are you aware of that standard operating procedure?
 

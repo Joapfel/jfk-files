@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23746.png
-
-Convert to MarkdownHW 50955 DocId:32423509 Page 120
+HW 50955 DocId:32423509 Page 120
 
 Mr. Kirhow. These people out there are not agents.
 

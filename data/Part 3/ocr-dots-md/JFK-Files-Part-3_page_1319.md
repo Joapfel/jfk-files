@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1319.png
-
-Convert to MarkdownPHILIP A. HART, M.D.
+PHILIP A. HART, M.D.
 WALTER F. MONDALE, MINN.
 WALTER D. HUDDLESTON, KY.
 ROBERT MORGAN, N.C.

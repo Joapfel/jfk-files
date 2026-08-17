@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24365.png
-
-Convert to Markdown29 AUG 1973
+29 AUG 1973
 
 MEMORANDUM FOR: Deputy Director for Science and Technology
 Deputy Director for Intelligence

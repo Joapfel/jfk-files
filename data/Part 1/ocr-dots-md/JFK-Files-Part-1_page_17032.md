@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17032.png
-
-Convert to MarkdownMisc Expenses
+Misc Expenses
 Ops entertainment $ 165      $   300     $    100      $   100
 Auto maintenance      80         100        100          100
 Ops expenses          590         56         131          131

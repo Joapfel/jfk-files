@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9182.png
-
-Convert to Markdown friends who could help them with any problem they had. LINDA STAFFORD advised EOM suggested that they meet at his residence at 101 Cherry Street,LEXUS, Kentucky, and further discuss ideas that he (Lindon) bad in mind.
+friends who could help them with any problem they had. LINDA STAFFORD advised EOM suggested that they meet at his residence at 101 Cherry Street,LEXUS, Kentucky, and further discuss ideas that he (Lindon) bad in mind.
 
 LINDA STAFFORD stated that he and his brother JAY MITCHELL drove to Derry, New Hampshire, on the following day, July 17, 1974, and met with GROUP at EOM's headquarters at 510, New Hampshire Street, N. H., U.S.A.
 

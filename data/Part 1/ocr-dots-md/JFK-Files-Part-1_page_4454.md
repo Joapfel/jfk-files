@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4454.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 Cover Sheet Page Three
 

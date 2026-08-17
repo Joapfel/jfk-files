@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13490.png
-
-Convert to MarkdownHonorable Charles E. Wiggins
+Honorable Charles E. Wiggins
 
 Muse and the FBI would be maintained by him and would go no further. Muse's supervisor said he was cognizant of the importance of Muse's cooperation with the FBI remaining confidential.
 

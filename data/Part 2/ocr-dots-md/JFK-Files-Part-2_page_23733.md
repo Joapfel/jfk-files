@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23733.png
-
-Convert to Markdown preferential treatment and advancement within the Agency.
+preferential treatment and advancement within the Agency.
 
 Is that what we're trying to get to here?
 

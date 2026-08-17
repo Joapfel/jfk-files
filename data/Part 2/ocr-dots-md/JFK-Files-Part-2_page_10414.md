@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10414.png
-
-Convert to Markdown8 May 1973
+8 May 1973
 
 exchanges of technical information on techniques, technical
 assistance and training, and the loan of Agency equipment.

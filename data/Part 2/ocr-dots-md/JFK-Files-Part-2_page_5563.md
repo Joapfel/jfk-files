@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5563.png
-
-Convert to Markdown**NBR Folder Summaries**
+**NBR Folder Summaries**
 
 Each folder also contains an HSCA signature sheet. At least one member of the HSCA reviewed all but the last of the folders listed below.
 

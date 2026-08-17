@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6787.png
-
-Convert to Markdownpobreza durante el periodo de bonanza han sido iguales. si no mayores, que antes.".
+pobreza durante el periodo de bonanza han sido iguales. si no mayores, que antes.".
 
 Esta situación la confirma la continua migración de campesinos desposeidos y la situación de hombre a la cual ya nos hemos referido. Otros síntomas han sido las vastas luchas sociales y las salvajes represiones políticas que alcanzaron un grado de intensidad y una extensión geográfica prohibiblemente igualdad en América Latina durante cualquier otro período de alto índice de actividad económica.
 

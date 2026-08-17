@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10302.png
-
-Convert to Markdown19 Jul 972
+19 Jul 972
 
 MEMORANDUM FOR THE RECORD
 

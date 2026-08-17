@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8631.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>Misiones Diplomáticas</td>
   </tr>

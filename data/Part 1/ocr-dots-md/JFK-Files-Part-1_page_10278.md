@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10278.png
-
-Convert to MarkdownSi en vez de 7 millones fuk'semos 10 mil-lones de cubanos el problema se planteará en otros términos. Podría tal vez encararse la mecanización azucarera como paulatina y paralela al desarrollo de otros sectores; pero en nuestras condiciones la mecanización resulta un requisito sino qua nac.
+Si en vez de 7 millones fuk'semos 10 mil-lones de cubanos el problema se planteará en otros términos. Podría tal vez encararse la mecanización azucarera como paulatina y paralela al desarrollo de otros sectores; pero en nuestras condiciones la mecanización resulta un requisito sino qua nac.
 
 Tanto la mecanización no sólo produjo efectos económicos, sino que el más pro-fundo es de carácter Vleo. La verdadera liberación será de la fatigosa carga del corte manual.
 

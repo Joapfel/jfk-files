@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8241.png
-
-Convert to MarkdownHenry P. Lopez
+Henry P. Lopez
 
 **Born:** 1920, Denver
 

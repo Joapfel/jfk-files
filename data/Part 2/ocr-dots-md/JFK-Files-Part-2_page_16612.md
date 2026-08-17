@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16612.png
-
-Convert to MarkdownJanuary 29, 1970, memo to you:
+January 29, 1970, memo to you:
 
 1. You will provide an inventory of the 485 rounds of 12 gauge ammunition and the 80 rounds of 20 gauge ammunition listed on inventory #752030, specifying brand, load, and number.
 

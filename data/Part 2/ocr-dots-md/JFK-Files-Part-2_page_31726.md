@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31726.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH:jb
 
 that an effort should be made to assist SCHEER in gaining admission to North Vietnam, or, at least to arrange for him to have an interview at the North Vietnam Embassy while he is in Cambodia.

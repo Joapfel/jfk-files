@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6600.png
-
-Convert to MarkdownLA 157-2325
+LA 157-2325
 
 Boulevard, Los Angeles. The speaker was GUS HALL, Chairman,
 Communist Party, USA, (CP, USA).

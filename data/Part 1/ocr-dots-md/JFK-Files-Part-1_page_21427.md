@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21427.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 22 June 1961 (Philadelphia)
 PE: Semen Spiridon Pohorilyj

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28004.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Thomas Howarth, Budget Officer
 Elizabeth Berning, Chief Clerk

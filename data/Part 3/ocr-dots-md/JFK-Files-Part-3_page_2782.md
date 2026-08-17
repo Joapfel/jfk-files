@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2782.png
-
-Convert to MarkdownNR@04 MM CODE
+NR@04 MM CODE
 
 6:01 PM NITEL SEPTEMBER 10, 1975 MRW
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22155.png
-
-Convert to Markdownat the White House late that night in a secret letter from KHRUSHCHEV. At a farewell party for BOLSHAKOV in December 1962, Presidential Press Secretary Pierre SALINGER asked BOLSHAKOV who would "do his work." POLSHAKOV replied that no one would do precisely the same job, but that if SALINGER had "anything special to say," he might contact A.I. ZINCHUK.*
+at the White House late that night in a secret letter from KHRUSHCHEV. At a farewell party for BOLSHAKOV in December 1962, Presidential Press Secretary Pierre SALINGER asked BOLSHAKOV who would "do his work." POLSHAKOV replied that no one would do precisely the same job, but that if SALINGER had "anything special to say," he might contact A.I. ZINCHUK.*
 
 b. Soviet Sources During the Crisis
 

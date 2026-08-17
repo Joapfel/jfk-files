@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25395.png
-
-Convert to Markdownmatters. He appeared on June 25 to discuss the plots against Castro; on September 20 and 22 to discuss the Campbell affair; and on April 25 to discuss the retaliation theory.
+matters. He appeared on June 25 to discuss the plots against Castro; on September 20 and 22 to discuss the Campbell affair; and on April 25 to discuss the retaliation theory.
 
 Now for current events. First, the two detectives in Miami handling the Roselli case are Detectives Zatrefralek and Wolf. They are with Dade County Homicide. Their numbers are 305-547-7456 and 547-7923. Madigan has already talked with Detective Wolf. Second, in light of the Inouye/Baker letter to Levi I did not ask the FBI about the current whereabouts of Santo Trafficante. I did, however, ask CIA. They have no information. Third, Baker and Liebengood are putting together a packet of information on Roselli, which will include CIA and Select Committee information and will get this to you tomorrow.
 

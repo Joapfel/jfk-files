@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23792.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 "Ten U.S. news organizations and five U.S. publishing houses provide cover for CIA agents abroad. Four of the organizations do not know that they provide this cover."
 

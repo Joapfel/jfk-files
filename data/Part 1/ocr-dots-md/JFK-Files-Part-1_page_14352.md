@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14352.png
-
-Convert to MarkdownReport 351 (continued)
+Report 351 (continued)
 
 royalties from the song throughout the world, which have been
 calculated at between 750,000 and 11,000,000, and although

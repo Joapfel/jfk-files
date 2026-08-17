@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12219.png
-
-Convert to Markdown(6) Informants should incite the body of their statements specific dates and places; purport of the meeting or activity being related; identities of makers and persons present, plus their known status in any group; specific activity engaged in by each individual present; and comments made by each individual.
+(6) Informants should incite the body of their statements specific dates and places; purport of the meeting or activity being related; identities of makers and persons present, plus their known status in any group; specific activity engaged in by each individual present; and comments made by each individual.
 
 (7) Informant should identify [his statement] by affixing his code name immediately under the last written line on each page.] Any corrections, erasures, changes, or additions should be identified by informant affixing his code name or the initials of his code name.
 

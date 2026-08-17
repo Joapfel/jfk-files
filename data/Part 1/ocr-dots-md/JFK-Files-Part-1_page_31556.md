@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31556.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 19 October 1953
 

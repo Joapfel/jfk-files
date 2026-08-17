@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26414.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">CLASSIFICATION - DISSEMINATION CONTROLS</td>
    </tr>

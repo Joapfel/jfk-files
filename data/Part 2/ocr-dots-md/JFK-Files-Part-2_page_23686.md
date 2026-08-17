@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23686.png
-
-Convert to MarkdownHW 50955 DocId:32423509 Page 60
+HW 50955 DocId:32423509 Page 60
 
 1. Mr. diGenova. Well, yes. In this case they penetrated
 2. Burbank, California and other companies, mostly defense

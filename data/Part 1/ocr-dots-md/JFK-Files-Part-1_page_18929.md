@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18929.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Chief, FDT
 

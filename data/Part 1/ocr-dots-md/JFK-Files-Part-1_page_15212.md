@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15212.png
-
-Convert to Markdown14-06-09
+14-06-09
 
 le 11 Octobre 1959
 

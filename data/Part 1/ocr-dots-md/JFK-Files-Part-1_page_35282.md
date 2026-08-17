@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35282.png
-
-Convert to MarkdownDELEGATIONS ( Special )
+DELEGATIONS ( Special )
 
 July 31, 1962.
 

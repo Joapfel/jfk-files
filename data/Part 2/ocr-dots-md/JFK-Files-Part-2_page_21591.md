@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21591.png
-
-Convert to MarkdownFILE:
+FILE:
 
 To understand decisions in 1966 or 1970 it is necessary to go back to World War II, according to Papich. President Roosevelt got the FBI into the foreign intelligence field in World War II. Overnight the FBI had to generate the capability to move into Latin America against the German espionage operation which included business covers, radio networks, and influence in Latin American governments. The FBI had no precedent or guidance. Assistant FBI Director Hugh Klegg conferred with the British in London for assistance. FBI agents went into Latin America first under business covers, then in the embassies, which was thin cover. The legal attaches established official liaison with local authorities. The FBI's role was primarily counterintelligence but some positive information was gathered about the stability of governments. FBI agents learned on the job. Most training came from headquarters was ridiculous until all experiences were reported back.
 

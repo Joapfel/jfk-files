@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16786.png
-
-Convert to Markdown# EVALUATION OF TRAINING
+# EVALUATION OF TRAINING
 
 1. Identification of Course: Basic Trade... Activities
 2. Date of Course : 13 January - 7 February '89

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23673.png
-
-Convert to MarkdownNow the next section refers to the Central Intelligence
+Now the next section refers to the Central Intelligence
 Agency in general. Now because so much of our inquiry is
 focused on the Central Intelligence Agency, we have a rather
 long series of recommendations regarding it.

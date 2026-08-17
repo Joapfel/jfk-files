@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23003.png
-
-Convert to Markdown1. with the Station a moment ago, I think we may have created a misimpression that the only people involved in CIA operations were people who were paid by the Agency. Isn't it also true that there were many members of Cuban exile groups in Florida who participated voluntarily from time to time in CIA sponsored operations?
+1. with the Station a moment ago, I think we may have created a misimpression that the only people involved in CIA operations were people who were paid by the Agency. Isn't it also true that there were many members of Cuban exile groups in Florida who participated voluntarily from time to time in CIA sponsored operations?
 2
 3
 4

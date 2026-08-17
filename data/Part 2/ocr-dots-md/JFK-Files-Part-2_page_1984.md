@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1984.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">NOTIFICATION OF ESTABLISHMENT<br>OF OFFICIAL COVER BACKSTOP</th><th>DATE</th></tr></thead><tbody><tr><td colspan="2"><input type="checkbox" checked disabled> CHIEF, PERSONNEL OPERATIONS DIVISION</td><td rowspan="3">22 July 1966<br>ESTABLISHED FOR<br>NOEL, James A.</td></tr><tr><td>TO:<br>(Check)</td><td><input type="checkbox" checked disabled> CHIEF, CONTRACT PERSONNEL DIVISION</td></tr><tr><td colspan="2"><input type="checkbox" checked disabled> CHIEF, OPERATING COMPONENT (For action)<br>DOD</td></tr><tr><td colspan="2">ATTN:</td><td>FILE NO.<br>233</td></tr><tr><td colspan="2">REF:</td><td>ID CARD NO.</td></tr><tr><td colspan="2">Verbal Request</td><td rowspan="2">EMPLOYEE NO.</td></tr><tr><td colspan="2">OFFICIAL COVER BACKSTOP ESTABLISHED<br>(OS, Evaluation Office (SAN FRANCISCO, CALIF))</td></tr></tbody></table>
 

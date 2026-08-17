@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2349.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">ELECTION, DECLINATION, OR WAIVER OF LIFE INSURANCE COVERAGE</th></tr><tr><td colspan="2">FEDERAL EMPLOYEES GROUP LIFE INSURANCE PROGRAM</td></tr></thead><tbody><tr><td>IMPORTANT AGENCY INSTRUCTIONS ON BACK OF ORIGINAL</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">ELECTION, DECLINATION, OR WAIVER OF LIFE INSURANCE COVERAGE</th></tr><tr><td colspan="2">FEDERAL EMPLOYEES GROUP LIFE INSURANCE PROGRAM</td></tr></thead><tbody><tr><td>IMPORTANT AGENCY INSTRUCTIONS ON BACK OF ORIGINAL</td><td></td></tr></tbody></table>
 
 <table><caption>TO COMPLETE THIS FORM—</caption><tr><td>1</td><td>FOLLOW THESE GENERAL INSTRUCTIONS:<ul><li>Read the back of the "Duplicate" carefully before you fill in the form.</li><li>Fill in BOTH COPIES of the form. Type or use ink.</li><li>Do not detach any part.</li></ul></td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23987.png
-
-Convert to Markdowngoing to be Machiavellian, my God you don't do it like that, you know.
+going to be Machiavellian, my God you don't do it like that, you know.
 The best propaganda is the one that comes closest to the truth, that
 just slightly goes off, you don't have to push the point.
 

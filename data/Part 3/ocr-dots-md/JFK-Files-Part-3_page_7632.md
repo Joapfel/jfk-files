@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7632.png
-
-Convert to MarkdownAirtel to Albany
+Airtel to Albany
 Supervisory Reorganization of
 Functions and Personnel;
 Crime Research Division

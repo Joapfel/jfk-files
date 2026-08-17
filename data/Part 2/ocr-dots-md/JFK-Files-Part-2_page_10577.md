@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10577.png
-
-Convert to Markdownagencies. Such records also enable the FBI to furnish additional copies of investigative reports or other information that has been disseminated--should additional copies be needed by the original recipients or by other official agencies. Furthermore, the information contained in these files often proves of assistance in future investigations.
+agencies. Such records also enable the FBI to furnish additional copies of investigative reports or other information that has been disseminated--should additional copies be needed by the original recipients or by other official agencies. Furthermore, the information contained in these files often proves of assistance in future investigations.
 
 Less obvious may be the reasons why the FBI retains
 the third category of information about Congressmen and

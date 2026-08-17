@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7067.png
-
-Convert to Markdownto determine whether the rioting is pre-planned or organized; and, if so, to determine the identity of the people and interests involved; and to deter this activity by prompt and vigorous legal action.
+to determine whether the rioting is pre-planned or organized; and, if so, to determine the identity of the people and interests involved; and to deter this activity by prompt and vigorous legal action.
 
 As a part of the broad investigation which must necessarily be conducted, it is requested that all available information be reported and analyzed regarding each sniper caught in any riot or extremist activity and regarding those arrested during the course of a riot or significant racial disturbances who were not residents of the general area. Moreover, sources or informants in black nationalist organizations, SNCC and other less publicized groups should be developed and expanded to determine the size and purpose of these groups and their relationship to other groups, and also to determine the whereabouts of persons who might be involved in instigating riot activity in violation of federal law. Further, we need to investigate fully allegations of conspiratorial activity that come to our attention from outside sources such as those reported regarding Newark in Life Magazine for July 28, 1967, and those regarding the Detroit riot which were furnished to the Department by Walter Sheridan of the National Broadcasting Company (summary of latter is attached).
 

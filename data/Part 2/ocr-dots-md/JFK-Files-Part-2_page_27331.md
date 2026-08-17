@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27331.png
-
-Convert to MarkdownHW 50955 DocId:32105598 Page 162
+HW 50955 DocId:32105598 Page 162
 
 SECRET
 SECRET

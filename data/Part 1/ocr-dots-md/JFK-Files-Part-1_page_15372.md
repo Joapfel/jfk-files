@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15372.png
-
-Convert to MarkdownSeparate Cover Attachment to
+Separate Cover Attachment to
 Dispatch No. UAPB-0099
 
 Iden A - Fausto Valdez

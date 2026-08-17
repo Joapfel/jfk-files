@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4495.png
-
-Convert to MarkdownCont'd.
+Cont'd.
 
 the main) organize the library of the Communist throughout Cuba. His uncle told him that Kruschev promised Fidel Castro that he have missiles in Cuba (this was a few months ago). Also, his uncle said that the Russians have spies in the Pentagon that pull for Fidel Castro, and they have already plenty of agents belonging to the Communists in all branches of importance of the U. S. Gov't., and even in the CIA. He said that all people in Cuba that worked with the CIA were picked up through their agents and those presently working with same are being watched closely. (Kunero) told me that he is kind of suspicious of Eugenio, his being Cuban and because a sort of sixth sense, as he calls it.
 August 19/61

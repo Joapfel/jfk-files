@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22744.png
-
-Convert to MarkdownEmployment History
+Employment History
 
 | Organisation | From | To | Title/Position |
 |---|---|---|---|

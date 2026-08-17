@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12017.png
-
-Convert to Markdown# CONGRESS OF AFRICAN PEOPLES (CAP)
+# CONGRESS OF AFRICAN PEOPLES (CAP)
 157-16554
 
 The CAP was formed as an international revolutionary organization as the result of the convening of the fourth annual gathering of black power advocates in the United States in Atlanta, Georgia, September 3-7, 1970. This gathering was unique in that it was attended by approximately 2,500 blacks of so-called moderate and militant persuasion, as well as a large number of extremists. Representatives attended from 35 states and 21 different nations, including Canada, Australia, various independent nations of Africa, and the Caribbean area.

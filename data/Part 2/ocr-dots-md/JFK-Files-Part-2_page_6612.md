@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6612.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ARRB request, page 2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27068.png
-
-Convert to MarkdownE. Hard Intelligence on the Build-Up (Defensive Phase)
+E. Hard Intelligence on the Build-Up (Defensive Phase)
 
 18. During the last week in August, CIA continued to follow the progress of the Soviet build-up, using shipping information, communications intelligence, and agent and refugee sources. The Checklist of 29 August reported that:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22953.png
-
-Convert to MarkdownThe United States Senate
+The United States Senate
 
 Transcript file
 # Report of Proceedings

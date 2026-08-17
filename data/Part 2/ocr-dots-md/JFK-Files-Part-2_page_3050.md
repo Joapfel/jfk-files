@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3050.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Another of the questions which must be addressed in setting the stage of the Bay of Pigs operation is the failure of Richard Helms -- at that time Chief of Operations (COPS) for the DDP -- to become more than marginally involved in the Cuban project. Oral interviews again provided the best explanations, and, consequently, are entered into this record in rather full detail. Dick Drain, who became COPS/WH/4, made the following comments:
 

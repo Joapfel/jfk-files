@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34494.png
-
-Convert to MarkdownEISS CAY
+EISS CAY
 
 31 December 1974
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35484.png
-
-Convert to Markdown2-EL MUNDO, Jueves 4 de febrero de 1965
+2-EL MUNDO, Jueves 4 de febrero de 1965
 
 # Logra...
 

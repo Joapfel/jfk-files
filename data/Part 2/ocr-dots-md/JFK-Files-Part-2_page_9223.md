@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9223.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 Information regarding BPP fortifications and apparent target practice at 157 Collingwood by BPP members was furnished to the Intelligence Section of the Detroit, Michigan Police Department on March 13, 1973.
 

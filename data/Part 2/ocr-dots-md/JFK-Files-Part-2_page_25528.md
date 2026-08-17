@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25528.png
-
-Convert to MarkdownML: No, in the, they'd hook it up to the master antenna for the cable TV.
+ML: No, in the, they'd hook it up to the master antenna for the cable TV.
 
 FS: Oh, for the cable TV. Well, yeah, alright.
 

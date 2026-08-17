@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22150.png
-
-Convert to Markdownbut the young student went to the kitchen "to arrange things," and shortly thereafter "three foul-tasting coffees" appeared. Within an hour, BARGHOORN was in the hospital, acutely ill. He was assigned to a room where there was another patient, and a woman doctor took care of his case. He was in the hospital for four days. During this period his clothes, notes, and other possessions were held by hospital authorities.
+but the young student went to the kitchen "to arrange things," and shortly thereafter "three foul-tasting coffees" appeared. Within an hour, BARGHOORN was in the hospital, acutely ill. He was assigned to a room where there was another patient, and a woman doctor took care of his case. He was in the hospital for four days. During this period his clothes, notes, and other possessions were held by hospital authorities.
 
 Upon his return to Moscow by air on 25 October, BARGHOORN checked into the Metropol Hotel. The next six days were occupied by sightseeing and appointments connected with his research. In the late afternoon of 31 October he called on friends at the U.S. Embassy for cocktails, and at 1910, already 10 minutes late, he left in the Ambassador's car for a dinner appointment (prearranged by telephone) at the Metro-pol with Theodore ORCHARD, a British diplomat.
 

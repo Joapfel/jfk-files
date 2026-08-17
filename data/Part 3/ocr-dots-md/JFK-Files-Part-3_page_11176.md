@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11176.png
-
-Convert to Markdown(1) . See Deimitation Agreement in the Hearing before the Subcommittee on Constitutional Rights of the Committee on the Judiciary, United States Senate, Ninety-Second Congress (First Session), on Federal Data Banks, Computers and the Bill of Rights (1971), Part II, pp. 1172-1179.
+(1) . See Deimitation Agreement in the Hearing before the Subcommittee on Constitutional Rights of the Committee on the Judiciary, United States Senate, Ninety-Second Congress (First Session), on Federal Data Banks, Computers and the Bill of Rights (1971), Part II, pp. 1172-1179.
 
 2. See Agreement of Coordination in the Hearings before the Committee on Internal Security, House of Representatives, Ninety-Third Congress (Second Session), Domestic Intelligence Operations for Internal Security Purposes (1974), Part I, pp. 3509-3510.
 

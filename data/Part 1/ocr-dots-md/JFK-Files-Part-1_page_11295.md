@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11295.png
-
-Convert to Markdown<table><tbody><tr><td>INDEX: ☐YES ☐NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>E-REF TO FILE NO.</td></tr><tr><td>FILE RID ☐ RET. TO BRANCH ☐</td></tr><tr><td>BESTROY ☐ S16.</td></tr><tr><td>FROM ☑</td></tr><tr><td>ACTION WH8 ☑ RID COPY</td></tr><tr><td>ADVANCE COPY ☐ OFFER ☐ SLIPPER ☐ OFFER</td></tr><tr><td>UNIT</td><td>TIME</td><td>BY</td></tr></tbody></table>
+<table><tbody><tr><td>INDEX: ☐YES ☐NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>E-REF TO FILE NO.</td></tr><tr><td>FILE RID ☐ RET. TO BRANCH ☐</td></tr><tr><td>BESTROY ☐ S16.</td></tr><tr><td>FROM ☑</td></tr><tr><td>ACTION WH8 ☑ RID COPY</td></tr><tr><td>ADVANCE COPY ☐ OFFER ☐ SLIPPER ☐ OFFER</td></tr><tr><td>UNIT</td><td>TIME</td><td>BY</td></tr></tbody></table>
 
 SECRET 221842Z CITE MEXICO CITY 0789
 

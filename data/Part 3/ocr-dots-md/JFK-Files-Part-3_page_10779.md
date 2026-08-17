@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10779.png
-
-Convert to MarkdownDOMESTIC INTELLIGENCE concerns information and investigation of espionage, counterespionage, etc., which pertains to the internal security of the U.S. and, therefore, is in subject matter pertinent to the internal affairs of the U.S.
+DOMESTIC INTELLIGENCE concerns information and investigation of espionage, counterespionage, etc., which pertains to the internal security of the U.S. and, therefore, is in subject matter pertinent to the internal affairs of the U.S.
 
 ECONOMIC INTELLIGENCE concerns the potentialities, utilization, and vulnerabilities of a nation's natural and human resources.
 

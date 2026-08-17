@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_181.png
-
-Convert to Markdownen el extranjero como de discriminación cultural o religiosa, contra la identidad étnica de la URSS.
+en el extranjero como de discriminación cultural o religiosa, contra la identidad étnica de la URSS.
 
 Benjamín Luisiano Luna, presidente del Frente Mexicano Pro Defensa de los Derechos Humanos, escribió su anticomunismo con reiteradas y demagógicas protestas en contra de las agresiones norteamericanas a Santo Domingo y Vietnam. Luego lanzó las más graves calumnias contra la Unión Soviética, y poco le faltó para poner en el mismo nivel del genocidio haitíiano al régimen de la primera-rateado donde se han sentado las bases para realizar el comunismo.
 

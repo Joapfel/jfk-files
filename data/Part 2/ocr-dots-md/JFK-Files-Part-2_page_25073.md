@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25073.png
-
-Convert to Markdown"Castro Blasts Raids on Cuba. Says U.S. Leaders Imperiled by Aid to Rebels."
+"Castro Blasts Raids on Cuba. Says U.S. Leaders Imperiled by Aid to Rebels."
 
 This item was introduced by an editor's note referring to the fact that Castro had turned up at a Brazilian Embassy reception Saturday night (7 September) where he had submitted to an impromptu interview. Harker's account of the interview reached New York Sunday afternoon.
 

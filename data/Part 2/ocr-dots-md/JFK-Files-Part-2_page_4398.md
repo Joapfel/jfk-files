@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4398.png
-
-Convert to MarkdownTHURSDAY
+THURSDAY
 10
 AUGUST
 

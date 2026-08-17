@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7247.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of the FBI was appointed to serve as chairman of this committee. An attachment to the memorandum from Mr. Huston captioned "Organization and Operations of the Interagency Group on Domestic Intelligence and Internal Security (IAG)" set forth specific composition, operations and duties of this new committee.⁸
 

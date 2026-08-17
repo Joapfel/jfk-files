@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31242.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9 FEB 1977
 

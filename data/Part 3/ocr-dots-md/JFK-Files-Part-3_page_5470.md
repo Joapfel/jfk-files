@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5470.png
-
-Convert to MarkdownMemo Burns to Walsh
+Memo Burns to Walsh
 
 Re: United States Senate Select Committee To Study Governmental Operations With Respect To Intelligence Activities (SSC)
 

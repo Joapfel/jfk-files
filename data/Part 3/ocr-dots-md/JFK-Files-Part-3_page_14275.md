@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14275.png
-
-Convert to Markdownnot required in view of the meager results obtained, especially
+not required in view of the meager results obtained, especially
 in the sabotage field, and he urged "massive activity" within
 the entire MONGODB framework.
 

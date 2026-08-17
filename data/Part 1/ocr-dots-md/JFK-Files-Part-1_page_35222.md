@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35222.png
-
-Convert to MarkdownDEMOCRATIC REVOLUTIONARY FRONT
+DEMOCRATIC REVOLUTIONARY FRONT
 
 Student Section
 

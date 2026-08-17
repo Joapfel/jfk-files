@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_27675.png
-
 , Mr. Keenan is regarded as having superior potential. It is recommended that he be promoted to GS-13.
 
 William V. Broe

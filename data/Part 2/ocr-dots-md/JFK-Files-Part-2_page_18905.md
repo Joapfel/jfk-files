@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18905.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 In addition to the above, source stated that he had met Viktor M. Sukhodrev on the second floor of the UN on October 15, 1970. Source said that he had met Sukhodrev on one of the Soviet's previous trips to the United States, and that Sukhodrev went out of his way to greet the source when he saw him at the UN on October 15, 1970. Source described Sukhodrev as the most intelligent Soviet he has ever met and as the best Russian-English translator at the United Nations.
 

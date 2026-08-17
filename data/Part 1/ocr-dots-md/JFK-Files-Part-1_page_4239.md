@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4239.png
-
-Convert to MarkdownMRR
+MRR
 
 Movimiento de Reuperación Revolucionaria
 3212 N. 6. 3 COURT

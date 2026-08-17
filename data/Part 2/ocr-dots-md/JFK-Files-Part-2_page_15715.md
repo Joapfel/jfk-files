@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15715.png
-
-Convert to Markdownthe defense at all in a grand jury proceeding.
+the defense at all in a grand jury proceeding.
 
 A preliminary hearing is a hearing before a municipal court judge who must decide whether or not to turn the case over to the superior court for trial. The defendant may have an attorney at this proceeding, and usually does. The attorney may challenge the judge for bias; may cross-examine the prosecution witnesses; may call his own witnesses; may have discovery of the prosecutions' evidence: may question the defendant, and so forth.
 

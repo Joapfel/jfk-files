@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6613.png
-
-Convert to MarkdownBy separate communication subject has been
+By separate communication subject has been
 recommended for inclusion in Agitator Index.
 
 This report has been classified "Secret"

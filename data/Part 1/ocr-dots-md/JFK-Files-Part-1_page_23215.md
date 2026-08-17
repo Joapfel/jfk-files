@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23215.png
-
-Convert to MarkdownPrevailing geographic conditions and obstacles encountered:
+Prevailing geographic conditions and obstacles encountered:
 
 The area in which Mr. Crozier undertook his mission is the Sierra Maestra mountains located in the Oriente Province, Cuba, where the Cuban rebel leader, Fidel Castro has been able to hide-out and resist the efforts of the Cuban Army to exterminate him for over a year. The approximately mountainous area is extremely rough and wild terrain, primarily thickly vegetated with jungle growth. It is sparsely populated, and the only means of communication access are foot paths and mountain trails. The approaches to the area are heavily patrolled by Cuban Government troops who are on the alert to stop all persons attempting to enter or leave the area.
 

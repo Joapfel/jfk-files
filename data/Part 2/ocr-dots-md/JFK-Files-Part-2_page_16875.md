@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16875.png
-
-Convert to MarkdownTwo letters bearing return address on United States Department of Army, Official Business envelopes of RONALD DAVIS, Drawer A, Fort Leavenworth, Kansas, 66027. Both letters mailed postage free. Telephone numbers 243-8276, or 243-8376, and 873-1429 were handwritten on envelope.
+Two letters bearing return address on United States Department of Army, Official Business envelopes of RONALD DAVIS, Drawer A, Fort Leavenworth, Kansas, 66027. Both letters mailed postage free. Telephone numbers 243-8276, or 243-8376, and 873-1429 were handwritten on envelope.
 
 A piece of paper bearing telephone number 379-7746.
 

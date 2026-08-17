@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25464.png
-
-Convert to Markdownprotection for you and your kid, and if you don't go ahead and tell them the name of these here people how you gonna do it?
+protection for you and your kid, and if you don't go ahead and tell them the name of these here people how you gonna do it?
 
 ML: Mmm.
 

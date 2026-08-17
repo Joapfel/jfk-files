@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10968.png
-
-Convert to Markdownexpressed in general terms. This same authorization could
+expressed in general terms. This same authorization could
 be further defined by the President's Foreign Intelligence
 Advisory Board.
 

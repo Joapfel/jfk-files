@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21608.png
-
-Convert to Markdown# INTERVIEW AND MEETING SUMMARY
+# INTERVIEW AND MEETING SUMMARY
 
 an alien, a form was submitted by FBI. CIA then got FBI data on the alien and FBI had notice so it could protect any operation.
 

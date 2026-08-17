@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15893.png
-
-Convert to MarkdownIn Begleitung eines Dolmetscheres erscheint der angobliche
+In Begleitung eines Dolmetscheres erscheint der angobliche
 ausländische Plüchtling
 
 Georg Frank Sanders,

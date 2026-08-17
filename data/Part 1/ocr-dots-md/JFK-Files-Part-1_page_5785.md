@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5785.png
-
-Convert to Markdown'American Friends' at Rallies in Peking
+'American Friends' at Rallies in Peking
 
 Special to The New York Times
 

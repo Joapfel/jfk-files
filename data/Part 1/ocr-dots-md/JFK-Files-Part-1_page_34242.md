@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34242.png
-
-Convert to MarkdownHABLA... UNIDAD REVOLUCIONARIA" (W.R.U.L.)
+HABLA... UNIDAD REVOLUCIONARIA" (W.R.U.L.)
 
 January 13, 1966:
 

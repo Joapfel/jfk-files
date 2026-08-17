@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22848.png
-
-Convert to Markdown# American Student in China
+# American Student in China
 
 GREENBERG, Sheila
 CIT - U.S.A.

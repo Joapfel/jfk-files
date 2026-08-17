@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23097.png
-
-Convert to MarkdownFlaboraron otro plan, esta vez contra la vida del Ministro de las Fuerzas Armadas Comandante de División Raúl Castro Ruz, en la Plaza de la Revolución, con motivo de la celebración del 26 de Julio. En mismo tomarían parte cuatro grupos dirigidos por René Sigler Sánchez Evias, Jesús Montes de Oca Cruz, Oscar Sibila Soña y Eliecer Rodríguez Suárez. El jefe de estos grupos era Ibrahim Machin Hernández.
+Flaboraron otro plan, esta vez contra la vida del Ministro de las Fuerzas Armadas Comandante de División Raúl Castro Ruz, en la Plaza de la Revolución, con motivo de la celebración del 26 de Julio. En mismo tomarían parte cuatro grupos dirigidos por René Sigler Sánchez Evias, Jesús Montes de Oca Cruz, Oscar Sibila Soña y Eliecer Rodríguez Suárez. El jefe de estos grupos era Ibrahim Machin Hernández.
 
 Todas estas acciones, organizadas y fomentadas por la CIA a través del bloque RCA, fueron frustradas, detenidos sus encartados y ocupadas gran cantidad de armas y equipos.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24945.png
-
-Convert to Markdownheard of anything like this." COS's best recollection was that he had the following interchange with Sidney Gottlieb:
+heard of anything like this." COS's best recollection was that he had the following interchange with Sidney Gottlieb:
 
 COS: Where did this brilliant idea come from?
 

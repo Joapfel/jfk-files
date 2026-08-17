@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8297.png
-
-Convert to Markdownwho once shorel him that the Gobernacion hed more than a foot high
+who once shorel him that the Gobernacion hed more than a foot high
 file on hin and Subject told hin they should not bother trying to do
 something agalnst hin because thay cannot even kick hin out of the country:
 he has a friend to whom he is authorized to turn if he is in any kind of

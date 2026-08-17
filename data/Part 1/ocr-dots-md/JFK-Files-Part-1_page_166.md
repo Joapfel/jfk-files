@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_166.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>TABLE NO. C081379 BY J.F.P.</td>
         <td></td>

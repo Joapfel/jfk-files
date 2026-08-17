@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_17545.png
-
-Convert to Markdownviolating Seale's Constitutional Rights by not permitting Seale to have an attorney of his choice or by permitting Seale to represent himself during the trial. He stated that people should be educated to the fact they have a right to bear arms as set forth in the United States Constitution. Walls held up a copy of Chairman Mao Tse-Tung's "Redbook" stating ideology set forth in this book is the ideology of the BPI. He concluded saying the day will come when Panthers will be everywhere.
+violating Seale's Constitutional Rights by not permitting Seale to have an attorney of his choice or by permitting Seale to represent himself during the trial. He stated that people should be educated to the fact they have a right to bear arms as set forth in the United States Constitution. Walls held up a copy of Chairman Mao Tse-Tung's "Redbook" stating ideology set forth in this book is the ideology of the BPI. He concluded saying the day will come when Panthers will be everywhere.
 
 At 2:10 p.m., speeches concluded and the crowd dispersed. No incidents or arrests occurred.

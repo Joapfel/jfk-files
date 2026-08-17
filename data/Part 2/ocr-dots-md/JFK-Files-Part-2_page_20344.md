@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20344.png
-
-Convert to MarkdownREC-28
+REC-28
 
 1 - Mr. DeLoach
 1 - Mr. Bishop

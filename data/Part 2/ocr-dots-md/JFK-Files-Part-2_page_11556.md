@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11556.png
-
-Convert to MarkdownCommunist Party : pretext interviews, surveillance, Special Agents attending mass meetings, etc.
+Communist Party : pretext interviews, surveillance, Special Agents attending mass meetings, etc.
 
 4. Internal Security Act of 1950
 

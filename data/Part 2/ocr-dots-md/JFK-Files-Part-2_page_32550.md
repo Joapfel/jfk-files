@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32550.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Cayman and its other Caribbean possessions as traffic refueling or transit stops for planes flying to and from Cuba.
 

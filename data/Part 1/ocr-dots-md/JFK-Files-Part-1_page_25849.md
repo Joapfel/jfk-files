@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25849.png
-
-Convert to MarkdownKAPOR
+KAPOR
 SECRET
 
 1803 Dye Street, N. W., take a room and wait for a call. If unable to get a room he should leave a forwarding address for further contact.

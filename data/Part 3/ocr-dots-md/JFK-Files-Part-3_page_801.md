@@ -1,3 +1,1 @@
-# JFK-Files-Part-3_page_801.png
-
-Convert to Markdown(8) The staff and the members of the Committee may examine the original materials to which the staff has been given access as extensively as necessary, in the Hoover Building at Room 4171.
+(8) The staff and the members of the Committee may examine the original materials to which the staff has been given access as extensively as necessary, in the Hoover Building at Room 4171.

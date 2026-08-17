@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15576.png
-
-Convert to MarkdownLR
+LR
 
 This source further advised that it was
 his understanding that HAMPTON had indicated that

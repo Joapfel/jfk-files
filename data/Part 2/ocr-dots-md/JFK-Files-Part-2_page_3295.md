@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3295.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 "direct positive action" against the Castro brothers and Che Guevara, WH/4 records reveal interest, and possibly limited, direct participation, in a number of such activities.*
 

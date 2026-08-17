@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22044.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>HELMS<br>PRESIDENT KENNEDY</td><td rowspan="3">July 25,1962</td><td rowspan="3">SPECIAL GROUP<br>MONGOOSE</td></tr><tr><td>MCCONE</td></tr><tr><td>FOREIGN INTELLIGENCE ADVISORY BOARD</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>HELMS<br>PRESIDENT KENNEDY</td><td rowspan="3">July 25,1962</td><td rowspan="3">SPECIAL GROUP<br>MONGOOSE</td></tr><tr><td>MCCONE</td></tr><tr><td>FOREIGN INTELLIGENCE ADVISORY BOARD</td></tr></table>
 
 **OCCURRENCE:** Helms notes that McCone briefed the panel of the President's foreign intelligence advisory board on political action projects. He pointed out that "each project must have his approval to the circulation to the members of the Special Group". For example, reconnaissance overflights are now approved. He noted covert financial support in Peruvian, Greek, Finnish, Italian, and Brazilian elections. Helms "read to the panel a paper on the operation Mongoose which the Director had used earlier in the day for giving a briefing to the President."
 

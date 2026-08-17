@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6413.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">CASH CREDIT APPLICATION RECEIVED<br/>18-J-52</td>

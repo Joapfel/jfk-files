@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_72.png
-
-Convert to MarkdownMarch 3, 1978
+March 3, 1978
 
 Sergyj Czornonoh
 1106 11th Street

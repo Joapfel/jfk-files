@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8116.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 and Delegate Walter E. Fumbroy. The FBI would have no objection should you decide to advise Mr. Wachtel that the current inquiry by the Senate Select Committee on Intelligence Activities concerns the FBI investigation of Dr. Martin Luther King, Jr.
 

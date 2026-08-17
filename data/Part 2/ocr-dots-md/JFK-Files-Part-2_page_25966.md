@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25966.png
-
-Convert to MarkdownSECRET - EYES ONLY
+SECRET - EYES ONLY
 
 # 7. TACKLE
 

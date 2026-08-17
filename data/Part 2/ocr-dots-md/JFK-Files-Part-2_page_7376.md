@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7376.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 14 AUG 1975
 

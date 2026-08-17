@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21621.png
-
-Convert to Markdown1 activities?
+1 activities?
 
 2 Mr. Phillips. No, sir. I was the Station Chief in Rio de Janiero, in Brazil, and was called back in 1970 for six or seven weeks for what we are referring to as Track II.
 

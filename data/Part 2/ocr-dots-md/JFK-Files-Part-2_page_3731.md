@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3731.png
-
-Convert to Markdowninto the US labor situation, and particularly to try
+into the US labor situation, and particularly to try
 to ameliorate the quarrel between George Meany and
 Walter Reuther. Cord Meyer steered a very skillful
 course in this connection, but the Agency could be

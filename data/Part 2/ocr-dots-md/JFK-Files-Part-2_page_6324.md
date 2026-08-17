@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6324.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 the JFK Assassination Records Collection, the provision to the public of photographs, drawings, or similar materials depicting the artifacts shall be sufficient to comply with the ARCA's requirement that copies of assassination records be provided to the public upon request. Additional display of or examination by the public of artifacts in the JFK Assassination Records Collection shall occur under the terms and conditions established by the National Archives and Records Administration to ensure their preservation and protection for posterity.
 

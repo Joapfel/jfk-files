@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12894.png
-
-Convert to MarkdownT 321023 EIA429
+T 321023 EIA429
 
 SECRET 2117182 OCT 76 STAFF
 

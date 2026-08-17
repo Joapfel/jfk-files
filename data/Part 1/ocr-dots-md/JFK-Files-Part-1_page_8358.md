@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8358.png
-
-Convert to Markdown4-0000
+4-0000
 
 SUBJECT: Valentin Loguinov
 DATE OF INFORMATION: February 1, 1969. 1200 hours.

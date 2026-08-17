@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7323.png
-
-Convert to MarkdownMemorandum to Mr. Jenkins
+Memorandum to Mr. Jenkins
 Re: SENATOR HOWARD H. BAKER, JR.
 
 Baker indicated to Taylor that he has no idea as to who will have the responsibility of conducting the background investigations but he would hope that the staff members would have "Q" clearances or the type of clearances afforded Atomic Energy Commission.

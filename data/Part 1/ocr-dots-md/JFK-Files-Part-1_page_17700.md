@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17700.png
-
-Convert to MarkdownPROJECT OUTLINE
+PROJECT OUTLINE
 
 CRYPTOLOGY LIFEAT FIELD CASE OF TCERS
 Thomas J. Unquarant

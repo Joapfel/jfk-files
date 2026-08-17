@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_35397.png
-
 Aragon, a very capable person, and the chiefs of the various organizations who work "full time" and receive $400 each; further that he planned to give each organization approximately $700 per month for their operating expenses, some less, some a little more - (MRR, Rescate, 30 de Nov, 20 de Mayo, AAA Independientes, Montecristi).
 
 When I questioned whether the Montecristi organization was still in the CRC, he said it was, that only Justo Carillo had dropped out of the CRC but the group remained in and had a new head. He added that he had just had a request from Carillo to provide him (Carillo) with a thousand dollars; that Carillo had photographic copies of some checks that he had paid to Waldo Frank for propaganda activities against Cuba and that Carillona asking reimbursement but Miro said he didn't consider he had to give it to Carillo.

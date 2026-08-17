@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13990.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 discussing in the course of his visit with heads of state overseas is
 the advisability of their countries engaging in economic reprisals against

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10054.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">CLASS: TOPIC NO.</td>
     <td>SECRET</td>

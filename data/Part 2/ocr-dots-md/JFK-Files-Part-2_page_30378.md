@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30378.png
-
-Convert to MarkdownTESTIMONY OF HUGH TOVAR
+TESTIMONY OF HUGH TOVAR
 
 Mr. Goldsmith. State your name for the record.
 

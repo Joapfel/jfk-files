@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22574.png
-
-Convert to MarkdownReassignment - Arthur G. Vaivada
+Reassignment - Arthur G. Vaivada
 
 29 October 1957, Page 2
 

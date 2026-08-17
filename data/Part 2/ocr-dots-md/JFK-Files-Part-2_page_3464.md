@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3464.png
-
-Convert to MarkdownUnited States: "In each case you open a file on there must be a demonstrable CI interest. Please assure that this guideline is followed meticulously."
+United States: "In each case you open a file on there must be a demonstrable CI interest. Please assure that this guideline is followed meticulously."
 
 **Double Agent Branch** -- Was charged with the conduct of and coordination on double agent operations abroad. Since the vast majority of DA cases were run by the US military services, the FBI, or--in some instances--foreign-liaison services, the branch was very heavily a coordinator rather than active runner of operations.
 

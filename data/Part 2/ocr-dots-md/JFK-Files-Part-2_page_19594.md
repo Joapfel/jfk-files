@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19594.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Women's National March on
 the Pentagon, April 10, 1971

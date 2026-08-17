@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8496.png
-
-Convert to MarkdownHelp. His positive reaction to the idea of talking to "the older" American would seem to be confirmation of this.
+Help. His positive reaction to the idea of talking to "the older" American would seem to be confirmation of this.
 
 e. (p. 6) While no future meeting was scheduled, Subject and CHMHOY met on the 16th with the mutual understanding that Subject would get in touch with CHMHOY either to discuss further CHMHOY's business future or to arrange a meeting with Subject's American friend.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_882.png
-
-Convert to Markdownstay in Russo v. Dime, U.S., 34 L. 30 (1972) and d... ing from the denial of a petition for certiorari in the same case; 409 U.S. 1013 (1972).
+stay in Russo v. Dime, U.S., 34 L. 30 (1972) and d... ing from the denial of a petition for certiorari in the same case; 409 U.S. 1013 (1972).
 
 As stated by the Court in Tagliacotti:
 

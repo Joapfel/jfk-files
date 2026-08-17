@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15763.png
-
-Convert to MarkdownCHARLES GARRY:
+CHARLES GARRY:
 
 Well I have tremendous faith and confidence
 in a free press and a free press is exactly

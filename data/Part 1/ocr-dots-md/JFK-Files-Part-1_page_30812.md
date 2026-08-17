@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30812.png
-
-Convert to MarkdownSEC. :?:
+SEC. :?:
 
 In the Spring of 1949 I was questioned by a Postal Inspector about a letter I had mailed approximately one year previous for a Mr. Halren. He was the Display man for Allen and Jeffer son Hardware Co., in Tupperl Ann, Ala. I had been working with him for some time dressing windows, painting and decorating.
 

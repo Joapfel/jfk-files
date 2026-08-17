@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16818.png
-
-Convert to MarkdownQ261. .45 Auto cartridge case, FBI #148
+Q261. .45 Auto cartridge case, FBI #148
 
 Q262 Metal fragment in wrapper marked "AA", FBI #149
 

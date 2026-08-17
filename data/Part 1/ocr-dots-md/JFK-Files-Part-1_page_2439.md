@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2439.png
-
-Convert to MarkdownSECRET
+SECRET
 
 entered on duty or during his first year of KGB service. While NOSENKO has claimed that the designation of his Directorate at the time he entered the KGB (MVD) in mid-March 1953 was the Second Chief Directorate and that it subsequently was redesignated the First Chief Directorate, DERYABIN has stated this reversal of designations occurred in March 1953.
 

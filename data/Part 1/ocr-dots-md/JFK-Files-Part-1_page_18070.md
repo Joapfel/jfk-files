@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18070.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 2. During the ensuing period, the Station plans to utilize LIONION-1 and LIONION-2 as LP operators for a portion of the LISAMPAN technical penetration operation. It is anticipated that this additional task will not be levied on LIONION-1 and LIONION-2 until after 1 January 1968.
 

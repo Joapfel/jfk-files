@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16408.png
-
-Convert to MarkdownIII. Vulnerabilities (for recruitment or defection)
+III. Vulnerabilities (for recruitment or defection)
 
 None known. He is strongly anti-JUVALIER. In that many Haitian exile circles are somewhat down on the United States as a result of the unsuccessful September 1973 invasion of Haiti, it is possible that subject merely turned to the "left" for assistance in overthrowing JUVALIER. It is however quite feasible that he would cooperate with the United States if he felt we were taking an anti-JUVALIER stand.
 

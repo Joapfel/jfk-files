@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30271.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 document, an authentic copy of the document?
 

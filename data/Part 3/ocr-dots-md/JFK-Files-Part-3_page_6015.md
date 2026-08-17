@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6015.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 for the SCLC, was advised by O'Dell that he, O'Dell, had a big mailing list coming up in August. Finnerty asked O'Dell to submit written instructions but O'Dell replied that he would get together with Finnerty when Finnerty returned from vacation on August 5, 1963. Finnerty had previously on July 17, 1963, telephoned and spoken to O'Dell at the New York Office of the SCLC.
 

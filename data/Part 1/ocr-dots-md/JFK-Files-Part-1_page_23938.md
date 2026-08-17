@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23938.png
-
-Convert to Markdownthe Tories ran in several constituencies Pakistani independent candidates
+the Tories ran in several constituencies Pakistani independent candidates
 in the hope of breaking the Labor vote, hoping that the Pakistanis would
 vote for these Pakistani independents. Hamsa worked with the Labor Party
 in those constituencies, to counter this, ~~and apparently~~ they were quite

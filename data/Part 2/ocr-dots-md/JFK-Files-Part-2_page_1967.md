@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1967.png
-
-Convert to MarkdownBRUCE
+BRUCE
 Branch Chief
 
 JANUAR

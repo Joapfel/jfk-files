@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34293.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 080909Z
 PRIORITY WAVE INFO DIR CITE TOKY 5634

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3849.png
-
 managing editor of _RAMPARTS Magazine_.
 
 E. Role of FURR and BAST in CIA Meeting of Exile

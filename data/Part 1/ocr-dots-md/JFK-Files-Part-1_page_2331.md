@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2331.png
-
-Convert to Markdown14-00000
+14-00000
 
 officer of 2 section. This section was new created (the work against tourists). The chief of 7 department - PERFILIEV, the chief of the 2 section - GUSKOV.
 

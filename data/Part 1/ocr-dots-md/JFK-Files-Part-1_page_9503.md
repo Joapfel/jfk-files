@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9503.png
-
-Convert to Markdown5. Activities in various stages of planning or implementation by CPC include the following:
+5. Activities in various stages of planning or implementation by CPC include the following:
 
 a. **Dramatics:**
 

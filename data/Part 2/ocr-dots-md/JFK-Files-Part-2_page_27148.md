@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27148.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 the latter responsibility to be assigned in
 agreement with the FBI and other affected

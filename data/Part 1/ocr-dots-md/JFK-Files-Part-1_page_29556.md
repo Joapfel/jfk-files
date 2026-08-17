@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29556.png
-
-Convert to Markdown4 MAY 1961
+4 MAY 1961
 
 MEMORANDUM FOR: C/WH/4
 SUBJECT: Captain Grayson L. Lynch, USA (Ret.)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4757.png
-
-Convert to MarkdownSECRET
+SECRET
 
 forget which one of the guys said that. But I said, "Yeah, he was an MD."
 His job was to help us in operations from a medical point of view. He wasn't

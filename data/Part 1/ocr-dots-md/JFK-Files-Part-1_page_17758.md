@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17758.png
-
-Convert to Markdown...1.-
+...1.-
 5008
 
 1259-1329 hrs.

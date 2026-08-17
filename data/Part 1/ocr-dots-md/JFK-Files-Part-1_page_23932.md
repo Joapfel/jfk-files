@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23932.png
-
-Convert to MarkdownNenni Socialists. I don't know if she has gone with the PSIUP, people
+Nenni Socialists. I don't know if she has gone with the PSIUP, people
 the new left split, or not. I tried to get more information about her
 in Rome but I couldn't just walk in and say "weren't you the girl I found
 in bed with Babu". She speaks English well and she spent a considerable

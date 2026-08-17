@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8705.png
-
-Convert to Markdown26 Sept 63 - Call from Embassy at 1721 hours. Raul in
+26 Sept 63 - Call from Embassy at 1721 hours. Raul in
 Embassy talks with Osvaldo. Osvaldo talks to him about the
 exams he's having all this week and next. Osvaldo asks
 if, they are collecting tomorrow, Saturday's the party.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18026.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Legal Advice for Present or Former Bureau Employees
 
 In regard to the question of security clearance for such outside counsel and the possibility that an employee might seek to employ an attorney whose background would suggest that he would not be approved for security clearance, I told Miss Wagner that the provision of private counsel to an employee would be done in the discretion of the Department and that a reasonable limitation could well be imposed by the Department as to those attorneys in private practice who would be eligible for appointment to represent individual employees. Such limitation would permit the Department and the employee to agree upon an attorney who would be qualified for security clearance.

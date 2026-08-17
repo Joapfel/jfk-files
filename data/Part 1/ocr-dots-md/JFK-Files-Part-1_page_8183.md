@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8183.png
-
-Convert to Markdown14-05-00
+14-05-00
 
 <table><tr><td>UNIT</td><td>C.O. PARRY</td></tr><tr><td>EY'T</td><td>NL/PQ/B</td></tr><tr><td>DATE</td><td>22 MAY 1961</td></tr></table>
 

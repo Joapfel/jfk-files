@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17205.png
-
-Convert to MarkdownF) LIEUT. H. SMITH - During the period under review, with the exception of short vacation periods, GULLIVER continued in his role as the LIEUT. Principal Agent. This assignment entailed regular meetings with the LIEMTS, LIEMTS, and LIETED Base Force keepers (for duties to these bases); regular contact with the operators of the LIETAD mobile photo unit; regular contact with the LIEUT. photographic developing and processing base; and numerous operational tasks in support of the AIBD operation. Specifically, this effort involved at least twelve clandestine agent or Case Officer meeting per week, the first echelon financial accountability for the expenditure of $36,000 per annum, in addition to various cover-job duties.
+F) LIEUT. H. SMITH - During the period under review, with the exception of short vacation periods, GULLIVER continued in his role as the LIEUT. Principal Agent. This assignment entailed regular meetings with the LIEMTS, LIEMTS, and LIETED Base Force keepers (for duties to these bases); regular contact with the operators of the LIETAD mobile photo unit; regular contact with the LIEUT. photographic developing and processing base; and numerous operational tasks in support of the AIBD operation. Specifically, this effort involved at least twelve clandestine agent or Case Officer meeting per week, the first echelon financial accountability for the expenditure of $36,000 per annum, in addition to various cover-job duties.
 
 SUMMARY OF OPERATIONS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9569.png
-
-Convert to Markdownattain victory.
+attain victory.
 
 I am not boasting when I say that we (Fateh) have affirmed the nation's will for victory. After June 5th, we alone moved and declared with our bullets that the war was not ended, that the Palestinian people still exist and that the Arab nation is stronger than defeat. Our revolution is the clear declaration of our will. We regard all "peaceful settlements" as surrender and nothing else. You must have heard what "Al-Asifah" Radio said about the Soviet proposal. "Al-Asifah" criticized it in strong terms, and affirmed that the Palestinian people alone determine their destiny."
 

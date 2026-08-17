@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10753.png
-
-Convert to Markdownclub was to build a swimming pool for white only. The construction of the pool itself was completed but not sufficiently to place it in use this season. Non-Metro in Butram Country Club is $25. The majority of the members are not aware of the fact that the klavern was behind its organization. Membership in the Butram Country Club was easily obtained as the public pool for whites and public pool for Negroes were both closed during the summer of 1964 when Negroes attempted to integrate the white pool. This left no public pool open in Pine Bluff.
+club was to build a swimming pool for white only. The construction of the pool itself was completed but not sufficiently to place it in use this season. Non-Metro in Butram Country Club is $25. The majority of the members are not aware of the fact that the klavern was behind its organization. Membership in the Butram Country Club was easily obtained as the public pool for whites and public pool for Negroes were both closed during the summer of 1964 when Negroes attempted to integrate the white pool. This left no public pool open in Pine Bluff.
 
 ~~Dr. E. B. BUTLER~~, vice president of the klavern, donated the land for the Butram Country Club; as he owns land surrounding the club, he will benefit financially from the sale of this land for building lots. The NPL has also distributed a limited number of leaflets publicly discouraging people from patronizing certain restaurants and businesses which had hired or served Negroes.
 

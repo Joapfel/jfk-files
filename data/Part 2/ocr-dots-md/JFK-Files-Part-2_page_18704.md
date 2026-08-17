@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18704.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Memorandum to Mr. W. R. Wannall
 Re: Senstudy 75'

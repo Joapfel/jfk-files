@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33629.png
-
-Convert to Markdown1. Intricacies of Belgrade politics
+1. Intricacies of Belgrade politics
 2. CIA's failure to provide continuing policy guidance on the Exce. Com. in N.Y.
 3. No final focus or responsibility for national council policy in Wash.
 4. Ambiguity in N.Y. which is poorly staffed has made itself virtually independent of CIA guidance.

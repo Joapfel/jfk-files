@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25747.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Agency could have no part in the assassination of a government leader (including Castro) and it would not aid subject in his attempt. This included the following. "We would not furnish the silencer, nor scope nor any money for direct assassination; furthermore, we would not lift a finger to help subject escape from Cuba should he assassinate Castro."
 

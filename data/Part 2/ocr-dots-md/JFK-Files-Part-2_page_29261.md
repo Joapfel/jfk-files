@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29261.png
-
-Convert to MarkdownGary Edward Taylor Interview
+Gary Edward Taylor Interview
 Page 3.
 
 Russia and he added that LHO was "a person of few social graces" and that he appeared to be a person who had no time for people in general. He described him as being untypical and as being a person who was self-motivated to personal efforts or personal goals.

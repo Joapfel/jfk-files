@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5702.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONTROLLED DISSEM</td>
     <td>CONFIDENTIAL</td>

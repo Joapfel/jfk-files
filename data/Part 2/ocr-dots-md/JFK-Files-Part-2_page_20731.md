@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20731.png
-
-Convert to Markdown<table><tr><td>Mr. Felt</td></tr><tr><td>Mr. Bates</td></tr><tr><td>Mr. Bishop</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Mr. Campbell</td></tr><tr><td>Mr. Cleveland</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. Dalbey</td></tr><tr><td>Mr. Jenkins</td></tr><tr><td>Mr. Marshall</td></tr><tr><td>Mr. Miller, E.S.</td></tr><tr><td>Mr. Ponder</td></tr><tr><td>Mr. Soyars</td></tr><tr><td>Mr. Walters</td></tr><tr><td>Tele. Room</td></tr><tr><td>Mr. Kinley</td></tr><tr><td>Mr. Armstrong</td></tr><tr><td>Ms. Herwig</td></tr><tr><td>Mrs. Neenan</td></tr></table>
+<table><tr><td>Mr. Felt</td></tr><tr><td>Mr. Bates</td></tr><tr><td>Mr. Bishop</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Mr. Campbell</td></tr><tr><td>Mr. Cleveland</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. Dalbey</td></tr><tr><td>Mr. Jenkins</td></tr><tr><td>Mr. Marshall</td></tr><tr><td>Mr. Miller, E.S.</td></tr><tr><td>Mr. Ponder</td></tr><tr><td>Mr. Soyars</td></tr><tr><td>Mr. Walters</td></tr><tr><td>Tele. Room</td></tr><tr><td>Mr. Kinley</td></tr><tr><td>Mr. Armstrong</td></tr><tr><td>Ms. Herwig</td></tr><tr><td>Mrs. Neenan</td></tr></table>
 
 NR 01 NY CODE
 

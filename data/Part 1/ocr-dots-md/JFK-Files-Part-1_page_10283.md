@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10283.png
-
-Convert to Markdownaspectos se hallan en una relación indi-
+aspectos se hallan en una relación indi-
 soluble.
 
 La filosofia qve ve a si misma como

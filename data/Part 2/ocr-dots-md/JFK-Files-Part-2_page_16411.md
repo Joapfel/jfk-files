@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16411.png
-
-Convert to MarkdownMarxism consists of
+Marxism consists of
 thousands of truths, but
 they all boil down to
 the one sentence, “It is

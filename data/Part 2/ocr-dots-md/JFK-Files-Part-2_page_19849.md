@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19849.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 It was decided that a national march on Washington, D. C. (WDC), with a simultaneous march on San Francisco, California, on November 20, 1971, in a public show of support for abortion law repeal, would be the first step in launching their campaign on a national scale.
 

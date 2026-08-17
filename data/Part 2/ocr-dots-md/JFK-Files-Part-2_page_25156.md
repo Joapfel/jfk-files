@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25156.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>DIEM, LODGE, AMBASSADOR</td><td>Aug. 7, 1963</td><td>Card 2 of 2</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>DIEM, LODGE, AMBASSADOR</td><td>Aug. 7, 1963</td><td>Card 2 of 2</td></tr></table>
 
 **OCCURRENCE:** During an interview by Higgins with DIEM on August 7, 1963 "...Diem sent an aide for document, which I later deduced to be a memorandum of a recent conversation with an American official."
 

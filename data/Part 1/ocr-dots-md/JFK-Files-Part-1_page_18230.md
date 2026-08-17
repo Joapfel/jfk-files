@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18230.png
-
-Convert to Markdown7 FEB 1966
+7 FEB 1966
 
 Njmi
 RE: MDC

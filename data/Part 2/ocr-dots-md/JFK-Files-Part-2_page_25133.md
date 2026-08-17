@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25133.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>DIEM<br/>MAJOR GEN. TRAN VAN DON (sp.?)</td><td>May 8, 1963</td><td>DIEM</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>DIEM<br/>MAJOR GEN. TRAN VAN DON (sp.?)</td><td>May 8, 1963</td><td>DIEM</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

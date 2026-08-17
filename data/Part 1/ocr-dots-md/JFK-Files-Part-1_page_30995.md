@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30995.png
-
-Convert to Markdown# Distribution:
+# Distribution:
 
 1. A/Contracts
 2. A/dVAs

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22539.png
-
-Convert to Markdownsize high fire power weapon so at least gesture in right direction can be made if we all thrown out. Arms could come later."
+size high fire power weapon so at least gesture in right direction can be made if we all thrown out. Arms could come later."
 
 14 February 1961
 

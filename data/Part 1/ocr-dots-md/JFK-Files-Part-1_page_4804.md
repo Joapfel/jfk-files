@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4804.png
-
-Convert to MarkdownLA HACION, Nueve 1º de junio de 1978
+LA HACION, Nueve 1º de junio de 1978
 
 San José, Capital Terrestre
 

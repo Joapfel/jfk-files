@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25060.png
-
-Convert to Markdown# Embajada rusa en México tiene un gran personal que trabaja poco
+# Embajada rusa en México tiene un gran personal que trabaja poco
 
 Por Carlos Montiel, desde México.
 

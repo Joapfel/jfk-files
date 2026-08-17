@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3526.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tbody><tr><td>16 January</td><td>Mission Briefings - A Management Control</td><td>REUTEMAN</td><td>DECONBARD</td></tr><tr><td>1000-1200</td><td>Commando Raids</td><td>ZAMKA</td><td>None</td></tr><tr><td>1400-1800</td><td colspan="3">Analysis of an Infiltration (Operation Case History)</td></tr><tr><td>1900-2300</td><td colspan="3"></td></tr></tbody></table>
 

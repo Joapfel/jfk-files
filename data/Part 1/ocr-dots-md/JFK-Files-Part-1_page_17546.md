@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17546.png
-
-Convert to Markdown16. Equipment and Support
+16. Equipment and Support
 
 As has been mentioned in last year's renewal request, much of the LIFEAT equipment, upon whose reliability the success of the information collection is based, will require replacement in the near future. The great percentage of the equipment has been in long and continuous service, while much of the special equipment is no longer being manufactured. When present diminishing commercial stocks of replacement parts are exhausted, new units will be required for LIFEAT with the attendant large, one-time purchase expense.
 

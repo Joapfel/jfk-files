@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29567.png
-
-Convert to Markdown10 November 1960
+10 November 1960
 
 DATE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6674.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (U) HTLINGUAL was a Directorate of Operations project that involved opening incoming and outgoing mail destined to and from the Soviet Union, China, Pakistan, and South America. In OS this project was known as SRPOINTER with subprojects identified as WESTPOINTER, INDIAN, BANJO, and SETTER. OS conducted the actual opening and monitoring of mail with the acquired information referred to the Directorate of Operations.
 

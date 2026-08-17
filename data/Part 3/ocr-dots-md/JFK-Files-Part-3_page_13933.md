@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13933.png
-
-Convert to Markdown(1) Total support of the war against the Viet Cong, including the training of some 43,000 irregulars (now turned over to U. S. Special Forces); support to the mountain people in operations against the Viet Cong; and CIA training of U. S. Special Forces in South Vietnam.
+(1) Total support of the war against the Viet Cong, including the training of some 43,000 irregulars (now turned over to U. S. Special Forces); support to the mountain people in operations against the Viet Cong; and CIA training of U. S. Special Forces in South Vietnam.
 
 (2) CIA support of infiltration operations in North Vietnam, (Not a great success. High losses of teams.)
 

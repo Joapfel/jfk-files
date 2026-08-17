@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15500.png
-
-Convert to MarkdownEXHIBIT. #1
+EXHIBIT. #1
 
 8 Sept 1964
 

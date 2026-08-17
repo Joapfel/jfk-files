@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9701.png
-
-Convert to Markdownby the respective Chairman to be trustworthy and unless
+by the respective Chairman to be trustworthy and unless
 access to such information or material is necessary in the
 performance of the person's duties.
 

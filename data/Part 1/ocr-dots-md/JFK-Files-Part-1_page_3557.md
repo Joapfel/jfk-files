@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3557.png
-
-Convert to MarkdownANWORLD Meeting in New Orleans, 23 Feb to 1 March 1964
+ANWORLD Meeting in New Orleans, 23 Feb to 1 March 1964
 
 SUBJECT: Adelaida Matilda PADRON y Cruz
 

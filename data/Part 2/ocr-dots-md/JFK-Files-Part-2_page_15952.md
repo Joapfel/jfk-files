@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15952.png
-
-Convert to Markdown"BLACK MAN, LISTEN!
+"BLACK MAN, LISTEN!
 
 "I think there are many profound, incisive, and elusive things that Black men find hard to say to other Black men; but I'm inclined to believe it's the small things of life we find hard to say to each other--small but important things that will make our destiny. I'm going to say some of the small things that are very important dealing with our future. Brace yourself brothers, I'm going to give you the lay of the land!
 

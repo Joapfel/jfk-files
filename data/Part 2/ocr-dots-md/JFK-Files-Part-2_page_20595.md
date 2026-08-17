@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20595.png
-
-Convert to MarkdownBS 100-45609
+BS 100-45609
 
 Second source: 
 

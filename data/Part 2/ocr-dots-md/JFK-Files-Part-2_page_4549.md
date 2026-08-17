@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4549.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (1) Groups outside the United States which advocate assassination of government officials as a political weapon and which appear to constitute an existing threat to the President or any persons named in Article I, Paragraph B. above;
 

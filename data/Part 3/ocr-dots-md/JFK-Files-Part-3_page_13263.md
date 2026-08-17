@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13263.png
-
-Convert to Markdown149
+149
 
 Wait just a minute. I am sorry... I could be wrong there. I said the wrong thing.
 

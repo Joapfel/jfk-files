@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30807.png
-
-Convert to MarkdownSEB. 21. GEOLOGICAL HISTORY
+SEB. 21. GEOLOGICAL HISTORY
 
 I have never been employed permanently as I have
 been in school all of the time. In the summer I

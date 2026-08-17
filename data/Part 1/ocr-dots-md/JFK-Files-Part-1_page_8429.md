@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8429.png
-
-Convert to Markdownin New York City, a house in Mexico City, and a second house
+in New York City, a house in Mexico City, and a second house
 in Acapulco, where she also had a sizable piece of undeveloped
 land. Subject described Velia as both extremely intelligent
 and a tremendous sexual partner, and speculated that because of

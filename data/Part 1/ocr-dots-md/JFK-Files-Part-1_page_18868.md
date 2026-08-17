@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18868.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="12" style="text-align:center;">CENTRAL INTELLIGENCE AGENCY<br>NOTIFICATION OF PERSONNEL ACTION (ml)</th>

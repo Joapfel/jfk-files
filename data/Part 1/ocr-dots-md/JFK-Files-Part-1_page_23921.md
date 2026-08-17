@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23921.png
-
-Convert to Markdown14-00000
+14-00000
 
 was veiled criticism, in the French issue, and he told me not to print that,
 for instance, in the English edition, his story being that he didn't want

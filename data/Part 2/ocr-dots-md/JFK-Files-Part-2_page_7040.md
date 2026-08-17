@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7040.png
-
-Convert to Markdown# JFK Lessons Learned
+# JFK Lessons Learned
 
 * Statutory Mandates are Not Efficient
 

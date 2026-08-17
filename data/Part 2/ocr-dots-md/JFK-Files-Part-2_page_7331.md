@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7331.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 Paris, he felt, would provide some understanding of "third world" operations. Bonn, he felt, would be a good example of the inter relations of a CIA Station with the Military and the Foreign Service.
 

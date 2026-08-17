@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16498.png
-
-Convert to MarkdownSECRET
+SECRET
 
 B. SLALOM-1 -- He is close to Nestor RAMIREZ, a CUBAPESCA Representative who is currently in Tokyo. SLALOM-1 states RAMIREZ is approachable because RAMIREZ is definitely not a Communist, and he thinks very much like him (SLALOM-1).
 

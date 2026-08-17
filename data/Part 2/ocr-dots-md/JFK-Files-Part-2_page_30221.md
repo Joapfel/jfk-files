@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30221.png
-
-Convert to MarkdownNWW 88326 DocId:32269709 Page 122
+NWW 88326 DocId:32269709 Page 122
 
 Robert J. Bures: new oner 7/3/37
 E. Leen G. Dineen (Copeland) Phil Pa 9/14/48

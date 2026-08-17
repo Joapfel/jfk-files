@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20744.png
-
-Convert to Markdown<table><tr><td>CLASSIFICATION</td></tr></table>
+<table><tr><td>CLASSIFICATION</td></tr></table>
 
 # FITNESS REPORT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3847.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2 SMG SWISS
 6 PISTOLS .22 SILENCED

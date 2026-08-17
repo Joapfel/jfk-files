@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2731.png
-
-Convert to Markdown1927
+1927
 
 next to the Army, the United States marshalls should make them,
 not the FBI, even though we developed the violations.

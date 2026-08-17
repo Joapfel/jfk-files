@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3184.png
-
-Convert to Markdown1796
+1796
 
 Mr. Adams. I am told we have. I don't know what files
 we have reviewed, but we have reviewed them and we haven't

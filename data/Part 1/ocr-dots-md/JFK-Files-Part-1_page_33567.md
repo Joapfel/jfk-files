@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33567.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>CABLE SEC DISSEMIN BY: ____________________ PER: _________________ TOTAL COPIES: __________ RUN BY: __________</td>

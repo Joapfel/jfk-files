@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11199.png
-
-Convert to MarkdownFebruary 7, 1966
+February 7, 1966
 
 CENTRAL INTELLIGENCE AGENCY
 OPERATIONS IN THE UNITED STATES

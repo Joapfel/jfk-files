@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6274.png
-
-Convert to Markdown1. Mr. Devine will discuss the perspective of the Directorate of Operations with respect to sensitive information that may appear in the assassination records. This includes information related to protection of sources and liaison relationships.
+1. Mr. Devine will discuss the perspective of the Directorate of Operations with respect to sensitive information that may appear in the assassination records. This includes information related to protection of sources and liaison relationships.
 
 2. The following Agency members will attend the meeting with the ARRB on Monday, 6 March 1995:
 

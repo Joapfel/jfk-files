@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2914.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Cuba, however, remained a subject of considerable concern. In April 1961, shortly after President Kennedy established the Taylor Commission, Presidential adviser Walt Rostow speculated that Cuba might join with the Soviet Union in setting up an offensive air or missile base. He additionally posed that Cuba might build its conventional military strength and develop its subversive network to threaten other Latin American nations from without and within. "Its ideological contours are a moral and political offense to us," he concluded, "and we are committed, by one means or another, to remove that offense..."
 

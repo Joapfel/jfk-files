@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33643.png
-
-Convert to Markdown6 March 1952
+6 March 1952
 
 MEMORANDUM FOR: RAY E. MILLARD
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24075.png
-
-Convert to Markdownwas ever made aware of the true nature of the underworld operation, and virtually certain that it continued into McCone's term without his or the Administration's knowledge or approval.
+was ever made aware of the true nature of the underworld operation, and virtually certain that it continued into McCone's term without his or the Administration's knowledge or approval.
 
 On the occasions when Richard Bissell had the opportunity to inform his superiors about the assassination effort against Castro, he either failed to inform them or misled them.
 

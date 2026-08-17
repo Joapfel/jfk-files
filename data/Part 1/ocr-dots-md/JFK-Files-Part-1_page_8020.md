@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8020.png
-
-Convert to MarkdownSubject: Communist Influence in the FEU, University of Habana
+Subject: Communist Influence in the FEU, University of Habana
 
 Report No: HH-981
 Date of Information: 10-20 January 1955

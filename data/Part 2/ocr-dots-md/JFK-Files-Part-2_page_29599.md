@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29599.png
-
-Convert to Markdown014973
+014973
 
 (This form is to be used for material extracted
 from CIA—controlled documents.)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10620.png
-
-Convert to Markdown<table><tr><td>DATE</td></tr></table>
+<table><tr><td>DATE</td></tr></table>
 
 <table><thead><tr><th>COURT</th><th>STATE</th><th>FORM</th><th>NO.</th><th>NAME</th><th>DATE</th></tr></thead><tbody><tr><td>CITRIN</td><td>JONES</td><td>JOB</td><td>JCS</td><td>DICKIES</td><td>10-27-64</td></tr><tr><td>GILLIANG</td><td>MCKEOWN</td><td>KING</td><td>KING</td><td>HARRIS</td><td>10-27-64</td></tr></tbody></table>
 

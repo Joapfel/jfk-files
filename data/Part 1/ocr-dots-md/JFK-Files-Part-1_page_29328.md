@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29328.png
-
-Convert to Markdown5. In 1965 I set up an office in Perrine, Florida, under commercial cover, to administer the Agent group. I remained in this office conducting operations and training as before until April 1966. My office was moved into the JIMWAVE station at that time, but I remained under commercial cover and my duties continued to be the same.
+5. In 1965 I set up an office in Perrine, Florida, under commercial cover, to administer the Agent group. I remained in this office conducting operations and training as before until April 1966. My office was moved into the JIMWAVE station at that time, but I remained under commercial cover and my duties continued to be the same.
 
 6. During the time I was assigned to JMWAVE I was required to participate in numerous voyages aboard Agency ships into international waters. Many of these were near to and into denied waters. I was also required to participate in several search and rescue aircraft flights of long duration over international water, near and into denied areas.
 

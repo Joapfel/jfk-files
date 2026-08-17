@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12223.png
-
-Convert to Markdown8. Instruct each interested Bureau office which has made further dissemination of such information to follow the instructions set forth above.
+8. Instruct each interested Bureau office which has made further dissemination of such information to follow the instructions set forth above.
 
 9. Also set up a control file regarding this corrective action, and upon completion of same submit to the Bureau a final letter under the informant's caption identifying each case by title, character, Bureau file, where known, and date of communication.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7656.png
-
-Convert to Markdown(d) LOGINOV -- Subject has frequently seen LOGINOV in the first office off the Reception Room. LOGINOV has received the majority of the 8-10 visitors who have come into the Reception Room while Subject has been there during the last year.
+(d) LOGINOV -- Subject has frequently seen LOGINOV in the first office off the Reception Room. LOGINOV has received the majority of the 8-10 visitors who have come into the Reception Room while Subject has been there during the last year.
 
 (e) STRIZHOV-- Subject has frequently seen STRIZHOV jockeying cars around. He has also seen STRIZHOV go in and out of the gatehouse on numerous occasions.
 

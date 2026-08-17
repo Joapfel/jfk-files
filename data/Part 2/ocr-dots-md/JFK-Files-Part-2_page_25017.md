@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25017.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 rather than in a way that was primarily of a moral principle. That is what would probably have been their attitude in a few cases. Certainly the idea that this was going to be a policy of the US, generally both of them were very much opposed to it.
 

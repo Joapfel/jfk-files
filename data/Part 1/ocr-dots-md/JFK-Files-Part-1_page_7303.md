@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7303.png
-
-Convert to Markdown9.02.13 Is he the sort of person who Usually wants to check the bill regardless of who is paying
+9.02.13 Is he the sort of person who Usually wants to check the bill regardless of who is paying
 Is indifferent about the bill when someone else is paying
 
 9.02.14 When he is paying, he checks the bill Unobtrusively

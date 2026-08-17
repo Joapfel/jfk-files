@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8911.png
-
-Convert to MarkdownLegal Counsel to Mr. J. B. Adams Memo
+Legal Counsel to Mr. J. B. Adams Memo
 
 RE: SENSTUDY 75
 

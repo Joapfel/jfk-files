@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_34211.png
-
-Convert to Markdownturned them into soldiers, militiamen, informers, etc. There is no way to replace this rural labor force. If these men were returned to the country, they would plot against Castro. If they are not returned, they cannot work.
+turned them into soldiers, militiamen, informers, etc. There is no way to replace this rural labor force. If these men were returned to the country, they would plot against Castro. If they are not returned, they cannot work.
 
 "The Fate of Communist Puppets".- The fate of Ben Bella in Algeria and of Sukarno in Indonesia show what Communist puppets can expect. Both men were intimate friends of Fidel Castro, both visited Cuba, and both served the same Red master whom Fidel Castro serves. The outcome in their cases constitute a writing on the wall for the boarded tyrant.

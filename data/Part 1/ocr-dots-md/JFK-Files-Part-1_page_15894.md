@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15894.png
-
-Convert to MarkdownHaben der eigentliche und Pochausbildung erhielten wir auch eine vornüchterische Ausbildung, in der Körperschule mit eingeschlossen war. Während der Sommerferien waren die Studenten meist auf einer Rolle ohne beschäftigt, um so an der Borgung der Lrnte zu sauhelfen.
+Haben der eigentliche und Pochausbildung erhielten wir auch eine vornüchterische Ausbildung, in der Körperschule mit eingeschlossen war. Während der Sommerferien waren die Studenten meist auf einer Rolle ohne beschäftigt, um so an der Borgung der Lrnte zu sauhelfen.
 
 In Prühjahr 1938 hatte ich meine Abschlußprüfung. Ich bestand diese und erhielt mein Diplom.
 

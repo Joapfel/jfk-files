@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30299.png
-
-Convert to MarkdownMr. Klein. Do you have any recollection of being asked
+Mr. Klein. Do you have any recollection of being asked
 these questions and giving the answers that you just read to us?
 
 Mr. Nosenko. Sir, I told you, and I will tell, I do not

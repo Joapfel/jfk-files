@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1295.png
-
-Convert to Markdown14-0000
+14-0000
 
 Harvard Crimson, Harvard University, Cambridge, Mass.
 

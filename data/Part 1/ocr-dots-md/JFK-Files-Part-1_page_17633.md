@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17633.png
-
-Convert to MarkdownAttachment to RM-A-10198
+Attachment to RM-A-10198
 KapOk-1401
 
 d. Coordinate information received from LIMERICK with other Station operations.

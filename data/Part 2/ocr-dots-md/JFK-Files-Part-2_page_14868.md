@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14868.png
-
-Convert to Markdown# INVESTIGATIVE DIVISION
+# INVESTIGATIVE DIVISION
 
 ## 1. Labor-Management Reporting and Disclosure Act of 1959 (Public Law 86-257)
 

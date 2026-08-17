@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22624.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 first live human being I saw that had actually allegedly heard from Hersh. And he thought they had been set up -- and that was the biggest agony in the Agency.
 

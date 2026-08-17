@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8063.png
-
-Convert to Markdown*shall notify every member of the Committee, any person designated by the Chairman or member. Each subpoena shall contain a copy of Senate Resolution 21, 94th Congress, 1st Session.*
+*shall notify every member of the Committee, any person designated by the Chairman or member. Each subpoena shall contain a copy of Senate Resolution 21, 94th Congress, 1st Session.*
 
 RULE 6. PROCEDURES RELATED TO THE TAKING OF TESTIMONY
 

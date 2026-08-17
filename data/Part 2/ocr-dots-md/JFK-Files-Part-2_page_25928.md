@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25928.png
-
-Convert to MarkdownC IN NARCOTICS
+C IN NARCOTICS
 
 a notoriety greatly disproportionate to their numbers, because of their
 continuous activity in criminal and racketeering enterprises. The

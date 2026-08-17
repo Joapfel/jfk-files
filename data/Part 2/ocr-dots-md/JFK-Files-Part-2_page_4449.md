@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4449.png
-
-Convert to MarkdownIII. WHAT TARGETS WAS THE AGENCY ABLE TO COVER AND WITH WHAT FREQUENCY AND CONTINUITY?
+III. WHAT TARGETS WAS THE AGENCY ABLE TO COVER AND WITH WHAT FREQUENCY AND CONTINUITY?
 
 The following remarks apply to agent coverage only, that is,
 coverage by means of individuals on the island of Cuba, or elsewhere

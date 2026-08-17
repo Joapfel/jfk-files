@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24203.png
-
-Convert to MarkdownDBB 71942, 25 January 1967 100-300-004
+DBB 71942, 25 January 1967 100-300-004
 
 Abstracted from pages 38 and 37
 

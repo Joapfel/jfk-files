@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4605.png
-
-Convert to Markdown# FEDERAL BUREAU OF INVESTIGATION
+# FEDERAL BUREAU OF INVESTIGATION
 
 <table><thead><tr><td>REPORTING OFFICE<br/>NEWARK</td><td>OFFICE OF ORIGIN<br/>NEWARK</td><td>DATE<br/>4/25/61</td><td>INVESTIGATIVE PERIOD<br/>1/24/61 - 4/20/61</td></tr><tr><td>TITLE OF CASE<br/><u>CHANGED</u><br/>EVELYN ELEANORE ARCHER, aka.<br/>Evelyn Archer, Mrs. Walter<br/>Korabiak, Ruby Archer, Regmu<br/>Archer, Ruby Korbin</td><td colspan="3">REPORT MADE BY<br/>HERBERT L. BLOM<br/>TYPED BY<br/>vwb</td></tr><tr><td></td><td colspan="3">CHARACTER OF CASE<br/>IS - CUBA</td></tr></thead><tbody><tr><td>X</td><td colspan="3">The title is marked "Changed" to show subject's full name as EVELYN ELEANORE ARCHER and to make addition of the following names: REGMU ARCHER, RUBY KORBIN. Title was previously EVELYN ARCHER, aka. Mrs. Walter Korabiak, Ruby Archer.</td></tr><tr><td colspan="4"><strong>REFERENCES</strong></td></tr><tr><td colspan="4">Newark letter to Bureau, 1/31/61.<br/>Miami airtel to Bureau, 2/6/61.<br/>Bureau letter to Newark, 2/16/61.<br/>Houston letter to Bureau, 3/7/61.</td></tr><tr><td colspan="4"><strong>ADMINISTRATIVE</strong></td></tr><tr><td colspan="4">Newark indices contain no identifiable references concerning MANUEL ARTAS, MANDEL ARQVES or MANUEL ARQUES.<br/>Miami indices contain no references to HYMAN GOTTSMAN.<br/>Bureau files contain no additional pertinent information</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31273.png
-
-Convert to MarkdownU.S. intelligence in Moscow and the role person mentioned by name in
+U.S. intelligence in Moscow and the role person mentioned by name in
 the deppatel, did any CIA connection (A-103-75).
 However, the memorandum acknowledges that Bill Snyder and Edward
 L. Frees, the State Department official who signed the deppatel, did

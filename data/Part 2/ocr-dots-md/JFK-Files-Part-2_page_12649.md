@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12649.png
-
-Convert to MarkdownDetermine during security investigations whether subjects have any close relatives in armed forces. Promptly call such associations to attention of appropriate military intelligence services, together with pertinent data, including reports, on subjects involved. Evaluation of these associations lies entirely within province of military intelligence services, but Bureau must disseminate this information immediately upon receipt. Advise Bureau by letter concerning any subversive contacts or information developed concerning military personnel, including statement as to local dissemination and enclosing LHM setting out subversive data.
+Determine during security investigations whether subjects have any close relatives in armed forces. Promptly call such associations to attention of appropriate military intelligence services, together with pertinent data, including reports, on subjects involved. Evaluation of these associations lies entirely within province of military intelligence services, but Bureau must disseminate this information immediately upon receipt. Advise Bureau by letter concerning any subversive contacts or information developed concerning military personnel, including statement as to local dissemination and enclosing LHM setting out subversive data.
 
 b. Aliens and naturalized citizens
 

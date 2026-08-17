@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32489.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="2">INCLUSIVE DATES FROM AND TO - BY MO AND YR</td>
         <td>July 165 - June 1955</td>

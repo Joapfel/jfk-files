@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34205.png
-
-Convert to Markdown"HABLA.... UNIDAD REVOLUCIONARIA" (W.R.U.L.)
+"HABLA.... UNIDAD REVOLUCIONARIA" (W.R.U.L.)
 
 November 1, 1965: "There will be no change in the Blockade of Rod Cuba".- A comment on the rumors that U.S. policy on Cuba will "soften". It is indicated that Washington, for humanitarian reasons, accepted Castro's parley to evacuate the spiritually wounded. We also comment on the statement of a Washington official who said that "the fear that the U.S. may alter its relations with Cuba is unfounded (and) there is no prospect for a change in our relations". We arrive at the conclusion that U.S. policy on the subject will no vary: Castro will be economically stranded and there is no future for Communism in this Continent.
 

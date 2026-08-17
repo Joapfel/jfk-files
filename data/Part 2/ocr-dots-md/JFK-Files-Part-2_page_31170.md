@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31170.png
-
-Convert to Markdown0002203
+0002203
 
 Comment
 

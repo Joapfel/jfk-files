@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33994.png
-
-Convert to MarkdownUNIDAD MONTHLY, ISSUE, NO. 37, May, 1967
+UNIDAD MONTHLY, ISSUE, NO. 37, May, 1967
 
 This issue has been almost entirely devoted to a reprint of I. Andrés Collazo’s statement concerning his experience as a CUFLET representative in London. We have reprinted most of the contents of the statement in the form of a signed article entitled “INSIDE CUFLET.”
 

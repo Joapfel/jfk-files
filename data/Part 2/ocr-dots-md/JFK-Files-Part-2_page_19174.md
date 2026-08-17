@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19174.png
-
-Convert to MarkdownAirtel to SAC, Albany
+Airtel to SAC, Albany
 
 RE: DEMONSTRATION PROTESTING UNITED STATES
 POLICY IN VIETNAM, WASHINGTON, D. C.,

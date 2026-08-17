@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27327.png
-
-Convert to Markdowna - Getler article of 17 June 71 TOP SECRET
+a - Getler article of 17 June 71 TOP SECRET
 
 b - Getler article of 9 Aug '71 TOP SECRET
 

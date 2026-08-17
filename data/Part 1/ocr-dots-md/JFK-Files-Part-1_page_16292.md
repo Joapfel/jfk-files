@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16292.png
-
-Convert to Markdown14-00000
+14-00000
 
 CFN 8240 SECARD3/1 SI ALEV I
 3:9:8 #:9) 25)8"-. I RE NOT MET.

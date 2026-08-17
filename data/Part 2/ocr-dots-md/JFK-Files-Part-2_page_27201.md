@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27201.png
-
-Convert to MarkdownII. DIRECTORATE OF SCIENCE AND TECHNOLOGY
+II. DIRECTORATE OF SCIENCE AND TECHNOLOGY
 
 A. Incidental U.S. Communications Intercept
 (SECRET - COMINT)

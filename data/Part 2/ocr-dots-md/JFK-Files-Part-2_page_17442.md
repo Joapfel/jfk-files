@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17442.png
-
-Convert to MarkdownSAC, CHICAGO
+SAC, CHICAGO
 
 DATE: 4/4/69
 

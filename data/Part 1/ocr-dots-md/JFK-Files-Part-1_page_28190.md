@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28190.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SUBJECT: Request for a Quality Step Increase for Mr. Frederick C. Randall, GS-14
 

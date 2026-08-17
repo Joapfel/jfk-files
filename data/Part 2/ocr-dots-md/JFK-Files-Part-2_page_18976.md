@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18976.png
-
-Convert to MarkdownWRO 105-1971
+WRO 105-1971
 
 (It is noted that both of the above are now on their respective assignments in the WDC area and STIMT continues to contact former NY 2524-S.) The name of captioned subject was furnished to STIMT.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25808.png
-
-Convert to MarkdownMemorandum to Mr. Belmont
+Memorandum to Mr. Belmont
 
 following recommendations are submitted with reference to the points raised by Mr. Katzenbach:
 

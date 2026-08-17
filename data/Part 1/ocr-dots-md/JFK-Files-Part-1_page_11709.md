@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11709.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, Foreign Division T
 Chief of Station, Santiago

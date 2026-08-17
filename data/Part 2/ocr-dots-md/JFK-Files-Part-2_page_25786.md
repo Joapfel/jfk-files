@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25786.png
-
-Convert to MarkdownDECEMBER : 1, 1963
+DECEMBER : 1, 1963
 
 "It is true that it was said then by other factions that the real reason for installing the missiles was because certain internal problems were driving the Russians to use us to provoke the United States. I am here to tell you that the Russians didn't want and do not today want war. One only need visit them on their home territory, watch them at work, share their economic concerns, admire their intense efforts to raise the workers' standard of living, to understand right away that they are far, very far, from any idea of provocation or domination. However, Soviet Russia was confronted by two alternatives: an absolutely inevitable war (because of their commitments and their position in the socialist world), if the Cuban revolution was attacked; or the risk of a war if the United States, refusing to retreat before the missiles, would not give up the attempt to destroy Cuba. They chose socialist solidarity and the risk of war.
 

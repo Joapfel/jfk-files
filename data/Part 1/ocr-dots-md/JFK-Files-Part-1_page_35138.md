@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35138.png
-
-Convert to MarkdownNOMINA
+NOMINA
 
 ANEXO "I-B"
 

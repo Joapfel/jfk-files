@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26395.png
-
-Convert to MarkdownOctober 30, 1963
+October 30, 1963
 
 TOP SECRET
 EYES ONLY FOR AMBASSADOR LODGE

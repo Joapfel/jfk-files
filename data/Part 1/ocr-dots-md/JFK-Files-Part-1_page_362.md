@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_362.png
-
-Convert to Markdown24 MAR 1978
+24 MAR 1978
 
 MEMORANDUM FOR: DDO/ISS/TP/EIS
 

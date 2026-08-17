@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11613.png
-
-Convert to Markdown6 December 1957
+6 December 1957
 
 MINCHARD: FOR: Deputy Director, PLANS
 

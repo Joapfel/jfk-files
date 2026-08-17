@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3365.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13. One time AMBIDDY/1, Iden B and source had a meeting and discussed who should be the pilot of his private aircraft. Iden B proposed a pilot named ALEXANDER (according to source, ALEXANDER had relations with Iden B,) but AMBIDDY/1 opposed this and complained that the PRIMEERS forced him to select the personnel.
 

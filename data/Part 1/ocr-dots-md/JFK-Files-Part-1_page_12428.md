@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12428.png
-
-Convert to Markdown- Forma
+- Forma
 
 Característica morfológica que define al diamante de talla como un:
 

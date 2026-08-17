@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10493.png
-
-Convert to Markdowndesigned to pick up high quality audio of typing
+designed to pick up high quality audio of typing
 in the office. It was hoped to break these audio
 signals into clear text using advanced computer
 techniques developed by Division D. No useful

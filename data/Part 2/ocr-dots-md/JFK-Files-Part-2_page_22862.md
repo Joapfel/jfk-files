@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22862.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 connection with Cuba, the preparation of a contingency plan in connection with the possible removal of Castro from the Cuban scene, and an updating of the overall plan for covert operations".
 

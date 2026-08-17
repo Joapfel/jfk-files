@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30832.png
-
-Convert to Markdown<table><thead><tr><th>OFFICE</th><th>TYPE</th><th>DATE</th></tr></thead><tbody><tr><td>C/WH/1</td><td>5 May 71</td><td>Ralph Shatling</td></tr><tr><td>WU/NOC</td><td>S May 71</td><td>Ralph Shatling</td></tr></tbody></table>
+<table><thead><tr><th>OFFICE</th><th>TYPE</th><th>DATE</th></tr></thead><tbody><tr><td>C/WH/1</td><td>5 May 71</td><td>Ralph Shatling</td></tr><tr><td>WU/NOC</td><td>S May 71</td><td>Ralph Shatling</td></tr></tbody></table>
 
 <table><tr><td rowspan="2">C/WH/SS</td><td colspan="3"></td><td rowspan="2">Richard D. Wright</td></tr><tr><td>DATE</td><td>C/C WHT/SS</td><td>DATE</td></tr></table>
 

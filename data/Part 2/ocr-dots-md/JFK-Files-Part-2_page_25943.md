@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25943.png
-
-Convert to MarkdownThe CHAIRMAN. What period is covered by the 23 gangland slayings that you make reference to?
+The CHAIRMAN. What period is covered by the 23 gangland slayings that you make reference to?
 
 Mr. BROWN. From 1928 through the present day.
 

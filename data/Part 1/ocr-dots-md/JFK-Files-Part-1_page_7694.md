@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7694.png
-
-Convert to Markdown31). (Dr.) Yury N. IUTLER (P-1573), dentist, Soviet contact, Communist sympathizer.
+31). (Dr.) Yury N. IUTLER (P-1573), dentist, Soviet contact, Communist sympathizer.
 
 In Apr 1966 Subject was reported making a dental appointment with the tourist agency representative, KUTTLER (1). In Apr 1967 when Miriam AVILA Katz, was trying to get a visa for KUTTLER, Subject spoke scathingly of him and said he would not give him a visa unless he fulfilled all the requirements (1). Subject explained that he had once gone to KUTTLER to have some dental work done and that KUTTLER had charged him too much, and that this was why he did not want to issue him the visa (26).
 

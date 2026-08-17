@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8711.png
-
-Convert to Markdown11.02
+11.02
 
 11.02.01 Es una persona a quien usted nunca ha visto bromear con otro. Frecuentemente ha visto bromear con otro. No se puede imaginar que broncea con otro. Considera normal en cuanto a gustarle bromear.
 

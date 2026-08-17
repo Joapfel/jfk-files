@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11228.png
-
-Convert to MarkdownIII. COMMUNIST PENETRATION AND INFLUENCE IN FACIAL AND OTHER ORGANIZATIONS
+III. COMMUNIST PENETRATION AND INFLUENCE IN FACIAL AND OTHER ORGANIZATIONS
 
 Field offices should set out information concerning only the local branches of the organizations which are in its territory.
 

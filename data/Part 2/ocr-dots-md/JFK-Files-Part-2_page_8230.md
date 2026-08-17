@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8230.png
-
-Convert to Markdown1934 MAY 71 CITE
+1934 MAY 71 CITE
 
 HEAD QUARTERS
 

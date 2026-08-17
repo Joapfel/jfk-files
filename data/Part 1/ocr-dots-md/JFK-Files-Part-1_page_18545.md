@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18545.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">SECTION 12. CHRONOLOGICAL HISTORY OF EMPLOYMENT (CONTINUED FROM PAGE 5)</td>
    </tr>

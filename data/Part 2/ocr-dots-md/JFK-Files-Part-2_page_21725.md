@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21725.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 gsh 56
 

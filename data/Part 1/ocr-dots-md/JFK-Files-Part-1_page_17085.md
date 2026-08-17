@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17085.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Embassy, some of whom are U. S. citizens. During the past year, several of these U. S. citizens were identified with the help of the photos (which were passed to the FBI). Furthermore, the movements and habits of the Soviets are studied, and more knowledge is acquired on their friends and associates, especially Mexican nationals. This information is useful in target studies. For example, the senior TASS representative, a known KGB officer, is a recruitment target. He is under intensive operational scrutiny for leads developed from knowledge of his activities and contacts. LIEMPTY support is an integral part of this current developmental activity.
 

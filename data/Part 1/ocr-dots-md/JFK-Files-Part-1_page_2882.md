@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2882.png
-
-Convert to Markdown(Seventh Department - January 1962-1964)
+(Seventh Department - January 1962-1964)
 
 Comment: (Continued)
 

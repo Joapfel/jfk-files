@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21552.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 your possession, that might give you a more accurate timing than I am giving to you now.
 

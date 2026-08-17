@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7945.png
-
-Convert to MarkdownFRIDAY
+FRIDAY
 29
 
 APR. 1966

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29319.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 2 AUG 1971
 

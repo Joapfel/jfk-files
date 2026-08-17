@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33952.png
-
-Convert to MarkdownMinistries of the German Government.
+Ministries of the German Government.
 
 Item (c), obviously, was intended to cover particularly the question of visas for Poles now in London who had been recruited for pro-Bols work in Munich. In our talks on Thursday, Strohm had promised to facilitate the entry of these Poles, and said that if Dick would send in their names, birth dates and any other identifying information we had he would instruct the German Consul in London to issue the visas, and that general instructions would, if we wished, be sent out to the effect that possession of an employment letter from NCFE would be sufficient justification for the issuance of a visa, subject only to the security question. On that point, Strohm expressed the wish that our recruits be screened for us by CIC. We pointed out the impracticability of this.
 

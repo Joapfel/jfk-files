@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12176.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 ON 17 DEC 76
 

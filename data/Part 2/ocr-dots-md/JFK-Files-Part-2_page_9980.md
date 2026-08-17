@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9980.png
-
-Convert to Markdownappropriated for the implementation of Executive Order 10422 and this Bureau is proceeding with investigations under this Order and submitting reports to the Civil Service Commission for appropriate adjudication.
+appropriated for the implementation of Executive Order 10422 and this Bureau is proceeding with investigations under this Order and submitting reports to the Civil Service Commission for appropriate adjudication.
 
 Regarding what agencies will have investigative responsibilities abroad under this Order, as mentioned in my previous memorandum, you may wish to give consideration to, if possible, continuing the arrangements which have been perfected under Executive Order 9835.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8309.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 such as those for renting a typewriter and local transportation costs, give him a net return from this work of about zero drachmae. In addition to his money pay, however, the Greek Government provides him with quarters in a run-down hotel in New Phaleron and it pays him 2800 drachmae per day subsistence. (Generally, a refugee is not entitled to subsistence money if he has any employment - whatsoever.)
 

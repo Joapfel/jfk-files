@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7537.png
-
-Convert to MarkdownNAME: Harold R. Isaacson
+NAME: Harold R. Isaacson
 
 ADDRESS (last known - '48): 653 Central Park West, N.Y.C.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21420.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9/17/70
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25250.png
-
-Convert to Markdown<table><thead><tr><td colspan="2">Mstrbutions</td></tr></thead><tbody><tr><td colspan="2">Y - Mexico City</td></tr><tr><td>1 - II</td><td rowspan="4"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>SR/10</td><td>Frank Levy (In Draft)</td></tr><tr><td>Vet / Oct</td><td></td></tr><tr><td>CAB</td><td>J. C. King</td></tr></tbody></table></td></tr><tr><td>1 - W/Regist</td></tr><tr><td>1 - W/3/Mexico/Guerra</td></tr><tr><td>1 - S/10</td></tr></tbody></table></td></tr></tbody></table>
+<table><thead><tr><td colspan="2">Mstrbutions</td></tr></thead><tbody><tr><td colspan="2">Y - Mexico City</td></tr><tr><td>1 - II</td><td rowspan="4"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>SR/10</td><td>Frank Levy (In Draft)</td></tr><tr><td>Vet / Oct</td><td></td></tr><tr><td>CAB</td><td>J. C. King</td></tr></tbody></table></td></tr><tr><td>1 - W/Regist</td></tr><tr><td>1 - W/3/Mexico/Guerra</td></tr><tr><td>1 - S/10</td></tr></tbody></table></td></tr></tbody></table>
 
 COSTING
 

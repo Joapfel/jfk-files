@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21965.png
-
-Convert to MarkdownA. September
+A. September
 
 September 18
 

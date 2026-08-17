@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12791.png
-
-Convert to Markdown<table><thead><tr><td colspan="2">ADVANCE COPY ISSUED/LOTTERED</td><td>BY</td><td>AT</td><td></td><td colspan="2">AGENCY MESSAGE</td></tr></thead><tbody><tr><td>ACTION UNIT</td><td>I</td><td>RF.</td><td>FILE</td><td>. VR.</td><td>1</td><td>4</td></tr><tr><td rowspan="3">ACTION #</td><td>N</td><td></td><td></td><td></td><td>2</td><td>3</td></tr><tr><td>F</td><td></td><td></td><td></td><td>3</td><td>6</td></tr><tr><td>O</td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><td colspan="2">ADVANCE COPY ISSUED/LOTTERED</td><td>BY</td><td>AT</td><td></td><td colspan="2">AGENCY MESSAGE</td></tr></thead><tbody><tr><td>ACTION UNIT</td><td>I</td><td>RF.</td><td>FILE</td><td>. VR.</td><td>1</td><td>4</td></tr><tr><td rowspan="3">ACTION #</td><td>N</td><td></td><td></td><td></td><td>2</td><td>3</td></tr><tr><td>F</td><td></td><td></td><td></td><td>3</td><td>6</td></tr><tr><td>O</td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 
 T 183902
 

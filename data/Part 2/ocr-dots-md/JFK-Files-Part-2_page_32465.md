@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32465.png
-
-Convert to MarkdownSECRET-NO FOREIGN DISSEM
+SECRET-NO FOREIGN DISSEM
 
 reportedly continues, the threat of retaliatory action from forces
 rallying around deposed Air Force Chief Lemus has apparently

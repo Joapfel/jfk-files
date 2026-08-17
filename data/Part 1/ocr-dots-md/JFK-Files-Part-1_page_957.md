@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_957.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td> orig : <br /> unit : A. MATTON: ja <br /> ext : SAS/EOB [ ] INDEX <br /> date : 14 DEC. 63 [X] NO INDEX <br /> </td><td style="text-align:center;"> 12-42 <br /> SECRET </td></tr></table>
 

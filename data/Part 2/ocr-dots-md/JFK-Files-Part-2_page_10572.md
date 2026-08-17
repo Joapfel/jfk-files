@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10572.png
-
-Convert to MarkdownThe Statutes covering such matters are Title 18, Section 2383 (Rebellion and Insurrection), Title 18, Section 2384 (Seditious Conspiracy), and Title 18, Section 2385 (Smith Act - Advocating overthrow of Government by force).
+The Statutes covering such matters are Title 18, Section 2383 (Rebellion and Insurrection), Title 18, Section 2384 (Seditious Conspiracy), and Title 18, Section 2385 (Smith Act - Advocating overthrow of Government by force).
 
 ## Oral or Written Contact
 

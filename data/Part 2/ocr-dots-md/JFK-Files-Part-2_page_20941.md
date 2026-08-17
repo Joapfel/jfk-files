@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20941.png
-
-Convert to MarkdownWFO 100-55290
+WFO 100-55290
 
 For these reasons, the toll records for the "Furies" telephone 202-544-7613, were obtained from the last five month period.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13344.png
-
-Convert to MarkdownOLSEN: Did anybody ever contact you then who was higher in the company?
+OLSEN: Did anybody ever contact you then who was higher in the company?
 
 STURGIS: No, sir. No one, but I still maintained my friendship with Barker throughout these years.
 

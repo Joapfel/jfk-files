@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21088.png
-
-Convert to Markdown**Memo to Mr. Belmont**
+**Memo to Mr. Belmont**
 
 **Re:**
 * Central Intelligence Agency

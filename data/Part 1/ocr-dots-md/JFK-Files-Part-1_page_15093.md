@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15093.png
-
-Convert to Markdown-10-
+-10-
 
 ## 21. HISTORY OF ARRESTS:
 

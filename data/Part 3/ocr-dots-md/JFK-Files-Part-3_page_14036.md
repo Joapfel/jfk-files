@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14036.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 | ITEM | TIME | SUBJECT |
 |---|---|---|

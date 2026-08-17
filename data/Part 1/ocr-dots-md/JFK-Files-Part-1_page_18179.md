@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18179.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">013<br/>DATE : 22 SEP 60</td>
     <td colspan="2">CLASSIFIED MESSAGE</td>

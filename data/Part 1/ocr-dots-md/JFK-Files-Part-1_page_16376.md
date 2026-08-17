@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16376.png
-
-Convert to Markdownat the time indicate that this procedure would be
+at the time indicate that this procedure would be
 most likely to be a success.
 
 E. Without waiting for the outcome of effort to recruit the four individuals described above, [the Guatemalan government] should bend every effort to locate all those individuals (possibly as many as 200) who have received guerrilla warfare training in Cuba, and to arrest them. Maximum publicity should be given to the arrests once they have been questioned. Hopefully declarations will be made by some of them which will assist in effective propaganda use of their arrest and their involvement in subversion on behalf of the Castro government. They should be interviewed separately and, if possible, some with greater potential should be doubled so that they may serve to keep us informed of plans for subversion in the future.

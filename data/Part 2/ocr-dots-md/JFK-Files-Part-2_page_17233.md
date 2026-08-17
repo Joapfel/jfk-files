@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17233.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Re: Donnette Verlina Brewer
 

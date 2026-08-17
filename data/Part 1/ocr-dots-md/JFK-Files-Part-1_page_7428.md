@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7428.png
-
-Convert to Markdown13 October 1965
+13 October 1965
 
 Chief, Western Europe Division
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15753.png
-
-Convert to MarkdownDate: 1/15/70
+Date: 1/15/70
 
 Mr. ED SCOTCH, General Manager, WCIU-TV,
 Channel 26, Room 1207, 141 West Jackson, Chicago,

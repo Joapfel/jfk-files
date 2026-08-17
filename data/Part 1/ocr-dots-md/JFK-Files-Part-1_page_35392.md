@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35392.png
-
-Convert to Markdown(CRC). I have seven, to work with you, with me, with the people who are going to carry out the activities, with the people that I designate. Nothing of that is being done. Then what they want is to work alone."
+(CRC). I have seven, to work with you, with me, with the people who are going to carry out the activities, with the people that I designate. Nothing of that is being done. Then what they want is to work alone."
 
 "I will not continue. I will not continue from the time I return to Miami. I have gone on for five months, struggling. I cannot accept this situation. I have tried to pull together those groups as asked in the White House. I haven't succeeded in grouping any more, because - I want to speak clearly in order to remain good friends always - because you have prevented it. The students haven't joined, not because of no political reason, but merely because you support them directly. Presumably the idea is that in this way the security of this nation is better safeguarded. A Consejo was desired to serve as the coordinating group and to provide a means by which the United States would not appear to be intervening in Cuba. If there is to be a Consejo, it must have all the dignity of a Council."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_155.png
-
-Convert to Markdown14-00000
+14-00000
 
 I worked in the Vietnam and my superior and the National Police of Vietnam appreciated my work. The Vietnamese government awarded me with the rose award of the National Police Medal of Honor. I felt grateful through that my work was found meaningful although I could not maintain it.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11110.png
-
-Convert to MarkdownIV. [Delegated]
+IV. [Delegated]
 
 (e) General
 

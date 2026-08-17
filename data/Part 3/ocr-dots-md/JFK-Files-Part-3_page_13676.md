@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13676.png
-
-Convert to Markdown760011110023
+760011110023
 
 410 First Street, S.E., Washington, D.C. 20003
 

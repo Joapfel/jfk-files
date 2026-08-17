@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12586.png
-
-Convert to MarkdownAMCLEVE-15 $335.00
+AMCLEVE-15 $335.00
 
 Subject provided information on the following
 subjects: (a) the GOV "pacification program" and

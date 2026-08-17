@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23644.png
-
-Convert to Markdownintelligence. But then it uses the word guidance. That is that
+intelligence. But then it uses the word guidance. That is that
 the DCI will provide guidance on the relationship between the
 two and that is ambiguous to us and so we wanted to make sure
 that the DCI would be able to look at the whole but not have

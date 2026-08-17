@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4722.png
-
-Convert to MarkdownSECRET
+SECRET
 
 God's sakes, hit them again." He said, "Oh no, you can't do that." "What do
 you mean you can't do that? Send another message. What the hell, it doesn't

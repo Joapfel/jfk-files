@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13130.png
-
-Convert to MarkdownThe following is a summary of a five page report, dated 7/19/74, furnished by Mary Jo Cook, former FBI informant.
+The following is a summary of a five page report, dated 7/19/74, furnished by Mary Jo Cook, former FBI informant.
 
 A meeting of the National Defense Committee of the VVAW/WSO was held on 6/7-9/74 at St. Louis, Missouri. Eleven identified individuals attended.
 

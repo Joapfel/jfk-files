@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22255.png
-
-Convert to Markdownaware, as Soviet Bloc counterintelligence guidance demonstrates,
+aware, as Soviet Bloc counterintelligence guidance demonstrates,
 of the dangers inherent in having disinformation recognized as
 such.) The meetings in Geneva in May 1962 would have made it
 clear to the KGB that CIA had no intentions of meeting BELITSKIY

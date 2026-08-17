@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17705.png
-
-Convert to Markdownair is passed from the auditorium to the air handling equipment on the roof. These registers are solidly bolted into the walls.
+air is passed from the auditorium to the air handling equipment on the roof. These registers are solidly bolted into the walls.
 
 The front of the auditorium (south wall) is covered by a large movie screen. To the right and left of the movie screen are two rooms 6' wide and approximately 15' long used by the research section clerical personnel. These rooms have countertop openings approximately 3' above the floor for access from within the auditorium. Countertop openings exist along both sidewalls for approximately three quarters of the length of the wall. The sidewalls have intercorridors on the opposite side of the countertops which have been converted into unpartitioned office space. The only reproduction machine, a xerox model 3100, is located in the west corridor. The east corridor has been converted into a compartmented information storage room and a compartmented document reading room. The Security Director indicated that he may move his office to the head of the compartmented reading room to provide a larger measure of access control to this sensitive area.
 

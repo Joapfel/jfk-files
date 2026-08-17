@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6542.png
-
-Convert to MarkdownOctober 21, 1966
+October 21, 1966
 
 HUNTER STOPS - NUMBERED
 

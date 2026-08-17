@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11230.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. FOLLOWING INITIAL ITEMS MAY BE OF INTEREST:
 

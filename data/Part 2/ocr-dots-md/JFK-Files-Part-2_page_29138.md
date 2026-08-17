@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29138.png
-
-Convert to MarkdownReference copy, JFK Collection: ESCA (RG 233)
+Reference copy, JFK Collection: ESCA (RG 233)
 
 NAME SAMUEL L PHYLLIS RUBY I.D. NO.
 OR

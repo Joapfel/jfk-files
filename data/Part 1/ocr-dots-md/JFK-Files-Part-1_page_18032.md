@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18032.png
-
-Convert to Markdown<table><tr><td rowspan="4">Murray:md</td><td colspan="3">SECRET</td></tr><tr><td>1</td><td>2</td><td>3</td></tr><tr><td colspan="3"></td></tr><tr><td>5</td><td>6</td><td>7</td></tr></table>
+<table><tr><td rowspan="4">Murray:md</td><td colspan="3">SECRET</td></tr><tr><td>1</td><td>2</td><td>3</td></tr><tr><td colspan="3"></td></tr><tr><td>5</td><td>6</td><td>7</td></tr></table>
 
 SECRET
 

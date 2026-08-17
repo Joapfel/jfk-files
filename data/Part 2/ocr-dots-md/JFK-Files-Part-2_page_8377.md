@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8377.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Jourdan
 Chief, Emission Control

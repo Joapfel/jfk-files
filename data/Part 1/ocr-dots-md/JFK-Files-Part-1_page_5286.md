@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5286.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>TRANSMITT<br/>OF<br/>TDCS INFORMATION REPORT</td>
     <td colspan="4">131 : E.CRET<br/>Oct 9 21 5 8-6!</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27186.png
-
-Convert to Markdown# S-M Files
+# S-M Files
 
 ## Interviews (Cont.)
 

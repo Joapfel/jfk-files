@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_667.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>INDEX ☐ YES ☑ NO</th><th rowspan="2">CLASSIFIED MESSAGE B TOTAL COPIES</th><th rowspan="3" style="writing-mode: vertical-rl; text-orientation: mixed;">SECRET<br/>GROUP I<br/>ASSIGNED FROM ATTACHMENT<br/>OF RECIPIENT LIST<br/>INCLUSION INDICATED BY CIRCLE IN FIRST COLUMN</th></tr><tr><td>X-REF TO FILE NO. 201-7983C</td></tr><tr><td>FILE ID ☐ RET. TO BRANCH ☒</td><td rowspan="5" style="vertical-align: top;"><table border="1"><tbody><tr><td colspan="2">PERSON/UNIT NOTIFIED</td></tr><tr><td>I am</td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr></tbody></table></td></tr><tr><td>DESTROY ☐ SIG.</td><td rowspan="6" style="vertical-align: top;"><table border="1"><tbody><tr><td>FROM<br/>Dissemination By What</td><td>1</td><td>5</td></tr><tr><td>ACTION<br/>C/WH-6</td><td>2</td><td>6</td></tr><tr><td>ADVANCE COPY</td><td>3</td><td>7</td></tr><tr><td>RID COPY</td><td>4</td><td>8</td></tr><tr><td>ISSUED</td><td>☐</td><td>☐</td></tr><tr><td>EOTTED</td><td>☐</td><td>☐</td></tr><tr><td>TIME</td><td></td><td></td></tr><tr><td>BY</td><td></td><td></td></tr></tbody></table></td></tr><tr><td>INFO</td></tr><tr><td>FILE, VR, DC/WH/C-5, c/cf, c/fi-2</td></tr></thead><tfoot><tr><td colspan="3">MELI<br/>SECRET 270105Z CITE MEXICO/CITY 7457 (EASBY ACTING)<br/>DIRECTOR INFO JMWAVE<br/>KAPOK PBRUMEN LIRING<br/>REF: MEXICO CITY 7454(W 24660)</td></tr></tfoot></table>
 

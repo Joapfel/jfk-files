@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_805.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CLASSIFICATION</td></tr><tr><td>DISPATCH SYMBOL AND NUMBER</td></tr><tr><td colspan="2">SECRET/TRY BAT</td></tr><tr><td colspan="2">OEPA-1058</td></tr></table>
 

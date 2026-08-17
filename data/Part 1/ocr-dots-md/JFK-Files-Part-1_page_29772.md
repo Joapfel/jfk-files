@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29772.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>1. ARE YOU REGISTERED FOR THE DRAFT OFFICE? (Yes/No)</td>

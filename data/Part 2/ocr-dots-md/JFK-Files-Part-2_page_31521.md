@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31521.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 LAS/sea
 
 On December 3, 1965, Subject took part in another demonstration sponsored by the VDC which was held in protest of U. S. intervention in Vietnam by picketing the Fairmont Hotel, San Francisco, when Vice President HUMPREY was registered there on that day as a guest.

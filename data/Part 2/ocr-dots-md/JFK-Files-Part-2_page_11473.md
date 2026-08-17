@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11473.png
-
-Convert to MarkdownII. Race
+II. Race
 
 <table><tr><td>White and Caucasian</td><td>W</td></tr><tr><td>Negro</td><td>N</td></tr><tr><td>Chinese</td><td>C</td></tr><tr><td>Others (All others including Orientals (except Chinese), American Indians, etc.)</td><td>O</td></tr></table>
 

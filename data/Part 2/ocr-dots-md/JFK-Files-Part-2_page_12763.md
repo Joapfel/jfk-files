@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12763.png
-
-Convert to Markdownv. Persons active in the Communist Party or other organization underground apparatus
+v. Persons active in the Communist Party or other organization underground apparatus
 
 vi. Any other security index subject whose activities, past or present, regardless of membership in a revolutionary organization, clearly and unmistakably depict the individual as a potential saboteur, espionage agent, or disruptionist in the event of an emergency
 

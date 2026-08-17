@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23775.png
-
-Convert to Markdown1 whole two hours and a half.
+1 whole two hours and a half.
 
 2 (Whereupon, at 5.00 p.m.. the hearing in the above
 

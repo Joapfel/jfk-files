@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21049.png
-
-Convert to Markdown**DIRECTORATE OF**
+**DIRECTORATE OF**
 **OPERATIONS**
 
 INTELUIGENCE INFORMATION CABLE

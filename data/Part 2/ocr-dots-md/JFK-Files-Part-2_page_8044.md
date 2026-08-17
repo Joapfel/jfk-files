@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8044.png
-
-Convert to Markdown13-00000
+13-00000
 
 "Das Teufliche Spiel um den Kennedy-Mord. Der Trick des Weltkongresses Purchachaut und Mlangfucht." Schlesische Rundschau, 15, no. 49 (1963), 1, 3.
 "This is a Great Nation." Economist, 30 November 1963, pp. 901-902.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6871.png
-
-Convert to Markdownand the circumstances surrounding the creation of records. It is important that an agency with supervisory responsibility over declassification have the authority to obtain the information it needs to accomplish its work.
+and the circumstances surrounding the creation of records. It is important that an agency with supervisory responsibility over declassification have the authority to obtain the information it needs to accomplish its work.
 
 *Third,* as with the referral process, a frequent bottleneck in the declassification process is the final transfer of records from the declassifying agency to the National Archives. An independent entity responsible for supervising this process should have the authority and responsibility of guaranteeing that once the declassification process is complete, the final step of making records available to the public is taken.
 

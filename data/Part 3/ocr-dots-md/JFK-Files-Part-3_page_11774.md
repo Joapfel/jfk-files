@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11774.png
-
-Convert to MarkdownMemorandum to Mr. Tolson
+Memorandum to Mr. Tolson
 
 Re: Proposed Transfer of Supervisory Responsibility for Certain Cases from General Investigative Division to Domestic Intelligence Division
 

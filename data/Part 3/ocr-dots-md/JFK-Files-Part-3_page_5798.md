@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5798.png
-
-Convert to MarkdownSAC, San Francisco (157-459)
+SAC, San Francisco (157-459)
 
 5-18-67
 

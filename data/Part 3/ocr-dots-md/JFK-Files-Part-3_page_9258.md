@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9258.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SA BY SGC
+RE: INTERVIEW OF RETIRED FBI SA BY SGC
 
 "A. The appropriate administrative portion of such report would have so indicated.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4788.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 It was previously reported that a car bearing
 1967 Ohio license 8270GG, as well as a car bearing 1967

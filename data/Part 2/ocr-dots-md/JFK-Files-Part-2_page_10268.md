@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10268.png
-
-Convert to Markdown# ROUTING AND RECORD SHEET
+# ROUTING AND RECORD SHEET
 
 SUBJECT: (Optional)
 

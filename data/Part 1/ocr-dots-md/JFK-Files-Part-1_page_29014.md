@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29014.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 SECRET
 
 16 MAR 1983

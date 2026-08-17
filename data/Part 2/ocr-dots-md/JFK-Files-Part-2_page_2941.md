@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2941.png
-
-Convert to MarkdownSECRET
+SECRET
 
 27 December 1961 General Cabell announces retirement effective 31 January 1962.
 

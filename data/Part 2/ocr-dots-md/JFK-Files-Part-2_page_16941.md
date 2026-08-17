@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16941.png
-
-Convert to Markdown10/15/69
+10/15/69
 
 BEVELINA POWELL
 POWELL resides at 6819 East End Avenue.

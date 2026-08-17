@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34088.png
-
-Convert to Markdowndamaged, 3 warehouses were damaged in 'Regional' PR-2.
+damaged, 3 warehouses were damaged in 'Regional' PR-2.
 
 **Havana Province:** Many houses were completely under water, crops and farm land were flooded.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21236.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 business trip of four weeks to Italy, Germany, the Soviet Union and England. A subsequent passport application filed by [WILL BURTIN] indicated that he was in Moscow from May 20-29, 1961, for "USIA." Inquiry at USIA disclosed that [WILL BURTIN] was given a contract on April 13, 1961, to design, produce and install the exhibit, "[Medicine, USA]" in the Soviet Union. He was instructed, however, on October 20, 1961, to stop work on the exhibit and travel expenses of $1600 submitted by him were disallowed.
 

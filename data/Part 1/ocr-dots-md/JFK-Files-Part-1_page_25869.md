@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25869.png
-
-Convert to MarkdownTORGOV, LC's o June, 1932 Vitebsk, USSR, Head of Lab- oratory, Computer Centre, Academy of Sciences, Moscow, was a visiting professor in Toronto and Ottawa, Canada, for four months - November 1974 to February 1975.
+TORGOV, LC's o June, 1932 Vitebsk, USSR, Head of Lab- oratory, Computer Centre, Academy of Sciences, Moscow, was a visiting professor in Toronto and Ottawa, Canada, for four months - November 1974 to February 1975.
 
 A number of sources were impressed by TORGOV's frankness and his willingness to speak out, at social gatherings, on current problem areas in the Soviet system. For example he discussed dissidents in Soviet society and commented on one occasion that present day Soviet society allowed for far greater freedom of expression than had been allowed previously. He said that things were being said in Moscow that one would never have heard in Stalin's era. Nevertheless, TORGOV argued that a return to "terror tactics" under Soviet rule was always possible. He considered that such tactics were unlikely at this time because of the personal philosophy of Premier Leonid BRESHNEV.
 

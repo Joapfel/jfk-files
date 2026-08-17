@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13448.png
-
-Convert to MarkdownP. I. FGA 2452/05
+P. I. FGA 2452/05
 
 (P. I. Pico, "Fotografía" (cont.))
 

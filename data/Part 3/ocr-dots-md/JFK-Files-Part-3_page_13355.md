@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13355.png
-
-Convert to MarkdownSTURGIS: In New Orleans, No, sir.
+STURGIS: In New Orleans, No, sir.
 
 OLSEN: Have you ever been to New Orleans?
 

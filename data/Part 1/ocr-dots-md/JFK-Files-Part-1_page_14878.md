@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14878.png
-
-Convert to MarkdownThe Subject feels that throughout his school experience, perhaps only one or two teachers really understood him. He regarded the others as apparently idiotic or worthless. These particular teachers taught him that it was often necessary in life "to swallow a great deal of useless "stuff" so that thereafter, certain essentials could be more easily digested." This is another helpful hint as regards the trainers who may be assigned to the Subject.
+The Subject feels that throughout his school experience, perhaps only one or two teachers really understood him. He regarded the others as apparently idiotic or worthless. These particular teachers taught him that it was often necessary in life "to swallow a great deal of useless "stuff" so that thereafter, certain essentials could be more easily digested." This is another helpful hint as regards the trainers who may be assigned to the Subject.
 
 Subject feels that, apart from his academic progress at school, he learned that it was necessary to communicate, to express himself, to understand and explain. He feels that these are necessary skills in society and he relies quite heavily upon his verbal intelligence. It is likely that he would relate well with a person who exhibited superior wisdom and expressive ability. It is also likely that he would relate poorly to an inarticulate person of lower intelligence.
 

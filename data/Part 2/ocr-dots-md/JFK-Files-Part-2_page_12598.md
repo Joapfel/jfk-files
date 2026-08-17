@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12598.png
-
-Convert to Markdown(2) Leadership or activist position in affiliated fronts of revolutionary organizations within the last three years as shown by overt acts or statements established through reliable sources, informants, or individuals.
+(2) Leadership or activist position in affiliated fronts of revolutionary organizations within the last three years as shown by overt acts or statements established through reliable sources, informants, or individuals.
 
 (3) An individual who, although not a member of or participant in activities of revolutionary organizations or considered an activist in affiliated fronts, has exhibited a revolutionary ideology and is likely to seize upon the opportunity presented by national emergency to commit acts of espionage. or sabotage, including acts of terrorism, assassination, or any interference with or threat to the survival and effective operation of national state, and local governments and of the defense efforts.
 

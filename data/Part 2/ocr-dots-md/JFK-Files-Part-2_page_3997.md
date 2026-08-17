@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3997.png
-
-Convert to MarkdownSECRET
+SECRET
 
 e. That police and credit checks be made on SLOSS in the Washington, D.C. area; Baltimore, Maryland; New York City; Cleveland, Ohio; Chicago and El Paso, Texas.
 

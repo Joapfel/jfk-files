@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_140.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A/I claims he did not want to be associated with her while his political position is still under investigation and further, he did not want his wife to find any feminine references on his person when she arrived. He has not seen Miss COBB again.
 

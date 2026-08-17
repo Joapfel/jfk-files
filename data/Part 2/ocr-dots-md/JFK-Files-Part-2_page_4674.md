@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4674.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the clandestine operator enough so that pretty soon the clandestine operator
 was captive of the analyst and would be doing his research for him. And we

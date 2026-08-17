@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23936.png
-
-Convert to Markdownhave asked us for a few sandwiches, hardly more, and we are not prepared to make them available. Last week we were asked to furnish three or four pineapples for a party in the near future, but I could remember nothing in my instructions that would have allowed me to contribute this ingredient. Don't think I wasn't tempted. I have rather specific guidelines to the effect that salad ingredients will be delivered outside the picnic grounds and will be brought to the area by another club.
+have asked us for a few sandwiches, hardly more, and we are not prepared to make them available. Last week we were asked to furnish three or four pineapples for a party in the near future, but I could remember nothing in my instructions that would have allowed me to contribute this ingredient. Don't think I wasn't tempted. I have rather specific guidelines to the effect that salad ingredients will be delivered outside the picnic grounds and will be brought to the area by another club.
 
 (Dearborn letter to Devine, 3/16/61)
 

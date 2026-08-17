@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12084.png
-
-Convert to Markdown[107M - N SECTION 107. SECURITY INFORMANTS[AND CONFIDENTIAL SOURCES]
+[107M - N SECTION 107. SECURITY INFORMANTS[AND CONFIDENTIAL SOURCES]
 
 document in the pertinent informant file and is not to be serialized.
 [ [If a particular section of this form is not applicable, such should be

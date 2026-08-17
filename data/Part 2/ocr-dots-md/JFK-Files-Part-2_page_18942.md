@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18942.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LIN also stated that Jaffe should include in his letter the fact that he would be willing to leave his United States Passport in Hong Kong and when Jaffe indicated to LIN that he did not think that would be necessary, LIN stated that maybe "they would not want you to come into China with a U.S. Passport." - S-
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24317.png
-
-Convert to Markdown(4) If the proposal includes deactivation of any project instrumentality, together with a disposition of a portion of its assets, the memorandum will set forth, in an attachment, information concerning planned disposition, after settlement of obligations, of cash and noncash assets of the instrumentality. The plan for partial disposition of assets requires the same approvals as a liquidation plan.
+(4) If the proposal includes deactivation of any project instrumentality, together with a disposition of a portion of its assets, the memorandum will set forth, in an attachment, information concerning planned disposition, after settlement of obligations, of cash and noncash assets of the instrumentality. The plan for partial disposition of assets requires the same approvals as a liquidation plan.
 
 5. CONTINGENCY CASUALTY PLAN
 

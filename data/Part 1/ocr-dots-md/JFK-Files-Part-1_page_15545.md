@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15545.png
-
-Convert to MarkdownA. Air Force will pay no分 fee of 1% each month on total earnings of employees. It was agreed that individual salaries would be averaged at $650.00 each. This payment to be made on the first of each month by transfer to the Sky bank.
+A. Air Force will pay no分 fee of 1% each month on total earnings of employees. It was agreed that individual salaries would be averaged at $650.00 each. This payment to be made on the first of each month by transfer to the Sky bank.
 
 G. We obtain insurance in amount of Sterling 3500 for each employee and Air Force pay the actual cost.
 

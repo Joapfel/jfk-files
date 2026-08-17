@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4654.png
-
-Convert to Markdown**FBI DOCUMENTS**
+**FBI DOCUMENTS**
 
 DATE: 20 JUNE 1974
 CLASSIFICATION: AIUO

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14457.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMO TO: MR. BOARDMAN
 RE: COVERAGE OF MAIL TO THE U.S.S.R.

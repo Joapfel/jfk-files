@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9907.png
-
-Convert to MarkdownThis proposed use of sanitization as a special arrangement,
+This proposed use of sanitization as a special arrangement,
 
 to protect selected issues contained in material provided to Select
 

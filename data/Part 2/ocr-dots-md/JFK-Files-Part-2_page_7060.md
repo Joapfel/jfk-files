@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7060.png
-
-Convert to Markdownto the public may be postponed subject to the limitations of this Act if [agencies provide] clear and convincing evidence that [the harm from disclosure outweighs the public interest in release.]
+to the public may be postponed subject to the limitations of this Act if [agencies provide] clear and convincing evidence that [the harm from disclosure outweighs the public interest in release.]
 
 a. Review Board guidelines. For each recom- mended postponement, the JFK Act requires an agency to submit "clear and convincing evidence" that one of the specified grounds for postponement exists.²⁵ The Review Board required agencies to submit specific facts in support of each postponement, according to the Review Board's guidelines for each post- ponement type.
 

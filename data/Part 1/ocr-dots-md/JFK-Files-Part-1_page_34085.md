@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34085.png
-
-Convert to MarkdownIn the Yara region the coffee crop was 50% destroyed; the coffee beans had been ready for harvest and therefore easily shaken off by wind. In Buoy Arriba, 'Regional' Cauto-Bayamo-Jiguani, 500 women picked up about 10,000 full-cans of coffee.
+In the Yara region the coffee crop was 50% destroyed; the coffee beans had been ready for harvest and therefore easily shaken off by wind. In Buoy Arriba, 'Regional' Cauto-Bayamo-Jiguani, 500 women picked up about 10,000 full-cans of coffee.
 
 ## FRUIT
 

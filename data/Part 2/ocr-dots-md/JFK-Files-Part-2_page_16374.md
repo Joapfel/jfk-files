@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16374.png
-
-Convert to MarkdownThe following six pages sets forth copies of materials obtained at Chicago BPP headquarters on June 4, 1969. All materials were available in sufficient quantities to suggest likelihood of distribution. Materials described as follows:
+The following six pages sets forth copies of materials obtained at Chicago BPP headquarters on June 4, 1969. All materials were available in sufficient quantities to suggest likelihood of distribution. Materials described as follows:
 
 (a) "Collaborating with the Enemy." A critical attack on U.S. Government, state and local governments, as well as officials of those branches of government.
 

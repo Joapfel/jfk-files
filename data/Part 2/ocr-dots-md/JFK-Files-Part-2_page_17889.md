@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17889.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE UNIV.
 23SEP1975
 

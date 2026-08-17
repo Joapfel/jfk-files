@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24321.png
-
-Convert to MarkdownPLANS, PROC, IS, AND PROJECTS
+PLANS, PROC, IS, AND PROJECTS
 
 HMB 230-1
 7h(1)

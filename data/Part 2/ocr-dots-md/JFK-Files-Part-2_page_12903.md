@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12903.png
-
-Convert to MarkdownRE: UNITED STATES SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+RE: UNITED STATES SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
 
 name was deleted. As previously indicated, during 1972 the ADEX was evaluated and revised. Following this revision, the number of individuals who were included on the ADEX began to decline and thus the high number of cancelled cards. In accordance with Bureau policy, which was instituted during the SI program, these cancelled cards are maintained at FBIHQ for a period of three years and there is no way to reconstruct a former SI or ADEX list for a particular time period by reviewing those cancelled cards. These cards, however, will reflect the identity of those individuals who have been placed on the SI and the ADEX for the period for which these cards were maintained.
 

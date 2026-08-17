@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31411.png
-
-Convert to Markdown14-00000
+14-00000
 
 NO. 31 1952
 

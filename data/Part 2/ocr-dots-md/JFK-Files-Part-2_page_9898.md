@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9898.png
-
-Convert to Markdownwhat, if anything, TANNENBAUM actually did in connection with his
+what, if anything, TANNENBAUM actually did in connection with his
 being admitted to the United States, as the matter, to his knowledge,
 was handled by a Czechoslovakian Refugee Committee in New York City.
 

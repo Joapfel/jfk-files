@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13237.png
-
-Convert to MarkdownAMCLEVE-15's Caracas contact Gustavo Ernesto ORITZ-Faez unsavory character who involved in political murder of anti-Communist professor at Havana University.
+AMCLEVE-15's Caracas contact Gustavo Ernesto ORITZ-Faez unsavory character who involved in political murder of anti-Communist professor at Havana University.
 
 30. RI traces were run 30 August. No derogatory information was surfaced in the RI traces. Concerning AMCLEVE"S-15 brother, Raul RI traces came up with nothing. Traces on brother Roberto, however, did not surface derogatory information.
 

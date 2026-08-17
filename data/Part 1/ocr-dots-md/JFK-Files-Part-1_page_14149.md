@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14149.png
-
-Convert to MarkdownS-F-C-R-E-T
+S-F-C-R-E-T
 
 Date 19 October 1966
 

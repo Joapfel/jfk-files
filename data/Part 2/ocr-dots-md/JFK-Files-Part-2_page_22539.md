@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_22539.png
-
 to Rep. Henry C. Shadeburg.
 
 Circa March 1967, Wiley forwarded three brochures distributed by the Canadian Loyalist Movement which were mailed to Wiley (?) by F.C. Pilkington, North Vancouver, B.C., Canada.

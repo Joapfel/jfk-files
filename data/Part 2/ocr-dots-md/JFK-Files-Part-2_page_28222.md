@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28222.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Professor G. Robert Blakey
 

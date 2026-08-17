@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10408.png
-
-Convert to Markdown2. SL
+2. SL
 
 performance in terms of the contract between them. Rowton reminded LIRING/4 that he contract had terminated as of 15 May, 1968, and could be extended only on the condition that she would be able to make the trip. He added that he felt he could pay her for the period 15 May until 15 June, 1968, but that would have to constitute a final payment unless LIRING/4 could commit herself to future production. Rowton added that in addition he would have to deduct the 1,375 pesos he gave to her as a travel advance inasmuch as this money was not used for the purpose intended.
 

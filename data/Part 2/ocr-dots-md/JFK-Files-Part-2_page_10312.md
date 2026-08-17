@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10312.png
-
-Convert to Markdown8 May 1973
+8 May 1973
 
 MEMORANDUM FOR: Director of Central Intelligence
 

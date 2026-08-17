@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29743.png
-
-Convert to MarkdownClassification: TOP SECRET
+Classification: TOP SECRET
 
 2001045
 

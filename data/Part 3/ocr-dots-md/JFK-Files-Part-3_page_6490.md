@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6490.png
-
-Convert to Markdown(1) Which group involved
+(1) Which group involved
 
 (2) Whether action taken was on initiative of individual members or with knowledge or approval of leadership
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31515.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 LAS/sea
 
 II. COMMUNIST PARTY (CP) AND RELATED ACTIVITIES

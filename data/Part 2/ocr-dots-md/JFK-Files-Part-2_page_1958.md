@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1958.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, Madrid
 

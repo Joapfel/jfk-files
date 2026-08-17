@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23404.png
-
-Convert to Markdown<table><tr><td>2</td><td></td><td>3</td><td></td><td>5</td><td></td><td>6</td><td></td></tr><tr><td>PRIORITIZATION</td><td colspan="2"></td><td>DEFERRED</td><td>Routine</td><td colspan="2"></td><td></td></tr><tr><td></td><td></td><td></td><td>PRIORITY</td><td>OPERATIONAL<br/>IMMEDIATE</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></table>
+<table><tr><td>2</td><td></td><td>3</td><td></td><td>5</td><td></td><td>6</td><td></td></tr><tr><td>PRIORITIZATION</td><td colspan="2"></td><td>DEFERRED</td><td>Routine</td><td colspan="2"></td><td></td></tr><tr><td></td><td></td><td></td><td>PRIORITY</td><td>OPERATIONAL<br/>IMMEDIATE</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></table>
 
 CIRC 218
 

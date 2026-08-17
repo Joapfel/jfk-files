@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4684.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in order to get assets to go abroad, and once you start that you're touching a
 very sensitive area and we all knew that. And we'll talk about that later.

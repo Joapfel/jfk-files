@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7607.png
-
-Convert to MarkdownRequest Pertaining to Electronic Surveillance
+Request Pertaining to Electronic Surveillance
 
 **NOTE:**
 

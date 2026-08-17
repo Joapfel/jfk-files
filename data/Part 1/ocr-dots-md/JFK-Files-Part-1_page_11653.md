@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11653.png
-
-Convert to MarkdownAIR
+AIR
 
 Chief, Foreign Division T
 Chief of Station, Santiago

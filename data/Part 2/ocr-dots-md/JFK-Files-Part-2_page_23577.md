@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23577.png
-
-Convert to MarkdownEYES ONLY FOR THE PRESIDENT
+EYES ONLY FOR THE PRESIDENT
 
 - 2 -
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21179.png
-
-Convert to Markdown<html><body> request for personnel action<br/> 1. Serial No.<br/> 2. Name (Last, First, Middle)<br/> 3. Date Of Birth<br/> 4. Vot Prof.<br/> 5. Sea<br/> 6. CS - L/C<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> WELCH JAMES E JR.<br/> 9. CSC Form. & No.<br/> 10. Appmt. Affidavt<br/> 11. REGL<br/> 12. LCD<br/> Mo. & Da. Yr.<br/> Yes. 1 Code<br/> Mo. & Da. Yr.<br/> Yes. 1 Code<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> 7. SCD<br/> 8. CSC Form.<br/> 9. CSC Or Other Legal Authority<br/> 13. Will Order LCD<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.</td></tr></table>
+<html><body> request for personnel action<br/> 1. Serial No.<br/> 2. Name (Last, First, Middle)<br/> 3. Date Of Birth<br/> 4. Vot Prof.<br/> 5. Sea<br/> 6. CS - L/C<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> WELCH JAMES E JR.<br/> 9. CSC Form. & No.<br/> 10. Appmt. Affidavt<br/> 11. REGL<br/> 12. LCD<br/> Mo. & Da. Yr.<br/> Yes. 1 Code<br/> Mo. & Da. Yr.<br/> Yes. 1 Code<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> 7. SCD<br/> 8. CSC Form.<br/> 9. CSC Or Other Legal Authority<br/> 13. Will Order LCD<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.<br/> Mo. & Da. Yr.</td></tr></table>
 
 PREVIOUS ASSIGNMENT
 

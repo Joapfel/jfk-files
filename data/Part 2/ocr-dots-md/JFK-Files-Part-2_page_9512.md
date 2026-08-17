@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9512.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 In the issue of April 25, 1970, the BPP newspaper had an article by Minister of Culture Emory Douglas as follows:
 

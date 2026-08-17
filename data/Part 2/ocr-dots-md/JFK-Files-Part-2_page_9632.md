@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9632.png
-
-Convert to MarkdownThe type of shortcoming or long acting poisons best suited for assassination under various conditions, might be anticipated by a careful study of toxicology: from "Chemical Abstracts" and Biological Abstracts"; from current magazines on pharmacology, as well as from such magazines as "Scientific Monthly" and "Science Newsletter", all available from larger city libraries.
+The type of shortcoming or long acting poisons best suited for assassination under various conditions, might be anticipated by a careful study of toxicology: from "Chemical Abstracts" and Biological Abstracts"; from current magazines on pharmacology, as well as from such magazines as "Scientific Monthly" and "Science Newsletter", all available from larger city libraries.
 
 Information on explosives is available from ordinance journals, literature from manufacturers, technical books, mining and drilling magazines, etc.
 

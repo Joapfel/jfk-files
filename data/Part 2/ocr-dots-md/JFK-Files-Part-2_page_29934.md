@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29934.png
-
-Convert to Markdownto overturn his conviction.
+to overturn his conviction.
 
 Mr. Foster then provided the following information about Mr. Bolden and the name and addresses of Bolden's relatives. The validity of the information is not confirmed for the period after 1972.
 

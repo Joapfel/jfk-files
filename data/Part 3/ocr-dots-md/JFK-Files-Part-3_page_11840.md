@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11840.png
-
-Convert to Markdown# ADEQUACY OF PERSONNEL CLERICAL
+# ADEQUACY OF PERSONNEL CLERICAL
 
 An analysis was also made of adequacy of clerical personnel within your Division and after careful study it was determined that a reduction of 11 clerical personnel is possible. This reduction could be made through attrition. The reductions possible are graphically set forth in the chart below:
 

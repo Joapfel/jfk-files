@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33697.png
-
-Convert to MarkdownReturning home after 5 horrible years of prisons and concentration camps and torture chambers... Milada was joyously reunited with her invalided husband and grown daughter. Both had miraculously lived through the German tyranny.
+Returning home after 5 horrible years of prisons and concentration camps and torture chambers... Milada was joyously reunited with her invalided husband and grown daughter. Both had miraculously lived through the German tyranny.
 
 "I believe in freedom and equality for all. Does that 'take me astant?' A whisper tugs at such the ground standing the real Milada Horakova now has, starting up by the Corporation to the new masters & Czechoslovakia."
 

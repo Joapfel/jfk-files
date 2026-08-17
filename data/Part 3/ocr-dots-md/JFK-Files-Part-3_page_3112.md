@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3112.png
-
-Convert to MarkdownFile #:
+File #:
 
 Serial Scope:
 

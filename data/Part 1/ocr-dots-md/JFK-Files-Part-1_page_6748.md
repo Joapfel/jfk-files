@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6748.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NAME CHECK. DOCUMENT SERVICE. AND PARTIAL CONSOLIDATION REQUEST</td></tr><tr><td>RID CONTROL NO. (Filled in by RID)</td></tr><tr><td>FROM: (Requester's name) <sup>1</sup></td></tr><tr><td>Don Treese</td></tr></table>
 

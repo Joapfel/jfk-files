@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_926.png
-
-Convert to Markdownstill remain subordinate to the Attorney General, who had been charged primarily with a prosecutorial function. Codification of duties to be performed by the Attorney General as head of the Department of Justice, and the Director as head of the FBI within that Department, plus recognition that both must attempt to perform their related duties within the criminal justice system to the optimum, has led to the necessity for a substantial degree of independence on the part of the Director, balanced with a responsiveness by him to reasoned counsel, guidance, supervision and control by the Attorney General.
+still remain subordinate to the Attorney General, who had been charged primarily with a prosecutorial function. Codification of duties to be performed by the Attorney General as head of the Department of Justice, and the Director as head of the FBI within that Department, plus recognition that both must attempt to perform their related duties within the criminal justice system to the optimum, has led to the necessity for a substantial degree of independence on the part of the Director, balanced with a responsiveness by him to reasoned counsel, guidance, supervision and control by the Attorney General.
 
 ### 3. The issues raised:
 

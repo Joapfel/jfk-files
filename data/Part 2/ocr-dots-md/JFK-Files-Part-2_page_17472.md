@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17472.png
-
-Convert to MarkdownHe may enlist others to aid him in some type of retaliation.
+He may enlist others to aid him in some type of retaliation.
 
 Informant subsequently advised on 7/17/69:
 

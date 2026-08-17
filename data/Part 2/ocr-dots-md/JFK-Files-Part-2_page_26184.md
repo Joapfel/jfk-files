@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26184.png
-
-Convert to Markdownto them. So there was a mixup on a number of
+to them. So there was a mixup on a number of
 things on this coping with the insurgency
 that was growing, not only the conventional
 formation of the Vietnamese army but of a

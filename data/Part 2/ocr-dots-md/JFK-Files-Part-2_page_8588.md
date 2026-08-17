@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8588.png
-
-Convert to MarkdownTAB A
+TAB A
 
 # DELETED ITEMS IN THE MARCHETTI MANUSCRIPT
 REVIEWED BY THE DDS&T

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32038.png
-
-Convert to MarkdownCOMMITTEE
+COMMITTEE
 (when filled in)
 IOT TRAINING REPORT
 

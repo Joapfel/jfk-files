@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25325.png
-
-Convert to MarkdownCHRONOLOGICAL SKETCH - cont'd
+CHRONOLOGICAL SKETCH - cont'd
 
 1963. contact with FBI and CIA
 1968. travel and business (operation sword) Mexico and Honduras

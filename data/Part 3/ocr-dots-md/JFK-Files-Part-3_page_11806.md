@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11806.png
-
-Convert to Markdown2. SA Dean N. Lloyd is under transfer to the Division from the San Antonio Office. Transfer letter was dated 6/30/71. He has arrived in Washington and will report for assignment 8/18/71.
+2. SA Dean N. Lloyd is under transfer to the Division from the San Antonio Office. Transfer letter was dated 6/30/71. He has arrived in Washington and will report for assignment 8/18/71.
 
 Mrs. Jacqueline Kelset Elliott, Clerk GS-4, assigned to Current Intelligence Reporting Unit, resigned effective 8/24/71. Letter acknowledging resignation was dated 8/3/71.
 

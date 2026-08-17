@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4696.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In 0350612
 10F18 08-315/0258: PAGE 003 OF 003

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28320.png
-
-Convert to MarkdownSECTION C - Narrative Comments (Continued)
+SECTION C - Narrative Comments (Continued)
 
 FI, CI, PW, PM, Maritime, Air, and <u>Operations</u>. Subject is cost-conscious and effective in the use of space and equipment.
 

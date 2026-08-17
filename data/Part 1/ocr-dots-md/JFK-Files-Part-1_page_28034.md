@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28034.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filed in)
 
 DMS: 18 JUNE 73.

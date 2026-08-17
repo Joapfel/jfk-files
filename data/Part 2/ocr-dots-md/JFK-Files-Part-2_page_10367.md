@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10367.png
-
-Convert to Markdown# Further Documents Pertaining to the FBI and Department of Justice
+# Further Documents Pertaining to the FBI and Department of Justice
 ## Policies and Procedures
 
 NOTE CONTINUED:

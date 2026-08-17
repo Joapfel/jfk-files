@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19047.png
-
-Convert to MarkdownSECRET
+SECRET
 
 It is possible--although increasingly unlikely--that the NPD could turn out to resemble other parties of a national-conservative stamp. Despite the radical views of some of their members, such groups have managed to operate without subversive manifestations. The German Party (DP), for example, which had been represented in several North German state legislatures and in the Bundestag conducted itself in a responsible fashion.
 

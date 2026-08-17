@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9592.png
-
-Convert to MarkdownFederal Bureau of Investigation
+Federal Bureau of Investigation
 Office of Associate Director
 
 84 JUN 26 1975

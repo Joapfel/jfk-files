@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27830.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OFFICE OF PERSONNEL
 (when filled in)

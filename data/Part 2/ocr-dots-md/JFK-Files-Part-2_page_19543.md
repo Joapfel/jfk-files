@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19543.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 office which coordinates the activities of peace organizations. BETTY MEREDITH of Marin County, California, and formerly of Seattle, stopped at the Seattle table and reminiscent with HALONEN and ROBEL "about the old days in Seattle." ERICA NIEDER, formerly of Tacoma, Washington, and now of Cleveland, Ohio, inquired of RADER about some people in South Tacoma.
 

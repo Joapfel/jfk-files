@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23397.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 appropriate by the Chief of Station.
 

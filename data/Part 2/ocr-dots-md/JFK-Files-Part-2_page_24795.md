@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24795.png
-
-Convert to Markdownpersonal defense attendant to their projected efforts to re-
+personal defense attendant to their projected efforts to re-
 move Trujillo" could be developed by the Station. The memo-
 randum made no recommendation to approve or disapprove passage
 of these weapons.. (Id.)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7211.png
-
-Convert to Markdown# Soviet Intelligence Officers Stationed in Mexico
+# Soviet Intelligence Officers Stationed in Mexico
 
 ## 1. KGB (Committee for State Security)
 

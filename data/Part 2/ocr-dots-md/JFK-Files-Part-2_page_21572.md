@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21572.png
-
-Convert to Markdown**TOP SECRET**
+**TOP SECRET**
 
 Mr. Osborn. Not to the best of my recollection.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7047.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Moscow. Also that VASLOUCH/1 had recently been back to Finland.
 

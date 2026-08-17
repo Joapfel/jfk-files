@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21176.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 MAR '77
 

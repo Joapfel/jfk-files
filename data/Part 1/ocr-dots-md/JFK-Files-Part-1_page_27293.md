@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27293.png
-
-Convert to MarkdownUnder his supervision, the budget, program and project submissions of his Division have been effectively presented and defended before reviewing authorities.
+Under his supervision, the budget, program and project submissions of his Division have been effectively presented and defended before reviewing authorities.
 
 Innumerable crash requests for memoranda on a wide range of topics from the White House have been met promptly and satisfactorily.
 

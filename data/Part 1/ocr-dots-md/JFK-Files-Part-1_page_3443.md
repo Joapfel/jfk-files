@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3443.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>TO</td><td>: DIRECTOR</td></tr><tr><td>FROM</td><td>: ANAGOLA</td></tr><tr><td>ACTION:</td><td>: DCFW/SA 3</td></tr><tr><td>INFO</td><td>: DDP, G/WH, VR</td></tr></table>
 

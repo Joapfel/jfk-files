@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8571.png
-
-Convert to Markdown13-00000
+13-00000
 
 before was not-found. Again after only a few weeks, the second sensor device stopped working. This time the failure was attributed to a mechanical malfunction.
 

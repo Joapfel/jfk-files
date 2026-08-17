@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23060.png
-
-Convert to Markdownhospital in the world; its medical training program is excel-
+hospital in the world; its medical training program is excel-
 lent. The hospital consists of a main two-story building that
 is connected by passageways and corridors to a number of one-
 story clinics that are isolated from each other. The ground

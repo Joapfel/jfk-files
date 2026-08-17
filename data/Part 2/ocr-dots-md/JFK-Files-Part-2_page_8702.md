@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8702.png
-
-Convert to Markdown13-00000
+13-00000
 
 associated himself with the White Rose Organization through his nephew Carlos RIVERO Collada. /COMMENT: RIVERO was one of the ransomed returnees from the Bay of Pigs, December 1962. In 1974 he defected to Cuba, saying he had been a CASTRO agent and penetration of exile organizations in the U.S. all the while. / COMMENT: CONTE in 1960 was attempting to be placed in charge of anti-Cuban programs of the "Voice of the Americas." Hqs. has speculated that CONTE: Aguero might be iden/with Bernardo MORALES, recipient of a letter dated 29 November 1962 from a Jose MENENDEZ in Cuba concerning a plot to assassinate President Kennedy. See LAD/JFK Task Force folder on CONTE.
 

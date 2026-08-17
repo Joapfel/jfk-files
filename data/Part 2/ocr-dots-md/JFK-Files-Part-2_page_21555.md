@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21555.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1. night.
 2. Mr. Wides. If you associate that with Anderson, you must have been told more than just, we have an informant.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8255.png
-
-Convert to Markdown23 January 1951
+23 January 1951
 
 Chief of EE/1 requested that the attached Provisional Operational Clearance be approved for Dimitri A. DIMITROV be approved. He is to be uswd as a contract agent in Greece for political, psychological, and guerrilla warfare operations under Project QKSTAIR.
 

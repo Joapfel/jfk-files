@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7898.png
-
-Convert to Markdown30 NOV 1976
+30 NOV 1976
 
 IPS/DGV/cr/29 Nov 76
 

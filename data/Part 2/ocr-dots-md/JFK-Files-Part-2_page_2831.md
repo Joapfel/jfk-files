@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2831.png
-
-Convert to MarkdownSTANDARD FORM 64
+STANDARD FORM 64
 
 January 1972
 

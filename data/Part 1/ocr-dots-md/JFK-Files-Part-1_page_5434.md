@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5434.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">NO</td>
     <td></td> <!-- No space for the line under NO --> 

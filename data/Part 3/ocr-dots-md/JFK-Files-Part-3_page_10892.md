@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10892.png
-
-Convert to Markdown## 2. During World War II (1941 - 1945)
+## 2. During World War II (1941 - 1945)
 
 ### a. The FBI's Role
 

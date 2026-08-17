@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3248.png
-
-Convert to Markdownstandards or limitations other than the supervision of the Attorney General and oversight by Congress. In view of the Select Committee's findings as to the vast overbreadth of FBI domestic intelligence investigations and the abuses committed in the name of "counterintelligence", Congress would in effect be permitting future expansion of FBI operations to match past policies.
+standards or limitations other than the supervision of the Attorney General and oversight by Congress. In view of the Select Committee's findings as to the vast overbreadth of FBI domestic intelligence investigations and the abuses committed in the name of "counterintelligence", Congress would in effect be permitting future expansion of FBI operations to match past policies.
 
 C. Option Two -- A Separate Security Intelligence Agency
 

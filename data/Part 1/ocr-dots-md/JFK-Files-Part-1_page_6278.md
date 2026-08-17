@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6278.png
-
-Convert to Markdown14-0000
+14-0000
 
 Offices: 721 National Press Building, P. O. Box 1368 St. N.W., Washington D.C. 20004 Phone: 703-7507
 Editorial: 301 Langford Building, 121 S. Street, Miami, Fla. 33131 Phone: 373-0631.

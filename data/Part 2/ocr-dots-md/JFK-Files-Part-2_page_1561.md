@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1561.png
-
-Convert to Markdown# PERSONAL HISTORY STATEMENT
+# PERSONAL HISTORY STATEMENT
 
 **1. Answer all questions completely. If you can use a pencil, do so only if you do not know the answer or cannot find the correct response. Use the blank page at the end of this form for extra details as your question or question stem for which you do not have an answer.**
 

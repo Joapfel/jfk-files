@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30377.png
-
-Convert to MarkdownSECRET
+SECRET
 
 peasants on landing and was later turned back to him by the Soviet Commission members at Baku. Neither he nor other members of the crew were questioned about either of the briefcases, their contents, nor about the address book and its contents. We assume that the Soviets have or will process the names in the address book through their Moscow files. Some of the other crew members carried personal notations in their wallets relating to a few other CIA personnel.
 

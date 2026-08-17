@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24508.png
-
-Convert to Markdown# ¿Espías en Casa?
+# ¿Espías en Casa?
 
 Parce que los agentes extranjeros están últimamente muy activos en el Perú. Esta vez se trata de agentes de la Unión Soviética —país con el que acabamos de entablar relaciones diplomáticas— que trabajan para la K.G.B., la tristemente célebre policia secreta que alguna vez estuvo dirigida por Lavrenti Beria.
 

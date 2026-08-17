@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25918.png
-
-Convert to MarkdownJune 1963. I.G. Report reference last meeting between Roselli and Harvey -- Roselli met by Harvey at Dulles Airport -- Roselli stayed at home of friend of Harvey's -- Harvey's home closed up per overseas trip -- Harvey called by FBI having seen Roselli/Harvey at restaurant -- FBI had Roselli under surveillance -- Roselli's recollection of facts? -- Time period?
+June 1963. I.G. Report reference last meeting between Roselli and Harvey -- Roselli met by Harvey at Dulles Airport -- Roselli stayed at home of friend of Harvey's -- Harvey's home closed up per overseas trip -- Harvey called by FBI having seen Roselli/Harvey at restaurant -- FBI had Roselli under surveillance -- Roselli's recollection of facts? -- Time period?
 
 I.G. Report indicates that Maheu put in contact with Giancana for tap through Roselli -- Roselli's advance knowledge?
 

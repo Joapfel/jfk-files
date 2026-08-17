@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26704.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tbody><tr><td>ORIG.</td><td>C.R.Hallwell</td></tr><tr><td>UNIT:</td><td>WH/1</td></tr><tr><td>EXT:</td><td>4523</td></tr><tr><td>DATE:</td><td>17 May 65</td></tr></tbody></table>
 

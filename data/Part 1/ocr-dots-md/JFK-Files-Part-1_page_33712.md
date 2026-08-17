@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33712.png
-
-Convert to MarkdownCONFID. IN. - SECURITY INFO.
+CONFID. IN. - SECURITY INFO.
 
 -2-
 

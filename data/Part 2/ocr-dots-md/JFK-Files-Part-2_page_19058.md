@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19058.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 SECRET
 

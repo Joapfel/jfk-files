@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34391.png
-
-Convert to MarkdownUNIDAD REVOLUCIONARIA sent Shepherd
+UNIDAD REVOLUCIONARIA sent Shepherd
 this letter regarding the "Black List".
 
 UR

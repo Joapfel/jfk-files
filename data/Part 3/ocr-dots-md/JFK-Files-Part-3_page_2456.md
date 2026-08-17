@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2456.png
-
-Convert to MarkdownENCLOSURES TO BUREAU
+ENCLOSURES TO BUREAU
 
 SEN STUDY, 1975
 WFO-62-10744.

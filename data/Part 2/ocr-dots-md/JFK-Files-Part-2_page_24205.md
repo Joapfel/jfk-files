@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24205.png
-
-Convert to Markdownshall affect any authority of the CIA. In addition, 50 U.S.C. §
+shall affect any authority of the CIA. In addition, 50 U.S.C. §
 403(d)(5) provides that the Director of Central Intelligence is
 responsible for protecting intelligence sources and methods from
 unauthorized disclosure. It was determined that sale of SAT stock

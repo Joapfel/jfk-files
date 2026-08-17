@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9647.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 FBI and a Judge GUBOW in Michigan. DRAGER presently in custody Mercer County Jail with local and federal detainers lodged against him. Descriptive data set forth.
 

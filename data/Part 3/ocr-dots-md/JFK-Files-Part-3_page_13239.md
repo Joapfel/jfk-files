@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13239.png
-
-Convert to MarkdownAnother file examined was entitled "ZRRIFLE Administrative/Financial"; it is a long manila-type file. The following items of possible interest were noted in this file:
+Another file examined was entitled "ZRRIFLE Administrative/Financial"; it is a long manila-type file. The following items of possible interest were noted in this file:
 
 1. Memorandum dated January 11, 1961, to the Finance Division from William K. Harvey, Chief FI/D deals with the payments for Mankel's trip to Leopoldville. Paragraph 2 of this memo states, "In order to avoid any misunderstanding, it should be noted that QJWIN was sent on this trip for a specific, highly sensitive operational purpose which has been completed. Although future use of QJWIN is not precluded, it was not deemed fitting during this one use of him to enter into a continuing contractual relationship or to have him sign any memorandum of understanding."
 

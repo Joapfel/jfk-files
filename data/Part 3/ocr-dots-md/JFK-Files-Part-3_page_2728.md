@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2728.png
-
-Convert to Markdown1924
+1924
 
 warrant. It seems to beg the question.
 

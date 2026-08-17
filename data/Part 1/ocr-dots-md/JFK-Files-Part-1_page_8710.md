@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8710.png
-
-Convert to MarkdownSuperiores
+Superiores
 
 Confián en su criterio
 Lo estima

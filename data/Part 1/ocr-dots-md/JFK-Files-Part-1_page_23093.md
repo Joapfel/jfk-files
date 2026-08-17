@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23093.png
-
-Convert to MarkdownDr. J. A. Postacada.
+Dr. J. A. Postacada.
 
 April 21,
 

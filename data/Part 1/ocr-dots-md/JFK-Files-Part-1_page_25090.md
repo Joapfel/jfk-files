@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25090.png
-
-Convert to Markdown3 March 1966
+3 March 1966
 
 HMMA 28421
 

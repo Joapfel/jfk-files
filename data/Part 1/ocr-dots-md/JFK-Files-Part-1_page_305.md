@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_305.png
-
-Convert to Markdown14-00000
+14-00000
 
 For -> PATERSON - HSCA
 AMTAUP-2 - Oscar ANGULO - Reyer

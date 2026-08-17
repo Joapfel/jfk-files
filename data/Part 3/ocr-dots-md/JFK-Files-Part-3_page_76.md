@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_76.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ## GERMANY (Continued)
 

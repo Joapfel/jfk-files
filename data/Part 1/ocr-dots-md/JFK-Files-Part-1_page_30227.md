@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30227.png
-
-Convert to MarkdownMr. James W. McCord, Jr.
+Mr. James W. McCord, Jr.
 7 Winder Court
 Rockville, Maryland 20850
 

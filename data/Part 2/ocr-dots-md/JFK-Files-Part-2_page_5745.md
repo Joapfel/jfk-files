@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5745.png
-
-Convert to Markdown7. For the foregoing reasons, I believe that, while "Studies in Intelligence" is published under the auspices of the United States Government, it is neither an expression of official information nor an official release of official Executive Branch information, but rather a forum for the private academic expressions of the authors.
+7. For the foregoing reasons, I believe that, while "Studies in Intelligence" is published under the auspices of the United States Government, it is neither an expression of official information nor an official release of official Executive Branch information, but rather a forum for the private academic expressions of the authors.
 
 8. Executed this 13th day of February 1998 at Fairfax County, Virginia.
 

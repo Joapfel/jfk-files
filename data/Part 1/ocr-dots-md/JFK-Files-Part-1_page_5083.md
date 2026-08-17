@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5083.png
-
-Convert to Markdown# “I am going to declare war”
+# “I am going to declare war”
 
 It had been a long time since Dr. Orlando Bosch had talked to a reporter. He had been a fugitive for three years— ever since he boasted he was going “underground to direct the internationalization of the war” against his one-time comrade Fidel Castro. Sometimes, as he flew from one Latin American capital to another, he would forget what name he had decided to use and would begin fumbling among his four phony passports.
 

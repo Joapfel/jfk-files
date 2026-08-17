@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11314.png
-
-Convert to Markdown(e) Public sources
+(e) Public sources
 
 Full use must be made of all sources of information which are public in nature. Obtain background and lineage data from public birth records at local bureaus of vital statistics, credit agencies, city, county, and state recorders' offices, public utility records, school records, etc., whenever contact with such sources can be expected to produce information of value. Publications of subversive organizations and records of state and Federal committees which have conducted hearings concerning subversive activities should be obtained and indexed as reference material to assist in obtaining complete coverage of a subversive movement and the individuals connected therewith.
 

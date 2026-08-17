@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31424.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 JAGA: 1967/208 (23 May 67)
 

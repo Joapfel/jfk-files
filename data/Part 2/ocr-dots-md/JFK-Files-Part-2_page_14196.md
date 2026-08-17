@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14196.png
-
-Convert to MarkdownFIRST REQUEST FOR FBI DOCUMENTS
+FIRST REQUEST FOR FBI DOCUMENTS
 
 I. Legal Authorities
 

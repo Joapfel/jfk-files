@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31650.png
-
-Convert to MarkdownSF 14-207
+SF 14-207
 FSP:mb
 
 STEVE WEISSMAN making the above-quoted statement at the VDC meeting on October 26, 1965.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8038.png
-
-Convert to MarkdownSECRET
+SECRET
 
 part in Latin American relations. In the latter part of 1952, the military plan was drawn up by Sanchez Arango with the aid of Foreign Minister Raül Ovegueda and often in the conferences the presidential candidate (Costa Rica) Jose Figueroa took an active part, promising the support of Costa Rica should he be elected president. Dr. Juan Jose Arevalo participated as well, to the extent of using his influence with the Guatemalan officials that they might join the movement later. On the Caribbean coast of Guatemala is a place called Livingston. To the east, there is a road which leads to a little native village (Indigera) named for the moment forgotten by this agent. To the south-west of this place, there is a very bad road which ends in a little valley at the end of which there is a series of low hills. Back of these hills is situated a camp of the Caribbean Legion. Here is established the General Headquarters of Aureliano Sánchez Arango. There existe here a force of 4,000 men regularly trained, quartered and fed. Their practice is held daily under the direction of General Abolárdos Cúndra, veteran of the Spanish Civil War and one of the organizers of the movement of Cayo Confitres.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21870.png
-
-Convert to Markdownthat my mother had saved and valuable property, etc.
+that my mother had saved and valuable property, etc.
 My mother many times offered to divide all this in
 three parts: for me, my brother, and for her, but I
 suggested that we not do this before her death. And,

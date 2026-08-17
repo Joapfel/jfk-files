@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_182.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ANNEX B
 

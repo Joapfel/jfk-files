@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3834.png
-
-Convert to Markdownsuspicious that he has turned it over to the FBI. The conversation was then concluded.
+suspicious that he has turned it over to the FBI. The conversation was then concluded.
 
 15. Shortly thereafter, according to Mr. HUGHES (also confirmed by Mr. FAY), a person who identified himself as Gordon NEVILLE, NEVEL OR NOVEL called the FBI Office and said he registered in Room 551 at the Ambassador East and that he was in Chicago on a matter involving James GARRISON and a legal action against Playboy Magazine for defamation of character or some such vague explanation. Agent FAY was recontacted by CFO regarding the above telephone call, but he was unable to add to, or clarify the details of the call. Agent FAY said he prepared a brief memorandum on the case and closed it.
 

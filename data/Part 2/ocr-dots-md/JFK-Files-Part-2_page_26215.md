@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26215.png
-
-Convert to Markdownme but used to bore other people. But he
+me but used to bore other people. But he
 did know his country, and its history, which
 he would give at the drop of a hat. This
 evening in '61, seeing him, he was very

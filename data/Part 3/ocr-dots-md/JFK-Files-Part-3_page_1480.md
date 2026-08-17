@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1480.png
-
-Convert to MarkdownSL0018 0272150
+SL0018 0272150
 
 RR-HQ
 DE SL

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9021.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WUBRINY/11 did not have ready a list of expenses incurred by TICHBORN in 1968 for checking by the undersigned and certification by TICHBORN and WUBRINY/11. WUBRINY/11 telephoned to say that his accountant was unable to locate some of TICHBORN's accountings. The undersigned then requested WUBRINY/11 to join him and TICHBORN. The undersigned had a partial list of TICHBORN'S expenses previously submitted by WUBRINY/11. The undersigned enjoined TICHBORN and WUBRINY/11 to prepare a complete list of expenses for 1968. TICHBORN was asked to record the purpose of each expense. The undersigned emphasized in WUBRINY/11's presence that TICHBORN should ensure that no expenses chargeable to WUBRINY/11's private firm were charged to WUSALINE. Both TICHBORN and WUBRINY/11 were reminded that all expenses on the Venezuela project were chargeable to WUBRINY/11's private firm as well as one-half of the expenses on the Mexican Border project. TICHBORN said that he would get all of the accountings from WUBRINY/11's comptroller to determine which, if any, accountings were missing and, as requested, to note the purpose of the expenses. It was agreed to meet the following morning of September 13, 1968 on this matter.
 

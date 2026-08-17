@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14554.png
-
-Convert to MarkdownSAC, New York (105-21200)
+SAC, New York (105-21200)
 
 6-16-58
 

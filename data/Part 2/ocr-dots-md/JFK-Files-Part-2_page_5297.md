@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5297.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the tapes from 22 and 23 November to be Assassination Records. A vote on releasing the tapes will be delayed until the May meeting.
 

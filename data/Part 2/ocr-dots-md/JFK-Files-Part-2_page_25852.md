@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25852.png
-
-Convert to Markdown10
+10
 
 Stevenson's apartment and told me that he had read my Cuban memo recapitulating the events or the discussions in the fall with interest and that was that. And I then was in Washington. Averell Harriman asked me about the Cuban project. I said I didn't know, that it was lying down in Chase's office in the White House and that he told me he'd get back to me after the holidays.
 

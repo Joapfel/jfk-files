@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8371.png
-
-Convert to Markdown13-00000
+13-00000
 
 STANDARD FORM NO. 64
 

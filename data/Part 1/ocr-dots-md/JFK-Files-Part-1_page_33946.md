@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33946.png
-
-Convert to Markdown<table><tr><td>Executive Registry</td></tr><tr><td>L-21/87</td></tr></table>
+<table><tr><td>Executive Registry</td></tr><tr><td>L-21/87</td></tr></table>
 
 <table><tr><td>Note by D/DCI<br/>L-14/52 T.F.B.</td></tr></table>
 

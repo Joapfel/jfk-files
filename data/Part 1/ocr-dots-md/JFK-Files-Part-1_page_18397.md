@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18397.png
-
-Convert to MarkdownIN ACCORDANCE WITH THE PROVISIONS OF P. L. 86-569 AND DCI MEMO DATED 1 AUGUST 1955, SALARY IS ADJUSTED AS FOLLOWS EFFECTIVE 10 JULY 1960.
+IN ACCORDANCE WITH THE PROVISIONS OF P. L. 86-569 AND DCI MEMO DATED 1 AUGUST 1955, SALARY IS ADJUSTED AS FOLLOWS EFFECTIVE 10 JULY 1960.
 
 <table><thead><tr><th>SD</th><th>NAME</th><th>SERIAL</th><th>ORGN</th><th>GR-ST</th><th>OLD SALARY</th><th>NEW SALARY</th></tr></thead><tbody><tr><td>DT</td><td>Cassie</td><td>506102</td><td>48.40</td><td>GS-14 4</td><td>$12,075</td><td>$12,990</td></tr></tbody></table>
 

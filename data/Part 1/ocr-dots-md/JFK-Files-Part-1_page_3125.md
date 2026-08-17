@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3125.png
-
-Convert to Markdownski (y anteriormente antiguo agregado militar), Vasiliev, y el mismo Veliki (con quien tenía muy cordiales tratos, como también con este grupo). Los que no frecuentaban estas reuniones (y este llama atencio) son: Vragov, los del grupo censular, Sheitaishvili etc. (justamente, al parecer amigos de Vragov).
+ski (y anteriormente antiguo agregado militar), Vasiliev, y el mismo Veliki (con quien tenía muy cordiales tratos, como también con este grupo). Los que no frecuentaban estas reuniones (y este llama atencio) son: Vragov, los del grupo censular, Sheitaishvili etc. (justamente, al parecer amigos de Vragov).
 
 d) Datos, impresionos y función que desempeña la señora en la comunidad y puesta de trabajo que realiza; Ver Rosa A.
 

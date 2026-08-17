@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3181.png
-
-Convert to Markdown1793
+1793
 
 Mr. Adams. No, sir, we do not.
 

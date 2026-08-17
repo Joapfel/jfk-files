@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21070.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BETANCOURT indicated that he had been the General Coordinator of the 30th of November anti-Castro organization in Cuba during 1959, 1960 and the first part of 1961. He arrived in the United States at Miami on June 29, 1961, via small boat. Upon his arrival in the United States, he assumed leadership of the 30th of November movement in Miami until approximately October, 1962, when he entered the U. S. Army under the Cuban recruitment program at Fort Jackson, S. C. Subsequent to this, he has been affiliated with the 30th of November movement in Chicago for approximately two years, 1963-1965, and in Miami, 1965 to date.
 

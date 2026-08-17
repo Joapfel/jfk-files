@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5332.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NY-529-68
 15 July 1968

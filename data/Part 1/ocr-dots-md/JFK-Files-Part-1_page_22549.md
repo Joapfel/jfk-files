@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22549.png
-
 's apartment and promptly leave. Cover for his visit will be commercial delivery.)
 
 7 April 1961

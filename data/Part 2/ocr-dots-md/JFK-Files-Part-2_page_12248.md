@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12248.png
-
-Convert to Markdown[ ](e.) When an informant or former informant is initially considered as a potential witness in a Bureau case, determine whether he paid Federal and state taxes on the income he received from the Bureau for his services. If such taxes have not been paid, obtain all pertinent details and promptly submit recommendations for handling the situation.
+[ ](e.) When an informant or former informant is initially considered as a potential witness in a Bureau case, determine whether he paid Federal and state taxes on the income he received from the Bureau for his services. If such taxes have not been paid, obtain all pertinent details and promptly submit recommendations for handling the situation.
 
 7. Stipulation of payments made to witnesses
 

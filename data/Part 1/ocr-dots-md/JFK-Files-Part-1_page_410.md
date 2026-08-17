@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_410.png
-
-Convert to Markdown14-00000
+14-00000
 
 1. George A. Fill (Ret)
 27 Bay Tree

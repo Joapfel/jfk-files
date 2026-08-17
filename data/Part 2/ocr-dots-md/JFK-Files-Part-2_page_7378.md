@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7378.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 GENERAL SUGGESTIONS
 FOR THE

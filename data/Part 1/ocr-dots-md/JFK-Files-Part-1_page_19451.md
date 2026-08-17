@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19451.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="4">WAR DEPARTMENT<br/>REPORT OF PERSONNEL ACTION<br/>(FIELD)</th>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12673.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TUR:1717522 FEB 76
 

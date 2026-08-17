@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7928.png
-
-Convert to MarkdownDate: __________
+Date: __________
 
 Caption on Folder or File: (Print)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30711.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Review of Manuel Ray Files
 Volume iv of xviii

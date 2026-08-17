@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22911.png
-
 superintendent. These four would be given immediate jobs in the US, because of their outstanding backgrounds, if they were able to get out of Cuba.
 
 2. The top figure of the four is Leon Heequin Mays, who is a specialist in the Processing Department, one of the most important functions in the plant. This department's responsibilities deal with the physical processing of the product from crude to the finished material.

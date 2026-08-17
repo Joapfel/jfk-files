@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1605.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>DATE:</th><td></td></tr></thead><tbody><tr><td>ORIG:</td><td></td></tr><tr><td>UNIT:</td><td></td></tr><tr><td>EXT:</td><td></td></tr><tr><td>RELEASING OFFICER</td><td></td></tr><tr><td>CLASSIFICATION</td><td></td></tr><tr><td>SECRET</td><td></td></tr><tr><td>CROSS REFERENCE</td><td></td></tr></tbody></table>
 

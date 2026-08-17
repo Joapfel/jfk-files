@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17290.png
-
-Convert to Markdown# I. Introduction
+# I. Introduction
 
 ## II. The Grand Jury's Investigation and Findings
 A. Background

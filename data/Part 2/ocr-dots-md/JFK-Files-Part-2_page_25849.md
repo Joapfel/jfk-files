@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25849.png
-
-Convert to Markdown1 perhaps wiping out the Bay of Pigs and maybe getting back into
+1 perhaps wiping out the Bay of Pigs and maybe getting back into
 2 normal.
 
 3 Chase then said. Bundy wanted a chronological memo about

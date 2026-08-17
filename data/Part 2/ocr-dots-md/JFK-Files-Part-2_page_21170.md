@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21170.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 middle of the week and observed several people sitting at a table. He probably recognized someone at the table (he cannot recall specifically) but approached the table and asked one of the two females at the table to dance. While dancing she said she was a "journalist" from West Germany, that she was with MICHAUD (who posed as a French businessman, a furrier) but he was bothering her and she did not want to stay with him. After dancing with this girl he met MICHAUD who praised the French female's ability to make love. MORONE described the girl as age 24, attractive, dark hair, five feet two inches. He did not recall her name.
 

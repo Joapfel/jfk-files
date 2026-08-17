@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20821.png
-
-Convert to MarkdownFEDERAL BUREAU
+FEDERAL BUREAU
 
 Copy to:
 

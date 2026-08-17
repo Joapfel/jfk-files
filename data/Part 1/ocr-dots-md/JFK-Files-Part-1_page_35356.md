@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35356.png
-
-Convert to Markdown**OFFICE RATES:**
+**OFFICE RATES:**
 
 | Dec. | 1 | 1700 Bicouyne Plud. | 7164 | $ 600.00 |
 | --- | --- | --- | --- | --- |

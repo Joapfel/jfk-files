@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8137.png
-
-Convert to MarkdownBASIC : (IN 93087)
+BASIC : (IN 93087)
 
 PROJECT: None
 

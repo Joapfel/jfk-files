@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28027.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>DCF</td></tr><tr><td>1. SERIAL NUMBER</td><td>2. NAME (LAST FIRST MIDDLE)</td></tr><tr><td>012178</td><td>RANDALL FREDERICK</td></tr></table>
 

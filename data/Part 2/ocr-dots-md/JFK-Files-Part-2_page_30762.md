@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30762.png
-
-Convert to Markdown2. expertise in East Asian & CI inhouse investigations never did any of them did work on an "Oswald Task Force"
+2. expertise in East Asian & CI inhouse investigations never did any of them did work on an "Oswald Task Force"
 
 FOR F01A. 2 or 3 suits late 9 or 10/75. info had to be processed + C/CIS decided to have ops off do review
 

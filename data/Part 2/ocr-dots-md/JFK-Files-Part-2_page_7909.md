@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7909.png
-
-Convert to Markdown13. All records pertaining to any alleged or contemplated witness, including any statements, transcripts, reports, or memorandums from any source whatsoever.
+13. All records pertaining to any alleged or contemplated witness, including any statements, transcripts, reports, or memorandums from any source whatsoever.
 
 14. All correspondence of the following persons, regardless of origin or however obtained:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22530.png
-
-Convert to MarkdownSECRET-ENGLYPH<3>Y
+SECRET-ENGLYPH<3>Y
 
 then; transmission of armament and sabotage material . . . could
 fully substantiate this cooperation. . . .

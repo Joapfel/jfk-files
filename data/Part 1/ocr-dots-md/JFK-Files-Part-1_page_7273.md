@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7273.png
-
-Convert to MarkdownValentin S. LOGUINOV
+Valentin S. LOGUINOV
 Third Secretary at the Soviet Embassy
 Born in 1927
 Wife Alexandra, born in 1928

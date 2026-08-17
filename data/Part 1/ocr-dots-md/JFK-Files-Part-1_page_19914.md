@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19914.png
-
-Convert to MarkdownMrs. Anna A. Tarashoff
+Mrs. Anna A. Tarashoff
 
 Dear Mrs. Tarashoff:
 

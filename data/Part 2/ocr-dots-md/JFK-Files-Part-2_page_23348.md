@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23348.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Brown. Sid Brown as a name means nothing to me.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11796.png
-
-Convert to MarkdownMr. F. C. Sullivan
+Mr. F. C. Sullivan
 
 August 12, 1971
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6833.png
-
-Convert to Markdownname around and I had my serious doubts whether the Director had ever seen the ties and I was certain the Director never reviewed the file on
+name around and I had my serious doubts whether the Director had ever seen the ties and I was certain the Director never reviewed the file on
 
 With reference to Mr. Tolson, I told Tobin that Mr. Tolson was one of the most conscientious individuals in Washington and that certainly Mr. Tolson would not engage in any such activity. Thirdly, all he had to do was look at the record so far as Hottel was concerned; that a few years ago, Hottel was primarily responsible for leading to Grunewald's downfall when he was hiding out from the Senate District Committee.
 

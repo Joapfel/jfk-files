@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23535.png
-
-Convert to MarkdownTRSA-1215
+TRSA-1215
 
 CRYPTONYM: HUHANOID
 

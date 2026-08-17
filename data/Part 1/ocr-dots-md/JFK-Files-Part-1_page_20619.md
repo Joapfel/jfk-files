@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20619.png
-
-Convert to Markdown3 JUL 1975
+3 JUL 1975
 
 Mr. David A. Phillips
 8224 Stone Trail Drive

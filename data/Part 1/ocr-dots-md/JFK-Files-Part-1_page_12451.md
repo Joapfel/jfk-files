@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12451.png
-
-Convert to MarkdownC.F. FREDERICK
+C.F. FREDERICK
 M/I/3/V
 
 <table><tr><td>SECRET</td></tr></table>

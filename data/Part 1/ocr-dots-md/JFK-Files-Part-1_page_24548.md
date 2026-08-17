@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24548.png
-
-Convert to Markdownand sans le nom de croyez et il est under
+and sans le nom de croyez et il est under
 concerné de la séance. Mais en tout cas,
 nous accomplirions avec bonheur, à partir d'un
 sui as a compensation, hence, it is necessary to say

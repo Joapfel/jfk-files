@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28776.png
-
-Convert to Markdown# JOAN TALBERT THORNELL
+# JOAN TALBERT THORNELL
 
 122 Sixth Street, S. E.
 Washington, D. C. 20003

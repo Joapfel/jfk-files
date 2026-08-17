@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34338.png
-
-Convert to MarkdownThe Editor
+The Editor
 HIMERISSIA
 Athens, Greece.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19884.png
-
-Convert to MarkdownNWC88321
+NWC88321
 
 <table>
    <tr>

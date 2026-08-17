@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29344.png
-
-Convert to MarkdownPhillips, page 21.
+Phillips, page 21.
 
 "I don't know how that mechanism worked," he said. He added
 that he had never had a phoney passport.

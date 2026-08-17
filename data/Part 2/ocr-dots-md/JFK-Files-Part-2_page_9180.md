@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9180.png
-
-Convert to MarkdownLS 135-6
+LS 135-6
 3
 
 left the BROWN residence on the evening of July 23, 1974, and have not seen nor been contacted by BROWN since that time.

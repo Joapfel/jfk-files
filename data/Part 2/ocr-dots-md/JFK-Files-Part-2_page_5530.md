@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5530.png
-
-Convert to MarkdownSUBJECT: WASHINGTON POST Request to Talk to an Agency specialist in the Kennedy Assassination
+SUBJECT: WASHINGTON POST Request to Talk to an Agency specialist in the Kennedy Assassination
 
 DCI/PAI/Earnest:ncbx37758 (11 March 1993)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25312.png
-
-Convert to MarkdownA report of the Senate Rackets Committee from 1964 states:
+A report of the Senate Rackets Committee from 1964 states:
 
 "Meltzer now is reported to operate a large bookmaking and prostitution syndicate in California. A major figure in the organized underworld, he is known to all the important narcotics traffickers throughout the United States. He has also operated in Oklahoma, Texas, Baltimore, Miami, Las Vegas, Boston, and various areas of Canada, Cuba, Hong Kong, Japan, Hawaii, and the Philippines."
 

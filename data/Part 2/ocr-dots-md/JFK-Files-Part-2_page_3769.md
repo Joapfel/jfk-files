@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3769.png
-
-Convert to MarkdownS. STATES-ITEM
+S. STATES-ITEM
 
 MAY 25, 1967
 

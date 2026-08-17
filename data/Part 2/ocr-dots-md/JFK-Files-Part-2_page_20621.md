@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20621.png
-
-Convert to Markdown<table><tr><td>COMMISSIONS SECTION</td></tr><tr><td>FEB 10 1972</td></tr><tr><td>TELEFON</td></tr></table>
+<table><tr><td>COMMISSIONS SECTION</td></tr><tr><td>FEB 10 1972</td></tr><tr><td>TELEFON</td></tr></table>
 
 NR 517 IP CODE
 

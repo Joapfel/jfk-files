@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9943.png
-
-Convert to MarkdownAlex. Agosto 20-67
+Alex. Agosto 20-67
 
 Estimado Sr. Harris:
 

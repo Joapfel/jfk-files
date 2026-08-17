@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33972.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET 242240Z CITE MEXICO CITY 2578
 

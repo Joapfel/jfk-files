@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20179.png
-
-Convert to MarkdownLetter to SAC, New York et al
+Letter to SAC, New York et al
 
 Re: Women's National Abortion Action Coalition (WONAAC)
 100-468406

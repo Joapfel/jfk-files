@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34251.png
-
-Convert to Markdown# "HAFLA..., UNIDAD REVOLUCIONARIA" (H.R.U.L.)
+# "HAFLA..., UNIDAD REVOLUCIONARIA" (H.R.U.L.)
 
 **October 30, 1965:**
 > "Oil Worries the Havana Communist Regime".- A comment on the statement by Engineer Alberto Quoralt, who just arrived from Cuba, who, in his capacity as a technician who held a high post in the Petroleum Consolidated, deducts the possibility that Soviet deliveries of oil to Cuba may decrease. These statements are confirmed by the interpretation of President Dorticos' own words, and by the presence of a Cuban mission in Great Britain.

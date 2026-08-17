@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14264.png
-
-Convert to Markdown<table><tr><td>206-10001-10014</td></tr></table>
+<table><tr><td>206-10001-10014</td></tr></table>
 
 Box 10
 Cover Operations

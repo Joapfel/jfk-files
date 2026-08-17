@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2339.png
-
-Convert to Markdownat this time. On the other hand, it is not reasonable that NOSENKO would lay claim to the title of Deputy Chief of the First Section, First Department, if this were not true when he clearly knew of the visits of GOLITSYN to the First Section in 1960 - 1961 and of his conferences with officers closely associated with NOSENKO at that time.
+at this time. On the other hand, it is not reasonable that NOSENKO would lay claim to the title of Deputy Chief of the First Section, First Department, if this were not true when he clearly knew of the visits of GOLITSYN to the First Section in 1960 - 1961 and of his conferences with officers closely associated with NOSENKO at that time.
 
 NOSENKO has also mentioned a number of officers of the SCD or former officers of the SCD who transferred to the FCD with whom he was personally acquainted and who were also known to GOLITSYN.
 

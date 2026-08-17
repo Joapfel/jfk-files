@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5893.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 with representatives of (the Atlanta) Office and the New York Office," as indicated in the second paragraph of the Director's April 1, 1964, letter to the SAC, Atlanta, captioned "Communist Party, USA, Negro Question, Communist Influence in Social Matters; Internal Security - C."
 

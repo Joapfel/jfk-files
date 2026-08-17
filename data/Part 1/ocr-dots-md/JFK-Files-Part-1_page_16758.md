@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16758.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>SECRET</td><td>C/HW 5 (WE AND WH COPIES SLOTTED AT 1400 29 MAR OJ)</td></tr><tr><td>ACTION:</td><td>C/HW 5 (WE AND WH COPIES SLOTTED AT 1400 29 MAR OJ)</td></tr><tr><td>INFO :</td><td>ADOP, C/CI, C/FI 2, C/EE 3, C/WE 2, S/C 2</td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>SECRET</td><td>C/HW 5 (WE AND WH COPIES SLOTTED AT 1400 29 MAR OJ)</td></tr><tr><td>ACTION:</td><td>C/HW 5 (WE AND WH COPIES SLOTTED AT 1400 29 MAR OJ)</td></tr><tr><td>INFO :</td><td>ADOP, C/CI, C/FI 2, C/EE 3, C/WE 2, S/C 2</td></tr></table>
 
 SECRET 291638Z
 

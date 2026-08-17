@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12625.png
-
-Convert to Markdownb. Promptly prepare LHM, including complete details disseminated and identities of Secret Service officer and local law enforcement officers to whom given and date and time of notification. Promptly disseminate LHM locally to Secret Service and any other appropriate Government agency and furnish sufficient copies to Bureau for dissemination at SOG. Disseminate copies of all LHMs and reports concerning organization locally to Secret Service on continuing basis and furnish extra copies of such communications to Bureau for dissemination at SOG.
+b. Promptly prepare LHM, including complete details disseminated and identities of Secret Service officer and local law enforcement officers to whom given and date and time of notification. Promptly disseminate LHM locally to Secret Service and any other appropriate Government agency and furnish sufficient copies to Bureau for dissemination at SOG. Disseminate copies of all LHMs and reports concerning organization locally to Secret Service on continuing basis and furnish extra copies of such communications to Bureau for dissemination at SOG.
 
 c. Determine identities of members of organization involved in plot. Background information concerning such individuals should be fully developed and included in communications disseminated to Secret Service.
 

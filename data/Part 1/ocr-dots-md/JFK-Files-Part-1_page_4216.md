@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4216.png
-
-Convert to MarkdownSECRET
+SECRET
 
 UFGA-24109
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6217.png
-
-Convert to Markdown5. Does OS process security clearances for non-employees (e.g. sources) to receive access to classified information? What kinds of files are created by this process? How long are these files maintained. For example, Clay Shaw was given a security clearance and had access to classified information based on his "responsibilities" as a source for the Domestic Contacts Division (DCD).
+5. Does OS process security clearances for non-employees (e.g. sources) to receive access to classified information? What kinds of files are created by this process? How long are these files maintained. For example, Clay Shaw was given a security clearance and had access to classified information based on his "responsibilities" as a source for the Domestic Contacts Division (DCD).
 
 6. Where are records that would describe liaison (etc.) cooperation or operations between OS and CI located? How are these records organized?
 

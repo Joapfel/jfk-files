@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18314.png
-
-Convert to Markdown1. Charles C. Kissinger
+1. Charles C. Kissinger
 
 2. Tom Hayden
 

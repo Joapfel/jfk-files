@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4832.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AU 6-9335
 OL 2-6779

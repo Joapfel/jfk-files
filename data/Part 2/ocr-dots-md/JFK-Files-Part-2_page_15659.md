@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15659.png
-
-Convert to Markdown# STUDENTS FOR A DEMOCRATIC SOCIETY
+# STUDENTS FOR A DEMOCRATIC SOCIETY
 
 A source has advised that the Students for a Democratic Society (SDS), as it is known today, came into being at a founding convention held at Port Huron, Michigan, in June, 1962. From an initial ideological posture of "participatory democracy," the current line of the national leadership reveals an adherence to Marxism-Leninism.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24378.png
-
-Convert to Markdown# B. Committee Decision To Make This Report Public
+# B. Committee Decision To Make This Report Public
 
 This report raises important questions of national policy. We believe that the public is entitled to know what certain instrumentalities of their Government have done. Further, our recommendations can only be judged in light of the factual record. Therefore, this interim report should be made public.
 

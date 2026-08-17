@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24586.png
-
-Convert to Markdownc. Testimony of News Reporters as to Lansdale's Comments on the August 10 Meeting
+c. Testimony of News Reporters as to Lansdale's Comments on the August 10 Meeting
 
 During the Committee's investigation, news reports concerning the August 10 meeting and Lansdale's request for a Castro assassination plan appeared in the press. Two of these reports were based on statements made by Lansdale to David Martin of the Associated Press and Jeremiah O'Leary of the Washington Star-News. In view of the apparent conflict between Lansdale's testimony to the Committee and what Lansdale was reported to have said to Martin and O'Leary, the Committee invited these reporters to testify as to Lansdale's statements to them. Martin testified under a subpoena issued by the Committee pursuant to Senate Resolution 21. O'Leary appeared voluntarily but stated the policy of his newspaper with regard to disclosing news sources precluded him from any comment going beyond that contained in a prepared statement he read under oath. O'Leary's statement declared that his news report "represents accurately my understanding of the relevant information I obtained from news sources." (O'Leary, page 5).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29092.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4">Profit (or Loss) From Business or Profession<br/>(Sole Proprietorship)</th>

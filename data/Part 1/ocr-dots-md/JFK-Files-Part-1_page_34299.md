@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34299.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PLS ADVISE WHETHER PARA 4 ACTION AGREEABLE TO ALL.
 

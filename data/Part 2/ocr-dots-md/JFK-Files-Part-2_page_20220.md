@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20220.png
-
-Convert to MarkdownWOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC) CONFIDENTIAL
+WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC) CONFIDENTIAL
 
 recruitment into that organization. The YSA is described in the masthead of its official publication, "The Young Socialist Organizer," as "A multinational revolutionary socialist youth organization."
 

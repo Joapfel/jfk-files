@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27373.png
-
-Convert to MarkdownA. Memo from Mr. Baker to Mr. Belin - 28 Feb 75
+A. Memo from Mr. Baker to Mr. Belin - 28 Feb 75
 
 B. Ltr from Baker to Louis Pecovolos - 18 Feb 75
 

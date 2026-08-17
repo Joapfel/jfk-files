@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25102.png
-
-Convert to MarkdownASSASSINATION ALLEGATIONS: Castro
+ASSASSINATION ALLEGATIONS: Castro
 
 Newspaper accounts report that prior to the April 17, 1961 Bay of Pigs invasion, the CIA either directly through or thr/ Robert Maheu inlisted the aid of Sam Giancana and Johnny Roselli in organizing assassination attempts against Castro. The first attempt on Castro's life was on or about 3/13/61. The first attempt used poison and it was hoped that with Castro dead, the invasion planned and executed 3/17/61 would have a greater chance for success. There were five more attempts made on Castro's life after 3/17/61. The last was in late February or early March of 1963.
 

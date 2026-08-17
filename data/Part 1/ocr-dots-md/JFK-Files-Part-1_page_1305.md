@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1305.png
-
-Convert to MarkdownSECRET
+SECRET
 
 that he was a CASTRO agent from the beginning. The question that must remain unanswered is whether he betrayed the AMTRUNK Operation. He was not arrested until September 1965 (when AMTRUNK had already run its course) but it appears quite certain that he cooperated with the DSE after his arrest and while he was in prison.
 

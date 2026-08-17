@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12355.png
-
-Convert to MarkdownSECTION 107, SECURITY INFORMANTS AND CONFIDENTIAL SOURCES. 107S-T
+SECTION 107, SECURITY INFORMANTS AND CONFIDENTIAL SOURCES. 107S-T
 
 b. If no pertinent derogatory information is developed, initial contact may be made with prospective panel source to ascertain cooperative-ness; however, in regard to individuals associated with educational institutions, be guided by current instructions concerning investi-gations on campuses.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28665.png
-
-Convert to Markdown<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Howard Louis Shapiro</td><td>12/31/78</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>114-44-4360</td><td>☐ Appointment<br/>☐ Salary Adjustment<br/>☐ Title Change<br/>☑ Termination (At close of business on effective date)<br/>☐ Leave without pay (Beginning with effective date above and ending close of business _________________________________)</td></tr><tr><td>Employing Office or Committee/Subcommittee</td><td>Specify Date</td></tr><tr><td>Assassinations</td><td></td></tr></table>
+<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Howard Louis Shapiro</td><td>12/31/78</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>114-44-4360</td><td>☐ Appointment<br/>☐ Salary Adjustment<br/>☐ Title Change<br/>☑ Termination (At close of business on effective date)<br/>☐ Leave without pay (Beginning with effective date above and ending close of business _________________________________)</td></tr><tr><td>Employing Office or Committee/Subcommittee</td><td>Specify Date</td></tr><tr><td>Assassinations</td><td></td></tr></table>
 
 (If type of action is an Appointment, Salary Adjustment, or Title Change, complete appropriate information below.)
 

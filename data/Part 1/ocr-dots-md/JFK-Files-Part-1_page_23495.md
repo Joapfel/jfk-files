@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23495.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG : T.J.DESHARD
 UNIT : WH III

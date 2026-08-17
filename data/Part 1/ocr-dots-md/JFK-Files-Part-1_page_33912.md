@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33912.png
-
-Convert to MarkdownMarch 28, 1952
+March 28, 1952
 
 Dear Olivers:
 

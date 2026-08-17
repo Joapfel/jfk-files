@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6095.png
-
-Convert to MarkdownSSC REQULST 9/29/75
+SSC REQULST 9/29/75
 ITEM 17
 
 # made

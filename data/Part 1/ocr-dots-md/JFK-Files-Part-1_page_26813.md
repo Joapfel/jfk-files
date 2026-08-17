@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26813.png
-
-Convert to MarkdownContinuaci. u. SI, 17 do . iero de 1965,
+Continuaci. u. SI, 17 do . iero de 1965,
 
 Llaman de la calle al Consulado de Cuba, pero se fue la corriente y no GRAVE ni CASA mas que el final, donde dieo Mª Doyal a la p. Mª. Que hacia que vender, verifc manana Salado Co odno y midia a doce / media, por que "arriba hoy yo esta en la oficina" y acusa no es hora ya de oficinar por la tarde, le per- na que ha tenido que es un hombre lo dice que el Llano nada mas que le informa. se, lo de la grata es Doyal y lo dice que le saluto a Mariano, Doyal, cuando nada hico y se despide.
 

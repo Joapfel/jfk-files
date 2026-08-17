@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13062.png
-
-Convert to Markdown26 September 1956
+26 September 1956
 
 MEMORANDUM TO: CI/OA
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22610.png
-
-Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+# Office Memorandum • UNITED STATES GOVERNMENT
 
 **TO** : Chief, MI Division
 **ATTN** : Miss Charlotte Zehnung

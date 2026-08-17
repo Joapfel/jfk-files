@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21768.png
-
-Convert to Markdown3 May 1962
+3 May 1962
 
 MEMORANDUM FOR RECORD
 

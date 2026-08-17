@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14711.png
-
-Convert to Markdown# Assassination of President John Fitzgerald Kennedy
+# Assassination of President John Fitzgerald Kennedy
 
 The essence of the Clay Shaw trial in New Orleans lies in the connection New Orleans District Attorney James C. Garrison is attempting to establish between Lee Harvey Oswald, David Ferrie (now deceased), and Clay Shaw. The principal witness has been Perry Russo who has said Oswald, Ferrie, and Shaw discussed assassinating President Kennedy at a meeting in Ferrie's apartment in New Orleans in September, 1963.
 

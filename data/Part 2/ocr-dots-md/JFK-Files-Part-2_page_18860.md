@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18860.png
-
-Convert to Markdownit was handled indiscreetly and therefore, does not recommend any administrative action.
+it was handled indiscreetly and therefore, does not recommend any administrative action.
 
 OBSERVATIONS:
 

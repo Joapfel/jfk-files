@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25477.png
-
-Convert to Markdown<table><tr><td>THE HAGUE</td></tr></table>
+<table><tr><td>THE HAGUE</td></tr></table>
 
 <table><thead><tr><th>CLASSIFICATION</th><th>STATUS</th></tr></thead><tbody><tr><td>SECRET</td><td>U</td></tr></tbody></table>
 

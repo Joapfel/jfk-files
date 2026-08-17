@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18548.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>SECTION 23. GENERAL QUALIFICATION</td>
     <td></td>

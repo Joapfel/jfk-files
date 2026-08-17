@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28083.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- CONFIDENTIAL CLASSIFICATION -->
         <tr><td style="text-align:center; font-weight:bold;">CONFIDENTIAL</td></tr>

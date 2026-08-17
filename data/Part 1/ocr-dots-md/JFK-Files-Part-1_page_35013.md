@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35013.png
-
-Convert to MarkdownFUSLICITY
+FUSLICITY
 
 ANNEX "I-K"
 Face No. 2

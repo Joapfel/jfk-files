@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10646.png
-
-Convert to MarkdownSEC
+SEC
 
 nothing more positive he can take the approach that he considered
 the U. S. Government tacitly approved his plot since it obviously

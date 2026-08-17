@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5441.png
-
-Convert to Markdownradically leftist oriented Government. If allowed time, Duvalier may
+radically leftist oriented Government. If allowed time, Duvalier may
 well succeed to turn the country into a new communist satellite and work
 out some agreements with communist countries. Here again, we should not
 fail to mention the new exchange of diplomatic representations between

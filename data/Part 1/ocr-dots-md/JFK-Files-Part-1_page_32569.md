@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32569.png
-
-Convert to MarkdownPROPOSED BIOGRAPHY
+PROPOSED BIOGRAPHY
 
 WILLIAMSON, Earl J.--b. Auburn, New York, March 13, 1915;
 Auburn Senior High School grad; Loyola College, 1927-48; buyer

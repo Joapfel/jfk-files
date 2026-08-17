@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30771.png
-
-Convert to MarkdownMarch 8, 1978
+March 8, 1978
 Page 4
 
 28) JAMES EARL JARMAN - Born in Dallas, Texas. 1964 address: 4930 Echo, Dallas, Texas. Last known employment: Texas School Book Depository - since 1961. Earlier employed at Parkland Hospital and Baker's Hotel. FBI #239 661 F.

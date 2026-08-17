@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35721.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 McCord Associates has an approved job resume, but Mr. Mahoney has made no decision on taking the McCord offer.
 

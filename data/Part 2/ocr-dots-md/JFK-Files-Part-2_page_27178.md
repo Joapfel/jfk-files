@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27178.png
-
-Convert to Markdown# B-G-G Files (Cont.)
+# B-G-G Files (Cont.)
 
 ## II. General Files
 

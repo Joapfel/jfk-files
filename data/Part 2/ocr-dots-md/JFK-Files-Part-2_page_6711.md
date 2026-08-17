@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6711.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>CIA SPECIAL COLLECTIONS</td></tr><tr><td>RELEASE IN FULL</td></tr><tr><td>2000</td></tr></table>
 

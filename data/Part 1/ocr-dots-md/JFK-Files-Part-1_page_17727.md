@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17727.png
-
-Convert to MarkdownReel 89-1
+Reel 89-1
 
 From 0810, 1 June (Wednesday) to 0645, 2 June (Thursday) 1966
 

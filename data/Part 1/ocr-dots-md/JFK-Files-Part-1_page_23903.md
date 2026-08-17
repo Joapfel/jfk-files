@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23903.png
-
-Convert to MarkdownI told you about, ~~Haggard.~~ He was a very good friend of his as well.
+I told you about, ~~Haggard.~~ He was a very good friend of his as well.
 
 Poor ~~Toussaint Toussaint Toussaint Toussaint~~ he must be very nervous, down there in Agriculture,
 because he's known me personally, he's known Walter personally,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30345.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Mr. Preyer. Mr. Nosenko, your testimony has been considered a major piece of evidence, and was so considered by the Warren Commission as rebutting any Russian connection with the assassination of Lee Harvey Oswald, and I think the key part of your testimony that we are concerned with, not so much the question about any inconsistencies in it, but are you right on the big question, namely, was Lee Harvey Oswald a KGB agent?
 

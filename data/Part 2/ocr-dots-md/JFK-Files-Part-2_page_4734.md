@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4734.png
-
-Convert to MarkdownSECRET
+SECRET
 
 they do everything everybody else does. They recruit people. They handle
 people, they manipulate people. What else did you expect them to do?" You

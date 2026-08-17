@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6144.png
-
-Convert to Markdownn90. The legislative history and congressional discussion of the need for the Board can be found in H.R. Rep. No. 102-625, pt. 1, at 6; H.R. Rep. No. 102-625, pt. 2, at 7 (1992); H.R. Rep. No. 103-587, at 2 (1994). The law establishing the Board is at 44 U.S.C. 2107(6) (1994).
+n90. The legislative history and congressional discussion of the need for the Board can be found in H.R. Rep. No. 102-625, pt. 1, at 6; H.R. Rep. No. 102-625, pt. 2, at 7 (1992); H.R. Rep. No. 103-587, at 2 (1994). The law establishing the Board is at 44 U.S.C. 2107(6) (1994).
 
 n91. 44 U.S.C. 2107(5).
 

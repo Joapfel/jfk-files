@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3397.png
-
-Convert to Markdownthey respect the dignity of man.
+they respect the dignity of man.
 
 This is not the first time we say publicly that this war of liberation of our enslaved Cuba must be carried on "no matter whom it pleases, no matter whom it displeases", since it is true that powerful nations have international obligations to carry out and it is also true that we Cubans have our inescapable duties to our enslaved country.
 

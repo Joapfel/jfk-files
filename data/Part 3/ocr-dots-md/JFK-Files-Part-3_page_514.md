@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_514.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 In early 1966, the Miami Office determined that a building located at 232 Southwest 30th Street, Ft. Lauderdale, Florida, was being used as a United Klans of America, Incorporated, (UKA) operation. This information was disclosed to Milton J. Kelly, Managing Editor of the "Ft. Lauderdale News," and J. Lester Holt, Chief of Police, Ft. Lauderdale Police Department, was notified after a joint meeting of all klaverns commenced in the Klan building that this was the opportune time to set up roadblocks.
 

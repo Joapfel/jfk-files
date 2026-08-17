@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3753.png
-
-Convert to MarkdownCOMTEN NO. 4 LINE EF
+COMTEN NO. 4 LINE EF
 
 *** RUFFING COMPUTER CENTER 63.2 ***
 

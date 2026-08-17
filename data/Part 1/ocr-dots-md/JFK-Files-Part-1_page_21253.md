@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21253.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>Standard-Form No. 2503</td>
     <td>FEDERAL EMPLOYEES HEALTH BENEFITS PROGRAM</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4512.png
-
-Convert to Markdown14-00000
+14-00000
 
 S ECRET 101550Z
 WAVE DIR CITE/LEOP 3961 (LAMPRIGHT ACTING)

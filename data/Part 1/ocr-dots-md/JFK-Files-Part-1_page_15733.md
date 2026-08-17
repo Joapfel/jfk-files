@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15733.png
-
-Convert to MarkdownSECRET
+SECRET
 
 23 September 1960
 

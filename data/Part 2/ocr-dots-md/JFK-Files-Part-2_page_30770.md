@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30770.png
-
-Convert to MarkdownMarch 8, 1978
+March 8, 1978
 
 18) AMOS LEE EUINS - Date of birth: 1/10/48. 1963 address: 411 (?) Avenue F, Dallas, Texas, phone WH3-9701. Social Security #: 463-78-4003. Selective Service #: 41-31-48-779.
 

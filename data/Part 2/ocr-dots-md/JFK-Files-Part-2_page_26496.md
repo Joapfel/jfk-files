@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26496.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. A number of minor incursions into Nicaragua, mainly from the Honduran border, have been mounted by the Cuban-supported, Communist-dominated National Liberation Front (FLN). At least nine of the FLN members engaged in these raids are known or believed to have had Cuban training.
 

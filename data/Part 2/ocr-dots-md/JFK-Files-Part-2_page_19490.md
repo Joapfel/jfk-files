@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19490.png
-
-Convert to Markdown# DEMONSTRATION PROTESTING U.S. POLICY IN VIET NAM, WASHINGTON, D.C., JANUARY 15 - 16, 1968
+# DEMONSTRATION PROTESTING U.S. POLICY IN VIET NAM, WASHINGTON, D.C., JANUARY 15 - 16, 1968
 
 On January 10, 1968, CG T-1 advised that the coordinating committee concerned with captioned activity consisted of Mrs. Lucille Montgomery, Marjorie Kinsella, Carol Travis, Rosalind Durham, and Sylvia Kushner. Montgomery, Travis, and Durham were to depart Chicago for Washington, D.C., by air, January 11, 1968, to help with the preparations. According to this source, there would also be a demonstration at the Federal Building in Chicago on January 15, 1968, in support of the Jeannette Rankin Brigade.
 

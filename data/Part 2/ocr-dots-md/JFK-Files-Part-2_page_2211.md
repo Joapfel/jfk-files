@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2211.png
-
-Convert to MarkdownATTACHMENT P (Continued)
+ATTACHMENT P (Continued)
 
 January 1950 to December 1951 - Central Intelligence Agency, 270 E. Street, N.D., Washington, D. C. In this period I was assigned to duty involving liaison on legal matters with other departments of the U. S. Government including the Department of Defense, Department of Justice (Immigration and Naturalization Service and Federal Bureau of Investigation) and the Department of State. Criteria for the selection included knowledge, application and interpretation of U. S. and foreign laws, regulations, etc. Application was at the instance of the United States Attorney General, the Assistant Attorney General, the Solicitor General and the Counsel of the Department of State and other governmental legal counsel. I discontinued this particular work to enable me to again undertake further assignment with the Department of State as a member of the Foreign Service Staff, G.C.P.
 

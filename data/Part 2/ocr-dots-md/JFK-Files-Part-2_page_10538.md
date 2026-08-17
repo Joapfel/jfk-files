@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10538.png
-
-Convert to MarkdownSUBJECT: The MHCHAOS Program
+SUBJECT: The MHCHAOS Program
 
 1. The MHCHAOS program is a worldwide program for clandestine collection abroad of information on foreign efforts to support/encourage/exploit/manipulate domestic U.S. extremism, especially by Cuba, Communist China, North Vietnam, the Soviet Union, North Korea and the Arab fedayeen.
 

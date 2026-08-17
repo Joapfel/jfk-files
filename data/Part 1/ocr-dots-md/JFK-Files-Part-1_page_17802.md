@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17802.png
-
-Convert to Markdowncont..)
+cont..)
 
 pero yo Adelina, es que tú lo escribieras a tu papa.
 

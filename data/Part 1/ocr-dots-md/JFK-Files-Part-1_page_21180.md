@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21180.png
-
-Convert to MarkdownClassify According
+Classify According
 To Content.
 
 <html><body><table><tr><td colspan="12">REQUEST FOR PERSONNEL ACTION</td></tr><tr><td rowspan="2">1. Serial No.</td><td rowspan="2">2. Name (Last, First, Middle)</td><td rowspan="2"></td><td>3. Date Of Birth</td><td rowspan="2">4. Vtr. Prof.</td><td rowspan="2">5. Sex</td><td rowspan="2">6. CS - EOD</td><td colspan="3"></td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>Mo</td><td>Da</td><td>Yr</td><td>None</td><td>0</td><td>5 Pt-1</td><td>10 Pt-2</td><td>Code</td><td>Mo</td><td>Da</td><td>Yr</td></tr><tr><td colspan="2">WILCOTT, James B., Jr.</td><td></td><td>9</td><td>27</td><td>31</td><td></td><td>M</td><td colspan="6"></td></tr><tr><td rowspan="2">7. SCD</td><td rowspan="2">8. CSC Retrn.</td><td rowspan="2"></td><td rowspan="2">9. CSC Or Other Legal Authority</td><td rowspan="2">10. Apmft.Altidav.</td><td rowspan="2">11.FEGLI</td><td rowspan="2">12. LCD</td><td rowspan="2">13. Col./Sd.</td><td colspan="3"></td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>Mo</td><td>Da</td><td>Yr</td><td>Yes</td><td>-1</td><td>No</td><td>-2</td><td>Code</td><td>Mo</td><td>Da</td><td>Yr</td><td>Yes</td><td>-1</td><td>No</td><td>-2</td></tr><tr><td>Mo</td><td>Da</td><td>Yr</td><td>Yes</td><td>-1</td><td>No</td><td>-2</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></table></body></html>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25634.png
-
-Convert to MarkdownCase Chez.
+Case Chez.
 
 | | |
 |---|---|

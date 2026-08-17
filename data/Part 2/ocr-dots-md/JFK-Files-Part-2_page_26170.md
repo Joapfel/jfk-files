@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26170.png
-
-Convert to Markdownput some red-blooded American boys in uniform
+put some red-blooded American boys in uniform
 out someplace, and they're going to start doing
 other things as well. In collecting information,
 they couldn't help but tell a guy, "Well," if

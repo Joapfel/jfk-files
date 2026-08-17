@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2662.png
-
-Convert to MarkdownMr. Kelley. I feel confident we can get it. I do not have it now, but if you would like to have the annual cost for the investigation of Federal appointees --
+Mr. Kelley. I feel confident we can get it. I do not have it now, but if you would like to have the annual cost for the investigation of Federal appointees --
 
 The Chairman. Yes. Plus, you know, plus any other information that would indicate to us what proportion of the time and effort of the FBI was absorbed in this kind of activity.
 

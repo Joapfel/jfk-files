@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1418.png
-
-Convert to Markdowna CIA role in the Glomar Explorer (p. 26). In view of the
+a CIA role in the Glomar Explorer (p. 26). In view of the
 fact that GSA is now trying to rent or sell the ship, we
 don't feel we can justify a classification on these items.
 

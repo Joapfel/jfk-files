@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30772.png
-
-Convert to MarkdownMarch 8, 1978
+March 8, 1978
 
 38) HAROLD DEAN NORMAN - Date of birth: 7/6/38, in Clarksville, Texas. 1964 address: 4858 Beulah Street, Dallas, Texas. Employed at Foxboro Company as porter in 1964. Social Security #: 465-48-5688.
 

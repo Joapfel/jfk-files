@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2142.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FEB.8-1955
 

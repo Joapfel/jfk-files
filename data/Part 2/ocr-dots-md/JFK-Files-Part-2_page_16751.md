@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16751.png
-
-Convert to MarkdownDolo 2/26/70
+Dolo 2/26/70
 
 Prior to the autopsy of the body of FREDERICK ALLEN HAMPTON, impressions of the right index finger of HAMPTON were obtained using a common black ink pad and a sheet of white unlined paper.
 

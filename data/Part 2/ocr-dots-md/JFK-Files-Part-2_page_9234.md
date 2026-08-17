@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9234.png
-
-Convert to MarkdownFREE BREAKFAST PROGRAM FOR
+FREE BREAKFAST PROGRAM FOR
 
 SCHOOL
 

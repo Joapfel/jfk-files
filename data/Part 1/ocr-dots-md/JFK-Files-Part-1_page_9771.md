@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9771.png
-
-Convert to Markdown19 April, 1968
+19 April, 1968
 
 Subject: LURING/4 Report of Conversation with Sergio Valdez re LURING/3 Alleged KOFACgt Affiliation.
 

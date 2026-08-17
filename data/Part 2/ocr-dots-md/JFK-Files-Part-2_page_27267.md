@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27267.png
-
-Convert to Markdown# Manfredi Chron Files
+# Manfredi Chron Files
 
 A. Memo from Ruth Johnson to Mr. Manfredi - 29 Apr 75 on Classification of Documents
 

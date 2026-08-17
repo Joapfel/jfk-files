@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22040.png
-
-Convert to Markdownto recall any background information concerning GARLAND or any
+to recall any background information concerning GARLAND or any
 details on his travels and acquaintances while stationed in Mos-
 cow.
 

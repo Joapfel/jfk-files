@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15373.png
-
-Convert to MarkdownMemorandum to Mr. Belmont
+Memorandum to Mr. Belmont
 Re: INTELLIGENCE COVERAGE OF
 FRIENDLY FOREIGN COUNTRIES
 65-63113

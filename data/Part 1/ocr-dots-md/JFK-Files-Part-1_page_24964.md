@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24964.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR : Chief, WH/FI
 SUBJECT : Herbert Itkin (1-27)

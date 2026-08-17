@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21388.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "The Harvard Crimson", Cambridge, Mass., on 3/27/63, contained an article entitled "Worthy Raps U.S. Travel Control". The article concerned comments made by William Worthy (105-20110) in which he criticized C.B.S. News executives stating that CBS had used a double standard when they fired Richard Gibson and Robert Tabor. According to Worthy the two staff members who had been released after forming the FPCC "would still be working if they were anti-Castro".
 

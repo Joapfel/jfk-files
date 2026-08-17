@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5180.png
-
-Convert to MarkdownSANTA CRUZ RA
+SANTA CRUZ RA
 
 The Santa Cruz RA is a three-man RA with two agents, PATRICK J. HAGGERTY, JR. and JOSEPH A. DUSHEK, handling the criminal work in this area. The territory covered by this RA is basically rural in nature and no specific targets have been picked for this territory. It is noted, however, three CIs are currently being handled in this RA and in addition, they have a symbol racial informant and a top echelon criminal informant target. These informants are as follows:
 

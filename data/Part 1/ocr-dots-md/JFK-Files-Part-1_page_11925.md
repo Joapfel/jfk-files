@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11925.png
-
-Convert to MarkdownSUBJECT: Court Appearance on 13 November 1975, San Diego, California
+SUBJECT: Court Appearance on 13 November 1975, San Diego, California
 
 1. On 13 November 1975, Matt MacVane appeared as a witness for the defense at the United States District Court for the Southern District of California, 325 West F Street, San Diego, California. The case was the United States of America v. Dalton C. Smith, et al. MacVane was called to testify by E. Mac Amos Jr., attorney for defendant Joe Merola. In honor of the subpoena MacVane appeared at the court. On 13 November 1975 at approximately 15:30 hours San Diego time MacVane was called to the witness stand.
 

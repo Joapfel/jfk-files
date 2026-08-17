@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2315.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

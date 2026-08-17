@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23031.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 Mr. Baron. Would it surprise you if that were the case?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27296.png
-
-Convert to MarkdownA - Polygraph Support Related to Leaks of Classified Information. SECRET
+A - Polygraph Support Related to Leaks of Classified Information. SECRET
 
 B - Memo for Dir. of Security - 21 Feb 70 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6886.png
-
-Convert to Markdownappropriate solution.¹⁵
+appropriate solution.¹⁵
 
 2. A National Declassification Center
 

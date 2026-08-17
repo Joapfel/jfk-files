@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17375.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 LINCOLN CHARLES POWELL
 

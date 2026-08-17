@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_2711.png
-
 head of the delegation, again representing the Ministry of Culture. I didn't go under my own name because it was decided that when these people [BIRSE and LANE] 06 06
 
 06 06

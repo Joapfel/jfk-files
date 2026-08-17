@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19916.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 Boston SWP and YSA-B members active in BOWAAC were distributing in January, 1972, a "Housing Fact Sheet" in an effort to locate housing accommodations for individuals visiting the Boston area to attend the above scheduled conference at Boston University.
 

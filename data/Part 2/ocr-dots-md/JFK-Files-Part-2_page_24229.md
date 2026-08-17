@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24229.png
-
-Convert to MarkdownSuch concerns have extended beyond these operational levels to general issues of propriety and legality. For example, as noted earlier (<u>supra</u>, p. 90) the so-called "Anti-Pinkerton Act" prohibits a company engaged in investigative work from contracting with the Federal government. But
+Such concerns have extended beyond these operational levels to general issues of propriety and legality. For example, as noted earlier (<u>supra</u>, p. 90) the so-called "Anti-Pinkerton Act" prohibits a company engaged in investigative work from contracting with the Federal government. But
 
 the Agency and its predecessor organizations began contracting as early as November 1942 with certain commercial, investigating companies to perform investigations and to provide commercial credentials to, and cover backstopping for, Agency investigators.
 

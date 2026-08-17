@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31941.png
-
-Convert to Markdown<table><thead><tr><th>1. NAME OF SUBJECT OR TITLE OF INCIDENT</th><th>2. DATE SUBMITTED</th></tr></thead><tbody><tr><td>MARTI, Manuel NMN<br/>PVT E-1, US 52 737 780<br/>DPOB: 17 May 1946, San Juan, Puerto Rico</td><td>18 November 1968<br/>3. CONTROL SYMBOL OR FILE NUMBER<br/>8240-6019<br/>093 36 4601</td></tr></tbody></table>
+<table><thead><tr><th>1. NAME OF SUBJECT OR TITLE OF INCIDENT</th><th>2. DATE SUBMITTED</th></tr></thead><tbody><tr><td>MARTI, Manuel NMN<br/>PVT E-1, US 52 737 780<br/>DPOB: 17 May 1946, San Juan, Puerto Rico</td><td>18 November 1968<br/>3. CONTROL SYMBOL OR FILE NUMBER<br/>8240-6019<br/>093 36 4601</td></tr></tbody></table>
 
 <table><tr><td>4. REPORT OF FINDINGS</td></tr></table>
 

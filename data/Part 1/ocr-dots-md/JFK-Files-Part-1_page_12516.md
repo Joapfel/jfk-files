@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12516.png
-
-Convert to Markdown14-0000-
+14-0000-
 
 DATF: 24 April 1970
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4381.png
-
-Convert to MarkdownWEDNESDAY
+WEDNESDAY
 
 24
 MAY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12776.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">CABLE SEE PAGE 357 FOR SENDER AND RECIPIENT PHONES</th><th>TOTAL COPIES</th><th>RUN BY</th></tr></thead><tbody><tr><td colspan="2">PERSON/UNIT NOTIFIED:</td><td>SECRET</td><td>[REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED]</td></tr><tr><td>ADVANCE, ACTION UNIT, ISSUE PLOTTER</td><td>BY AT A</td><td></td><td>AGENCY MESSAGE</td></tr><tr><td rowspan="3">WHL<br/>ACTION #<br/>819</td><td rowspan="3">INFO</td><td>AP. FILE. VR. 000,000, CHGDN.<br/>C/FI, C/C1, C/NARC2</td><td>1 4</td></tr><tr><td>2 5</td></tr><tr><td>3 6</td></tr></tbody></table>
 

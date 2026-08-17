@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24478.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Gray further testified that his relationship with President
 Eisenhower was such that President Eisenhower "would discuss with me any-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3008.png
-
-Convert to Markdownsmn 7
+smn 7
 
 1946
 

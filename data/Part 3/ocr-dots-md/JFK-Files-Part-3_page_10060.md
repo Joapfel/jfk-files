@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10060.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">Accr. Dir.</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7511.png
-
-Convert to Markdown203 1811, Shanghai Municipal Files, filed 16-4-2-37
+203 1811, Shanghai Municipal Files, filed 16-4-2-37
 
 ISAACS, Harold Robert
 

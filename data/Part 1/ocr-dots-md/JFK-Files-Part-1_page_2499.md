@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2499.png
-
-Convert to MarkdownOfficer. Since KOSOLAPOV was an officer of the First Section and
+Officer. Since KOSOLAPOV was an officer of the First Section and
 the work against GARLAND was the responsibility of the First Section,
 it does not appear that ZENKIN would necessarily have known of any
 developments in the KOSOLAPOV-GARLAND matter.

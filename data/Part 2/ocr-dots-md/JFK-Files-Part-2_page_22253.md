@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22253.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:<br/>Bundy<br/>Thompson<br/>Vance<br/>McCone ✓<br/>Desmond Fitzgerald</td><td>DATES:<br/>July 23, 1964</td><td>CATEGORIES:<br/>Duvalier<br/>Special Group/303</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:<br/>Bundy<br/>Thompson<br/>Vance<br/>McCone ✓<br/>Desmond Fitzgerald</td><td>DATES:<br/>July 23, 1964</td><td>CATEGORIES:<br/>Duvalier<br/>Special Group/303</td></tr></table>
 
 ### OCCURRENCE:
 

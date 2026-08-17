@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_900.png
-
-Convert to Markdowna Supreme Court ruling on the legality of Presidential warrantless foreign intelligence electronic surveillances. Consequently, the Government probably will either ask for dismissal of the case or appeal the Third Circuit's ruling to the Supreme Court.
+a Supreme Court ruling on the legality of Presidential warrantless foreign intelligence electronic surveillances. Consequently, the Government probably will either ask for dismissal of the case or appeal the Third Circuit's ruling to the Supreme Court.
 
 If Ivanov is appealed the Supreme Court will face three possible issues, the 4th Amendment issue of the legality of warrantless foreign intelligence electronic surveillance, the disclosure issue, and the Section 605 evidentiary issue. The Court could seize onto the Section 605 evidentiary issue, not considered by it in Alderman, to dispose of the case without reaching the 4th Amendment or disclosure questions; or it could stand on its instructions to the District Court and rule on the District Court's remand finding that the surveillance did not violate the 4th Amendment.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5960.png
-
-Convert to Markdown14-0000
+14-0000
 
 6 May 1997
 

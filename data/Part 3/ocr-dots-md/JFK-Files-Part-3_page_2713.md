@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2713.png
-
-Convert to Markdown1909
+1909
 
 smn 24
 

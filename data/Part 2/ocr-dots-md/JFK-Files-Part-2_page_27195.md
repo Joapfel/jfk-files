@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27195.png
-
-Convert to MarkdownB-W Files
+B-W Files
 
 VII. Operation CHAOS
 

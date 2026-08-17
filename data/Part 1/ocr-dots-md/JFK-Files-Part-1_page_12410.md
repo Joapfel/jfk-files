@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12410.png
-
-Convert to Markdown" Cuarto 1309, Hospital Jackson Memorial, 7:10 P.M. Miércoles Diciembre 4 de 1965.
+" Cuarto 1309, Hospital Jackson Memorial, 7:10 P.M. Miércoles Diciembre 4 de 1965.
 
 "Yo, JULIO ATON CONSTANZO PALAU, del 72 S.W. Cuarta calle, Miami, Florida, casado con María Constanza, la cual está aquí presente, declaro lo siguiente: Nacé en Palma Soriano, Oriente, en Cuba, el 22 de Mayo de 1938. Yo tengo 32 años de edad. Me case el 10 de Marzo de 1963 en Miami, Florida.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35574.png
-
-Convert to MarkdownD-R-A-F-T
+D-R-A-F-T
 
 Mr. Ralph Brent
 Radio New York Worldwide-WRUL,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8587.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DDS&T-5193-76/1
 

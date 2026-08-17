@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31378.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 PACKING CRATE NR 1:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17180.png
-
-Convert to Markdown4/24/69
+4/24/69
 
 AIRTEL
 

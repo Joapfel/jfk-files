@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5413.png
-
-Convert to MarkdownSECRET
+SECRET
 
 * if desired, a textual explanation of the cryptonym in the nature of a factual description of the source (e.g., "a valued American intelligence source who was a senior, but not general rank, official in the intelligence service (KGB) of the former USSR; specifically, he served in the Second Chief Directorate which was responsible for internal counter-intelligence efforts."
 

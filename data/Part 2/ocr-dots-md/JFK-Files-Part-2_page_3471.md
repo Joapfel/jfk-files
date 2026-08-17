@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3471.png
-
-Convert to MarkdownMr. Murphy seemed particularly interested in the level of activity in Italy and our efforts to cut it back.
+Mr. Murphy seemed particularly interested in the level of activity in Italy and our efforts to cut it back.
 
 9. At one point in the briefing, I spoke of the change in status of the African-American Institute and told of our negotiations with the Ford Foundation on the Congress for Cultural Freedom. I mentioned the Department of State veto on passing funds to [illegible] Roberto[?]. There was some discussion of the Yemen and associated problems. Here, I simply gave an intelligence briefing on the Yemen and the effects of the revolution there on Saudi Arabia and the British position in the Aden Protectorate.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17397.png
-
-Convert to Markdown# BLACK PANTHER PARTY (BPP)
+# BLACK PANTHER PARTY (BPP)
 
 Illinois, as a Negro male, born July 18, 1948, 5'11", 165 pounds, black hair, brown eyes. He described William Dunn, 7351 Princeton Avenue, Chicago, Illinois, as having the alias, "Bones", 5'8", 165 pounds.
 

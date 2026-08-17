@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10018.png
-
-Convert to MarkdownDecember 11, 1974
+December 11, 1974
 
 Assistant Attorney General
 for Administration

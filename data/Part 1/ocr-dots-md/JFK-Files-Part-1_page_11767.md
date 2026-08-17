@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11767.png
-
-Convert to MarkdownPROJECT OUTLINE
+PROJECT OUTLINE
 
 Project FROGNOVEL Amendment No.
 Type Operational

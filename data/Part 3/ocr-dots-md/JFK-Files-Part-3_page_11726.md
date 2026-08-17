@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11726.png
-
-Convert to Markdown- 11 -
+- 11 -
 
 4-H-1
 

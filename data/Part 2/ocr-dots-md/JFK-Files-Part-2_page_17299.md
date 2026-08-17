@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17299.png
-
-Convert to MarkdownThen police spotted a third Panther member in the room, Ronald Satchel, 19, of 2337 Monroe st., who also surrendered. He also had been wounded.
+Then police spotted a third Panther member in the room, Ronald Satchel, 19, of 2337 Monroe st., who also surrendered. He also had been wounded.
 
 In both bedrooms, police found large stores of arms and ammunition. In Hampton's back bedroom, four boxes of ammunition. In Hampton's back bedroom, four boxes of shotgun shells were found as well as shotguns, a rifle, and hand guns. Similar caches were in the front bedroom, some of it in a flight bag.
 

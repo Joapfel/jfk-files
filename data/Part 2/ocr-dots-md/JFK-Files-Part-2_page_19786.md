@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19786.png
-
-Convert to MarkdownCV 100-32010
+CV 100-32010
 
 First source utilized is CV 1098-S.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14571.png
-
-Convert to MarkdownAttachment #II
+Attachment #II
 
 Report 2288.
 

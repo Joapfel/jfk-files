@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12964.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SET UP FOR POA</td><td>✓ EXPEDITE INDICES<br/>ECAT 1909</td><td>CASE NO.</td><td>284658</td></tr><tr><td>SET UP FOR CA</td><td>SPECIAL INQUIRY</td><td>PARENT NAME<br/>SHEET</td><td>Canada / Québec</td></tr></table>
 

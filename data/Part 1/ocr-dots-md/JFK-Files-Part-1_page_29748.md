@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29748.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="4">QUALIFICATIONS SUPPLEMENT TO PERSONAL HISTORY STATEMENT</th></tr><tr><td colspan="4">REAS INSTRUCTIONS CAREFULLY BEFORE COMPLETING. TYPE OR PRINT AVOID USING LIGHT COLORS INK.</td></tr></thead><tbody><tr><th colspan="4">SECTION I<br>BIographical and pOSition DATA</th></tr><tr><td>1 EMP SEP NO<br>035655</td><td>2 Males (List all male)<br>AKBY-IEC HYDROELEC A</td><td>3 SEX<br>M</td><td>4 DATE OF BIRTH<br>04/30/17</td><td>5 DEGREE/GRADE/SERIE<br>9-09-04</td></tr><tr><td>0 SD<br>IP<br>D A E &amp; TEC</td><td colspan="2">7. POSITION HERE<br>NPIC</td><td colspan="2">8. OFFICE OF ASSIGNMENT<br>9 LOCATION: County, State,<br>WASHINGTON, D.C.</td></tr><tr><th colspan="4">SECTION II<br>ADEnCy, OVERSEAs SERVICE</th></tr><tr><th rowspan="2">AREA<br>NO COLLEGE DEGREE ON RECORD</th><th colspan="3"></th><th rowspan="2">TYPE FOUR<br>EDUCATION<br>FROM<br>TO</th></tr><tr><th>MAJOR FIELD</th><th>COLLEGE</th><th>YEAR</th></tr><tr><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>

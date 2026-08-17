@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23073.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td rowspan="2">FILE</td><td colspan="4">VR W/COG-8 EURST, FILT2 FISIC, FIDY 682 CALCT, CH/REG, OJ CIC2, CLOP'S WATERLOG ADDP DDP,</td></tr><tr><td colspan="4"> next </td></tr><tr><td>SECRET</td><td colspan="3"> 150045Z CITE MEXICO CITY 3806 </td></tr><tr><td>DIRECTOR</td><td colspan="3"> JWAVE </td></tr><tr><td>REF.</td><td>A</td><td>HMA 32515</td><td>B</td><td>UFGA 28239</td><td>C</td><td>HAWK33442</td></tr><tr><td colspan="6"> INDEX </td></tr></thead><tbody><tr><td>AVI/FI</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>BY</td><td>DEPT</td><td></td><td></td><td></td><td></td></tr><tr><td>ABSTRACT</td><td>X</td><td></td><td>INDEX</td><td></td><td></td></tr></tbody></table>
 

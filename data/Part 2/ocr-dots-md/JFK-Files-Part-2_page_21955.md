@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21955.png
-
-Convert to MarkdownThe next day, October 8, Headquarters cabled the Station in response to the Wimert-Lt. (Colonel) meeting. Headquarters took note of Schneider's resistance to coup plans and stated:
+The next day, October 8, Headquarters cabled the Station in response to the Wimert-Lt. (Colonel) meeting. Headquarters took note of Schneider's resistance to coup plans and stated:
 
 > ...This would make it more important than ever to remove him and to bring this new state of events...anything we or Station can do to effect removal of Schneider? We know this rhetorical question, but wish inspire thought on both ends on this matter.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11284.png
-
-Convert to MarkdownPAGE TWO CI 105-7038
+PAGE TWO CI 105-7038
 
 | | IS | CIM |
 |---|---|---|

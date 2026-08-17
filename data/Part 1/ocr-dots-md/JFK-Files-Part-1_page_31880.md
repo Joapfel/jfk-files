@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31880.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="3">NOTIFICATION OF CANCELLATION<br>OF MILITARY COVER BACKSTOP</th><th>DATE<br>11 June 1963</th></tr></thead><tbody><tr><td rowspan="2">TO:<br>(CHG.)</td><td>X</td><td>CHIEF, PERSONNEL OPERATIONS DIVISION</td><td>SUBJECT<br>PICCOLO, Joseph S.</td></tr><tr><td></td><td>CHIEF, OPERATING COMPONENT (For Action) OS</td><td></td></tr><tr><td>ATTN:</td><td colspan="2">Mr. White</td><td>FILM NO.<br>4455</td></tr><tr><td>REF:</td><td colspan="2">Form 1322 dtd 4 June 63 removing cover</td><td>ID CARD NO.</td></tr><tr><td colspan="4">MILITARY COVER DISCONTINUED<br>US Army Records Analysis Group</td></tr><tr><td colspan="4"><input type="checkbox" checked disabled> Unblock Records:<br><span style="font-weight: normal; font-size: smaller;">X</span> (OP Memo 20-800-11)<br>Effective __________ EOD</td></tr><tr><td colspan="4"><input type="checkbox" checked disabled> Submit Form 642 To Change Limitation Category:<br><span style="font-weight: bold; font-size: smaller;">X</span> (HB 20-800-2 to be redesignated HMB 20-7)</td></tr><tr><td colspan="4"><input type="checkbox" checked disabled> Return All Military Documentation To CCS.</td></tr><tr><td colspan="4"><input type="checkbox"> Remarks:</td></tr></tbody></table>
 

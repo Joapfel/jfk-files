@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12058.png
-
-Convert to Markdownh. Any arrangements for paying informant or personally contacting him must be specific and no doubt should be left in the minds of either the Agent or informant as to the methods of payment, amount, place, and time.
+h. Any arrangements for paying informant or personally contacting him must be specific and no doubt should be left in the minds of either the Agent or informant as to the methods of payment, amount, place, and time.
 
 i. Informants should be instructed to use only public telephones in communicating with contacting Agent and consideration should be given to furnishing informants the unlisted office telephone number for emergency communication. [This rule is not practical in all espionage and foreign nationality matters but should be followed where applicable.]
 

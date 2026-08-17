@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25635.png
-
-Convert to MarkdownDeLoyce to Mohr
+DeLoyce to Mohr
 
 12-12-63
 

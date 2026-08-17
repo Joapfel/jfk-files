@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_368.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 5. Mr. Strickland of OGC has concurred in these recommendations.
 

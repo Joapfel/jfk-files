@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3570.png
-
-Convert to Markdown<table><tr><td>CSRC: RICHARD HARRINGTON<br/>JAN: WH/2/HUGES?<br/>DATE: 7163/1948<br/>DATE: 22 SEPTEMBER 1969</td></tr></table>
+<table><tr><td>CSRC: RICHARD HARRINGTON<br/>JAN: WH/2/HUGES?<br/>DATE: 7163/1948<br/>DATE: 22 SEPTEMBER 1969</td></tr></table>
 
 SECRET
 

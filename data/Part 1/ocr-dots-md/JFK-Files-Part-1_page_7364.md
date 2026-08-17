@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7364.png
-
-Convert to MarkdownCHASE MANHATTAN BANK ACCOUNT
+CHASE MANHATTAN BANK ACCOUNT
 
 | Check No. | Date | Payee | Amount |
 |---|---|---|---|

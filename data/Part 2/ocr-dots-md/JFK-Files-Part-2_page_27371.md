@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27371.png
-
-Convert to MarkdownA-III (A)
+A-III (A)
 
 A - Ltr from Sheffield Edwards to Mr. Belin - 5/7/75
 

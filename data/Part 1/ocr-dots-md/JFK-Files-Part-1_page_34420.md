@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34420.png
-
-Convert to Markdown1. ~~E.B. Childress~~, A.M., Nellis Field.
+1. ~~E.B. Childress~~, A.M., Nellis Field.
 
 2. E. B. Rixen (Citizen) at 13 May 1960. ANL: Germany. C. W. L. Hill - West Germany. Dr. Willy Killeberg, citizenly person and admission for six months 28 January 1961.
 

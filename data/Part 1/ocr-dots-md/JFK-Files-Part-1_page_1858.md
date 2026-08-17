@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1858.png
-
-Convert to MarkdownSubject advised that Aline MOSBY was a newspaperman in SCHAPIRO's office. MOSBY, during the past year, had been in the hospital on several occasions, and one didn't see too much of her. Subject also advised that MOSBY stuck mostly to the foreign circuit rather than the Embassy circuit. Subject stated that one of the reasons MOSBY was in the hospital, on one occasion, was the fact that she had an abortion, according to gossip.
+Subject advised that Aline MOSBY was a newspaperman in SCHAPIRO's office. MOSBY, during the past year, had been in the hospital on several occasions, and one didn't see too much of her. Subject also advised that MOSBY stuck mostly to the foreign circuit rather than the Embassy circuit. Subject stated that one of the reasons MOSBY was in the hospital, on one occasion, was the fact that she had an abortion, according to gossip.
 
 Subject stated that another newspaperwoman in Moscow was Priscilla JOHNSON. Subject advised that JOHNSON had the reputation of being a good reporter and one whom the Soviets kept on a month to month visa basis. Subject indicated that it was highly possible the Soviets had attempted to recruit JOHNSON, as she spent a lot of time with Soviet nationals.
 

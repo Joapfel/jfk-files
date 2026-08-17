@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22480.png
-
-Convert to MarkdownOUTGOING TELEPOUCH
+OUTGOING TELEPOUCH
 
 SIGNAL CENTER USE
 

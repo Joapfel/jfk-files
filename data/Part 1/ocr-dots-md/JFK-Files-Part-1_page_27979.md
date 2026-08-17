@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27979.png
-
-Convert to Markdown<table><thead><tr><th>DATE</th><th>NAME</th></tr></thead><tbody><tr><td>FEB 20 1945</td><td>BATMAN, RICHARD</td></tr></tbody></table>
+<table><thead><tr><th>DATE</th><th>NAME</th></tr></thead><tbody><tr><td>FEB 20 1945</td><td>BATMAN, RICHARD</td></tr></tbody></table>
 
 <table><thead><tr><th>Rank</th><th>Name</th><th>Date</th><th>Next Date</th></tr></thead><tbody><tr><td>Sergeant</td><td>WILLIAM H. FOSTER</td><td>February 26, 1945</td><td>March 13, 1945</td></tr></tbody></table>
 

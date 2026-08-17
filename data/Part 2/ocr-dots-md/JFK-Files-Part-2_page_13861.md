@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13861.png
-
-Convert to MarkdownMay 15, 1975
+May 15, 1975
 
 Present at questioning - Mark Gitenstein
 Mike Epstein

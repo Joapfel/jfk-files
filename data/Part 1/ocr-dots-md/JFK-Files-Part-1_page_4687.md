@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4687.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FEB. 2, 1978
 

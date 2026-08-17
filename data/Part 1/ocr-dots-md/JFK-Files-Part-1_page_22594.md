@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22594.png
-
-Convert to MarkdownSent to R101AN
+Sent to R101AN
 
 23 Dec.70
 

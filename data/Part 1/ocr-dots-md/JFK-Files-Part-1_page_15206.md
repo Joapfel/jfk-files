@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15206.png
-
-Convert to Markdownque j'ai fait jusqu'ici, et d'ailleurs je ne suis pas sense
+que j'ai fait jusqu'ici, et d'ailleurs je ne suis pas sense
 reconter ma vie.
 
 Je pense souvent que ce serait bien de se

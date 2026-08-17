@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34690.png
-
-Convert to MarkdownMiami, Mayo 7, 1967.
+Miami, Mayo 7, 1967.
 
 Soyoreas
 

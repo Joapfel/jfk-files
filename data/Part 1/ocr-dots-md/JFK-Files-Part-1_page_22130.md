@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22130.png
-
-Convert to Markdown**e. Marina RYTOVA:**
+**e. Marina RYTOVA:**
 
 Marina RYTOVA was turned over to NOSENKO by I.A. KONSTANTINOV of the Tourist Department in 1956 or 1957. At that time she was working as an interpreter at the Russian Permanent Exhibition in Moscow. In 1960 or 1961 she became an instructor of the Greek language at the Institute of International Relations, and some time in 1962 she got a job at the school of the Central Committee of the Communist Party of the Soviet Union. Thereafter she ceased all agent work. NOSENKO was officially registered as her case officer until his defection in 1964. He did not indicate that RYTOVA took part in any operations from January 1962 until she began work for the Central Committee.
 

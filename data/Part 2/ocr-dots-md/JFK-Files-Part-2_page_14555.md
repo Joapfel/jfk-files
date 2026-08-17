@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14555.png
-
-Convert to MarkdownLet to SAC, New York
+Let to SAC, New York
 
 Re: Arab Intelligence Activities in the
 United States

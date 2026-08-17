@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20809.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 TO : Acting Director, FBI (100-468406)
 

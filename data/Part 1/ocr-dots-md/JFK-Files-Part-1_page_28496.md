@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28496.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OFFICE MEMORANDUM
 

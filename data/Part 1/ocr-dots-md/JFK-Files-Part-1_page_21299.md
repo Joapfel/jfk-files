@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21299.png
-
-Convert to MarkdownE. J. SACRE
+E. J. SACRE
 
 3/4612
 

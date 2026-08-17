@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15561.png
-
-Convert to MarkdownFREE BREAKFASTS FOR CHILDREN
+FREE BREAKFASTS FOR CHILDREN
 
 The people and the Black Panther Party, say in a statement released by them Tuesday morning, are being asked to join in the effort to help break the cycle of poverty among black Americans.
 

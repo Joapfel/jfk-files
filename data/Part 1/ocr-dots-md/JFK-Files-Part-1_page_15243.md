@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15243.png
-
-Convert to Markdown20 august 1959.
+20 august 1959.
 
 Mr. Ernest G. Kaycrink:
 

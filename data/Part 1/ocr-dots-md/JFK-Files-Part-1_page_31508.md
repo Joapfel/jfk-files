@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31508.png
-
-Convert to Markdown13 July 1952
+13 July 1952
 
 Dear Mr. Leon:
 

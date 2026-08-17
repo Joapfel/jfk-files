@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9760.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>0100</td>
         <td>Marvin Francis:lg</td>

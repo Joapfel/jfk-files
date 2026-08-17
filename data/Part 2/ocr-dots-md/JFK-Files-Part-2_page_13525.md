@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13525.png
-
-Convert to MarkdownDirector
+Director
 Federal Bureau of Investigation
 United States Department of Justice
 Washington, D. C. 20535

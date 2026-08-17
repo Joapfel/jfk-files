@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6489.png
-
-Convert to Markdown13-00000
+13-00000
 
 4. Time is an important factor in resolution of the Cuban problem. Therefore, the plan should be so time-phased that projects would be operable within the next few months.
 

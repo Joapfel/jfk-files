@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23028.png
-
-Convert to Markdown1 that he might be doing, you know, against Fidel Castro.
+1 that he might be doing, you know, against Fidel Castro.
 
 2
 

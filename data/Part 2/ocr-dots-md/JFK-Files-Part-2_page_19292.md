@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19292.png
-
-Convert to MarkdownWOMEN FOR PEACE aka
+WOMEN FOR PEACE aka
 Women Strike for Peace
 
 The "Berkeley Daily Gazette," a daily newspaper of general circulation published in Berkeley, California, contained an article in the November 19, 1965, evening edition reflecting that in November, 1961, when concern mounted over radioactive fallout from nuclear testing, a group of women in Washington, D. C. started Women Strike for Peace. The idea spread rapidly throughout the country and now embraces 900 groups, including Women For Peace groups in the San Francisco Bay area.

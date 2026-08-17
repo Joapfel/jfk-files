@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11746.png
-
-Convert to Markdown# The Little Man Of The Chimes
+# The Little Man Of The Chimes
 
 Once upon a time there was a Very Old Lady who lived by herself in a small brown house. She had a rocking chair, a thick storybook, and a clock that chimed. Every day the Very Old Lady sat in her rocking chair beside the window. Slowly she rocked back and forth and read stories from the thick book. There was a story about a white-topped mountain in Japan, one about a gray castle in Spain with a thousand rooms. And one was a story of a golden horse in Africa that could run faster than the wind.
 

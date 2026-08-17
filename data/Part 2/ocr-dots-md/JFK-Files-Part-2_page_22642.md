@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22642.png
-
-Convert to Markdown1 Mr. Kirbow. In your official capacity in the CIA you never had any occasion to cross Mr. Szulc's trail or consider him a foreign person --
+1 Mr. Kirbow. In your official capacity in the CIA you never had any occasion to cross Mr. Szulc's trail or consider him a foreign person --
 2
 3
 4 Mr. Angleton. I separated him once in a fight with a friend of mine.

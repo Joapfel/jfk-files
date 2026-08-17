@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21219.png
-
-Convert to Markdowncurrent interrogations have clarified practically all of these cases. (u)
+current interrogations have clarified practically all of these cases. (u)
 
 1. Actor/Proctor
 

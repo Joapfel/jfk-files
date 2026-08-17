@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19044.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Rumors of clandestine financial support from the Communists or from sympathizers among Nazi emigrants to Latin America have not been confirmed.
 

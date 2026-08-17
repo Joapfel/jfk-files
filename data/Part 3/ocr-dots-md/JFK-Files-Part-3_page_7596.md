@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7596.png
-
-Convert to MarkdownRequest to the Secretary of State for Documents and Other Material Regarding the Department of State and Intelligence Activities of the United States Government
+Request to the Secretary of State for Documents and Other Material Regarding the Department of State and Intelligence Activities of the United States Government
 
 1. All directives, regulations, memoranda, guidance or similar material setting forth the relationship of the Department of State to, and its role in, the Intelligence Community and the National Security Council structure, including but not limited to the United States Intelligence Board, the Forty Committee, Washington Special Action Group, Senior Review Group, the Verification Panel, and the Intelligence Committee. Specific descriptive and documentary material covering the nature and extent of the Department's relationship with the National Security Agency and the Federal Bureau of Investigation and other investigating and intelligence entities should be included, such as the Interagency Evaluation Committee.
 

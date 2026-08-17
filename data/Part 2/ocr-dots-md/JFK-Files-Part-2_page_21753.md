@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21753.png
-
-Convert to MarkdownExh 4
+Exh 4
 
 P/S TAFF
 

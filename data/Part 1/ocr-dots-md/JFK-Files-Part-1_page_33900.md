@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33900.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In reply refer W-1968
 to:

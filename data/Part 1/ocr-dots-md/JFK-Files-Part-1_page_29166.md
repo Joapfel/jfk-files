@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29166.png
-
-Convert to Markdown(4)
+(4)
 
 OCCUPATION housewife
 

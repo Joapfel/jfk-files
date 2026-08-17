@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2501.png
-
-Convert to Markdownthis operational activity of KOSOLAPOV is another apparent instance,
+this operational activity of KOSOLAPOV is another apparent instance,
 as in the JENNER case, of his not knowing something he, by his own
 statements, should have known.
 

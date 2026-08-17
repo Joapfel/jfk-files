@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6707.png
-
-Convert to Markdownd. Memorandum for Deputy Director of Security dated
+d. Memorandum for Deputy Director of Security dated
 1 November 1960 from M. D. Stevens, subject:
 American Defectors
 

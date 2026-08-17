@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3237.png
-
-Convert to Markdown1. Whether meaningful and stringent guidelines can be written which do not so hamper the administration of an internal security intelligence program as to make the product not just marginal, as GAO suggests, but worthless.*
+1. Whether meaningful and stringent guidelines can be written which do not so hamper the administration of an internal security intelligence program as to make the product not just marginal, as GAO suggests, but worthless.*
 
 2. In light of the possibility that the present Attorney General may address this matter via internal Justice Department guidelines, whether this approach does not ignore the legal authority question which can only be resolved by statute.
 

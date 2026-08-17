@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29835.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA:
 

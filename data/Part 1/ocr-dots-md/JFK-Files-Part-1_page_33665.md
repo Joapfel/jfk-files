@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33665.png
-
-Convert to Markdown30 January 1952
+30 January 1952
 
 MEMORANDUM FOR: SPECIAL ASSISTANT FOR INSPECTION AND REPORTS
 

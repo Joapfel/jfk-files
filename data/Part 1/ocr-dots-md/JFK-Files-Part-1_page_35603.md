@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35603.png
-
-Convert to MarkdownDIVISION 68-8-2
+DIVISION 68-8-2
 
 August 4, 1964
 

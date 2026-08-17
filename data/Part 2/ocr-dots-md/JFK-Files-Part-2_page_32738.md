@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32738.png
-
-Convert to Markdownthe quarantine led to the formula under which Soviet ships stayed away
+the quarantine led to the formula under which Soviet ships stayed away
 from the interception area and on that condition the United States agreed
 to do everything possible to avoid direct confrontation. Khrushchev gave
 unprecedented agreement to the idea of U.N. inspection and verification

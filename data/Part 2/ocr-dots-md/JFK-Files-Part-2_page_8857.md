@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8857.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CLASSIFIED INFORMATION</td></tr><tr><td>22</td><td>SECRET</td></tr><tr><td>3</td><td>1</td></tr><tr><td>3</td><td>5</td></tr><tr><td>3</td><td>6</td></tr><tr><td colspan="2">TO: DIRECTOR</td></tr><tr><td colspan="2">FROM: VILLAGE OF CHIHUAHUAL DE OJOS, CA 2, CA/PES, CA/PROP, CHIHUAHUAL DE OJOS, CI/IC 2, FI, FI/D, FI/INT 2, Log./LL, LE, LH, CH, CL/1, AC/CL, AC/HL, AD, RS, OR,</td></tr><tr><td colspan="2">TOCO:</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10969.png
-
-Convert to Markdownb. Indications of Soviet deployment of surface-to-surface missiles to North Vietnam.
+b. Indications of Soviet deployment of surface-to-surface missiles to North Vietnam.
 
 c. Changes in the attitudes and policies of influential South Vietnamese, especially Buddhist leaders, toward the war effort or the US.
 

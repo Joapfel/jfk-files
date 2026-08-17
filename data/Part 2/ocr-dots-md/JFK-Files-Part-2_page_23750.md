@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23750.png
-
-Convert to MarkdownHW 50955 DocId:32423509, Page 124
+HW 50955 DocId:32423509, Page 124
 
 the hiding places for responsibility or accountability. But
 I think creation of a separate unit here and consolidation

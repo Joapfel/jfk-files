@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23333.png
-
-Convert to Markdown8 March 1957
+8 March 1957
 
 MEMORANDUM FOR: Chief, Office of Security
 

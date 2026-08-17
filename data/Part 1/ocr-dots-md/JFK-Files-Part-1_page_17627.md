@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17627.png
-
-Convert to MarkdownAttachment to IEM-A-1019A
+Attachment to IEM-A-1019A
 
 KAPOK-1401
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9023.png
-
-Convert to Markdown9 September 1968
+9 September 1968
 
 MEMORANDUM FOR: The Record
 

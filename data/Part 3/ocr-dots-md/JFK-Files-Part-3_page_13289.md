@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13289.png
-
-Convert to MarkdownSECRET/Sensitive
+SECRET/Sensitive
 
 We are not competent to comment on Mr. Hoch's questions or allegations concerning other Government agencies or the Commission. He has raised a number of points concerning CIA that we address below. Before doing so, however, a few words are in order concerning the set of mind with which Mr. Hoch seems to have approached this matter.
 

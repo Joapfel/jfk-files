@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8103.png
-
-Convert to Markdown<table><tr><td>CABLE SEC DISSEMIN BY</td><td>PER</td><td>TOTAL COPIES RUN BY</td></tr><tr><td></td><td></td><td>SECRET</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td></td></tr></table>
+<table><tr><td>CABLE SEC DISSEMIN BY</td><td>PER</td><td>TOTAL COPIES RUN BY</td></tr><tr><td></td><td></td><td>SECRET</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td></td></tr></table>
 
 REPRODUCTION BY OTHER TM
 ISSUING OFFICE IS PROHIBITED

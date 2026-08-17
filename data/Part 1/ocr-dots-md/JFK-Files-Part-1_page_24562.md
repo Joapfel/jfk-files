@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24562.png
-
-Convert to MarkdownSr. JACHATUROV K.A.
+Sr. JACHATUROV K.A.
 
 Agencia Prensa Novosti
 Plaza Pushkin 4

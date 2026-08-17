@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24328.png
-
-Convert to MarkdownCommon Stock
+Common Stock
 
 | Date of Purchase | Stocks | No. of Shares | Purchased at Per Share | Amount | Per Share | Amount | P/E Ratio |
 |---|---|---|---|---|---|---|---|

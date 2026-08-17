@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19691.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 STANDARD FORM 50 (8 PA)
 REV. APRIL 1957

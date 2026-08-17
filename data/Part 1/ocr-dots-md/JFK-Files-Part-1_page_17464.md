@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17464.png
-
-Convert to Markdown<table><tr><td>ORIG:</td><td>J. O. HEYN</td></tr><tr><td>UNIT:</td><td>MX/3/MEXICO</td></tr><tr><td>EXT:</td><td>2555</td></tr><tr><td>DATE:</td><td>3 JANUARY 1962</td></tr></table>
+<table><tr><td>ORIG:</td><td>J. O. HEYN</td></tr><tr><td>UNIT:</td><td>MX/3/MEXICO</td></tr><tr><td>EXT:</td><td>2555</td></tr><tr><td>DATE:</td><td>3 JANUARY 1962</td></tr></table>
 
 CLASSIFIED MESSAGE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6138.png
-
-Convert to MarkdownRef errred. page (s)
+Ref errred. page (s)
 
 of memo
 

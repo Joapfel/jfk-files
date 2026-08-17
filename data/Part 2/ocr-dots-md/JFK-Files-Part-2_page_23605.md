@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23605.png
-
-Convert to Markdownit via air drops or sea infiltration. To date the internal opposition has
+it via air drops or sea infiltration. To date the internal opposition has
 not been able to develop this capability, nor have they been able to
 nominate training candidates for code radio operators or saboteurs.
 This turn of events is primarily due to the comprehensive nature of

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27787.png
-
-Convert to MarkdownCOMMENTS OF REVIEWING OFFICIAL continued
+COMMENTS OF REVIEWING OFFICIAL continued
 
 While I personally handled the first week or so of
 the myriad problems associated with a wide-spread investi-

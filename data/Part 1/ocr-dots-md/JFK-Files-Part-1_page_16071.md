@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16071.png
-
-Convert to Markdownunits in Thailand. In this regard, the Sniper Team should be drawn if at all possible from the ten previously trained sniper personnel presently on duty with the Black Panther Division in Vietnam. All personnel were trained in the U. S. Army division sniper training program in the Vietnam Delta. During this Phase personnel will be organized into the SO H/K Platoon structure.
+units in Thailand. In this regard, the Sniper Team should be drawn if at all possible from the ten previously trained sniper personnel presently on duty with the Black Panther Division in Vietnam. All personnel were trained in the U. S. Army division sniper training program in the Vietnam Delta. During this Phase personnel will be organized into the SO H/K Platoon structure.
 
 During the period 6th through the 12th week, Platoon personnel would be undergoing the sniper training program consisting of basic firing positions and integrated acts of shooting. Additionally, during this period, JSOPS would establish standing operating procedures and effect the liaison with appropriate RTA, DPD and TNP units in the joint Tactical Area of Operations responsibility (TAOR) selected for the pilot program for the First Provisional Special Operations Hunter/ Killer Platoon. Thus, at the end of the third program month, the first team would be selected, organized, trained and ready for insertion into the TAOR.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1688.png
-
-Convert to Markdown<table><thead><tr><th>Case Agent</th><th>Period assigned</th><th>Division, Section, or Squad of Assignment</th><th>Nature of Agent's Assign- ment prior to involvement in Cointelpro</th></tr></thead><tbody><tr><td>ROBERT R. NICHOLS</td><td>1/1/64 - 8/20/64</td><td>Atlanta - #3</td><td>Security/extremist investigations</td></tr><tr><td>ALDEN F. MILLER</td><td>2/4/64 - 8/21/64</td><td>Atlanta - #3</td><td>Security investigations</td></tr><tr><td>ALAN G. SENTINELLA</td><td>7/22/65 - 4/15/69</td><td>Atlanta - #3</td><td>Security/extremist investigations</td></tr></tbody></table>
+<table><thead><tr><th>Case Agent</th><th>Period assigned</th><th>Division, Section, or Squad of Assignment</th><th>Nature of Agent's Assign- ment prior to involvement in Cointelpro</th></tr></thead><tbody><tr><td>ROBERT R. NICHOLS</td><td>1/1/64 - 8/20/64</td><td>Atlanta - #3</td><td>Security/extremist investigations</td></tr><tr><td>ALDEN F. MILLER</td><td>2/4/64 - 8/21/64</td><td>Atlanta - #3</td><td>Security investigations</td></tr><tr><td>ALAN G. SENTINELLA</td><td>7/22/65 - 4/15/69</td><td>Atlanta - #3</td><td>Security/extremist investigations</td></tr></tbody></table>
 
 3. Identity of case agent(s) involved in the security investigation of MARTIN LUTHER KING, JR., and the SCLC
 

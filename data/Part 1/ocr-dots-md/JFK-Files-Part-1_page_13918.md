@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13918.png
-
-Convert to MarkdownEMBAJADA DE CUBA
+EMBAJADA DE CUBA
 
 México, D.F.
 No. 138

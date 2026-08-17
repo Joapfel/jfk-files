@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4937.png
-
-Convert to MarkdownNY. 100-149194
+NY. 100-149194
 
 (~~BA 969-S~~) advised on 11/22/60, (~~BA 134-13A-615~~) that at a National Negro Commission meeting held on 11/19, 20/60, at CP Headquarters, 23 West 26th Street, NYC, TED BASSETT, a representative of "The Worker", stated that the CP is now in the process of placing members of the Party in key positions in the SCLC. BASSETT continued by saying that a Western Conference of the Christian Leadership is now being formed and a CP member is the leader in this conference.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6518.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">
      TO: Intelligence Community Staff<br/>

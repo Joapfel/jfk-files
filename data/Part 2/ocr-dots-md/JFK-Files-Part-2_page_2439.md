@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2439.png
-
-Convert to Markdown29 October 1970
+29 October 1970
 
 Chief, Miami Field Office
 Director, Domestic Contact Service, OAS

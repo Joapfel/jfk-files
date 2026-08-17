@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18364.png
-
-Convert to MarkdownStandard Form No. 618
+Standard Form No. 618
 Appointed January 28, 1943
 U S Civil Service Commission
 C. S. C. Dept. Ctr. No. 409

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33095.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>RE: John Mertz:jls</td></tr><tr><td>NIT: WH/COG/OPS</td></tr><tr><td>AT: 0320/1255</td></tr><tr><td>ATE: 25 Nov 69</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31751.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH:ay
 
 The editorial concluded by stating SCHEER advised Israel and the Arab states to move to the left and to seek to solve their economic and social problems in a joint effort. The editorial adds, "He apparently forgets that the most left of the Arab states is Syria, the country most responsible for the recent war in which the Arabs were defeated."

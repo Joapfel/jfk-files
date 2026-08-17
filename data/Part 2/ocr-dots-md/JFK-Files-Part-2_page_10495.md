@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10495.png
-
-Convert to MarkdownSECRET
+SECRET
 
 e. Alias Social Security Cards. 171 backstopped accounts have been established for contract personnel whose relationship with the Agency cannot be revealed but who are entitled to Social Security coverage. Following expiration of the contractual relationship, at an appropriate time the alias and true name accounts are merged permitting the individual to receive complete benefits upon reaching the age of eligibility.
 

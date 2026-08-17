@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8749.png
-
-Convert to MarkdownAlthough DIAZ has a position of great influence in the DTI, he is poorly regarded. He is (62) reportedly working with former U.S. gangsters who were deported from the U.S. and also affiliated with the narcotics racket. Is believed to be in complete charge of "any activity as contemplated by Aldo Pedro MARGOLLES-Duenas, which involved a plot to assassinate the President of the United States."
+Although DIAZ has a position of great influence in the DTI, he is poorly regarded. He is (62) reportedly working with former U.S. gangsters who were deported from the U.S. and also affiliated with the narcotics racket. Is believed to be in complete charge of "any activity as contemplated by Aldo Pedro MARGOLLES-Duenas, which involved a plot to assassinate the President of the United States."
 
 UFGA 3302 Dated 16 February 1962
 

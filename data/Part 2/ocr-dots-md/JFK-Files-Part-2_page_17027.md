@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17027.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 The movie, which allegedly was shown on television that is supposedly the reinaction of the raid at 2337 West Monroe, Chicago, Illinois, on December 4, 1969, by those police officers who actually conducted that raid, was shown at the "Inquest" inasmuch as these officers did not respond to "The People's Subpoena" directed to each to appear before this "Inquest."
 

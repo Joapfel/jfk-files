@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25620.png
-
-Convert to Markdownassassination attempt against Fidel Castro. Attached hereto as Exhibits A and B are Xerox copies of said publications.
+assassination attempt against Fidel Castro. Attached hereto as Exhibits A and B are Xerox copies of said publications.
 
 4. At no time prior to the sentencing of defendant were the matters referred to in Exhibits A and B brought to the Court's attention.
 

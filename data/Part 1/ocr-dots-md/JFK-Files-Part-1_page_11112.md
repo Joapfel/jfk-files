@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11112.png
-
-Convert to Markdown<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET/KAPOK</td><td>HMA-31703</td></tr></tbody></table>
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET/KAPOK</td><td>HMA-31703</td></tr></tbody></table>
 
 ## 3. FRADYER is very much aware of Headquarters interest in L-9. Although he plans to meet L-9 regularly, he doubts (as previously mentioned to Clyde K. SHRYOCK when the latter recently visited Mexico) that L-9 will live up to Headquarters expectations.
 

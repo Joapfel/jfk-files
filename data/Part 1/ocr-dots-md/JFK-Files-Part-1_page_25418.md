@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25418.png
-
-Convert to Markdown6 May 1969
+6 May 1969
 
 RESEARCH TO : CIGI, LOS ANGELES FIELD OFFICE
 ATTENTION :

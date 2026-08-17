@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21559.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. O'Connell. No, Normal Paul at one time was the head of the Division that I mentioned a little while ago. But he wasn't involved in it
 

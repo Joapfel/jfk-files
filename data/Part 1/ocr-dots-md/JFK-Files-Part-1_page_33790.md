@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33790.png
-
-Convert to Markdown# PROPOSED STATEMENT
+# PROPOSED STATEMENT
 
 (Draft #4, 20 May 1952)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22278.png
-
-Convert to Markdown1973
+1973
 
 was not advised of the assassination activities. Quite likely
 I cannot say that for sure, but I know the compartmentation

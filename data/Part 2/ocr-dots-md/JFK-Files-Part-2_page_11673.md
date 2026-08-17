@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11673.png
-
-Convert to MarkdownSACs must be alert in recommending SAC contacts that they are not pro-
+SACs must be alert in recommending SAC contacts that they are not pro-
 posing individuals who because of business connections or personal
 activities or close association with other persons will be involved in
 unfavorable publicity or become the subject of adverse investigative

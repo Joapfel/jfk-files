@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4851.png
-
-Convert to MarkdownSECRET
+SECRET
 
 country's separate intelligence network. And it was
 unbelievable and frightening. Very frightening.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5726.png
-
-Convert to MarkdownSECTION 122. RACIAL MATTERS
+SECTION 122. RACIAL MATTERS
 
 April 1 and October 1
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31801.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>DD, 073-2921</td></tr></table>
 

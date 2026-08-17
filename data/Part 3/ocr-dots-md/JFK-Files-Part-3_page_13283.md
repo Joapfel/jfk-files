@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13283.png
-
-Convert to MarkdownJune 5, 1964
+June 5, 1964
 
 MEMORANDUM FOR THE HONORABLE LEE RANKIN
 

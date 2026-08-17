@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2203.png
-
-Convert to Markdown# Abstract of Information Provided to Select Committees
+# Abstract of Information Provided to Select Committees
 
 <table>
   <tbody>

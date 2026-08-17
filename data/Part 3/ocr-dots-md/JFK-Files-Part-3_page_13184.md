@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13184.png
-
-Convert to Markdownno force was used in obtaining subscribers to their service but the word was out among the bookmaking fraternity that it was the thing to do. He feels that during the past year MSNS has lost their affiliation with the syndicate and now is operating independent of any organized authority.
+no force was used in obtaining subscribers to their service but the word was out among the bookmaking fraternity that it was the thing to do. He feels that during the past year MSNS has lost their affiliation with the syndicate and now is operating independent of any organized authority.
 
 MART said that during the current 1967 major league baseball season, he paid $50 a week for the line service. Normally the $50 would be paid in cash by one of his employees working at Alfies Sundries to STANLEY GREEN. GREEN's normal pick-up day was either Monday or Tuesday.
 

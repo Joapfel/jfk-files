@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29304.png
-
-Convert to MarkdownINFORMATION REPORT
+INFORMATION REPORT
 
 <table><tr><td>CLASS: CONVENTIONAL</td><td>FROM: NA, CARACAS</td><td>REPORT NO.: 142-60</td><td>DATE: 30 JULY 1960</td></tr></table>
 

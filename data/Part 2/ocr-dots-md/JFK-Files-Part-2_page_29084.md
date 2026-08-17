@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29084.png
-
-Convert to MarkdownSchedule C (Form 540) (Rev. 1973)
+Schedule C (Form 540) (Rev. 1973)
 
 SCHEDULE C-2. Explanation of Lines 7 and 9
 

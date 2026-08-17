@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17978.png
-
-Convert to MarkdownINTELLIGENCE DIVISION
+INTELLIGENCE DIVISION
 
 W. Raymond Wannall
 Assistant Director

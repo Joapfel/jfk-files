@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23150.png
-
-Convert to Markdown1 tell you that the, what we call the underworld, the Mafia,
+1 tell you that the, what we call the underworld, the Mafia,
 2 was engaging in attempts to assassinate Fidel Castro?
 
 3 Mr. Halley. I don't recall any such reports, but I've

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17733.png
-
-Convert to Markdown59-
+59-
 
 Salida.- MARINA reclama los subros que no le han llegado.
 HP BERTRUDEZ dice que hay misma piza a dejarlos.- 74-

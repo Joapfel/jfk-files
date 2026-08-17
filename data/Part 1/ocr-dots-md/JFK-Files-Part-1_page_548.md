@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_548.png
-
 to Ambassador REISCHAUER. During that time, I became friends with Beheiren representative ODA and other intellectuals in Japan. It was for these reasons that I was given this assignment. I personally have never participated actively in the anti-Vietnam war movement so far.
 
 -- When did you arrive in Japan, and where did you meet the four seamen?

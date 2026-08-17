@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14659.png
-
-Convert to Markdown# Jack T. Rainwater
+# Jack T. Rainwater
 
 Jack T. Rainwater has conducted a large-scale numbers operation in the Miami, Florida area. He and six associates were convicted of state gambling violations in Florida courts based upon evidence furnished by the Internal Revenue Service and testimony of Internal Revenue Service agents.
 

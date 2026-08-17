@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12539.png
-
-Convert to Markdown# 3. Reporting Procedures
+# 3. Reporting Procedures
 
 ## a. General
 

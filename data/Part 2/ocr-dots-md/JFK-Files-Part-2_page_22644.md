@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22644.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 7600114531
 WARD & PAUL

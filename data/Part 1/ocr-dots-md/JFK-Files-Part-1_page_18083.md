@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18083.png
-
-Convert to MarkdownSECRET/KAPOK
+SECRET/KAPOK
 
 | Expenditures for | FY 1967 | FY 1968 |
 | :--- | ---: | ---: |

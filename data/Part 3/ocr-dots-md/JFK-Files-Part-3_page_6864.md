@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6864.png
-
-Convert to MarkdownSSC REQUEST 9/29/75
+SSC REQUEST 9/29/75
 ITEM 18
 
 #MDE16 SP2 ALM/FG

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19274.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>Transmit the following in</td>

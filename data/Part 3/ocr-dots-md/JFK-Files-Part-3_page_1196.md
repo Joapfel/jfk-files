@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1196.png
-
-Convert to MarkdownAUG 13 1975
+AUG 13 1975
 
 CONFIDENTIAL
 

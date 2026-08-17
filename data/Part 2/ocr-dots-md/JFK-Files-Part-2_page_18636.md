@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18636.png
-
-Convert to Markdown NW 88326 DocId:32989627 Page 234
+NW 88326 DocId:32989627 Page 234
 
 FBI
 Date: 3/6/68

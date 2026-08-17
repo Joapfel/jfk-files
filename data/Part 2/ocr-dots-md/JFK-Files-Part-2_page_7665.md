@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7665.png
-
-Convert to Markdownhave discussed the matter, naturally, with Mr. McCone, the Director of CIA, and he, of course, will no doubt appear himself, but there is no indication at all that he was employed by them. We frequently get that kind of a story from individuals who, when they get into some kind of difficulty, will claim they were working for the CIA or they were working for the FBI.
+have discussed the matter, naturally, with Mr. McCone, the Director of CIA, and he, of course, will no doubt appear himself, but there is no indication at all that he was employed by them. We frequently get that kind of a story from individuals who, when they get into some kind of difficulty, will claim they were working for the CIA or they were working for the FBI.
 
 Representative Boggs. Surely.
 

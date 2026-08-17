@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29063.png
-
-Convert to Markdown**Form 1040**
+**Form 1040**
 **US Department of the Treasury—Internal Revenue Service**
 **Individual Income Tax Return**
 

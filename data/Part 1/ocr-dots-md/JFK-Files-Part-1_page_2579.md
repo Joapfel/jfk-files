@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2579.png
-
-Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
 
 CLASSIFIED When blank-TOP SECRET when attached to Top Secret Document—Automatically downgraded or declassified when filled in form is detached from controlled document.
 

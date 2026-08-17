@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_382.png
-
-Convert to Markdown16. At the age of 15 Subject left home to join the Mexican Navy. Subject has commented to Rowton that his childhood was not particularly happy and that his mother and father separated, apparently when he was in his teens. It appears likely that Subject left home as a result of family dissension. Subject states that his desire to travel and see the world was very strong at the time he joined the navy.
+16. At the age of 15 Subject left home to join the Mexican Navy. Subject has commented to Rowton that his childhood was not particularly happy and that his mother and father separated, apparently when he was in his teens. It appears likely that Subject left home as a result of family dissension. Subject states that his desire to travel and see the world was very strong at the time he joined the navy.
 
 17. Inasmuch as the legal age for enlistment was 18, Subject had to have his birth certificate altered to show that he had been born in 1927 rather than 1930. As a consequence all of Subject's official documents now show his birth-date as 1927, including his passport.
 

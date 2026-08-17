@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24287.png
-
-Convert to MarkdownAnnex A
+Annex A
 
 Memorandum of Law
 

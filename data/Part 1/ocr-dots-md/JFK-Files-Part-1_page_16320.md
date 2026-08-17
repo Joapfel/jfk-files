@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16320.png
-
-Convert to MarkdownA. Arraivo of the First Cables.
+A. Arraivo of the First Cables.
 
 The 20 miles to San Francisco were more than 160 at 7:30 am crossing of the 29th July. Once at a last minute Litho - so that he could get out. Desiring to return home on the carrier, he did not take off. Retaining electronic code from Salisbury and a call from Leo (Foster) told him to wait until further orders as there was no clear and a decision had not been made.
 

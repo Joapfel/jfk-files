@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5482.png
-
-Convert to MarkdownDocuments pertaining to the Committee's
+Documents pertaining to the Committee's
 prior request
 
 Further documents pertaining to the FBI

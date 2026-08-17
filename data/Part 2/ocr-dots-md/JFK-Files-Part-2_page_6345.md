@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6345.png
-
-Convert to MarkdownMr. David Marwell
+Mr. David Marwell
 
 Dear David,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6060.png
-
-Convert to MarkdownOs Estudantes Cubanos
+Os Estudantes Cubanos
 Morrem no Século XX
 
 Pela Liberdade

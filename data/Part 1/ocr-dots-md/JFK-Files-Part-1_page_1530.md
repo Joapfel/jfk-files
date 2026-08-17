@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1530.png
-
-Convert to MarkdownSuch a reply of the Government of the United States of America to the communication of the Soviet Government cannot fail to cause serious concern, the more so since the new case of violation of Soviet airspace took place after warnings on the part of the Government of the USSR to the effect that American authorities should take the necessary steps to prevent such violations.
+Such a reply of the Government of the United States of America to the communication of the Soviet Government cannot fail to cause serious concern, the more so since the new case of violation of Soviet airspace took place after warnings on the part of the Government of the USSR to the effect that American authorities should take the necessary steps to prevent such violations.
 
 In connection with the foregoing the Soviet Government expects that the Government of the United States of America will undertake further investigation of this act of violation of the airspace of the USSR by an American military aircraft and will punish severely those guilty of this violation.
 

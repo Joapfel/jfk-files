@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8770.png
-
-Convert to MarkdownДням. Віда.
+Дням. Віда.
 
 Внаш. visas.
 

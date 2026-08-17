@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25385.png
-
-Convert to Markdown# The Washington Post
+# The Washington Post
 
 AN INDEPENDENT NEWSPAPER
 

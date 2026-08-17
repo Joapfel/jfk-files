@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8423.png
-
-Convert to MarkdownGOLEZ, HIGUENO
+GOLEZ, HIGUENO
 
 (Spaniard)
 

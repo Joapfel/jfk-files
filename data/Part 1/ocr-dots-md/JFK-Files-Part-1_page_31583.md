@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31583.png
-
-Convert to MarkdownConcurrence of the proper Austrian, West German and British representatives as to use of launching sites in their jurisdiction areas must be secured well in advance through the appropriate channels.
+Concurrence of the proper Austrian, West German and British representatives as to use of launching sites in their jurisdiction areas must be secured well in advance through the appropriate channels.
 
 3. There is no guarantee that the Adenauer government will be favorably disposed towards this food delivery program, even if it wins the September 6 elections.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20956.png
-
-Convert to Markdown(b) Without prior notice by the Government in the event of a breach of this contract by your violation of the security provisions hereof or by your otherwise rendering yourself unavailable for acceptable service.
+(b) Without prior notice by the Government in the event of a breach of this contract by your violation of the security provisions hereof or by your otherwise rendering yourself unavailable for acceptable service.
 
 Subject to the availability of appropriations, this agreement may be extended upon notice from the Government. Termination of this agreement will not release you from the obligations of any security oath you may be required to take.
 

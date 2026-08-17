@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27538.png
-
-Convert to MarkdownU.S. ATLANTIC FLEET
+U.S. ATLANTIC FLEET
 NEW TANGICAL SCHOOL
 
 This is to certify that

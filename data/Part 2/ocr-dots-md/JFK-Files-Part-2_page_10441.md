@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10441.png
-
-Convert to Markdown7 May 1973
+7 May 1973
 
 MEMORANDUM FOR: O/DDI
 

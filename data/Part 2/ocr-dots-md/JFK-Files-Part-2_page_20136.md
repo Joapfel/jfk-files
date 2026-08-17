@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20136.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 in front of the White House at the afore mentioned time to present its demands.
 

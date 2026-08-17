@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_59.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FIELD DISTRIBUTION - BD #5847
 

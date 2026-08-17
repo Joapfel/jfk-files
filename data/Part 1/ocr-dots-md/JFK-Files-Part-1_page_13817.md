@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13817.png
-
-Convert to MarkdownNombre (-)
+Nombre (-)
 
 Edad
 

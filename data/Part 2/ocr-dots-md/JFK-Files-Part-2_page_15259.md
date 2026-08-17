@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15259.png
-
-Convert to Markdown NW 88613-DocID:32199554
+NW 88613-DocID:32199554
 
 # Panama
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12589.png
-
-Convert to Markdown(f) Attendance or teaching at organization schools or classes, especially leadership classes
+(f) Attendance or teaching at organization schools or classes, especially leadership classes
 
 (g) Preparation or distribution of party propaganda
 

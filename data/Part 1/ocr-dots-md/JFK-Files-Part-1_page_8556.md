@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8556.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Section Chief: C/SB
 COS:

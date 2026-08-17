@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16345.png
-
-Convert to MarkdownFDC-107 (Rev. 4-15-84)
+FDC-107 (Rev. 4-15-84)
 
 # FEDERAL BUREAU OF INVESTIGATION
 

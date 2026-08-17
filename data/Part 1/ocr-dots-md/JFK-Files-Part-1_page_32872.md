@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32872.png
-
-Convert to MarkdownAMSTALK
+AMSTALK
 
 CTOR P. CALLE, F.
 SEVILLA, ON ARTIST

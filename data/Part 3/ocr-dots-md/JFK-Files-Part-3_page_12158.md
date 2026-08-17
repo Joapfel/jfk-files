@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12158.png
-
-Convert to Markdownairtel's, letters, memoranda?
+airtel's, letters, memoranda?
 
 A. I am certain there were airtels, letters, possibly teletypes in the file.
 

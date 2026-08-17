@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35524.png
-
-Convert to Markdown9 April
+9 April
 
 One thousand eighty-three and 00100 Dollars
 

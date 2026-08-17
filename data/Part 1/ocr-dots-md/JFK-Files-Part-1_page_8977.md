@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8977.png
-
-Convert to Markdownwhenever they can. They're human beings--one, they'll be flattered and another thing, they'll need the money.
+whenever they can. They're human beings--one, they'll be flattered and another thing, they'll need the money.
 
 I think one of the things that might be helpful with respect to the situation in the universities is to try and catch some of these students in the high school level. I suggested to the ambassador, a plan that would be something comparable to the Rotary Club's scholarships that are given in Colorado. I remember that when I was going through high school, I was given $10 a month by the Rotary Club and I was given a sponsor. I used to meet him once a month and we'd have lunch. I remember this very strongly because it was meaningful to me to have this kind of relationship.
 

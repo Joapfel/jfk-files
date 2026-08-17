@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10736.png
-
-Convert to MarkdownAugust 27, 1971
+August 27, 1971
 
 At approximately 8:30 a.m., August 22, 1971, Selective Service space and surrounding area located on the fifth floor of U. S. Post Office, 461 Market Street, Camden, N. J., was entered by Special Agents of the Federal Bureau of Investigation. SA's EUGENE S. DEBBAUDT and TECHNICAL T.E. TRUENY entered the immediate area and parapet surrounding the Selective Service office by way of the building fire escape. SA's ROBERT H. WALLER and JOE R. GINGERICH entered the Selective Service office through the front door, which entered onto the fifth floor corridor.
 

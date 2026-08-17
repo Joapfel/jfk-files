@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13282.png
-
-Convert to MarkdownMarch 25, 1964
+March 25, 1964
 
 MEMORANDUM FOR MR. RANKIN
 

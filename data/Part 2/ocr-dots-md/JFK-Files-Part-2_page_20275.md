@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20275.png
-
-Convert to MarkdownNY 100-161601
+NY 100-161601
 
 BSS, NYCPD have been advised of pertinent travel plans from NYC of JRB.
 

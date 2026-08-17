@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7795.png
-
-Convert to Markdown13-00000
+13-00000
 
 Release - 281
 UFAA-29884, 11 Apr 68

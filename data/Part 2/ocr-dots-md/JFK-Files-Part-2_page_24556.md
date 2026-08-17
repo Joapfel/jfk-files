@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24556.png
-
-Convert to MarkdownCastro, Taylor testified that this would have been "entirely con-
+Castro, Taylor testified that this would have been "entirely con-
 tradictory to every method of operation I ever saw on the part of
 the President and his brother." (Taylor, p. 45). Taylor stated "the
 President and the Attorney General would never have gone around" the

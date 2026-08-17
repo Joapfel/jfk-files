@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10795.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGA
+FEDERAL BUREAU OF INVESTIGA
 
 Date 8/23/71
 

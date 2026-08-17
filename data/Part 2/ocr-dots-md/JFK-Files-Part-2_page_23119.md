@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23119.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 of the CIA operation that was based in Miami, Florida, targeted as its primarily responsibility for the Cuban operation.
 

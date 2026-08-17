@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20318.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 FEDERAL BUREAU OF INVESTIGATION
 
 Richmond, Virginia

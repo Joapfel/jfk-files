@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15331.png
-
-Convert to Markdown# Office Memorandum
+# Office Memorandum
 
 UNITED STATES GOVERNMENT
 

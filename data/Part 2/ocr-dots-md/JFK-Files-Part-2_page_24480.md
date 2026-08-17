@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24480.png
-
-Convert to Markdownpractice for dealing with the President. (Parrott, pp. 13-14.)*
+practice for dealing with the President. (Parrott, pp. 13-14.)*
 
 Parrott testified that early in 1959, President Eisenhower directed the Special Group to meet at least once a week to consider, approve, or reject all significant covert action operations (Parrott, p. 4.)
 

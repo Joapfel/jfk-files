@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22991.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 of hard intelligence, as it turned out to be, was a U-2 photograph. He never articulated that to us in those terms.
 

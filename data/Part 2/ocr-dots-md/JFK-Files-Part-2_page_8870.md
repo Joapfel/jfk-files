@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8870.png
-
-Convert to Markdown<table><thead><tr><th>TO</th><th>FROM</th><th>CITE NO.</th></tr></thead><tbody><tr><td>KDEK CITY CITE NO.</td><td>AEGON C. WH 2, D/CE 2,</td><td>65975</td></tr></tbody></table>
+<table><thead><tr><th>TO</th><th>FROM</th><th>CITE NO.</th></tr></thead><tbody><tr><td>KDEK CITY CITE NO.</td><td>AEGON C. WH 2, D/CE 2,</td><td>65975</td></tr></tbody></table>
 
 REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
 

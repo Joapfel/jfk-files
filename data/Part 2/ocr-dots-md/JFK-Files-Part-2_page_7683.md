@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7683.png
-
-Convert to MarkdownMr. DULLES. Smuggling cases?
+Mr. DULLES. Smuggling cases?
 
 Mr. McCONE. Smuggling cases. But I believe that something could be done. I call to the attention of this Commission one of the laws relating to atomic energy, namely the Atomic Weapons Reward Act of 15 July 1955 wherein a substantial reward is offered for the apprehension of persons responsible for the clandestine introduction or manufacture in the United States of such nuclear material or atomic weapons. It is suggested that the Commission may wish to recommend that original but similar legislation be enacted which would induce individuals to furnish information bearing on Presidential security by offering a substantial reward and preferential treatment. Substantial reward could represent a significant inducement even to staff officers and personnel of secret associations and state security organs abroad who are charged with assassination and sabotage. We have information that such personnel and police state apparatuses have expressed and, in certain cases, acted upon their repugnance for such work and for the political system which requires such duties to be performed.
 

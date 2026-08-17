@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31416.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Scriabin, Isadore
 

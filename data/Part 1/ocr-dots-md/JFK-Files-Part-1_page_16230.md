@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16230.png
-
-Convert to Markdown1-601702
+1-601702
 
 (James)
 WICKS, Alastair / Major

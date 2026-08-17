@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5776.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CS COPY
 

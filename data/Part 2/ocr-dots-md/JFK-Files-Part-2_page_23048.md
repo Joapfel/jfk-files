@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23048.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mexico to look at the particular Cuban or the operational opportunity in conjunction with the Station Chief in Mexico City. So we were in some cases a clearinghouse.
 

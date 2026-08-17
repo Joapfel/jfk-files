@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6009.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 (S) IMS/FAB provided a main index search response to IMS/ESG/HCS. A 201 (that dated back only to 1977) and a DCD file were located.
 

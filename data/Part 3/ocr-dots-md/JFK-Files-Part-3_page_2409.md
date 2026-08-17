@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2409.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The political orientation of "Ramparts" magazine is a reflection of the activities and ideology of its Managing Editor. Scheer has been extremely active in this country in a leadership capacity in a broad range of New Left protest activities and openly espouses support of Fidel Castro and the Vietnam National Liberation Front. His foreign travels include a trip to Cambodia, Thailand and South Vietnam in February, 1966. In January, 1968, he attended the Cultural-Congress-held in Havana, Cuba, traveling to Cuba via Mexico City as an accredited correspondent. He stated he traveled with the approval of the State Department. He was again in Cuba from April 23, 1968, to May 10, 1968, and from December 31, 1968, to January 13, 1969, during which time he attended the celebration on January 2, 1969, of the 10th anniversary of the Cuban revolution.
 

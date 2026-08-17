@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8618.png
-
-Convert to MarkdownSECRET
+SECRET
 
 JUN 23 1 12 PM '77
 

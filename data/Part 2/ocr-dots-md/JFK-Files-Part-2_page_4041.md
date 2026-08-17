@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4041.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 "MORTON said the preliminary investigation indicated that a psychiatric examination would be necessary before the government could proceed further in the case. The investigation showed that NAGELL was the sole survivor of a military plane crash, that since his discharge he had visited several FBI offices offering "highly secret" counterintelligence information, and earlier this year had been under psychiatric care in Florida for a month."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27624.png
-
-Convert to MarkdownSEC. 12. EDUCATION
+SEC. 12. EDUCATION
 
 **ELEMENTARY SCHOOL**
 

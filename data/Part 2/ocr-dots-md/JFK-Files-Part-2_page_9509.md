@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9509.png
-
-Convert to MarkdownDE T-26
+DE T-26
 
 February 8, 1971
 

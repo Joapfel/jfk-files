@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10005.png
-
-Convert to MarkdownDE MENDEZ, MARIA ECA MATA
+DE MENDEZ, MARIA ECA MATA
 
 53-6-4-196 (SAR) 2416 (1957) (ENCL)
 

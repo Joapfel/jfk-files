@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_236.png
-
-Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
 
 <table><thead><tr><th colspan="3">ACTION REQUIRED REFERENCES</th></tr></thead><tbody><tr><td>REF:</td><td colspan="2">DIR 39176, 1 February 1962</td></tr><tr><td colspan="3">1. As stated in reference, attached for passage to <u>UNION</u> are two copies of a report on Antonio RODRIGUEZ Echanabal; the original of this report was given to <u>UNION/II</u> on 6 February 1962.</td></tr><tr><td colspan="3">2. The last paragraph of attachment contains our request for the results of the debriefing of Subject.</td></tr><tr><td colspan="3"><b>NORTHERN F. HINGHAM</b></td></tr><tr><td colspan="3">Attachment:<br/>Report (2 cc u.s.c.)</td></tr><tr><td colspan="3">Distribution:<br/>3 - Paris</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23316.png
-
-Convert to Markdown(4) <u>First Intelligence Connections</u>
+(4) <u>First Intelligence Connections</u>
 
 With U.S. Army and Air Force as indicated above.
 

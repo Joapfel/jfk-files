@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21882.png
-
-Convert to Markdown(a) (O'Donnell's Operations in the Congo
+(a) (O'Donnell's Operations in the Congo
 
 (i) Tweedy and the Chief of Station Agreed That a Senior Case Officer Should be Sent to the Congo to Concentrate on the Assassination Operation
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4001.png
-
-Convert to MarkdownHe discussed his civic action training program in Miami which has just started and in which he said he has 32 men enrolled. This is a 3-month program to prepare men for rural organization work of various kinds. He appeal of his need for help in with respect to cooperative training and especially co-operative leadership selection and preparation.
+He discussed his civic action training program in Miami which has just started and in which he said he has 32 men enrolled. This is a 3-month program to prepare men for rural organization work of various kinds. He appeal of his need for help in with respect to cooperative training and especially co-operative leadership selection and preparation.
 
 He spoke of his conversation with the Col. Peralta in Guatemala and said that after a four-day field trip he reported to the President that:
 

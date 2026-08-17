@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11959.png
-
-Convert to MarkdownSECRET, SENSITIVE
+SECRET, SENSITIVE
 
 083-142-74
 19 January 1974

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35720.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 30 June 1972, Mr. True planned on assuming a position with McCord Associates or an affiliate security unit. It has been established that Mr. True was in Mr. McCord's office at the Committee for the Re-election of President Nixon on 16 June 1972, the day before the Watergate incident. Mr. True denies any direct involvement in the case.
 

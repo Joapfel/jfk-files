@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27102.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of SOD. Finally, there is little evidence of much specific program definition
 on the part of the Agency. Though occasional specific requests for material

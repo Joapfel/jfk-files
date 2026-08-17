@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18621.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 BJT: 14 JUN '67

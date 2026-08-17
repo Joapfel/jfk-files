@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12905.png
-
-Convert to Markdown14-0000
+14-0000
 
 20 October 1976
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2741.png
-
-Convert to Markdown1937.
+1937.
 
 law again. You're trying to defend apples with oranges. That's the law. You can do that.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21738.png
-
-Convert to Markdown# ANNEX B
+# ANNEX B
 ## SUMMARIES OF CASES NOT EXAMINED IN TEXT
 
 Pages 399 - 435 of the previous summary contain summaries on the cases of [49] Americans who, according to information from NOSENKO, were of KGB interest, were approached by the KGB, or were actually recruited by the KGB. It was stated that these cases did not clearly relate to the specific KGB positions held at particular times by NOSENKO and thus could not be usefully employed in examining his claimed KGB service. The sourcing of these cases has been explored in detail during the current interviews with NOSENKO, and it is now possible to establish a certain relationship between these cases and certain claimed positions of NOSENKO in the KGB.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9455.png
-
-Convert to Markdown02.179
+02.179
 
 23 MAY 1950
 

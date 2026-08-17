@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6540.png
-
-Convert to MarkdownCIA Requests to Refugee Organizations in New York
+CIA Requests to Refugee Organizations in New York
 
 Soviet Hoc Division, DCS
 Paul J. Louden/cmb

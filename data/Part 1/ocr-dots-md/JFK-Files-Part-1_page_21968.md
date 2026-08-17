@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21968.png
-
-Convert to Markdown122.
+122.
 
 date and a Second Chief Directorate secretary as NOSENKO's. Late in the evening NOSENKO and his date excused themselves, and had sexual relations with the female agent.
 

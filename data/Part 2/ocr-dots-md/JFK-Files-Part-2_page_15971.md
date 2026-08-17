@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15971.png
-
-Convert to Markdown15
+15
 
 On November 30, 1968, RUSSELL MEEK, Negro militant, Chicago television and radio personality, was guest speaker at the Chicago BPP headquarters. MEEK has made a better than average monetary contribution to Chicago BPP Chapter, exact amount unknown.
 

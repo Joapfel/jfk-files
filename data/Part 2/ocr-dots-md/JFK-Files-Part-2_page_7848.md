@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7848.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (u) Memorandum to the FBI, dated 6 May 1968; 408 Subject: Joe Bailey Musgrave.
 

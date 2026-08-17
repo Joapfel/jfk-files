@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6899.png
-
-Convert to MarkdownCS COPY
+CS COPY
 
 1. Reference is made to our GCI-3/751,683, dated 2 October 1958, and to other correspondence concerning Subject, an American Communist living at Medellin #36, Apartment 9, Mexico, D. F.
 

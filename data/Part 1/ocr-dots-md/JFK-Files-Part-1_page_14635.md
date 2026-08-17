@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14635.png
-
-Convert to Markdown# Intelligence Information Cable
+# Intelligence Information Cable
 
 IN -25651
 PAGE 1 OF 2 PAGES

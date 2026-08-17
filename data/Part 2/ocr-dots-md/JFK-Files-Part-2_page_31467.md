@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31467.png
-
-Convert to Markdown1.
+1.
 
 # INDEPENDENT PROGRESSIVE PARTY
 

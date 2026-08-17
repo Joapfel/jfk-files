@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15319.png
-
-Convert to Markdown-Father was very much embarrassed.
+-Father was very much embarrassed.
 
 94. During the interrogations David was asked many times for whom he did all those things, for which intelligence service? - nobody believed that a single person could have achieved so much without any big foreign service behind him.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10759.png
-
-Convert to MarkdownJuly 24, 1964
+July 24, 1964
 
 PERSONAL AND CONFIDENTIAL
 

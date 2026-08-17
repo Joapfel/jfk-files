@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30454.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 26 MAR 1975
 

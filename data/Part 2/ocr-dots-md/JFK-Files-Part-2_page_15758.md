@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15758.png
-
-Convert to Markdownof government and (garbled) system that we're presently living under now. That's our final aim. Of course to recognize socialism as being the one system by which people can control the means of production in our communities and socialism as a weapon to allow the people to give full (garbled) their energies in all areas. But the ultimacy of our program is all power to the people--a democratic centralized govern- ment as outlined in the (garbled) Constitution.
+of government and (garbled) system that we're presently living under now. That's our final aim. Of course to recognize socialism as being the one system by which people can control the means of production in our communities and socialism as a weapon to allow the people to give full (garbled) their energies in all areas. But the ultimacy of our program is all power to the people--a democratic centralized govern- ment as outlined in the (garbled) Constitution.
 
 FAYE:
 

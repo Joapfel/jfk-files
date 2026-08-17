@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5753.png
-
-Convert to MarkdownCOE, Frank
+COE, Frank
 
 <table><tr><td>If this card is of value</td></tr><tr><td>Please complete</td></tr><tr><td>Date of birth:</td></tr><tr><td>Place of birth:</td></tr><tr><td>Current address:</td></tr><tr><td>State:</td></tr></table>
 

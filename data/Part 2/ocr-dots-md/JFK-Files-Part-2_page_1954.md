@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1954.png
-
-Convert to Markdown23 March 1966
+23 March 1966
 
 Kool, James Arthur
 58, 7-8-13

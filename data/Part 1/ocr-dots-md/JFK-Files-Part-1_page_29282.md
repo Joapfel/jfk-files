@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29282.png
-
-Convert to Markdown2 NOV 1970
+2 NOV 1970
 
 MEMORANDUM FOR THE RECORD
 

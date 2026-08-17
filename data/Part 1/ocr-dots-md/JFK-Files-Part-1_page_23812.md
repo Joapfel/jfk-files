@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23812.png
-
-Convert to MarkdownTO: Chief,
+TO: Chief,
 FROM: Chief of station, London
 Attachment to OELA-43,272
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24705.png
-
-Convert to Markdown**Latinskaya Amerika # 4,**
+**Latinskaya Amerika # 4,**
 **July-August 1976. (p 138)**
 
 **Caption:** "First visit to the Soviet Union. Next to Fidel Castro ... author of the article, journalist N. Leonov"

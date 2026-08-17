@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7013.png
-
-Convert to MarkdownSECRET
+SECRET
 
 THE following are abstracts of statements made by the investigator concerning a case which is now before him. These statements, however, should not be construed as statements of any official position unless expressly so indicated.
 

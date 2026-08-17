@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3377.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 43. MR from J. C. King, 15 Mar 60, sub: Special Group Meeting, 14 Mar 60. S.
 

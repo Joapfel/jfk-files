@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34041.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 Cuba are being brought to trial. Throughout this period and whenever possible a particular effort was made to relate developments in China to present or possible developments in Cuba. The difficulties of the Chinese economy provided examples to which a Cuban "twist" could be put; e.g., the Chinese and Cuban economic failures demonstrate the failure of applied communism in the economic area.
 

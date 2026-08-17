@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6802.png
-
-Convert to MarkdownSUGGESTED AREAS TO BE ADDRESSED IN REPORT LANGUAGE
+SUGGESTED AREAS TO BE ADDRESSED IN REPORT LANGUAGE
 (IF NOT ADDRESSED IN THE TEXT OF THE RESOLUTION)
 
 1. Initial Review of assassination materials. It should be made clear that section 5 of H.J.Res. 454, which requires that records not provided to the Archivist for public disclosure be made available to the Review Board within 60 days of enactment, is not intended to preclude agencies from conducting their own reviews and making as much information available as possible before the Review Board conducts its review of assassination materials.

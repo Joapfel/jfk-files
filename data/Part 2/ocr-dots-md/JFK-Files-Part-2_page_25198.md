@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25198.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>LODGE, HENRY CABOT</td><td rowspan="4">5 or 6 Oct.<br/>1963</td><td rowspan="4">TOP SECRET</td></tr><tr><td>KENNEDY, JOHN F.</td></tr><tr><td>KENNEDY, ROBERT F..</td></tr><tr><td>DIEM, MC CONE, JOHN</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>LODGE, HENRY CABOT</td><td rowspan="4">5 or 6 Oct.<br/>1963</td><td rowspan="4">TOP SECRET</td></tr><tr><td>KENNEDY, JOHN F.</td></tr><tr><td>KENNEDY, ROBERT F..</td></tr><tr><td>DIEM, MC CONE, JOHN</td></tr></table>
 
 **OCCURRENCE:** MC CONE recalled a meeting with President KENNEDY and Attorney General ROBERT F. KENNEDY had with him on or about October 5 or 6, 1963. The Attorney General was 'rather non-committal in the meeting. He and I walked downstairs together, and he said, John, are you sure you are right? And I said, I think I am and he said I'm rather surprised at the position you took. And I said, well, you didn't disagree with it...'(T) This discussion had nothing to do with assassinations. This was whether we should let the coup go or use our influences not to. Then interestingly enough, the President sent a series of messages to CABOT LODGE urging that he'd do all that he could to get DIEM to change his ways.
 

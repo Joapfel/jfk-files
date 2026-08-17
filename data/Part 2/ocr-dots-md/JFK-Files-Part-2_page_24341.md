@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24341.png
-
-Convert to MarkdownCOMMON STOCK
+COMMON STOCK
 
 | Date of Purchase | Stocks | No. of Shares | Purchased at Per Share | Purchased at Amount | Per Share | 30 September 1975 Amount | P/E Re |
 | :--- | :--- | ---: | :---: | ---: | :---: | ---: | :---: |

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7831.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th colspan="4">SENDER WILL CHECK FORIFICATION TOP AND BOTTOM</th></tr><tr><td>UNCLASSIFIED</td><td></td><td>CONFIDENTIAL</td><td></td><td>SECRET</td></tr></thead><tbody><tr><td colspan="5">OFFICIAL ROUTING SLIP</td></tr><tr><th>TO</th><th colspan="2">NAME AND ADDRESS</th><th>DATE</th><th>INITIALS</th></tr><tr><td>1</td><td colspan="2">OPS/ITG - Mr. Haefner</td><td>20/8</td><td>H</td></tr><tr><td>2</td><td colspan="2"></td><td>ES-2</td><td></td></tr><tr><td>3</td><td colspan="2">P.C. FOR ACTION</td><td>23/8</td><td>a.m.</td></tr><tr><td>4</td><td colspan="2"></td><td></td><td></td></tr><tr><td>5</td><td colspan="2">DDO/PIC M. Felton HT-1</td><td></td><td></td></tr><tr><td>6</td><td colspan="2"></td><td></td><td></td></tr><tr><th>ACTION</th><th>DIRECT REPLY</th><th colspan="2">PREPARE REPLY</th></tr><tr><th>APPROVAL</th><th>DISPATCH</th><th colspan="2">RECOMMENDATION</th></tr><tr><th>COMMENT</th><th>FILE</th><th colspan="2">RETURN</th></tr><tr><th>CONCURRENCE</th><th>INFORMATION</th><th colspan="2">SIGNATURE</th></tr></tbody></table>
 

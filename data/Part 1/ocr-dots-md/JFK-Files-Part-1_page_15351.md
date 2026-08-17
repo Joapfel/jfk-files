@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15351.png
-
-Convert to MarkdownApp. N.
+App. N.
 
 VIA XX SETTEMBRE 30
 TEL. 463036

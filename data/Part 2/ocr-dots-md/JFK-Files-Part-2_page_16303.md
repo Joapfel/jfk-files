@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16303.png
-
-Convert to MarkdownOn April 4, 1969, JACK BOYKIN, also known as JONEBUG, at that time leader of the YP, appeared on live television during riots occurring then asking the people of Uptown to remain calm and not take part in the riots. He stated that the riots, which occured on the anniversary of the death of Martin Luther King were a plot by the police to kill poor people. BOYKIN is no longer a YP member.
+On April 4, 1969, JACK BOYKIN, also known as JONEBUG, at that time leader of the YP, appeared on live television during riots occurring then asking the people of Uptown to remain calm and not take part in the riots. He stated that the riots, which occured on the anniversary of the death of Martin Luther King were a plot by the police to kill poor people. BOYKIN is no longer a YP member.
 
 4/4/69)
 

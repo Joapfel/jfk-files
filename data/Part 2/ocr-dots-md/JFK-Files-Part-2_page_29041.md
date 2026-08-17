@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29041.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>INDIVIDUAL<br>CALIFORNIA<br>INCOME TAX</td>
         <td>TAXABLE YEAR</td>

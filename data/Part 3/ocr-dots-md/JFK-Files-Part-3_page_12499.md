@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12499.png
-
-Convert to MarkdownAll information contained herein is unclassified and subject to inspection by authorized personnel. All other restrictions on release apply. NW8614- DocId:32989606 Page 106
+All information contained herein is unclassified and subject to inspection by authorized personnel. All other restrictions on release apply. NW8614- DocId:32989606 Page 106
 
 The United States of America
 Transportation Contract

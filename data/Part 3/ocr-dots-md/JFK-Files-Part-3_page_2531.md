@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2531.png
-
-Convert to MarkdownMemorandum A. B. Fulton to Mr. W. R. Wannall
+Memorandum A. B. Fulton to Mr. W. R. Wannall
 
 RE: CIA DIRECTOR W. E. COLBY'S 12/24/74 REPORT TO THE PRESIDENT; FREEDOM OF INFORMATION ACT (FOIA) REQUEST TO CIA BY MORTON HALPERIN
 

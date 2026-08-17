@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3383.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 103. Memo for DDP from J. C. King, 26 Oct 60, sub: JMARC U. S. Base Requirements. S.
 

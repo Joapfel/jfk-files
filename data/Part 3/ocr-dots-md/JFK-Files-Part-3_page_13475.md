@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13475.png
-
-Convert to Markdownamt 38
+amt 38
 
 1 Harding Jackson, and C.D. Jackson was a member of the Committee, Phone (Area 202) 544-6000
 

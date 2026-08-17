@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31124.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Volume II
 Deletions - sealed envelopes -

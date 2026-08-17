@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17206.png
-
-Convert to Markdownand no longer lends itself to the production of high-quality negatives or photographic prints. The total cost of this equipment replacement program is not expected to exceed $500 and sufficient funds have been included in the cost section of this renewal request.
+and no longer lends itself to the production of high-quality negatives or photographic prints. The total cost of this equipment replacement program is not expected to exceed $500 and sufficient funds have been included in the cost section of this renewal request.
 
 B) Other than noted above, Mexico City Station plans no other significant operational, administrative or personnel changes, since it is generally felt that this project is now operating at its optimum size and in a completely satisfactory manner. After 1 January 1966 the Station will review the existing LIEMTY salary schedule and consider possible raises, again on a selective basis.
 

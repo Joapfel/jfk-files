@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15023.png
-
-Convert to MarkdownC.O. apprained to John Wagner (Camp King) that
+C.O. apprained to John Wagner (Camp King) that
 Subject's story, with special prejudice, will recog-
 nized, was so ridiculous that no decent legend
 could be built around it. A good life story will

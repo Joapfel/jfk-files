@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17319.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="3">CONTINUATION OF<br/>DISPATCH</td>

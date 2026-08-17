@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4616.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>WH/C</td>
     <td>12</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23729.png
-
-Convert to Markdownunder their authorized strength.
+under their authorized strength.
 
 Mr. Inderfurth. Another alternative is to say should consider establishing a manpower ceiling:
 

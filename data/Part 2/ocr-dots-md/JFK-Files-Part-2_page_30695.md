@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30695.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① Request for Investigation & Approval dtd. 1 July 1958
 To be used as a donor for Project PBGREGALE

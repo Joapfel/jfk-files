@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30340.png
-
-Convert to Markdown1 reliable because the statements were given under duress, and
+1 reliable because the statements were given under duress, and
 2 prior to our recess a few moments ago you indicated that you
 3 felt that the tapes and the FBI and the CIA interrogations of
 4 '64, '65, and '66 should not be considered as reliable

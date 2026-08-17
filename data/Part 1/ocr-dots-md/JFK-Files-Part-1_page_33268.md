@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33268.png
-
-Convert to MarkdownCABLE SEC-EN BY 32 PER TOTAL CNTS 523 REV'D
+CABLE SEC-EN BY 32 PER TOTAL CNTS 523 REV'D
 
 <table><tr><td colspan="2">PERSON UNIT NOTIFIED</td></tr><tr><td>ADVANCE COPY ISSUED SLOT 110</td><td>BY A J 2</td></tr></table>
 

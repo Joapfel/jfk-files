@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7645.png
-
-Convert to Markdownin view of the fact that we have practically—we have all the reports, he says we have all the reports that are in that file, and it just seems like thrashing old straw to go over it and over it again.
+in view of the fact that we have practically—we have all the reports, he says we have all the reports that are in that file, and it just seems like thrashing old straw to go over it and over it again.
 
 Mr. McCLOY. Do we have copies of all these telegrams that are in here from the Embassy?
 

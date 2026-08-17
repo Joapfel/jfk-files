@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14351.png
-
-Convert to Markdown1-0009
+1-0009
 
 Report No. 345
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6940.png
-
-Convert to Markdownlanguage could be used to prohibit release of materials pertaining
+language could be used to prohibit release of materials pertaining
 to Regis Blahut, the CIA employee suspected of tampering with
 autopsy materials pertaining to the Kennedy assassination.
 

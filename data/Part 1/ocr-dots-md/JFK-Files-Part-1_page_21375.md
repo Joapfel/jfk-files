@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21375.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 10 Jan. 69 (NY)
 

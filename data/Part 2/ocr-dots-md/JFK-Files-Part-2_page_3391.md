@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3391.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 MR from Thomas A. Parrott, 8 Dec 60, sub: Minutes
 of Special Group Meeting, 8 Dec 60. S.

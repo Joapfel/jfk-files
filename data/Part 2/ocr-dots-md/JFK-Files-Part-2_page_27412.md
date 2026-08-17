@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27412.png
-
-Convert to Markdownsides of the first page (which uses six sides).
+sides of the first page (which uses six sides).
 
 (9 pages).
 

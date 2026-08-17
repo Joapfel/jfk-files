@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3889.png
-
-Convert to MarkdownAtt. No. 5 to UFGA-21693
+Att. No. 5 to UFGA-21693
 
 SUBJECT: VALEJO Iniguez, Delfín
 

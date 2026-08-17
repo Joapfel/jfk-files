@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20597.png
-
-Convert to MarkdownBOSTON WOMEN'S ABORTION
+BOSTON WOMEN'S ABORTION
 ACTION COALITION
 
 Matilde Miles, nee Zimmerman, was the SWP,

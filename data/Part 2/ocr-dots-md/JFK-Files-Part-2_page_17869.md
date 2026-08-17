@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17869.png
-
-Convert to MarkdownPAGE TWO DL 105-NEW
+PAGE TWO DL 105-NEW
 
 SAS         3X   1X   1X   1X   1X   1X   2
 IS PERCENT   100  34   63   62   24   30   16

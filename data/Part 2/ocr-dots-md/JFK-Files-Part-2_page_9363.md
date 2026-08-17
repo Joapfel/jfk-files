@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9363.png
-
-Convert to MarkdownDE T-2 advised on April 12, 1971, that four members of the Detroit NCCF, ANTHONY NORMAN, RONNIE IRWIN, RONALD SMITH and LARRY POWELL held up what they believed to be a dope house and one of the victims was killed.
+DE T-2 advised on April 12, 1971, that four members of the Detroit NCCF, ANTHONY NORMAN, RONNIE IRWIN, RONALD SMITH and LARRY POWELL held up what they believed to be a dope house and one of the victims was killed.
 
 A desk has been placed facing the front door of the Flint Office of the NCCF, where a member now sits during the hours the office is open with a .30 caliber M-1 carbine to prevent anyone from entering that is not supposed to. They have removed posters from the downstairs windows so that the police cannot sneak up on them and the person on duty at the desk has been ordered to kill any police who attempt to enter.
 

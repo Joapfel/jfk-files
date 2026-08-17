@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28892.png
-
-Convert to Markdown27. Forms OA-C107, Determination of Resumption of Award.
+27. Forms OA-C107, Determination of Resumption of Award.
 
 28. Forms OA-C528b, Determination of Termination of Entitlement or Suspension of Payments Based on Supporting Evidence on File.
 

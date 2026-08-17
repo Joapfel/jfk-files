@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31094.png
-
-Convert to MarkdownVictor Manuel Panegu Batesta - C-286382
+Victor Manuel Panegu Batesta - C-286382
 Deletions - , sealed envelope.
 FBI report 3 Nov.1960 and Office of Security
 polygraph interview.

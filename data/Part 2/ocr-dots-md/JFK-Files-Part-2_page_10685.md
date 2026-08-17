@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10685.png
-
-Convert to MarkdownPH 52-7165
+PH 52-7165
 
 One copy of instant report is being furnished to the New York Division for information inasmuch as ANN GRANT DUNHAM, Father PETER DONALD FORDI, ROBERT GLENN GOOD, JOHN PETER GRADY, JOAN MARY REILLY, and ROSEMARY REILLY are subjects of separate investigations in that division.
 

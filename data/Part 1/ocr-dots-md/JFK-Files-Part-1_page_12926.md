@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12926.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Previous Agency Association with Persons Allegedly Responsible for Bombing of Cuba Airlines Flight
 

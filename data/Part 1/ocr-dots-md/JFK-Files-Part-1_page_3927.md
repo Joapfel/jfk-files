@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3927.png
-
-Convert to MarkdownAtt. No. 52 to UFGA-21693
+Att. No. 52 to UFGA-21693
 
 UTGA - 2169 3/14
 

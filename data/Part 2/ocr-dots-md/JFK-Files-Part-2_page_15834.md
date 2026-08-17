@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15834.png
-
-Convert to Markdownwould dictate that one should be alert when opening one's door to strangers, lat at night, in the wee hours - even when these strangers wear the uniform of policemanship. History teaches us that the man in the uniform may or may not be a policeman authorized to enter the homes of the people.
+would dictate that one should be alert when opening one's door to strangers, lat at night, in the wee hours - even when these strangers wear the uniform of policemanship. History teaches us that the man in the uniform may or may not be a policeman authorized to enter the homes of the people.
 
 AND
 

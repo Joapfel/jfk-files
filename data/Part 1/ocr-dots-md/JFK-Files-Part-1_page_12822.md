@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12822.png
-
-Convert to MarkdownREPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
 
 <table><thead><tr><th colspan="4">AGENCY MESSAGE</th></tr></thead><tbody><tr><td>1</td><td>4</td><td></td><td></td></tr><tr><td>2</td><td>5</td><td></td><td></td></tr><tr><td>3</td><td>6</td><td></td><td></td></tr></tbody></table>
 

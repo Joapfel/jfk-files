@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8569.png
-
-Convert to MarkdownJicky SARACHI (7-13,850)
+Jicky SARACHI (7-13,850)
 
 ATTACHMENT #1
 

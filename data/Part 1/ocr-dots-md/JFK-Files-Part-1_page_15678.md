@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15678.png
-
-Convert to MarkdownMr. Ernest G. Maverick
+Mr. Ernest G. Maverick
 
 Dear Mr. Maverick:
 

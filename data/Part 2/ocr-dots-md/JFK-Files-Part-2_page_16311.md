@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16311.png
-
-Convert to MarkdownFIGHT FOR
+FIGHT FOR
 YOUR FREEDOM!
 
 YOUNG PATRIOTS SERVE AND PROTECT

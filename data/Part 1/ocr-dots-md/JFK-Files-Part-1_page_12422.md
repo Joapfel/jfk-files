@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12422.png
-
-Convert to MarkdownA.- D I A M A N T E S .- Primera Parte
+A.- D I A M A N T E S .- Primera Parte
 
 SITUACION EXISTENTE EN VENEZUELA
 

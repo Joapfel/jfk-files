@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18937.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 unfavorably upon former ~~and is understandable for~~ one in his position, the possibility that he could be used by the Red Chinese, as ~~he was~~ by the Soviets, should always ~~be borne in mind.~~ had an exaggerated faith in his ability to "handle" the Soviets and probably feels the same way now towards the Red Chinese, but his personal conduct, especially in the past, has placed him in a position to be ~~rather easily compromised. The NYO sus-~~ pects there are still areas of his conduct and activities while in Moscow which he has not revealed. -S-
 

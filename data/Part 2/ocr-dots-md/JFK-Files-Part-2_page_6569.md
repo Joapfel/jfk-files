@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6569.png
-
-Convert to Markdown# Propaganda and Psychological Operations
+# Propaganda and Psychological Operations
 
 (1) Radio and television directed at Cuba (black, white or grey).
 

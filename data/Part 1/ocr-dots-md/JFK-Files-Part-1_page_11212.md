@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11212.png
-
-Convert to Markdownconsejo nacional de cultura
+consejo nacional de cultura
 
 al comienzo el mes de enero, Secretary of the Ministry for la Raza; representation of race, and by Dr. De Molécula Inter- nationalized, and also in the name of the country itself, and also in the name of the Republic. The plan of the future is to carry on the program. It will be a plan of action which can be carried out only with the help of the people.
 

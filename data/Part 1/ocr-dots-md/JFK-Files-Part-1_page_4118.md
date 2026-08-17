@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4118.png
-
-Convert to Markdownd. General SOMOZA, at A/1's strong recommendation, agreed to start pushing Civic Action programs through the National Guard in an effort to enhance his personal image preparatory to the next Presidential campaign. SOMOZA asked A/1 to assist and advise in this effort.
+d. General SOMOZA, at A/1's strong recommendation, agreed to start pushing Civic Action programs through the National Guard in an effort to enhance his personal image preparatory to the next Presidential campaign. SOMOZA asked A/1 to assist and advise in this effort.
 
 2. The next meeting with General SOMOZA by A/1 was on 4 August, with following points:
 

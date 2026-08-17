@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11047.png
-
-Convert to MarkdownS-E-C-B-T
+S-E-C-B-T
 
 CENTRAL INTELLIGENCE AGENCY
 OFFICE OF CENTRAL REFERENCE

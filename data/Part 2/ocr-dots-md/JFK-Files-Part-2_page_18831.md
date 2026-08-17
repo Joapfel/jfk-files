@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_18831.png
-
 news editor from July 31, 1951, to November 30, 1951, and from May 15, 1952, to June 10, 1952.
 
 4. Benjamin Sonnenberg, New York City; he worked here in public relations as a recorder and writer of feature material regarding the Empire State Building, New York City. Dates of employment not listed.

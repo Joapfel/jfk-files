@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11800.png
-
-Convert to MarkdownApril 29, 1953
+April 29, 1953
 
 Rejoice May 26, 1953
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_817.png
-
-Convert to MarkdownDLS: 23 SEPT 64
+DLS: 23 SEPT 64
 
 SECRET
 (When Filed In)

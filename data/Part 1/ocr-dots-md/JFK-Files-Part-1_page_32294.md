@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32294.png
-
-Convert to MarkdownDL8: 5 FEB 65
+DL8: 5 FEB 65
 
 SECRET
 (When Piled In)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3574.png
-
-Convert to MarkdownHonorable William D. Moyers
+Honorable William D. Moyers
 
 NOTE:
 

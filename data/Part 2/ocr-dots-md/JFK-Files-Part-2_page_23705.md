@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23705.png
-
-Convert to MarkdownHW 50955 DocId:32423509 Page 79
+HW 50955 DocId:32423509 Page 79
 
 Further to say that there would be an annual review of this activity by the Senate oversight committee and by the counter-intelligence committee which we proposed be established and has been agreed here as a recommendation of the National Security Council.
 

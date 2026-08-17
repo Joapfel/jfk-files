@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7256.png
-
-Convert to Markdownby the Pentagon Papers case. Shortly thereafter, the IEC staff was advised that White House Staff Member Gordon Liddy had been appointed to work with the IEC regarding its study of the handling of classified information and by November, 1971. the IEC completed and disseminated a special report entitled "The Unauthorized Disclosure of Classified Information."
+by the Pentagon Papers case. Shortly thereafter, the IEC staff was advised that White House Staff Member Gordon Liddy had been appointed to work with the IEC regarding its study of the handling of classified information and by November, 1971. the IEC completed and disseminated a special report entitled "The Unauthorized Disclosure of Classified Information."
 
 ## Relationship of the IEC to the "Huston Plan"
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8105.png
-
-Convert to MarkdownAPPROVED FOR RELEASE
+APPROVED FOR RELEASE
 
 Date 14 Mar 1978 d1
 

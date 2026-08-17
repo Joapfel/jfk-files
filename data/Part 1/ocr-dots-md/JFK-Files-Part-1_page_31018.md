@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31018.png
-
-Convert to MarkdownMEMORANDUM FOR: DDP/WH Personnel Officer
+MEMORANDUM FOR: DDP/WH Personnel Officer
 
 SUBJECT: Within Grade Increase for Career Agents
 

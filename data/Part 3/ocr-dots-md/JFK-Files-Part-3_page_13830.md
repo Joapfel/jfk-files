@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13830.png
-
-Convert to MarkdownSECRET
+SECRET
 
 they are to take standard courses at Cuban universities or other institutions in such subjects as agronomy, irrigation techniques, industrial management, etc. Even if their courses in Cuba are as represented to them before their arrival, they are undoubtedly given heavy ideological indoctrination and, like Cuban students, expected to "volunteer" for various emergency tasks such as picking coffee and harvesting sugar. Many of these probably also receive training in guerrilla tactics and other techniques of subversion.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27319.png
-
-Convert to Markdownaa. Memo for Chief, Ops Support Div - 9 Nov 71 SECRET
+aa. Memo for Chief, Ops Support Div - 9 Nov 71 SECRET
 
 bb. Memo for Chief, Ops Support Div - 23 Nov 71 SECRET
 

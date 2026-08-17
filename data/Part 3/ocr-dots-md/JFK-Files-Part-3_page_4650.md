@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4650.png
-
-Convert to MarkdownDate 10/31/62
+Date 10/31/62
 
 1
 

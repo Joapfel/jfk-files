@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4646.png
-
-Convert to MarkdownSECRET 01-8082 NOV 74 STAFF
+SECRET 01-8082 NOV 74 STAFF
 
 CITE CARACAS 25943
 

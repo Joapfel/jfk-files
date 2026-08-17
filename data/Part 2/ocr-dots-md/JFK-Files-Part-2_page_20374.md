@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20374.png
-
-Convert to MarkdownRe: DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIET NAM, WASHINGTON, D. C., JANUARY 15, 1968
+Re: DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIET NAM, WASHINGTON, D. C., JANUARY 15, 1968
 
 arm bands holding placards aloft bearing the following slogans:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31670.png
-
-Convert to Markdown# SOCIALIST WORKERS PARTY
+# SOCIALIST WORKERS PARTY
 SAN FRANCISCO DIVISION
 
 A source advised on August 1, 1960, that the San Francisco Branch of the Socialist Workers Party (SWP) was formed approximately in the early part of 1938 and the Oakland Branch of the SWP was formed in the latter part of 1938.

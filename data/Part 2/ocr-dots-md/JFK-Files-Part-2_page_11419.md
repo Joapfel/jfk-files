@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11419.png
-
-Convert to Markdown(D) In connection with all individuals recommended for a limitation to the security role in consideration of the above-mentioned standards there must be a clear showing, by充分 acts or statement, or other evidence, that there has been a continuing similarity for the aims and objectives of the Cuban Government since 10-1-60.
+(D) In connection with all individuals recommended for a limitation to the security role in consideration of the above-mentioned standards there must be a clear showing, by充分 acts or statement, or other evidence, that there has been a continuing similarity for the aims and objectives of the Cuban Government since 10-1-60.
 
 Since then, courses of action which might be followed in the event of a limited emergency between Cuba and the U. S. would, in all probability, be different for aliens as distinguished from U. S. citizens: it is imperative that the citizenship status of individuals recommended under criteria set forth above be clearly established.
 

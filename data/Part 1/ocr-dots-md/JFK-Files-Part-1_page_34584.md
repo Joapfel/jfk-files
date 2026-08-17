@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34584.png
-
-Convert to MarkdownTO BE OPENED BY ADDRESS only.
+TO BE OPENED BY ADDRESS only.
 
 1 July 1964
 

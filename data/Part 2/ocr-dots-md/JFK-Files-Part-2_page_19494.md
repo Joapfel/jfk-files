@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19494.png
-
-Convert to MarkdownCG 100-44707
+CG 100-44707
 
 CONFIDENTIAL
 

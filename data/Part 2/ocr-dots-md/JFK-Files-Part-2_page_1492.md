@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1492.png
-
-Convert to Markdown18 December 1956.
+18 December 1956.
 
 MEMORANDUM FOR THE RECORD
 

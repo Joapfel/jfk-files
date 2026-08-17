@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8351.png
-
-Convert to Markdown# PARTIAL -PERSONAL HISTORY OF LYLE KELLY
+# PARTIAL -PERSONAL HISTORY OF LYLE KELLY
 
 ## 1. Financial Finagling in Greece
 

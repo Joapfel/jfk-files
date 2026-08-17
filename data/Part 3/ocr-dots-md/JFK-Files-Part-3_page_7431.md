@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7431.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee
 
 questions to be asked Mr. Papich. He said that Elliff was agreeable to an informal arrangement under which the FBI would not require the presence of a Bureau representative at such interviews, but would expect to receive the identity of persons to be interviewed plus a statement as to the subject matter of the interview. Elliff then proceeded to identify as those persons scheduled for interview as William Turner, who will be interviewed today or this weekend by Mike Epstein at San Francisco, and "Chick" Brennan, who was interviewed yesterday, May 22, 1975, by Mark Gitenstein and who may be interviewed again today.

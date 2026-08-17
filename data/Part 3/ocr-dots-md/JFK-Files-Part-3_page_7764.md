@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7764.png
-
-Convert to Markdownexhibit accompanying this study. Some additional authority is also present, at least for the time being, in Executive Order 10450 (based on Executive Order 9835). Additionally, there is authority, particularly with respect to JDL, under statute having to do with assaulting foreign diplomats.
+exhibit accompanying this study. Some additional authority is also present, at least for the time being, in Executive Order 10450 (based on Executive Order 9835). Additionally, there is authority, particularly with respect to JDL, under statute having to do with assaulting foreign diplomats.
 
 ## INTERNAL SECURITY SECTION VIEWS
 

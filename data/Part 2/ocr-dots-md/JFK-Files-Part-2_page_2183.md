@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2183.png
-
-Convert to Markdown(d) Continued coverage under the Federal Employees' Group Life Insurance Act unless you have previously executed a written waiver of said coverage. This organization is presently authorized to bear a portion of the premium cost, you will bear the remainder. Your financial contribution will be effected either by payroll deduction or by direct remittance at periodic intervals to be established by this organization.
+(d) Continued coverage under the Federal Employees' Group Life Insurance Act unless you have previously executed a written waiver of said coverage. This organization is presently authorized to bear a portion of the premium cost, you will bear the remainder. Your financial contribution will be effected either by payroll deduction or by direct remittance at periodic intervals to be established by this organization.
 
 (o) Sick and annual leave equal to and subject to the same rules and regulations applicable to Government appointed employees. Annual leave may only be taken at times and places approved in advance by appropriate Government representatives. All accrued but unused leave credited to your former account as an appointed employee of this organization will be transferred to the leave account established for you under this agreement.
 

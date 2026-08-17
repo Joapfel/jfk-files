@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29176.png
-
-Convert to Markdown# SCHEDULE F - SHAREHOLDERS SHARE OF INCOME AND CREDITS
+# SCHEDULE F - SHAREHOLDERS SHARE OF INCOME AND CREDITS
 
 (If additional space is needed, attach schedule)
 

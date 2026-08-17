@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32548.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REPORT OF SUB-COMMITTEE ON CUBAN SUBVERSION
 

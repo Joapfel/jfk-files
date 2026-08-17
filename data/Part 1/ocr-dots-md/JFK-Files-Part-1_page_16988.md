@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16988.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>FORM</th><th>CLASS</th><th>DATE</th><th>REVISION</th></tr></thead><tbody><tr><td>AEM</td><td>53</td><td>Sep 24, 1968</td><td></td></tr></tbody></table>
 

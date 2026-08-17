@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21221.png
-
-Convert to Markdown**TOP SECRET**
+**TOP SECRET**
 
 2. ROBERT ARMSTRONG (S)✓
 

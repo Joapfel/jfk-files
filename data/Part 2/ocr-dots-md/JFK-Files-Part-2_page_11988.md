@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11988.png
-
-Convert to Markdown# SECTION 107. SECURITY INFORMATION IN ACTUAL SOURCE: TOPIC
+# SECTION 107. SECURITY INFORMATION IN ACTUAL SOURCE: TOPIC
 
 Each informant who submits statements, written for oral, except in esti- mate or foreign nationality matters where a subfile is not carried on those instances involving possible prosecution. Each origin- al statement, whether personally written by the informant, or unished orally and reduced to writing by contacting agent, should be filed in this subfile. Executed form FD-306 : a channelizing memorandum containing all applicable items set forth on form FD-306 should be stapled to the original of each such statement.
 

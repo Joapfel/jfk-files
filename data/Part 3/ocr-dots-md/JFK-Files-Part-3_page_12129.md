@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12129.png
-
-Convert to MarkdownVenceremos Brigade
+Venceremos Brigade
 
 To date, less than half of the VB members have been located and a large portion of those located have been uncooperative insofar as the interview is concerned. Over 100 of these persons have been placed on the Security Index, and it is anticipated that numerous others will be listed. Many have been arrested for engaging in acts of violence since their return, have participated in anti-Vietnam demonstrations, or demonstrated at trials involving members of the Black Panther Party or the persons involved in the October, 1969, "days of rage" indictments in Chicago, Illinois.
 

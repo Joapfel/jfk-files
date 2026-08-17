@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6765.png
-
-Convert to Markdownoriginating agencies and completed within a reasonable period of time. As I have indicated, the CIA has already begun this process.
+originating agencies and completed within a reasonable period of time. As I have indicated, the CIA has already begun this process.
 
 Documents that an agency determines cannot be released to the public would then be reviewed by members of the Review Board, who could operate with a lean staff. Any dispute between an agency and the Review Board over the release of a document could then be resolved by the President or his designee. This arrangement would ensure that the initial review of documents is accomplished quickly by individuals who are in place and have the necessary substantive experience to declassify documents while at the same time providing an independent review of all decisions made to withhold information.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31356.png
-
-Convert to MarkdownLt. Col. Marriott told Mr. WarBell he thought the museum would be grateful
+Lt. Col. Marriott told Mr. WarBell he thought the museum would be grateful
 for them. Mr. WarBell stated he did not file any Form 6 on any of the
 firearms and had no knowledge of anyone else filing them.
 

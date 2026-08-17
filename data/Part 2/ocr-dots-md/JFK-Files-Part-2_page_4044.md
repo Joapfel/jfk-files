@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4044.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 to participate in a psychiatric consultation and/or examination. I believe that this is a violation of my right to a speedy trial as guaranteed to me by Amendment 6 of the Constitution.
 

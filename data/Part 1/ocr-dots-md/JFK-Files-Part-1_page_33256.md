@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33256.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td rowspan="2">ABLE SECRETARIAT DASSIGNATION</td><td>CLASSIFIED MESSAGE E TOTAL COPY</td></tr><tr><td colspan="2">ROUTEING AND/OR INITIALS</td></tr><tr><td>PERSOINVILNOTED</td><td>SECRET (When Filled In) GROUP I<br/>EXCLUDES FROM AUTOMATIC COMBINATION AND DECLARATION</td><td rowspan="5"><table><tr><td>1</td><td>2</td><td>3</td><td>4</td><td>5</td></tr><tr><td>6</td><td>7</td><td>8</td><td>9</td><td>10</td></tr></table></td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLOTTED</td><td colspan="2">REPRODUCTION OF THIS COPY PROMIBITED</td></tr><tr><td>BY: __________ AT: __________</td><td>INDEX: ☐ YES ☐ NO<br/>CLASSIFY TO FILE NO. __________<br/>X-REF. TO FILE NO. __________<br/>FILE RID ☐ RET. TO __________ BRANCH ☐ DESTROY ☐ BIO.</td></tr><tr><td>DISSENT BY: 28 PER SB.1EC</td><td>INFO __________<br/>FILE: VR. DDL. ADDL. CLNWD C/TSD "YES ONLY"</td></tr><tr><td>ACTION: <i>C/SBS</i></td><td>RID COPY</td></tr></table>
 

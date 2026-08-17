@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13307.png
-
-Convert to MarkdownSECRET
+SECRET
 
 P. 14
 

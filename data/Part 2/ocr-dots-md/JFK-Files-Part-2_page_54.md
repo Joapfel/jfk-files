@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_54.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIO:</td><td>N. H. SMITH</td><td rowspan="4">655</td></tr><tr><td>UNIT:</td><td>WH/3/DREH</td></tr><tr><td>EXT:</td><td>3054</td></tr><tr><td>DATE:</td><td>20 SEPTEMBER 1960</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22121.png
-
-Convert to Markdown<table><tr><td colspan="3"><strong>PERSONS/ENTITIES:</strong></td></tr><tr><td>BISSELL, Richard</td><td>GOTTLIEB, Sidney</td></tr><tr><td>HARVEY</td><td></td></tr><tr><td>WHITE HOUSE</td><td></td></tr><tr><td>SIEVER, Arnold</td><td></td></tr><tr><td>DATES:</td><td>CATEGORIES: TOP SECRET</td></tr><tr><td>February 1961<br>(HARVEY's rough<br>estimate)</td><td>EXECUTIVE ACTION / ZRRIFLE<br>CASTRO &nbsp;&nbsp; LINDO + CONGO</td></tr></table>
+<table><tr><td colspan="3"><strong>PERSONS/ENTITIES:</strong></td></tr><tr><td>BISSELL, Richard</td><td>GOTTLIEB, Sidney</td></tr><tr><td>HARVEY</td><td></td></tr><tr><td>WHITE HOUSE</td><td></td></tr><tr><td>SIEVER, Arnold</td><td></td></tr><tr><td>DATES:</td><td>CATEGORIES: TOP SECRET</td></tr><tr><td>February 1961<br>(HARVEY's rough<br>estimate)</td><td>EXECUTIVE ACTION / ZRRIFLE<br>CASTRO &nbsp;&nbsp; LINDO + CONGO</td></tr></table>
 
 **OCCURRENCE:** the BISSELL assigns to HARVEY / developing of "an EXECUTIVE ACTION capability," i.e., a general stand-by capability to carry out assassinations when required." (37)
 

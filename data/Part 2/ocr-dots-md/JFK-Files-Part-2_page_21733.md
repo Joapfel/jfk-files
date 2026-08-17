@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21733.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 material? Would you urge them to publish a manuscript they already had from another source? Would you give them a manuscript that CIA personnel had written under a pseudonym?
 

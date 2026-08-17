@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10359.png
-
-Convert to MarkdownGuatemala 22 de Octubre de 1968.
+Guatemala 22 de Octubre de 1968.
 
 <table><tr><td>MICROFILMED</td></tr><tr><td>NOV 29 1968</td></tr><tr><td>DOC. MICRO. REG.</td></tr></table>
 

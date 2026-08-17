@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14050.png
-
-Convert to MarkdownNozbro (s)
+Nozbro (s)
 
 Edad
 

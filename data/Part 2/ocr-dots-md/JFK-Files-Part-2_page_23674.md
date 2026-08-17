@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23674.png
-
-Convert to MarkdownThere agreed upon at the staff level that were left out:
+There agreed upon at the staff level that were left out:
 
 Mr. Aaron. I have one here.
 

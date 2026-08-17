@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12550.png
-
-Convert to Markdownd. Above also applies to Agent's notes taken during surveillances or concerning evidence otherwise obtained.
+d. Above also applies to Agent's notes taken during surveillances or concerning evidence otherwise obtained.
 
 13. Interviews with subjects of security investigations
 

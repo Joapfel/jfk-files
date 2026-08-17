@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8787.png
-
-Convert to MarkdownI cannot tell you whether I have briefly indicated there what it did not appear King was necessarily aware of the past or present C.P. Connections of this persons
+I cannot tell you whether I have briefly indicated there what it did not appear King was necessarily aware of the past or present C.P. Connections of this persons
 
 Re page 14 and the Answer you inquired about.
 

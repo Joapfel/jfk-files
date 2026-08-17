@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8003.png
-
-Convert to MarkdownThe Watergate Crime
+The Watergate Crime
 
 Articles Published in Computers and Automation August 1972 to September 1973
 

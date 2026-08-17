@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13781.png
-
-Convert to Markdown# III. Case Studies
+# III. Case Studies
 
 ## General Questions
 

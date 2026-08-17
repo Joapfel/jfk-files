@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7550.png
-
-Convert to MarkdownHAROLD ROBERT ISAACS, continued
+HAROLD ROBERT ISAACS, continued
 
 The book was completed, and ISAACS and his wife returned to the United States about April or May 1935. Immediately after this, ISAACS made a rapid trip to Oslo, Norway, to see his hero, LEON TROTSKY, who was living there at that time. It was on this occasion that he must have undertaken to translate TROTSKY's book, Whither France? ISAACS then returned to New York, and went to work for the HAVAS News Agency once more.
 

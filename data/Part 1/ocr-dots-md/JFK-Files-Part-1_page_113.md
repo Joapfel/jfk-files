@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_113.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>December 1962, all of JMWAVE's business with the Identity 3 was handled via AMCARBON-2. In mid-December 1962, AMCARBON-2 made the suggestion that he introduce REUTEMAN to AMCARBON-1 in order that there be a backup contact, in the event that AMCARBON-2 were out of town or unavailable at such times as REUTEMAN might require assistance from the Identity 3. REUTEMAN agreed to AMCARBON-2's suggestion, and, as a result, AMCARBON-2 hosted a luncheon on 12 December 1962 at the Miami Club in the Hotel Columbus, Miami, Florida, at which AMCARBON-2 introduced AMCARBON-1 to REUTEMAN. As a result of this initial meeting on 12 December 1962, an operational relationship has developed with AMCARBON-1, and it is believed that this relationship contributes to the fulfillment of the over-all JMWAVE mission. In view of this, a special activities report is being submitted to cover the nature of JMWAVE's relationship with AMCARBON-1 during the period December 1962 to March 1964.</td>

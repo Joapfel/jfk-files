@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5995.png
-
-Convert to MarkdownS.B.(4.5) LOU BRIDGE INCOMING DAILY REPORT
+S.B.(4.5) LOU BRIDGE INCOMING DAILY REPORT
 
 Date 31.10.71. (20)
 

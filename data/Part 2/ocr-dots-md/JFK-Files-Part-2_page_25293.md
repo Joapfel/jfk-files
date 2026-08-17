@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25293.png
-
-Convert to Markdownslogans and initials of yet another group. Among groups
+slogans and initials of yet another group. Among groups
 named in testimony before the Senate Internal Security
 Subcommittee are: Accion Cubana, or Cuban Action; Alpha
 66, a name adopted when victory in 1966 seemed possible;

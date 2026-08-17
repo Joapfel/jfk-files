@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4661.png
-
-Convert to MarkdownImpresada pulgar derecha.
+Impresada pulgar derecha.
 Thumb-side, right hand.
 
 REPUBLICA DE COSTA RICA

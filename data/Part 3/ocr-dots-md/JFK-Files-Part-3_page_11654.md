@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11654.png
-
-Convert to Markdown# COKMA PROGRAM
+# COKMA PROGRAM
 
 4-H
 

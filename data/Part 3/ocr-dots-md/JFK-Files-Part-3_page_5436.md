@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5436.png
-
-Convert to Markdown**QUESTION:**
+**QUESTION:**
 But it is put in the files?
 
 **MR. KELLEY:** Yes, it is put in the files. Yes sir.

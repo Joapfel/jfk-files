@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21854.png
-
-Convert to Markdownstressed the difficulty of trying to carry out such an operation. (Hedgman, 8/21/75, p. 47.)
+stressed the difficulty of trying to carry out such an operation. (Hedgman, 8/21/75, p. 47.)
 
 The cable that Hedgman sent to headquarters reporting his initial contact with (Gottlieb) was clearly an affirmative response to the assignment. The (Chief of) Station said that he and (Gottlieb) were "ON SAME WAVELENGTH." (CIA Cable IN 18989, Leopoldville to Tweedy, 9/27/60.) Hedgman was "afraid" that [Mobutu's] government was "weakening under" foreign pressure to effect a reconciliation with Lumumba, and said:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11989.png
-
-Convert to Markdowncutors. That may have been too much for him to take chances with us. I don't know. Maybe he thinks we're CIA."
+cutors. That may have been too much for him to take chances with us. I don't know. Maybe he thinks we're CIA."
 
 ## Swords on the Runway
 

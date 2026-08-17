@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11979.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="3">FOR AREA<br/>201 WFG 7/8</td>
         <td>TOTAL COPIES</td>

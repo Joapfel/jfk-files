@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7069.png
-
-Convert to Markdownthreatened to appeal to the President to over-
+threatened to appeal to the President to over-
 turn the Review Board's votes, but the
 Review Board's position was that the JFK Act
 required release of information where CIA

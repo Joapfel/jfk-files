@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23494.png
-
-Convert to MarkdownBut after seeing the minutes of the Special Group meeting of February 17, 1960, Gray said that it was clear that in those minutes "his associate" referred to President Eisenhower.
+But after seeing the minutes of the Special Group meeting of February 17, 1960, Gray said that it was clear that in those minutes "his associate" referred to President Eisenhower.
 
 Gray said that he never used the phrase "associate", that was Parrott's phrase. Gray was not aware the phrase was used at the time in those minutes and couldn't, without reconstructing each minute, be sure it referred to the President in each case. He said that when he attended the meetings, he would refer to "the President" directly.
 

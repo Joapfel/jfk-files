@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6657.png
-
-Convert to Markdown* USSR and assassination
+* USSR and assassination
 
 * Cuba and assassination
 

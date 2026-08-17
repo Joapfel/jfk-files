@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18781.png
-
-Convert to MarkdownSoviet UN Delegation who could do anything for him. Subject said that if the Soviets were to try to help him, the Red Chinese would think that the Soviets were trying to push someone off on them. However, subject told JAFFE that he could use the names of the Soviets with whom he is acquainted as references in his dealings with Red Chinese authorities.
+Soviet UN Delegation who could do anything for him. Subject said that if the Soviets were to try to help him, the Red Chinese would think that the Soviets were trying to push someone off on them. However, subject told JAFFE that he could use the names of the Soviets with whom he is acquainted as references in his dealings with Red Chinese authorities.
 
 This information was not included in enclosed letterhead memorandum, as it would tend to disclose JAFFE as the source of this information. JAFFE has been emphatic in expressing his desire to have his identity protected.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25327.png
-
-Convert to Markdownport of exo. It was stated that no letter of Credit had been received for certain dyes, but ZIOTNIK claimed to have sent a Letter of Credit some time back to Sojot-Cheimie Export, through the "Banco Popular,"
+port of exo. It was stated that no letter of Credit had been received for certain dyes, but ZIOTNIK claimed to have sent a Letter of Credit some time back to Sojot-Cheimie Export, through the "Banco Popular,"
 
 ZIOTNIK stated that Violet Dye had arrived a few days back, but that he lacked information on how it was charged.
 

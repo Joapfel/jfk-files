@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15039.png
-
-Convert to Markdown12-00600
+12-00600
 
 11 February 1963
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31642.png
-
-Convert to MarkdownSF T-7 in February, 1952, identified STEPHEN SMALE as a member of the Labor Youth League (LYL) at the University of Michigan, Ann Arbor, Michigan.
+SF T-7 in February, 1952, identified STEPHEN SMALE as a member of the Labor Youth League (LYL) at the University of Michigan, Ann Arbor, Michigan.
 
 The LYL has been designated by the Attorney General of the United States pursuant to Executive Order 10450.
 

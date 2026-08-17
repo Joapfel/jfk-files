@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8357.png
-
-Convert to Markdown14-03.100
+14-03.100
 
 SUBJECT: Valentin Loquinov
 DATE OF INFORMATION: February 2, 1969

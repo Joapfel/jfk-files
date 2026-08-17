@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25457.png
-
-Convert to MarkdownSECRET
+SECRET
 
 J. O'Conner, "Lamti-Lit"
 

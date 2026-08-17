@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15656.png
-
-Convert to Markdownprepaid Christmas cards via Air Bill Number
+prepaid Christmas cards via Air Bill Number
 26470802, United Air Lines.
 
 advised on December 3, 1969,

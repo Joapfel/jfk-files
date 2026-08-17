@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5414.png
-
-Convert to Markdown**MR. KELLEY:** We have no ongoing programs whatsoever and have had no reports that it has occurred and this is something new to us.
+**MR. KELLEY:** We have no ongoing programs whatsoever and have had no reports that it has occurred and this is something new to us.
 
 **QUESTION:** Sir, there have been complaints repeatedly in recent days from Congressmen and Senators on the Hill who are charged with investigating the FBI and its domestic surveillance in past years that they are not getting the information that they need. We heard from Senator Church maybe yesterday. Can you respond to that?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3654.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES: 14</th><th>ROUTING AND CA INITIALS - SPAN BY</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td><table><tr><td>5</td></tr><tr><td>6</td></tr><tr><td>7</td></tr><tr><td>8</td></tr></table></td></tr></tbody></table>
 

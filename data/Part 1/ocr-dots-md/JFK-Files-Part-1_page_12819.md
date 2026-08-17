@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12819.png
-
-Convert to MarkdownT 133753
+T 133753
 
 TOR:3022332 MAR 73
 

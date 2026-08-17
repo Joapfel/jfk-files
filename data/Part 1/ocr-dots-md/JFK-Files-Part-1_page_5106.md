@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5106.png
-
-Convert to MarkdownSECRET
+SECRET
 
 0721102 CI.
 

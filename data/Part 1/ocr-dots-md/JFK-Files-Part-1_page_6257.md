@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6257.png
-
-Convert to Markdown# EDITORIAL
+# EDITORIAL
 
 ## NOTICIAS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29070.png
-
-Convert to MarkdownIncome Averaging
+Income Averaging
 
 See instructions on pages 3 and 4.
 Attach to Form 1040.

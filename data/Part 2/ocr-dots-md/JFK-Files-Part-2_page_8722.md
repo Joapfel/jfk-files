@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8722.png
-
-Convert to Markdowna cable from Havana stating that an employee of the Foreign Relations Office of the embassy had been badly treated with regard. to finding out about OSWALD's passport; OSWALD, Kennedy's assassin. That they would like to confirm if it is true.
+a cable from Havana stating that an employee of the Foreign Relations Office of the embassy had been badly treated with regard. to finding out about OSWALD's passport; OSWALD, Kennedy's assassin. That they would like to confirm if it is true.
 
 CHELO : Ignores him, since they had not received the cable directly from Havana.
 

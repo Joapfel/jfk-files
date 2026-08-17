@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4830.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 DISTRIBUTION COPY
 

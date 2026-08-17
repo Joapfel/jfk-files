@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9517.png
-
-Convert to Markdownfree, the other slave. It is within a few feet of the Soviet flag on Brandenburg Gate and the warlike Soviet memorial within the British sector. It is the most dramatic spot for a visible answer to those two symbols of despotism and force that exists anywhere in the world. It is the only place to dedicate a palace of freedom which will be clearly visible to soldiers and officers of the Soviet army.
+free, the other slave. It is within a few feet of the Soviet flag on Brandenburg Gate and the warlike Soviet memorial within the British sector. It is the most dramatic spot for a visible answer to those two symbols of despotism and force that exists anywhere in the world. It is the only place to dedicate a palace of freedom which will be clearly visible to soldiers and officers of the Soviet army.
 
 2. The Reichstag earned this rededication on September 9, 1948 when 300,000 Berliners looked before its steps to defy the Kremlin during the grim days of the Berlin blockade.
 

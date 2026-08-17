@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15187.png
-
-Convert to MarkdownDavid have care below to Ferry Crook an on 16 December 1959. He had these made up on his own as a means of identification.
+David have care below to Ferry Crook an on 16 December 1959. He had these made up on his own as a means of identification.
 
 DAVID DURVARD
 ENGINEER & TECHNICAL ADVISOR

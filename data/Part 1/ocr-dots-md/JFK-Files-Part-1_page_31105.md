@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31105.png
-
-Convert to MarkdownTO: Medical Divi. on
+TO: Medical Divi. on
 
 FROM: Transactions & Records
 

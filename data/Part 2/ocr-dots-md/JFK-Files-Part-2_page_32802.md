@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32802.png
-
-Convert to Markdown**COMMENT:** Provision is made for the introduction of
+**COMMENT:** Provision is made for the introduction of
 
 "(c) Staging demonstration and riots at the gates"
 

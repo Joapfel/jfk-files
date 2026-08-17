@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12672.png
-
-Convert to MarkdownWhile none of the above may be of sufficient value alone, a combination may constitute convincing proof. Revolutionary purposes of subversive organization are frequently cloaked in veiled language or in language significant only to persons familiar with Marxist or revolutionary terminology. Such statements should be fully reported. Develop and report all revolutionary statements and circumstances under which made.
+While none of the above may be of sufficient value alone, a combination may constitute convincing proof. Revolutionary purposes of subversive organization are frequently cloaked in veiled language or in language significant only to persons familiar with Marxist or revolutionary terminology. Such statements should be fully reported. Develop and report all revolutionary statements and circumstances under which made.
 
 (3) Position and importance
 

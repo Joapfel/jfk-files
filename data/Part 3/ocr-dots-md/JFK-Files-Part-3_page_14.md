@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14.png
-
-Convert to Markdownand also conveyed his
+and also conveyed his
 > ~~He~~ on this matter, and was informed by the ~~Checklist~~ that McCone's
 > *feeling* ~~and should not depend on the semi-weekly Review.~~ 7/ AD/CI R. J. Smith responded in a memorandum of 5 November 1964, to
 > ~~the DGE through the DDI Smith~~ He felt that the Agency would have a graceful

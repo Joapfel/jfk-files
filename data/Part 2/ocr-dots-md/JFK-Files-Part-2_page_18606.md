@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18606.png
-
-Convert to Markdown3:52 PM
+3:52 PM
 
 September 10, 1965
 

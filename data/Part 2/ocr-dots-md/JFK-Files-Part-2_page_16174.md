@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16174.png
-
-Convert to MarkdownDate 1/31/70
+Date 1/31/70
 
 On the afternoon of January 27, 1970, HERBERT L. MAC DONELL, Davis Road, Corning, New York, was contacted at his place of employment in Corning, at which time he advised he possessed certain microscope slides concerning his examination of a Chicago, Illinois residence in December, 1969, and was willing to turn these slides over to the FBI, as he had been directed to do so by an attorney with the United States Department of Justice. Arrangements were made to obtain these slides from MAC DONELL on the evening of January 27, 1970, as he stated they were presently at his residence.
 

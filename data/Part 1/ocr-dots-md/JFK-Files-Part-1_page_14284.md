@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14284.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EE-8119, 5 Deco. 67
 

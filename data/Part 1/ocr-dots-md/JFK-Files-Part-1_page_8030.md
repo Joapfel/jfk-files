@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8030.png
-
-Convert to MarkdownSECRET
+SECRET
 
 hostile to the communists. ARANCO is believed to belong to the secret end of the Partido Socialista Popular, although his activities have been carried on behind an Orbedane front, such as in the case of Max LESHICK, Vicente ARTETA, et al.
 

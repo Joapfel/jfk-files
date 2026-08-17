@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_14846.png
-
 to Brownell. Russo has not been alleged to be involved in any irregularities in this matter.
 
 Arrangements are now being made to interview subject Ledes in New York City. Arrangements are also being made to interview subject Abrams who is serving a 30-month sentence on Fraud Against the Government charges, as well as Abrams' uncle, Charles Gordon. These interviews, and subsequent record checks to verify information furnished by the subjects, will complete the investigation.

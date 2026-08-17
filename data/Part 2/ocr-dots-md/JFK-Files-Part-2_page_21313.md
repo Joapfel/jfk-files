@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21313.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Airtel to Director, FBI
 RE: ANTONIO HECTOR RIVERO JUARRERO - PSI

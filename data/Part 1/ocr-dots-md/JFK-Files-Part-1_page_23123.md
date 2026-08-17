@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23123.png
-
-Convert to MarkdownAri Kiev, M.D.
+Ari Kiev, M.D.
 
 We have had three scientists visiting the Institute this year. One of them was Dr. Vladimir D. Nebylitsyn, Vice-Director of the Institute of Psychology from Moscow, who stayed two months with us. He helped us to create a typology laboratory in our Psychology Department. At the same time, he offered a course on typology variables according to Teplov and himself.
 

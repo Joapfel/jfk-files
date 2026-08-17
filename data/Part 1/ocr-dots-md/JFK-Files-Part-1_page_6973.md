@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6973.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>CLASSIFICATION</th><th>PAGE NO.</th></tr></thead><tbody><tr><td>FORM 53a<br>(42)</td><td>USE PREVIOUS EDITION</td></tr><tr><td colspan="2">CONTINUED</td></tr></tbody></table>
 

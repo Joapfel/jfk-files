@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22062.png
-
-Convert to Markdownapplication, the negative results of checks of KGB Headquarters
+application, the negative results of checks of KGB Headquarters
 files, and a report prepared by the American Department of the
 First Chief Directorate. According to this report, based on
 correspondence from the KGB Legal Residencies in the United

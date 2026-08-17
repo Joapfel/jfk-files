@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5776.png
-
-Convert to MarkdownSECRET
+SECRET
 
 October 21, 1966
 

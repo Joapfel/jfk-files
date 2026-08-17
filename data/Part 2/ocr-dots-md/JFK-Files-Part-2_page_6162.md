@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6162.png
-
-Convert to Markdown56 Md. L. Rev. 1, *31
+56 Md. L. Rev. 1, *31
 
 unique sources. There is, as well, the related question of how much information was known at the top of the cooperating governments and the extent to which such knowledge would enhance our understanding of the assassination as being the work of foreign conspirators. If we compromise any of those relationships and consequently cause political damage to the cooperating government, we may find a valuable future source of intelligence closed. n190
 

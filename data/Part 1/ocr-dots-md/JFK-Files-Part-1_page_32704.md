@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32704.png
-
-Convert to Markdown<table><tr><td rowspan="2">STATEMENT OF FEDERAL CIVILIAN AND MILITARY SERVICE</td><td colspan="4"></td><td colspan="3">OFFICE</td><td colspan="3">DIVISION</td></tr><tr><td>NAME<br/>Williamson Earl James</td><td>DATE<br/>[handwritten]</td><td>AGE<br/>[handwritten]</td><td>BRANCH<br/>[handwritten]</td><td>SECTION<br/>[handwritten]</td><td>[handwritten]</td><td></td><td></td><td></td><td></td></tr></table>
+<table><tr><td rowspan="2">STATEMENT OF FEDERAL CIVILIAN AND MILITARY SERVICE</td><td colspan="4"></td><td colspan="3">OFFICE</td><td colspan="3">DIVISION</td></tr><tr><td>NAME<br/>Williamson Earl James</td><td>DATE<br/>[handwritten]</td><td>AGE<br/>[handwritten]</td><td>BRANCH<br/>[handwritten]</td><td>SECTION<br/>[handwritten]</td><td>[handwritten]</td><td></td><td></td><td></td><td></td></tr></table>
 
 I FEDERAL CIVILIAN SERVICE (BEGIN WITH THIS AGENCY AND FOLLOW IN REVERSE CHRONOLOGICAL ORDER)
 

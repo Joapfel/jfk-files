@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7839.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 30 JUL 1976
 

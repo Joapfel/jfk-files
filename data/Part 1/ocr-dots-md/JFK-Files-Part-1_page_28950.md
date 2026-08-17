@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28950.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, FE/VCL
+MEMORANDUM FOR: Chief, FE/VCL
 
 SUBJECT : Recommendation for Promotion of ____________ to OS-1A Equivalent
 

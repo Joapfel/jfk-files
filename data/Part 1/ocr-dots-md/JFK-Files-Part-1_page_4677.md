@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4677.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      DATE: 26 MARCH 1989

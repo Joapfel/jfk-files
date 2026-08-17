@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1538.png
-
-Convert to Markdown13-00000
+13-00000
 
 Name Robert P. Wheeler
 Dear Mr. Wheeler:

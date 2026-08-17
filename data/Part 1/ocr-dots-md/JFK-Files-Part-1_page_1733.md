@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1733.png
-
-Convert to MarkdownFREEMAN, John Henry - #157181
+FREEMAN, John Henry - #157181
 
 John Henry FREEMAN was granted a Covert Security Approval on 28 June 1957 to permit the utilization of his services under Project LFCOM. At the time he was a partner in the large and leading law firm of FULBRICANT, CROOKER, FREEMAN, BATES and JAWORSKI at Houston, Texas and was a trustee of the M. D. ANDERSON Medical Foundation.
 

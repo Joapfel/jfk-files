@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4967.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHFNO: 96-3312306 SENSIND:
 

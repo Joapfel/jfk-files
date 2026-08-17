@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2555.png
-
-Convert to MarkdownBruce A. BERTOTALLY
+Bruce A. BERTOTALLY
 
 Mr. BERTOTALLY (P)
 

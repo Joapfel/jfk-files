@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14255.png
-
-Convert to Markdown14-00/000
+14-00/000
 
 SECRET 061054Z CITE MADRID 3302
 

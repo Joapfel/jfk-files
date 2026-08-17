@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13647.png
-
-Convert to MarkdownHARRIS:GSH
+HARRIS:GSH
 San,Sel, CIA
 2/11/95
 

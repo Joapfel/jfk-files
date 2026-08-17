@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23235.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 But, there is nothing in my experience with the Agency
 which would really bear on that point whatsoever.

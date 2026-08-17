@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23726.png
-
-Convert to MarkdownI think this would suggest that that ceiling be a public figure but that the Congress establish a manpower ceiling for that, just as it has these other services that serve in the field of national security.
+I think this would suggest that that ceiling be a public figure but that the Congress establish a manpower ceiling for that, just as it has these other services that serve in the field of national security.
 
 Now I know Charley has some reservations about that.
 

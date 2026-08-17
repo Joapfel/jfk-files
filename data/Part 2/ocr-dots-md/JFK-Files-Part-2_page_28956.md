@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28956.png
-
-Convert to MarkdownJan. 24, 1978
+Jan. 24, 1978
 
 004876
 

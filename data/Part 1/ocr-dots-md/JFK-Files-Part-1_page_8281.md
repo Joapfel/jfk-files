@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8281.png
-
-Convert to Markdownbe authorized to close the deal. Subject agreed to emphasize the attractiveness of the commission end the advantage of the fact that the deal is handled in Switzerland and consequently the commission is also paid there. F told Subject that he wanted to know in detail LOGS reaction concerning the commission. Subject should also play around with the theme that it would be ideal if LOG could travel to Switzerland to introduce him to the right person (Sov) and similar.
+be authorized to close the deal. Subject agreed to emphasize the attractiveness of the commission end the advantage of the fact that the deal is handled in Switzerland and consequently the commission is also paid there. F told Subject that he wanted to know in detail LOGS reaction concerning the commission. Subject should also play around with the theme that it would be ideal if LOG could travel to Switzerland to introduce him to the right person (Sov) and similar.
 
 11. Subject commented that the buyer is serious and it remains to be seen are the Sov willing to sell at a convenient for them but still fair price. Subject went on to say that if the deal was to go well he would have to go to Switzerland, and this arizes another problem, i.e. how long would it take for him to get American Passport, because he is presently documented by his Birth Certificate. F told him to start thinking about passing that bridge when he comes to it.
 

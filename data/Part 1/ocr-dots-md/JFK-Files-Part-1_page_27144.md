@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27144.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td rowspan="2">U.S. ARMY<br>CLASSIFICATION OF<br>DISPATCH</td><td>CLASsIFICATION</td><td>DISTRIBUTION SYMBOL AND NUMBER</td></tr><tr><td>SECRET</td><td>Separate Cover Attachment<br>B to UFGA-14781</td></tr></table>
 

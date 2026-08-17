@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6317.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ATTACHMENT TO: UPCA-356 Dated 16 April 62
 

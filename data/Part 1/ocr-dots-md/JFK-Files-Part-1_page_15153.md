@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15153.png
-
-Convert to MarkdownAbei entsprechen Sie diese Anweisungen, was der Sie alles
+Abei entsprechen Sie diese Anweisungen, was der Sie alles
 erfordern können, was für Ihre Beteiligung ist.
 
 <u>Punkt 1</u>

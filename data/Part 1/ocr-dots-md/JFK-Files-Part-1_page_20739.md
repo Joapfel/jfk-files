@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20739.png
-
-Convert to Markdown30 June 1966
+30 June 1966
 
 MEMORANDUM FOR : Chief, TRB
 

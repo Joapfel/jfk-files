@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2398.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Boza arrived in the United States on September 6, 1968. Our investigation of him has determined that he acts as a clearing agent for American citizens of various backgrounds who travel to Cuba, associates with individuals who are affiliated with black extremist and New Left groups, and has been operationally associated in New York City with Soviet intelligence personnel. He acted as interpreter for Stokely Carmichael during a visit of the latter in Cuba.
 

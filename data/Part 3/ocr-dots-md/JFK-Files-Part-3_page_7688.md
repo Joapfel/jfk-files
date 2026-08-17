@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7688.png
-
-Convert to MarkdownNR 002 AT CODE
+NR 002 AT CODE
 
 10:40 AM NITEL JUNE 28, 1975 PG
 

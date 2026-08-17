@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3069.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 C. Tracy Barnes, Richard Bissell, Dick Helms, Jake Esterline, J. C. King, and Tom Parrott, among others.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25128.png
-
-Convert to Markdown<table><tr><td colspan="2">PERSONS/ENTITIES:</td><td colspan="2">DATES:</td><td colspan="2">CATEGORIES:</td></tr><tr><td colspan="2">GENERAL DON AMBASSADOR NOLTING CONEIN</td><td>July 1963</td><td>DIEM ✓</td><td colspan="2"></td></tr></table>
+<table><tr><td colspan="2">PERSONS/ENTITIES:</td><td colspan="2">DATES:</td><td colspan="2">CATEGORIES:</td></tr><tr><td colspan="2">GENERAL DON AMBASSADOR NOLTING CONEIN</td><td>July 1963</td><td>DIEM ✓</td><td colspan="2"></td></tr></table>
 
 **OCCURRENCE:** On July 4, 1963, CONEIN received a message from DON, Commander of I Corps at the time, to meet with him in the Caravelle Hotel for a public meeting and the hotel was jammed packed. CONEIN states that: "It was at that time on the 4th of July that I had the first indication that something serious was being contemplated, when GENERAL DON told me that if the Buddhist situation does not get settled, that the military are planning. I reported this fact, and I believe it was around the 8th or 9th of July, that more indications..." p. 20.
 

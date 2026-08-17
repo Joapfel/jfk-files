@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25875.png
-
-Convert to Markdown6 OCT
+6 OCT
 5 1975
 
 US/75/539

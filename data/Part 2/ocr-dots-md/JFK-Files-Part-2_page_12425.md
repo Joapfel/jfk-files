@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12425.png
-
-Convert to MarkdownSECTION 107. SECURITY INFORMANTS AND CONFIDENTIAL SOURCES. 107C-D
+SECTION 107. SECURITY INFORMANTS AND CONFIDENTIAL SOURCES. 107C-D
 
 e. If potential informant is student, teacher, or has any similar relations with school, college, or university, in initial interview and subsequent handling, follow current instructions concerning investigations on campuses.
 

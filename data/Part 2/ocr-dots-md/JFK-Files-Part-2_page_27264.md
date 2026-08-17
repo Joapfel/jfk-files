@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27264.png
-
-Convert to MarkdownA. Memo for Chiefs, All Field Offices - Case 52722 (Draft) SECRET
+A. Memo for Chiefs, All Field Offices - Case 52722 (Draft) SECRET
 
 B. Memo to Acting Chief, Detroit Field Office - Case 52722 - SECRET/SENSITIVE
 

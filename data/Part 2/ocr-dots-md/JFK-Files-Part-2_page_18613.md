@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18613.png
-
-Convert to MarkdownMay 17, 1905
+May 17, 1905
 
 Corandum for Messrs. Tolson, Belmont, DeLoach, Sullivan
 

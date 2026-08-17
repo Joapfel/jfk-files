@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11572.png
-
-Convert to Markdown28 November, 1963
+28 November, 1963
 
 Subject: LIRING/3 Report of Meeting with LIRING/9.
 

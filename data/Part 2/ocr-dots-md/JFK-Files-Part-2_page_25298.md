@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25298.png
-
-Convert to MarkdownPaul Daly called at 3:10 p.m. to advise that "the powers
+Paul Daly called at 3:10 p.m. to advise that "the powers
 that be" at the Bureau were upset with the possibility that the
 Committee was considering going to Dallas and interfering with
 the investigation. He specifically that the Director be given

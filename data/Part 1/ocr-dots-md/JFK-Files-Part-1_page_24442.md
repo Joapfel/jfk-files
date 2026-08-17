@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_24442.png
-
 Ministry of Information.
 
 8. Yves Mathieu & McGood (promises) of Silo Vacant:

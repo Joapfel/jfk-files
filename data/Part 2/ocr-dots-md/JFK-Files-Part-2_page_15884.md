@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15884.png
-
-Convert to Markdown**Bruce, Robert Jerry**
+**Bruce, Robert Jerry**
 Arrested: 4/27/69
 Charge: Kidnaping and Conspiracy to Commit Murder
 Disposition: Pending

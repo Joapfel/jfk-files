@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25078.png
-
-Convert to MarkdownCLOSING STATEMENT FROM CUBA DOCUMENT
+CLOSING STATEMENT FROM CUBA DOCUMENT
 
 We consider that the analysis of the informations we offer,
 the publicly known, and the ones that the American authorities

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7204.png
-
-Convert to MarkdownMr. Chairman, the Intelligence Community has not been idle
+Mr. Chairman, the Intelligence Community has not been idle
 since the development of the U-2, and the improvements that
 have been made have added a new dimension to the importance
 of intelligence today--its contribution to the maintenance

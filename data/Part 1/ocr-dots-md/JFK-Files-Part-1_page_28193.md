@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28193.png
-
-Convert to MarkdownQSI RECOMMENDATION REVIEW
+QSI RECOMMENDATION REVIEW
 
 SUBJECT: Frederick C. Baldrill
 OFFICE: DCS/FR

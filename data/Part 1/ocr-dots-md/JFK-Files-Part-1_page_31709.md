@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31709.png
-
-Convert to MarkdownSECRET
+SECRET
 SECURITY INFORMATION
 
 12 February 1963

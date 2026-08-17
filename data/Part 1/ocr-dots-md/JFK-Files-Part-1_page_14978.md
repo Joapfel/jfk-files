@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14978.png
-
-Convert to MarkdownTERMINATION AGREEMENT
+TERMINATION AGREEMENT
 
 The undersigned hereby acknowledges that a contractual relationship has heretofore existed between him and the Government of the United States of America (hereinafter referred to as ("the Government"). The Government has fully and completely satisfied all of its obligations to the undersigned.
 

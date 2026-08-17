@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10181.png
-
-Convert to MarkdownMAR 9 1976
+MAR 9 1976
 
 84
 

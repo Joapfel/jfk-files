@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20047.png
-
-Convert to Markdown# FBI
+# FBI
 
 Date: 1/3/68
 

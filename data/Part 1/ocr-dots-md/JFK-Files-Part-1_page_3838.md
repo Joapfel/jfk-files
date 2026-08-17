@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3838.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 
 RIO/MIS
 

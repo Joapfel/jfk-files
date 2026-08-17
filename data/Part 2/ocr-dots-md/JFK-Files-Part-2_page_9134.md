@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9134.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 <table><tr><td colspan="2">REPORTING OFFICE</td><td>OFFICE OF ORIGIN</td><td>DATE</td><td>INVESTIGATIVE PERIOD</td></tr><tr><td colspan="2">RICHMOND</td><td>RICHMOND</td><td>1/31/67</td><td>4/8/66 - 1/21/67</td></tr><tr><td>TITLE OF CASE</td><td colspan="3"></td><td>TYPED BY</td></tr><tr><td colspan="3">FRANK AUGUST DRAGER, JR.</td><td colspan="2">SA JOSEPH A. MARION, JR.</td><td>nlh</td></tr><tr><td colspan="5">CHARACTER OF CASE<br/>RM (ORGANIZATION)</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3044.png
-
-Convert to MarkdownPAGE FOUR
+PAGE FOUR
 
 BIRMINGHAM:
 

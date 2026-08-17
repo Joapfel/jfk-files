@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5364.png
-
-Convert to Markdown# FORMATION REPORT INFORMATION PORT
+# FORMATION REPORT INFORMATION PORT
 
 ## CENTRAL NITELGENCI AGENCY
 The state of Central information affecting the National Defense or the United States when the meaning of the English letters U, S, C, S, a, and V are to be ascertained by the use of any other word.

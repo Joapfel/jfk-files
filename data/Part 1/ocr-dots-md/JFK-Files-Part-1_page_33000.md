@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33000.png
-
-Convert to Markdown5 October 1972
+5 October 1972
 
 MEMORANDUM FORL Record
 

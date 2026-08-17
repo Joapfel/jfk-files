@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_32391.png
-
 ship inspector for the Port of Havana that on 14 January 1963 two launches captained by men with what appeared to be an Italian seaplane had departed from the Le Coubre wharf (Havana). Manifest on ship indicated the destination was British Guiana. However, the ship inspector had been told by the slaved labor as at the wharf that two launches were loaded with arms and the true situation was Venezuela."
 
 TD/00-K-3249316 DTG 2818052

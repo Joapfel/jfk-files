@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9912.png
-
-Convert to Markdown1. The report furnished to the President by Director Colby in January 19
+1. The report furnished to the President by Director Colby in January 19
 
 2. All Executive Orders, National Security Decision Memorand
    (NSDIs) or Intelligence Directives (NSCIDs), and other White House * directives pertaining to the charter, structure or guidelines for any overt or covert foreign or domestic intelligence agencies or activities.

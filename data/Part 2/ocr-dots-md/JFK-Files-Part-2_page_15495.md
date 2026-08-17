@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15495.png
-
-Convert to MarkdownDIRECTOR, FBI
+DIRECTOR, FBI
 
 7/7/64
 

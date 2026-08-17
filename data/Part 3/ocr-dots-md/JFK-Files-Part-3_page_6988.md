@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6988.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 ## LOS ANGELES STUDENT NON-VIOLENT COORDINATING COMMITTEE
 
 A source advised in July, 1968, that the Los Angeles Student Non-Violent Coordinating Committee (LA-SNCC), headquartered at 7406 South Western Avenue, Los Angeles, California, is not a membership organization but a loose-knit agency composed of young militant, black nationalists from South Los Angeles who have eliminated all Caucasians from their ranks and have initiated a program against the draft, the war in Vietnam and discrimination and have proposed a revolutionary program utilizing armed force, political and economic action to obtain their goals. LA-SNCC is an arm of the National Student Non-Violent Coordinating Committee organization headquartered at Atlanta, Georgia, and with the naming of LA-SNCC Director RONALD LEROY WILKINS as Deputy Director of SNCC for the West Coast, the affinity between the National and Local organization will be more harmonious.

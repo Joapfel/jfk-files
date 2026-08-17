@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18813.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">NOTIFICATION OF ESTABLISHMENT OR CANCELLATION OF OFFICIAL COVER BACKSTOP</td><td>(DATE) 14 June 1972</td><td>FILE NO. 336</td></tr><tr><td rowspan="3">TO: (Check)</td><td>X CHIEF, CONTROL DIVISION</td><td colspan="2">SS NUMBER 446-14-9768</td></tr><tr><td>CHIEF, CONTRACT PERSONNEL DIVISION</td><td colspan="2">EMPLOYEE NUMBER 057303</td></tr><tr><td>X CHIEF, OPERATING COMPONENT (For action)</td><td colspan="2">ID CARD NUMBER CI</td></tr><tr><td>ATTN:</td><td colspan="3">Chief Support Staff</td></tr><tr><td>REF:</td><td colspan="3">Retirement Debriefing</td></tr><tr><td>SUBJECT</td><td colspan="3">GOODPASTURE, Ann L.</td></tr><tr><td></td><td></td><td>OFFICIAL COVER</td><td>ESTABLISHED X DISCONTINUED</td></tr><tr><td></td><td></td><td>UNIT</td><td></td></tr></table>
 

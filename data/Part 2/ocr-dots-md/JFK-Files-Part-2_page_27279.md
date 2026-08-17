@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27279.png
-
-Convert to Markdowna. Memo to Mr. Knoche from Mr. Schwarzer - Subj: Witnesses - 1 Apr /5
+a. Memo to Mr. Knoche from Mr. Schwarzer - Subj: Witnesses - 1 Apr /5
 
 b. Ltr from Belin to Miller - 31 Mar 75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9093.png
-
-Convert to Markdown<table><tr><td>62-</td></tr></table>
+<table><tr><td>62-</td></tr></table>
 
 <table><thead><tr><th colspan="5">HQ -116395</th></tr><tr><th colspan="5">Serial 1320 PT 2</th></tr></thead><tbody><tr><td>62-HQ -116395-E1320 PT 2</td><td>SERIAL #</td><td>Vol.</td><td>Series #</td><td>ONLY</td></tr><tr><td>0062 116395</td><td>1</td><td>1320</td><td></td><td></td></tr></tbody></table>
 

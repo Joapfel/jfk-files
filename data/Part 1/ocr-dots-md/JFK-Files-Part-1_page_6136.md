@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6136.png
-
-Convert to Markdown4601 Pine Street
+4601 Pine Street
 Philadelphia, PA 19104
 
 March 22, 1976

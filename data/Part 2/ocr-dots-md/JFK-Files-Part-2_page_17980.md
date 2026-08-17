@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17980.png
-
-Convert to MarkdownForeign Liaison Unit
+Foreign Liaison Unit
 Robert A. Bermingham
 Two Special Agents
 

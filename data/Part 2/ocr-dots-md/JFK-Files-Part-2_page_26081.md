@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26081.png
-
-Convert to MarkdownAnd I didn't know about it, and they took it
+And I didn't know about it, and they took it
 that I was pushing myself for it. I said
 again, that isn't I'd want to do." So this
 was about the time that--no, maybe [William

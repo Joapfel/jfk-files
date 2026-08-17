@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2438.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MIM-178-70
 

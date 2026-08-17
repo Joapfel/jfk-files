@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4972.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>2025</td></tr><tr><td>RELEASE</td></tr><tr><td>UNDER</td></tr><tr><td>THE</td></tr><tr><td>PRESIDENT</td></tr><tr><td>JOHN F. KENNEDY</td><td>ASSASSINATION</td><td>RECORDS ACT</td><td>OF 1992</td></tr></table>
 

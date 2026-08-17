@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23278.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 TESTIMONY OF RICHARD M. GOODWIN
 

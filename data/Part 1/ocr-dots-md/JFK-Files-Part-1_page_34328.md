@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34328.png
-
-Convert to Markdownb.- Unfavorable trade balances: 11
+b.- Unfavorable trade balances: 11
 
 * Argentina
 * Chile

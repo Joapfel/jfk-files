@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3021.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 sufficient political strength to weaken Castro's support.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10712.png
-
-Convert to MarkdownMemo for Mr. Tolson
+Memo for Mr. Tolson
 
 Re: Investigation of Ku Klux Klan and Other Hate Groups
 

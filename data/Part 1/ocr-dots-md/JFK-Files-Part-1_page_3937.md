@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3937.png
-
-Convert to MarkdownAtt. 63 to UFGA-21693 dated
+Att. 63 to UFGA-21693 dated
 
 SUBJECT: SANTANA (mat. unk.), Odilio
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25365.png
-
-Convert to Markdowna/ Nombre completo: Leonor Nicolai Sergeeviči
+a/ Nombre completo: Leonor Nicolai Sergeeviči
 
 b/ Fecha y lugar de nacimiento: 12 de octubre de 1918, Laredo.
 

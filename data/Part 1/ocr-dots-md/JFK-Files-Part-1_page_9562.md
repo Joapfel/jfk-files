@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9562.png
-
-Convert to Markdowninclude members of the various national committees.
+include members of the various national committees.
 
 4. The question of using NYLON funds for this project was not discussed, but will be considered in due course.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22386.png
-
-Convert to Markdown(Reported to the KGB on 5 May 1964)
+(Reported to the KGB on 5 May 1964)
 
 Two committees have been established by the CPSU for the purposes: (a) to determine why KGB employees such as DERYABIN, GOLITSYN, and HOSENKO defected while serving abroad; and (b) to attempt to eliminate "weak" KGB employees and improve the efficiency of the KGB.
 

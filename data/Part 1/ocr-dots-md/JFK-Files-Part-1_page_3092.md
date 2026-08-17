@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3092.png
-
-Convert to MarkdownSECRET
+SECRET
 
 30 JAN 68
 

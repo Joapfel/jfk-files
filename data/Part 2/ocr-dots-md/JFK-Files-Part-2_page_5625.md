@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5625.png
-
-Convert to MarkdownThe Lopez Report
+The Lopez Report
 HSCA Summary of Oswald and the CIA in Mexico City
 
 Warrenton site. p. 44

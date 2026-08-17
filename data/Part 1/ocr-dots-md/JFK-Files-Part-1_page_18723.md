@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18723.png
-
-Convert to MarkdownMAR 1972
+MAR 1972
 
 MEMORANDUM FOR : Chairman, Board of Medical Examiners
 

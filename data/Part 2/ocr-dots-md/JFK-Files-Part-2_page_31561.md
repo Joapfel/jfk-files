@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31561.png
-
-Convert to MarkdownIV. ACTIVITIES
+IV. ACTIVITIES
 
 SF T-2 on September 20, 1965, furnished a copy of a printed leaflet issued by the VDC captioned, "The War in Vietnam is Against our National Interest". The leaflet commented the war in Vietnam was against our national interest because:
 

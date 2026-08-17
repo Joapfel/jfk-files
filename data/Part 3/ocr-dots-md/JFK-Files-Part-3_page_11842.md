@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11842.png
-
-Convert to Markdownof the clerks presently assigned to this Unit.
+of the clerks presently assigned to this Unit.
 
 ## Satellite Unit
 

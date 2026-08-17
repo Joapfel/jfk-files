@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31958.png
-
-Convert to Markdown# SECTION
+# SECTION
 1 September 1978
 
 MEMORANDUM FOR: Mr. Joseph S. Piccolo

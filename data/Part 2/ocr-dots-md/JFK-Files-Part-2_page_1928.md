@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1928.png
-
-Convert to MarkdownChief, DD/S-OH
+Chief, DD/S-OH
 
 ATTN: Mr. Charles P. White
 

@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_11799.png
-
-Convert to MarkdownIn conclusion, may we reemphasize our great interest in your supported publication. We shall be most happy to provide an early answer which will permit consideration of possible support for this endeavor.
+In conclusion, may we reemphasize our great interest in your supported publication. We shall be most happy to provide an early answer which will permit consideration of possible support for this endeavor.

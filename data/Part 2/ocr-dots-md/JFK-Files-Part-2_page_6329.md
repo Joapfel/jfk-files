@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6329.png
-
-Convert to Markdown(B) For dependents of active duty members in pay grades of E-5 and above, $25; and,
+(B) For dependents of active duty members in pay grades of E-5 and above, $25; and,
 
 (C) For retirees and their dependents, $25.
 

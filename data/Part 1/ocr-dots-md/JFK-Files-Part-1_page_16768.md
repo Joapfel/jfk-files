@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16768.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ACTION: C/MH 5*
 

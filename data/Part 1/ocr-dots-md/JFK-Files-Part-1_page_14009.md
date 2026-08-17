@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14009.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. ROGELIO RODRIGUEZ Lopez, First Secretary-designate. Source does not know RODRIGUEZ or anything about him. RODRIGUEZ was scheduled to come to New York some months ago; it would seem that he is not coming at this point. RODRIGUEZ simply has been documented as a DGI officer through other sources.
 

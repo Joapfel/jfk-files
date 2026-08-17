@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32639.png
-
-Convert to MarkdownSECRET
+SECRET
 
 languages is to be stressed in the institute and throughout the school system. A list of subjects on which this institute intends to publish shows that it is to be used to attack the Alliance for Progress; it has already attacked the Alliance program in Colombia--a showpiece of the Alliance. We have been reliably informed that posters have been placed in some Colombian universities referring to the problems of the "national liberation and workers' movements in Latin American countries" as top-ics which will be studied by the institute. Results of these studies will be published in the near future in a magazine called America Latina, intended especially for distribution in Latin America. A pamphlet, apparently to be distributed by the institute, and entitled Alianza para el Progreso, will in the words of its heralds, "unmask the economic expansion of the USA" in Latin America. The institute also expects to enter into close contact with leading Latin American scientists and academicians during 1963.
 

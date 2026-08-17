@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21249.png
-
-Convert to Markdown~~TOP SECRET~~
+~~TOP SECRET~~
 
 personnel. He described [SHAFFER] as head of the Sergeants at American House who was spying on the Russian agents in American House and giving KGB trouble. The KGB, therefore, used some "medicine" against him to make him leave. This was done by placing the "medicine" in his bed. This caused an illness which the doctors did not diagnose. NOSENKO thought [SHAFFER] left Moscow in 1960. The case officer working against him was VLADIMIR DEMKIN.
 

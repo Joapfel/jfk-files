@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7197.png
-
-Convert to Markdownwhich the name of Jose Luis ALVAREZ was again included as an
+which the name of Jose Luis ALVAREZ was again included as an
 active member of the MLN and a member of the State Committee
 of Morelia, Michoacan, which had its general offices at Guillermo
 Prioto 35-10 in Morelia.

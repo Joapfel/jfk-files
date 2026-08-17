@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4323.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">SENDER WILL BE FILMED BY RECIPIENT</td>

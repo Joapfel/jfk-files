@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23086.png
-
-Convert to Markdowndisyuntación realista en que se forma una desunida para no-
+disyuntación realista en que se forma una desunida para no-
 vestir, con esta apariencia de ser agefilos que antaí interdisciplinar
 en efecto material. A la vez, podemos tratando en dos líneas de investi-
 gación: "Desarrollo material y más leve en la productividad" y "Investi-

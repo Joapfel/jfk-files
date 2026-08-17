@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9331.png
-
-Convert to MarkdownSECRET
+SECRET
 
 exceptional, a violent phenomenon which they vaguely understand has happened
 once, or several times perhaps, but is then over and done with. This is a

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13886.png
-
-Convert to Markdown10-09-93
+10-09-93
 
 ST: 12.09.93
 11:57

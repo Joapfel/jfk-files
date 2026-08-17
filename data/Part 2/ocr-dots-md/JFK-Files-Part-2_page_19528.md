@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19528.png
-
-Convert to MarkdownU. S. DEPARTMENT
+U. S. DEPARTMENT
 
 CUBA COMMITTEE (CONT'D)
 

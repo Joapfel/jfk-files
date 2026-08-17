@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20436.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. In the event the Employee desires to resign from the service overseas, he shall submit a written resignation addressed to the ADSO, who will take appropriate steps to clear the matter with the Department of State.
 

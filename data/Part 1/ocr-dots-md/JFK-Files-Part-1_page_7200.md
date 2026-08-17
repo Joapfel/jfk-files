@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7200.png
-
-Convert to MarkdownSUBJ: Contact Reports/ LEOGY-5
+SUBJ: Contact Reports/ LEOGY-5
 
 25 June 1963, Subj's office
 

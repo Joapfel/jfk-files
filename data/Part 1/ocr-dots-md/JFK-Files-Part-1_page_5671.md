@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5671.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (when filled in)
 
 PROCESS SHEET FOR DCD COLLECTIONS

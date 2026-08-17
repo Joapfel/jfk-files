@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2379.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NOSENKO, during his five contacts in Geneva, made many statements which in retrospect were impossible, and the investigation of which could only have raised certain questions concerning NOSENKO.
 

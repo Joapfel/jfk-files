@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9020.png
-
-Convert to Markdown19 September 1968
+19 September 1968
 
 MEMORANDUM FOR: RECORD
 

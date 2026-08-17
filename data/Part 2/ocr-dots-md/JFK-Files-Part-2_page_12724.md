@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12724.png
-
-Convert to Markdown(f) Project of verifying addresses of security index subjects shall be handled by reopening and assigning cases for verification and closing cases administratively upon ac- complishment of verifications. [In priority I and priority II security index cases, verification of residence and employment should be conducted at time of submission of investigative reports and should be included therein.
+(f) Project of verifying addresses of security index subjects shall be handled by reopening and assigning cases for verification and closing cases administratively upon ac- complishment of verifications. [In priority I and priority II security index cases, verification of residence and employment should be conducted at time of submission of investigative reports and should be included therein.
 
 I. In priority III security index cases, verification of residence and employment should be recorded on FD-154 and placed in case file. Such information may be in- cluded in letterhead memorandum when prepared.]
 

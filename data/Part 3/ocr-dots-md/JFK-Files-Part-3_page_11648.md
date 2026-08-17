@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11648.png
-
-Convert to Markdown# PROTEST AND TROTSKYIST GROUPS UNIT
+# PROTEST AND TROTSKYIST GROUPS UNIT
 
 ## May Day Collective (MDC)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6782.png
-
-Convert to Markdown6.- Las realidades del desarrollo económico en Latinoamérica
+6.- Las realidades del desarrollo económico en Latinoamérica
 
 Retornando al segundo aspecto de la disparidad entre las realizaciones aparentes y reales del desarrollo alcanzado por lo que hemos definido como el "florecimiento óptimo" de la economía latinoamericana, recordemos que el concepto ofi- cialmente empleado para el PBN en la apreciación del des- arrollo, incluye bienes y servicios. Sin discutir si es un con- cepto válido en el caso de un país altamente industrializado como los Estados Unidos, es sin lugar a dudas sumamente equívoco cuando se aplica a una economía subdesarrollada.
 

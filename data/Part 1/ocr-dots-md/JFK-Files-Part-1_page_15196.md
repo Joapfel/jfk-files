@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15196.png
-
-Convert to MarkdownThe United States Government, as represented by the Contracting Officer, hereby contracts with you for the submission of certain information and related directed services of a confidential nature under the following terms and conditions:
+The United States Government, as represented by the Contracting Officer, hereby contracts with you for the submission of certain information and related directed services of a confidential nature under the following terms and conditions:
 
 1. Compensation. In consideration of the submission of such information and related directed services, you will be paid $500.00 per month until the activity is completed, a period to approximate 6 months. Of this amount
 

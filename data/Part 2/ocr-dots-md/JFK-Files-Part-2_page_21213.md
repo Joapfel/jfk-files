@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21213.png
-
-Convert to MarkdownWith further reference to the 1957-59 cases, NOSENKO stated on July 27, 1968, (N-212) that there was no time limitation put on BOBKOV'S request. He wanted a list of recruitments and the list was prepared from available files, recollections of officers etc. without reference to year of recruitment.
+With further reference to the 1957-59 cases, NOSENKO stated on July 27, 1968, (N-212) that there was no time limitation put on BOBKOV'S request. He wanted a list of recruitments and the list was prepared from available files, recollections of officers etc. without reference to year of recruitment.
 
 **[15. Recall Telegram]**
 

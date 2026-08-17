@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1276.png
-
-Convert to MarkdownSEC
+SEC
 SENS
 
 14-00000

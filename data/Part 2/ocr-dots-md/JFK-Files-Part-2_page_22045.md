@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22045.png
-
-Convert to MarkdownNO OBJECTION as excised
+NO OBJECTION as excised
 NATIONAL SECURITY COUNCIL
 
 <table><tr><td>PERSONS/ENTITIES:<br>LANSDALE,</td><td>DATES:<br>Mar 2, 1962<br>Nov 30, 1961</td><td>CATEGORIES:<br>Special Group ✓<br>Mongoose</td></tr></table>

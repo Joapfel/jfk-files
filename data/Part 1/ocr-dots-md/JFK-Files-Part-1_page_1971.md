@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1971.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NAME GIVEN BY DE ARMAS
 

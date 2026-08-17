@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24619.png
-
-Convert to MarkdownStanleyville, and he was imprisoned. The central government of the Congo transferred Lumumba on January 17, 1961 to the custody of authorities in the province of Katanga, which was asserting its own independence at that time. Several weeks later, the Katangese authorities announced Lumumba's death.
+Stanleyville, and he was imprisoned. The central government of the Congo transferred Lumumba on January 17, 1961 to the custody of authorities in the province of Katanga, which was asserting its own independence at that time. Several weeks later, the Katangese authorities announced Lumumba's death.
 
 There are various accounts of the circumstances and timing of Lumumba's death. The United Nations investigation of the incident concluded that Lumumba was killed on January 17.*
 

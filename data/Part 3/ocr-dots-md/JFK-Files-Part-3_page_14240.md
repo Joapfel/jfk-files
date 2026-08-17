@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14240.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Chairman Clifford expressed the view that there appeared to have been raised in this discussion a fundamental question to which the Board might well give its attention -- i.e., the overall attitude of the U. S. Government toward counterintelligence, intelligence and the security of intelligence matters. In this instance the Board had raised an important point in urging that the penetration cables not be cut precipitously when discovered in the Embassy, but the Board's urging was ignored. Mr. Clifford thought it appropriate to determine just what forum does have cognizance in such important developments as this one, i. e., whether the USIB, or the Special 5412 Group, or other group, has cognizance in these matters. Mr. Coyna read from NSC 5618 the policy requirement that upon the discovery of listening devices, U. S. agencies are required to obtain high level determinations as to whether the devices should be left in place for purposes of exploitation against the foreign intelligence service involved.
 

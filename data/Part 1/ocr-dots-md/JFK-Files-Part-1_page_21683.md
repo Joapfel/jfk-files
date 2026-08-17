@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21683.png
-
-Convert to Markdownand that he, NOSENKO, read the report submitted by KOSOLAPOV on
+and that he, NOSENKO, read the report submitted by KOSOLAPOV on
 the trip from Helsinki to Moscow.
 
 [JENNER] after arriving in Moscow, reported that he was

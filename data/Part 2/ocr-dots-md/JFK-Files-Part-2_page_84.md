@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_84.png
-
-Convert to Markdowntheir leaders is considered to be good. Among this group are the following:
+their leaders is considered to be good. Among this group are the following:
 
 (1) Dr. Angel MORALES, leader of the Dominican exiles in Puerto Rico. MORALES has no visible means of support, possibly lives on private income.
 

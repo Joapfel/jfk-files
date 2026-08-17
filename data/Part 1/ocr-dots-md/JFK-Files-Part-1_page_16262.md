@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16262.png
-
-Convert to Markdown10 August 1966
+10 August 1966
 
 SECRET 101758Z CITE LONDON-5089
 

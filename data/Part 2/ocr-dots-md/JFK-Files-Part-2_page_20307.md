@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20307.png
-
-Convert to MarkdownFEB. (Nov. 5-22-68)
+FEB. (Nov. 5-22-68)
 
 Date: 1/12/68
 

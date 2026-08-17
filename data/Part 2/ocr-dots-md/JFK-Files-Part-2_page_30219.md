@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30219.png
-
-Convert to MarkdownARMED
+ARMED
 FORCES
 
 THIS SPACE BLANK

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7529.png
-
-Convert to Markdown6. The author of the aforementioned book, Hugh C. McDonald, is the inventor of the Identi-Kit and at one time was under contract to CIA in regard to the Identi-Kit. McDonald claims in his book that he met "Saul" at an office in CIA Headquarters sometime after the Bay of Pigs invasion, and that a colleague of McDonald told him that "Saul" was an assassin.
+6. The author of the aforementioned book, Hugh C. McDonald, is the inventor of the Identi-Kit and at one time was under contract to CIA in regard to the Identi-Kit. McDonald claims in his book that he met "Saul" at an office in CIA Headquarters sometime after the Bay of Pigs invasion, and that a colleague of McDonald told him that "Saul" was an assassin.
 
 7. There are striking parallels between the backgrounds of "Saul" as given in McDonald's book, and MOSKALEV. For example:
 

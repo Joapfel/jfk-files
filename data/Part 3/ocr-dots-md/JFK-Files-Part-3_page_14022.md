@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14022.png
-
-Convert to MarkdownSAM's. The Soviet decision to train Cubans and to relocate SAM sites indicates an intention to turn them over to Cuban control eventually.
+SAM's. The Soviet decision to train Cubans and to relocate SAM sites indicates an intention to turn them over to Cuban control eventually.
 
 Further Soviet withdrawals will probably take place when Cubans become proficient in the weapons systems. So, in Cuba there is a transition from Soviet military forces to a MAAG-type operation, with the Soviets retaining control of only the most sophisticated weapons systems. Equipment withdrawalals have been limited to the missiles and launchers, and the replacement of advanced SAM radars with older types of the kind supplied by the USSR to Egypt and Indonesia.
 

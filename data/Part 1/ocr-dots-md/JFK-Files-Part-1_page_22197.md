@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22197.png
-
-Convert to Markdown605.
+605.
 
 2. Reports by Psychologist
 

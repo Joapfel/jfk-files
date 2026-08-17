@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28525.png
-
-Convert to MarkdownEFFECTIVE DATE OF PAY ADJUSTMENT: 10 OCTOBER 1965
+EFFECTIVE DATE OF PAY ADJUSTMENT: 10 OCTOBER 1965
 
 <table><thead><tr><th>NAME</th><th>SERIAL NUMBER</th><th>ORGANIZATION</th><th>FUNDS CH-STEP</th><th>OLD SALARY</th><th>NEW SALARY</th></tr></thead><tbody><tr><td>HAGLEY TENNENT H</td><td>056143</td><td>42 N40</td><td>CF GS 16 1</td><td>$18,935</td><td>$19,619</td></tr></tbody></table>
 

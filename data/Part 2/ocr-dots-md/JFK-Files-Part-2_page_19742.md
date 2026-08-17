@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19742.png
-
-Convert to MarkdownNW 88321 DocId:32989545 Page.26
+NW 88321 DocId:32989545 Page.26
 
 FBI.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16247.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>AF 7</td>
     <td>APPROVED FOR DISTRIBUTION TO: FILE COPY (GARAGE) KILL CIRC. 77</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34665.png
-
-Convert to Markdown26 September 1961
+26 September 1961
 
 **MEMORANDUM FOR:** Deputy Director (Plaus)
 

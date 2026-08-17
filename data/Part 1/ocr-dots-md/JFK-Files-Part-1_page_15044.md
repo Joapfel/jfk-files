@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15044.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 REPORT ON COMMITTEE WITH AGENT OR DEFECTOR
 

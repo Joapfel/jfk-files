@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4311.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 4. <u>Cuba - Reappraisal of Previous Proposals for Support of Autonomous Anti-Castro Groups</u>

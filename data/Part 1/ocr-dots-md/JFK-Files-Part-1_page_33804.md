@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33804.png
-
-Convert to Markdownprice. To questions as to whether either type was in existence, Mr.
+price. To questions as to whether either type was in existence, Mr.
 Scripps replied that he was bound by confidence. In general, however,
 he did not foresee any technical barriers.
 

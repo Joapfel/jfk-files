@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9223.png
-
-Convert to MarkdownSECRET
+SECRET
 
 KMFUNNY = $2 = "Stelina" photo-book for PRB 17 Jun '57
 Personal = Manson (Swin) & Shub, & Life collaborator

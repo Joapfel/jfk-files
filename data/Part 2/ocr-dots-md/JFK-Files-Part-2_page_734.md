@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_734.png
-
-Convert to Markdown21 MAR 1975
+21 MAR 1975
 
 Mr. Jerome Fox
 2004 Bell Fleet Court

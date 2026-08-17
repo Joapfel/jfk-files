@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4670.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Objective started coming out, one of the articles that was given to us, written by a Britisher I believe, had a whole series of things -- things not to do if you are going to go into Management by Objective. And we all looked at this thing -- we, I mean, all of my colleagues -- every single one of these points, things not to do before you go into Management by Objective, we had already done. So how can we go into this thing? We went into it anyway.
 

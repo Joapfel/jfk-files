@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7296.png
-
-Convert to MarkdownREC-111
+REC-111
 
 February 3, 1975
 

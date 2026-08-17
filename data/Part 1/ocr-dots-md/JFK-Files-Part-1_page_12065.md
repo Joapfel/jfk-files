@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12065.png
-
-Convert to MarkdownDFFA-31.89
+DFFA-31.89
 
 he has known him for a good many years and as a close friend, knows his strong and weak points and could, in general, make subject to better advantage than another individual who might have only occasional contact with him.
 

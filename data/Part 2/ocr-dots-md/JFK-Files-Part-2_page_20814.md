@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20814.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 For the information of New York the code name of
 INFORMANT and the code name for INFORMANT

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22598.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">TRAVEL ORDER</td>
     <td>1DY</td>

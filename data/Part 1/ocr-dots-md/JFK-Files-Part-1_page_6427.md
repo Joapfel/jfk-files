@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6427.png
-
-Convert to MarkdownUNITED STATES OF AMERICA
+UNITED STATES OF AMERICA
 OPERATIONS MISSION TO GERMANY
 
 Office for Field Coordination

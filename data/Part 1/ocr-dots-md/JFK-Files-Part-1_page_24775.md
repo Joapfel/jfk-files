@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24775.png
-
-Convert to Markdown2
+2
 
 (1) November 1966 (general)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23869.png
-
-Convert to MarkdownORIC: A. Goodrich
+ORIC: A. Goodrich
 UNIT : CI/ICC
 EXT : 5928
 

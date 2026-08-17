@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12096.png
-
-Convert to MarkdownRESEARCH SECTION
+RESEARCH SECTION
 
 | | Cases | Men | Average |
 | :--- | :---: | :---: | :---: |

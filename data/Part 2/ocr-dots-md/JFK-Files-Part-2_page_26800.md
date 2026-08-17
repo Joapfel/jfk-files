@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26800.png
-
-Convert to MarkdownSECRET
+SECRET
 
 country until we have a Certificate of Origin. As a matter
 of fact, there was a boat that was pulling into the dock in

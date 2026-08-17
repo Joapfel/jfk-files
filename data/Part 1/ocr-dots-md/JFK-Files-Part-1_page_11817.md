@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11817.png
-
-Convert to MarkdownV. **OPERATIONAL OUTLINE**
+V. **OPERATIONAL OUTLINE**
 
 A. <u>Area of Operation</u>
 

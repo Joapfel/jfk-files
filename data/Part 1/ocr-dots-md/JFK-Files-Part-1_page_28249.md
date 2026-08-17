@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28249.png
-
-Convert to MarkdownDEC 1948
+DEC 1948
 
 REPORT OF PHYSICAL QUALIFICATIONS FOR DUTY
 

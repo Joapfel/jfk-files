@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6173.png
-
-Convert to Markdown04/23/97 WED 15:54
+04/23/97 WED 15:54
 
 ARRB
 

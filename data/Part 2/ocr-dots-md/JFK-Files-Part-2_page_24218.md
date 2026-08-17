@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24218.png
-
-Convert to Markdownaccomplished without revealing ownership by CIA, CIA approved
+accomplished without revealing ownership by CIA, CIA approved
 exploring the sale of SAT to its previous owner and current
 nominal President, Mr. Stanley Williams.
 

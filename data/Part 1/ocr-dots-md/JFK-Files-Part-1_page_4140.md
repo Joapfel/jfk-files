@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4140.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 5. In concluding our telephone conversation A-I stressed that he would like to meet Mr. Archer in August to report on the reorganization and improvements of his movement.
 

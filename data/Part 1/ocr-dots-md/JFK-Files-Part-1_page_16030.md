@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16030.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>SECRET (Copy Shilled In)</td>
     <td>(20-38)</td>

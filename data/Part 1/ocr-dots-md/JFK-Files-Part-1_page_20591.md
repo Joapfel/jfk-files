@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20591.png
-
-Convert to MarkdownOctober 18, 1965
+October 18, 1965
 
 Dear Howard,
 

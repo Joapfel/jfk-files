@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19380.png
-
-Convert to MarkdownMemorandum C.D. Brennan to W.C. Sullivan
+Memorandum C.D. Brennan to W.C. Sullivan
 
 RE: JEANNETTE RANKIN BRIGADE
 100-448475

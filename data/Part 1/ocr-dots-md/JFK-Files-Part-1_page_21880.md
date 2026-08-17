@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21880.png
-
-Convert to MarkdownF. The Recall Telegram
+F. The Recall Telegram
 
 On arriving at the safehouse at 1515 on 4 February 1964 NOSENKO related that on the preceding day, 3 February, he had been to the KGB Legal Residency during the day and again in the evening. ("We had met with CIA from 1200 to 1800 hours on 3 February.) He related that as of that time "everything was quiet and peaceful," and he received four personal letters from Moscow. NOSENKO said that on the morning of 4 February he had again stopped at the Residency, but "nothing was going on." Later in the morning, however, after attending a session of the Disarmament Conference, NOSENKO learned that the coded telegram described above had arrived from Moscow ordering him to return immediately to Moscow to participate in the KGI conference on tourism.
 

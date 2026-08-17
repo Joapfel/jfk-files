@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25422.png
-
-Convert to MarkdownMM 105-1742
+MM 105-1742
 
 organization Armed Forces of Cuba in Exile, stated that about a month ago, LUIS SOMOZA told EMILIO NUNEZ PORTUONDO, former Cuban delegate to the United Nations (UN), that he (SOMOZA) had talked to United States Attorney General (AG) ROBERT KENNEDY.
 

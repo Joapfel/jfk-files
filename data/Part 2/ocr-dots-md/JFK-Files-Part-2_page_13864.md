@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13864.png
-
-Convert to MarkdownThe telephone room. Here, again, close questioning re
+The telephone room. Here, again, close questioning re
 files kept in this office. Assurance was given that
 the only files kept here were background material necessary
 to the functioning of the office. Questions were asked

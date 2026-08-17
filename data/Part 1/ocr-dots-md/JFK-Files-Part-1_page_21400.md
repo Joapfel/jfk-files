@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21400.png
-
-Convert to MarkdownAT* NOTMENT TO EAVA-30210
+AT* NOTMENT TO EAVA-30210
 
 Subjekt
 Betr. I PCHORILYI ten Spiridow,

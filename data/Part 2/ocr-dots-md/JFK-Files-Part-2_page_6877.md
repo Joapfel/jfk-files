@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_6877.png
-
-Convert to MarkdownHowever, the Administration is prepared to work with the Congress to address these concerns and to establish an effective National Declassification Center. The Administration will identify the revisions that would be required to enable the Administration to support S. 712.
+However, the Administration is prepared to work with the Congress to address these concerns and to establish an effective National Declassification Center. The Administration will identify the revisions that would be required to enable the Administration to support S. 712.

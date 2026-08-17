@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2631.png
-
-Convert to Markdown2475
+2475
 
  danger if any agency is left to simply react to whatever the attitudes may be at a specific time in this country because -- Mr. Kelley. Senator, I don't contemplate it might be a continuing danger, but it certainly would be a very acceptable guidepost whereby we can, in the event such a need seems to arise, know what we can do.
 

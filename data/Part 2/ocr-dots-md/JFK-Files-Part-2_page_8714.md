@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8714.png
-
-Convert to MarkdownITEM 275 Page 4
+ITEM 275 Page 4
 
 Hour not given - Call to the Embassy.
 

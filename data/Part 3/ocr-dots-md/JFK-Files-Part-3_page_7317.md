@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7317.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Memorandum to Mr. W. R. Wannall
 
 Re: Senate Select Committee To Conduct An Investigation
 And Study of Governmental Operations With Respect

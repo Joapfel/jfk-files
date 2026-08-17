@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2154.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled In)
 
 FORM 45

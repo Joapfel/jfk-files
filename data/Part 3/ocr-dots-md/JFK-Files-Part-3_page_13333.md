@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13333.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 The information plugged into the indexing system will not become an actual file until there is some reason for opening a file on a particular person. At that point (for example, a file search requested by another Agency) all information relating to a particular person will be collated in one place. This, in turn will be developed into a separate file (a personality file). If the information on a particular person is requested by a CIA field office, the collation process would occur and the field would be told how the particular person had come to the attention of the Agency in the first instance and would also be told any derogatory information which the field station would want to know.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26551.png
-
-Convert to Markdownb. A clandestine source identifies Prime Minister Hafiz as the leading figure on the side of moderation. General Umran heads the doctrinaire extremists.
+b. A clandestine source identifies Prime Minister Hafiz as the leading figure on the side of moderation. General Umran heads the doctrinaire extremists.
 
 c. It was a split along the same lines that brought about the Baath Party's fall from power in Iraq.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11174.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES:
 
 <table><tr><td colspan="2">FILE RID</td></tr><tr><td>01</td><td>S-E-C-R-E-T</td></tr><tr><td>2</td><td></td></tr><tr><td>3</td><td></td></tr><tr><td>4</td><td></td></tr></table>

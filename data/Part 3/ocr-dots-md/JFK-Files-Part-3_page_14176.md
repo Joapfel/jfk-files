@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14176.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 107. **9/14/62** - The CIA reported in the President's Checklist that "The number of confirmed SAM sites remains at 12, but the likelihood that others are under construction grows, with the latest evidence pointing to the Isle of Pines as one of the additional locations". (Source: CIA Chronology, 11/7/62)
 

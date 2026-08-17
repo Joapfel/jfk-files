@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35430.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>PAGE NO.</th></tr></thead><tbody><tr><td>SECRET<br/>ATT TO UFGA-19569 PG 3</td><td></td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>PAGE NO.</th></tr></thead><tbody><tr><td>SECRET<br/>ATT TO UFGA-19569 PG 3</td><td></td></tr></tbody></table>
 
 FORM 5-60 53a USE PREVIOUS EDITION
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15328.png
-
-Convert to Markdown28.a. Why was it necessary to instruct Pascal to say that David had bought the map?
+28.a. Why was it necessary to instruct Pascal to say that David had bought the map?
 
 b. What else did he instruct Pascal to say or not to say?
 

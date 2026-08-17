@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28787.png
-
-Convert to MarkdownREFERENCES
+REFERENCES
 
 M. Carl Holman
 President

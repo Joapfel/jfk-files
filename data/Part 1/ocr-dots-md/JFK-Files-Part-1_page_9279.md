@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9279.png
-
-Convert to Markdown19, Sept. 11, 1990
+19, Sept. 11, 1990
 
 "...interpretation of Stalin's personality, doctrines and aims are pregnant with tragic misunderstandings between Americans and the Russian people— the best potential ally in the struggle for freedom,"
 

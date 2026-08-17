@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4889.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 At Atlanta, Georgia:
 

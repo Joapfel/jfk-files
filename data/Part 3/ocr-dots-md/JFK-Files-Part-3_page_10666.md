@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10666.png
-
-Convert to MarkdownBecause of the inactivity and the failure of the Chicago organization to demonstrate progress the so-called "hard core" of the membership have raised numerous questions in the recent past challenging the adequacy and capability of WILMACE and VIKNEVICH to head their organization in Chicago.
+Because of the inactivity and the failure of the Chicago organization to demonstrate progress the so-called "hard core" of the membership have raised numerous questions in the recent past challenging the adequacy and capability of WILMACE and VIKNEVICH to head their organization in Chicago.
 
 ## Proposed Plan of Approach
 

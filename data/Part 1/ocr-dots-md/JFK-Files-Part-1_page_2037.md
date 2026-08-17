@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2037.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 **Internal Intelligence Division**
 

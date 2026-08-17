@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21879.png
-
-Convert to Markdownauthorities would probably be made late on 5 February or early
+authorities would probably be made late on 5 February or early
 on the 6th.
 
 NOSENKO was driven to Frankfurt the night of 4 February

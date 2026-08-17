@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4743.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in. Like me, I'd never testified before Congress.
 

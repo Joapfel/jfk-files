@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24177.png
-
-Convert to MarkdownDISPATCH
+DISPATCH
 
 CLASSIFICATION
 S-E-C-R-E-T

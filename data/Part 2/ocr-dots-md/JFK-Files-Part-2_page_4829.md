@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4829.png
-
-Convert to MarkdownSECRET
+SECRET
 
 this thing. He was bad, but he wasn't quite that bad. I think
 Brokaw was the worst.

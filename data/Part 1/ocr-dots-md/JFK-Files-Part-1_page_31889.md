@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31889.png
-
-Convert to MarkdownSECRET
+SECRET
 (Written In)
 
 LSM 123077

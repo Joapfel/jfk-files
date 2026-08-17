@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15134.png
-
-Convert to Markdown-16-
+-16-
 
 24. FLUCHT
 

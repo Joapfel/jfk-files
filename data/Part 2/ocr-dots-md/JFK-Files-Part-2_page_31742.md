@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31742.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH:ay
 
 Rally October 26, 1968

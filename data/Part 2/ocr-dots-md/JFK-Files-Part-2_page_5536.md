@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5536.png
-
-Convert to Markdown13-00000
+13-00000
 
 SEP 16 '94 09:50AM
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23405.png
-
-Convert to MarkdownTRSA-860
+TRSA-860
 
 OPERATIONAL REVIEW
 

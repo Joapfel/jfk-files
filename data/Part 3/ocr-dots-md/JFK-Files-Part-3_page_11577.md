@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11577.png
-
-Convert to MarkdownThe Unit coordinated the preparation of material for the Division's participation in the conference with police officials concerning attacks on police and prepared a special packet of material for distribution to those police officials in attendance.
+The Unit coordinated the preparation of material for the Division's participation in the conference with police officials concerning attacks on police and prepared a special packet of material for distribution to those police officials in attendance.
 
 This Unit also was responsible for coordination of preparation of damage assessments relating to Domestic Intelligence Division documents stolen in the burglary of the former Media, Pennsylvania, Resident Agency, and handling other aspects of the Medburg case as related to this Division.
 

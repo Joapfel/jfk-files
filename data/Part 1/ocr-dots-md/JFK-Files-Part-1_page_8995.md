@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8995.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 26 MAR 62</td><td>SERIES A</td></tr><tr><td>O : DIRECTOR</td><td>RIO DE JANEIRO</td></tr><tr><td>AOM : RIO DE JANEIRO</td><td>WH & (WH COPY SLOTTED AT 1815 26 MAR 62)</td></tr><tr><td>ACTION : WH & (WH COPY SLOTTED AT 1815 26 MAR 62)</td><td>CCG 2, S/C 2</td></tr><tr><td>NFO : CCG 2, S/C 2</td><td>OUTGOING</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 26 MAR 62</td><td>SERIES A</td></tr><tr><td>O : DIRECTOR</td><td>RIO DE JANEIRO</td></tr><tr><td>AOM : RIO DE JANEIRO</td><td>WH & (WH COPY SLOTTED AT 1815 26 MAR 62)</td></tr><tr><td>ACTION : WH & (WH COPY SLOTTED AT 1815 26 MAR 62)</td><td>CCG 2, S/C 2</td></tr><tr><td>NFO : CCG 2, S/C 2</td><td>OUTGOING</td></tr></tbody></table>
 
 <table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
 

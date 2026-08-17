@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31205.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Each phase is a reflection of the three previously agreed attitudes toward the Cubans:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25376.png
-
-Convert to MarkdownHW 50955 DocId:32423630 Page 109
+HW 50955 DocId:32423630 Page 109
 
 Coraffa's body floated to the surface of New York Harbor off Staten Island on Aug. 4, his body wrapped in a padlocked chain and weighed by two 15-pound bont anchors. Police said he had been strangled. Roselli had been asphyxiated, possibly by strangling, according to investigators here.
 

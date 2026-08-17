@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15885.png
-
-Convert to MarkdownGraves, Andrea
+Graves, Andrea
 Arrested: 6/8/69
 Charge: Obstructing Police; Possession of Narcotics
 Disposition: Pending

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18977.png
-
-Convert to MarkdownWRO 105-1871
+WRO 105-1871
 
 still may not reach the proper channels at which time LIM stated that he would be going "last" sometime soon and possibly he could involve its proper dispatch.
 

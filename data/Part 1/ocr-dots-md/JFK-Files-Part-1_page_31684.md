@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31684.png
-
-Convert to Markdownc. Refused to appropriate any money for the FEUE, but directed NCFE to transfer funds from other accounts including that of the Crusade for Freedom to the FEUE, authorizing NCFE to incur expenditures for three months at the current rate.
+c. Refused to appropriate any money for the FEUE, but directed NCFE to transfer funds from other accounts including that of the Crusade for Freedom to the FEUE, authorizing NCFE to incur expenditures for three months at the current rate.
 
 3. The intent of this Division in its recommendations to the PRC was to provide NCFE and the FEUE with the operating funds necessary to continue its activities in the FY 1954 at the current rate. These funds were to tide NCFE over the first months of FY 1954, pending a thorough budgetary and program review and subsequent presentation and recommendations to proper CIA authorities in the month of August. At that time Whitney Shonardson will have completed his initial tour of inspection, and can be on hand to defend his budget and our recommendations thereto.
 

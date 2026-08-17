@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24132.png
-
-Convert to MarkdownOPRA - 211
+OPRA - 211
 
 15 Apr 67
 

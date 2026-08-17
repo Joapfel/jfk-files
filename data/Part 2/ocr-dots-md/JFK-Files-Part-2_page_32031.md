@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32031.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>US ARMY REGULARS</td>
     <td colspan="3">OFFICERS USE ONLY</td>

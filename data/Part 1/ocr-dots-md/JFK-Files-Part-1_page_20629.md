@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20629.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Director of Central Intelligence
 THROUGH : Deputy Director for Plans

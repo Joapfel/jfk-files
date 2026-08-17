@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33142.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIES</td></tr></table>
 

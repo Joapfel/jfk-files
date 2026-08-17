@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23110.png
-
-Convert to MarkdownEn 1971, con motivo del viaje del Comandante en Jefe a Chile, se fragua un atentado - en ese país, para el cual se unen la CIA, - fascista chilenos y contrarrevolucionarios-cubanos de la organización "Alpha-66".
+En 1971, con motivo del viaje del Comandante en Jefe a Chile, se fragua un atentado - en ese país, para el cual se unen la CIA, - fascista chilenos y contrarrevolucionarios-cubanos de la organización "Alpha-66".
 
 El principal encartado en este plan era Jesús Domínguez Benítez, conocido por "El -- Isleño", para quien(a través de contrarrevo)lucionarios cubanos radicados en Venezuela) se obtuvo documentación falsa que lo acreditaba como periodista venezolano, lo que le permitió cubrir la visita de nuestro Primer Ministro en dicho país.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25702.png
-
-Convert to MarkdownHW 50955 DocId:32423630 Page 435
+HW 50955 DocId:32423630 Page 435
 
 RELEASING OFFICER
 

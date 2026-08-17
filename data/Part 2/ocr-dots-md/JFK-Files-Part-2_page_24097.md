@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24097.png
-
-Convert to Markdownwhich their directives are implemented, particularly when the activities are sensitive, secret, and immune from public scrutiny.
+which their directives are implemented, particularly when the activities are sensitive, secret, and immune from public scrutiny.
 
 ### (d) The Danger of "Floating Authorization"
 

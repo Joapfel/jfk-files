@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24127.png
-
-Convert to Markdown# THE NEWSPAPER
+# THE NEWSPAPER
 
 C. R. WILLIAMSON is one of two chief编辑in the Country's chief newspapers. He has been in the business since 1867, and was born in New York City. He received his training at New York University, where he graduated with honors. During three years of that time he was editor of the local paper, which was then printed in six columns. Mr. Williamson was first a common printer, then a common manager. He has了 his experience in printing. As a common manager he has had charge of all the large papers of the city. Since 1902 he has been editor of the New York Times. In 1905 he became editor of the New York Sun. Since its foundation in 1904 Mr. Williamson has had charge of every department under it. For ten years the general manager of the paper has managed its circulation and sales. It is a paper printed for the people of New York City. He has been a partner in four large companies. As a partner he has managed five large corporations, among them being those of The Wall Street Journal Co., The Times, and The Sun.
 

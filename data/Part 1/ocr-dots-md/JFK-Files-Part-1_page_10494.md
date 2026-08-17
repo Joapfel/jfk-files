@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10494.png
-
-Convert to MarkdownColumbia: Subject mentioned Colombia's increasing alarm with the problems of drug trafficking within the country. Has it in Colombia he claims to have stirs. In the house of his Secretary General and Dr. Jaime de la Torre Perro, Chief of Staff of the Colombian army.
+Columbia: Subject mentioned Colombia's increasing alarm with the problems of drug trafficking within the country. Has it in Colombia he claims to have stirs. In the house of his Secretary General and Dr. Jaime de la Torre Perro, Chief of Staff of the Colombian army.
 
 2. The entire conversation was kept on the level of buddies swapping war stories. Subject, however, stores to the veracity of his statements. I mentioned that the State Department was currently interested in the problem of drug trafficking in Latin America and maybe there would be some interest in purchasing the water further. I also indicated I would ask my supérieurs at the State Department if they had ever heard anything about the existence of a "Force Seven" or anything on the curious matter of U.S. documents, drug smuggling, and leftist guerrilla movements in Mexico.
 

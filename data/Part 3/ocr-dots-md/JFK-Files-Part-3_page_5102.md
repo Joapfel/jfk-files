@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5102.png
-
-Convert to MarkdownLegal Counsel to J. B.. Adams Memorandum
+Legal Counsel to J. B.. Adams Memorandum
 
 RE: SENSTUDY 1975
 

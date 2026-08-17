@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30418.png
-
-Convert to MarkdownMr. Goldsmith. Do you know whether, after Mr. Angleton
+Mr. Goldsmith. Do you know whether, after Mr. Angleton
 left the CI Staff, any type of followup was done by that staff
 on the Nosenko issue?
 

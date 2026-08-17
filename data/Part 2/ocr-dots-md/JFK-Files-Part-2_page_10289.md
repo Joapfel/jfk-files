@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10289.png
-
-Convert to MarkdownSUBJECT: Sensitive Activities Performed by the Office of
+SUBJECT: Sensitive Activities Performed by the Office of
 Logistics
 
 the DD/O, we will not honor any requisition for surveillance equipment unless it has been approved by the CI Staff of the DD/O.

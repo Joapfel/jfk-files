@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8842.png
-
-Convert to MarkdownSección de Buques Tanques: Petróleo, Mieles y Alcohol
+Sección de Buques Tanques: Petróleo, Mieles y Alcohol
 
 Jueves
 

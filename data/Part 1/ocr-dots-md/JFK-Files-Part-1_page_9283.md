@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9283.png
-
-Convert to Markdownit living "as a slave among slaves". Cf. Adel Siegal, to the effect (in Preface) that there are thousands like him ("The Choice") and he is unusual only in that he had few close living relatives, and a plane, and enterprise.
+it living "as a slave among slaves". Cf. Adel Siegal, to the effect (in Preface) that there are thousands like him ("The Choice") and he is unusual only in that he had few close living relatives, and a plane, and enterprise.
 
 If it could be done without the Pirogors & Khrivhenkoo, fine. But I'm sure you'll find when you chain yourself to your desk and start writing blood over it that you just can't do justice to (a) SLV-UBO and (b) LVD's EVERYTHING with just a photo of Berin, —oven if he looked like a two-headed baby in a bottle. I just don't see how it can begin to do justice to the subject. It wasn't any photo (though his first sight of Lykov in the flesh shook him badly) that took the scales from Chambers's eyes, but the Tchernavin story.
 

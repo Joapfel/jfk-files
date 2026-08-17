@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3209.png
-
-Convert to Markdown1821
+1821
 
 cases a bank will make available to us records without subpoena.
 

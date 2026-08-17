@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2476.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Pages 216 - 221 of the previous summary contain a summary on the matter of the Pushkin Street deaddrop site which John ABIDIAN visited on 30 December 1961. It should be noted that a current review of the 1964 - 1966 interrogations of NOSENKO on this matter indicates they were unable to clarify the matter and did much to confuse the issue.
 

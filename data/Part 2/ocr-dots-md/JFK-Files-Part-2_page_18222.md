@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18222.png
-
-Convert to MarkdownPrevious interpretations which have been furnished to you
+Previous interpretations which have been furnished to you
 as to what may constitute trespass in the installation of microphones,
 suggest that the views expressed have been tentative in nature and
 have attempted to predict the course which courts would follow

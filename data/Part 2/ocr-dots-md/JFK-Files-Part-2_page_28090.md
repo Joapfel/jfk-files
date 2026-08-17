@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28090.png
-
-Convert to MarkdownJune 16, 1977
+June 16, 1977
 
 Mrs. Guilia M. Barrow
 509 Kentucky Avenue, S.E.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_712.png
-
-Convert to Markdown14-00000
+14-00000
 
 DELEGAT
 No Foreign Dissem; No Dissem Abroad

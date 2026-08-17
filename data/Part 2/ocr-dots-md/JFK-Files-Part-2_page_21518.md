@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21518.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 a model who looked like Mr. Sukarno purporting to have sexual activity with some female, and that then the film would be released in Indonesia, and it would be attributed to the Russians in some fashion?
 

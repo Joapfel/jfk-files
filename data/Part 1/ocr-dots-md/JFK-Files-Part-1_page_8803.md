@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8803.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ADLE SECRETARIAT DISSEMINATION</td>
     <td>CLAS</td>

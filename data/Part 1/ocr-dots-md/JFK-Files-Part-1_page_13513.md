@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13513.png
-
-Convert to Markdownwas given some eighty pills with which he will be able to make
+was given some eighty pills with which he will be able to make
 the "ink" used in this system of S/W. A-1 was pleased with the
 syste, especially its simplicity. He will use the system to
 communicate with his chief delegate in Paris and undoubtedly

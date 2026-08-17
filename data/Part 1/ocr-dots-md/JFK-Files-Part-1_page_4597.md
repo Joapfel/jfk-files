@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4597.png
-
-Convert to Markdown<table><tbody><tr><td colspan="2">SECRET</td></tr><tr><td>PRIORITY JULAVE RESIDENTIAL</td><td>97049</td></tr><tr><td>CITE DIRECTOR</td><td>MICROFILMED JUL 12 1967 DDC. MICRO. SER.</td></tr></tbody></table>
+<table><tbody><tr><td colspan="2">SECRET</td></tr><tr><td>PRIORITY JULAVE RESIDENTIAL</td><td>97049</td></tr><tr><td>CITE DIRECTOR</td><td>MICROFILMED JUL 12 1967 DDC. MICRO. SER.</td></tr></tbody></table>
 
 1. FOLLOWING PERSONS WILL BE CHARGED WITH VIOLATION OF THE U.S. ARMS CONTROL ACT, CONSPIRACY, NEUTRALITY ACT. ATTORNEY MIAMI WILL PROBABLY PRESENT THE CASE TO THE GRAND JURY 15 MAY 1967.
 

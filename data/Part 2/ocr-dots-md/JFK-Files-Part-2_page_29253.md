@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29253.png
-
-Convert to MarkdownSerge Alexandrovech Uslov Interview
+Serge Alexandrovech Uslov Interview
 
 mitted to enter the United States. The CIA contacted Uslov via telephone approximately two months later. A meeting was arranged and he was debriefed as to his knowledge of Russian life, KGB, etc. At this point, Uslov stated that he would shoot himself if he ever had to return to Russia.
 

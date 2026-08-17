@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8012.png
-
-Convert to Markdown# Nixon and the Mafia — Conclusion
+# Nixon and the Mafia — Conclusion
 
 Jeff Gerth
 Contributing Editor

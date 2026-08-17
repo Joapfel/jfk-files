@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1491.png
-
-Convert to Markdown3. Page 63, line 21; the name "Frank Holcomb" Mr. Holcomb retired under cover and his past relationship with the CIA should not be exposed. It is additionally recommended that the entire paragraph wherein Mr. Holcomb's name appears (lines 21-24) should be deleted because it acknowledges CIA operations in support of anti-communist political operations in Italy. (page 105, lines 18-21.)
+3. Page 63, line 21; the name "Frank Holcomb" Mr. Holcomb retired under cover and his past relationship with the CIA should not be exposed. It is additionally recommended that the entire paragraph wherein Mr. Holcomb's name appears (lines 21-24) should be deleted because it acknowledges CIA operations in support of anti-communist political operations in Italy. (page 105, lines 18-21.)
 
 4. Page 63, line 30 beginning with "By" and ending with "arrangement" on line 33, page 63. It is recommended that this passage be deleted since its inclusion not only is not pertinent to the narrative but it unnecessarily jars liaison with the British and is an implied insult to the French liaison services. (page 106, lines 4-7.)
 

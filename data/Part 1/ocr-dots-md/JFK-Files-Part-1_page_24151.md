@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24151.png
-
-Convert to MarkdownWilliam Worthy
+William Worthy
 
 As el menos conocido de los cuatro y quizás el más peligroso, por-
 que es el más estable emocionalmente, el más medioce y más traba-jador

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23444.png
-
-Convert to MarkdownTO: Frita Schwarz and Curt Smothers
+TO: Frita Schwarz and Curt Smothers
 FROM: Frederick Baron
 DATE: July 6, 1975
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10341.png
-
-Convert to Markdownfor retention. If absolutely required by the Committees, sanitization of such raw product should be conducted to mask the degree of technical capabilities.
+for retention. If absolutely required by the Committees, sanitization of such raw product should be conducted to mask the degree of technical capabilities.
 
 ## 5. Intelligence Estimates
 

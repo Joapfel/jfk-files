@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3802.png
-
-Convert to Markdown3170 Royal Lane
+3170 Royal Lane
 Dallas, Texas
 
 July 6, 1975

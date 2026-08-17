@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8046.png
-
-Convert to Markdown13-00000
+13-00000
 
 (Campbell, A. "What happened in Dallas? Concerning H. Weisberg and E.J. Epstein's theories on the Warren Report," Far Republic, 25 June 1966, pp. 23-25.
 The Case Against Mr. X." New Leader, 3 January 1966, pp. 13-18.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1374.png
-
-Convert to Markdown**Tadeusz SZULC**
+**Tadeusz SZULC**
 
 Born: c. 1926.
 Nationality: Pole. Naturalised U.S. citizen

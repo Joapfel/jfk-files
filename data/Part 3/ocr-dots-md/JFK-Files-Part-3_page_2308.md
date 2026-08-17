@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2308.png
-
-Convert to Markdown1/29/76
+1/29/76
 
 King Materials
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4822.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On January 8, 1968, MM T-6 advised that he heard
 that subject and several other persons, not further identified,

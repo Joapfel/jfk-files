@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2114.png
-
-Convert to Markdown# SECTION 25. EMERGENCY ADDRESSEE
+# SECTION 25. EMERGENCY ADDRESSEE
 
 <table><tr><td>NAME</td><td>PELATIONSHIP</td></tr><tr><td>Alfred E. Noel</td><td>Father</td></tr><tr><td>ADDRESS</td><td>CITY</td><td>STATE</td><td>COUNTRY</td><td>TELEPHONE</td></tr><tr><td>1714 Dale Street, San Diego, 2, California</td><td></td><td></td><td>Franklin 5582</td><td></td></tr></table>
 

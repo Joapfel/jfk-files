@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7664.png
-
-Convert to Markdownslowly. It wasn't going at a high rate of speed, so that he had perfect opportunity to do it.
+slowly. It wasn't going at a high rate of speed, so that he had perfect opportunity to do it.
 
 Now, some people have raised the question: Why didn't he shoot the President as the car came toward the storehouse where he was working?
 

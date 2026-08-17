@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10278.png
-
-Convert to Markdowne. Alias Social Security Cards. 171 backstopped accounts have been established for contract personnel whose relationship with the Agency cannot be revealed but who are entitled to Social Security coverage. Following expiration of the contractual relationship, at an appropriate time the alias and true name accounts are merged permitting the individual to receive complete benefits upon reaching the age of eligibility.
+e. Alias Social Security Cards. 171 backstopped accounts have been established for contract personnel whose relationship with the Agency cannot be revealed but who are entitled to Social Security coverage. Following expiration of the contractual relationship, at an appropriate time the alias and true name accounts are merged permitting the individual to receive complete benefits upon reaching the age of eligibility.
 
 f. Alias IRS Tax Accounts. 54 Social Security numbers have been registered for the purpose of opening 54 new bank accounts since 1 July 1972. 87 individual tax accounts have been established with IRS on an unwitting basis in 14 cities in the United States.
 

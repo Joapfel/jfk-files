@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25942.png
-
-Convert to Markdownas it referred to as has reported that it had as members of the Mangano were two of the families, both of leaders of families in
+as it referred to as has reported that it had as members of the Mangano were two of the families, both of leaders of families in
 
 the heads of the New and jurisdiction over
 

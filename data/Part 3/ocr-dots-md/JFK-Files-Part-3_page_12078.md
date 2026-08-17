@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12078.png
-
-Convert to Markdownbe required; however, we have tightened our belt and taken streamlining measures wherever possible and are requesting only two Special Agent Supervisors at the present time. We will attempt to accomplish our objectives with two additional Supervisors.
+be required; however, we have tightened our belt and taken streamlining measures wherever possible and are requesting only two Special Agent Supervisors at the present time. We will attempt to accomplish our objectives with two additional Supervisors.
 
 There are several factors that would indicate our work in the black extremist field will continue to increase. The increasing militancy of black extremists on college campuses caused us to require the field (by airtel 11/4/70) to open cases on all black student groups on college campuses as well as cases on the leaders thereof. There are numerous such groups throughout the United States. The Black Panther Party is growing and in September, 1970, opened up an international section in Algiers. In addition a grand jury is sitting in California with witnesses being heard in efforts to develop a prosecuting theory against the Black Panther Party. The work in connection therewith and other aspects of the Black Panther Party investigation consumes almost the full time of one Supervisor.
 

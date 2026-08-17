@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26957.png
-
-Convert to MarkdownSECRET
+SECRET
 
 activities of the AMOTS?
 

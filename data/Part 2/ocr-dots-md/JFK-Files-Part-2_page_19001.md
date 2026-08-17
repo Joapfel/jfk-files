@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_19001.png
-
 , George Ball, was substituting for him. Jaffe indicated he would return to New York and then to California. Jaffe suggested that he and Kalugin have lunch together, and asked Kalugin how the prospects looked for ABC to again get representation in Russia. Kalugin suggested that they discuss the matter at lunch.
 
 WF T-1 advised that on October 7, 1968, Kalugin contacted Jaffe in response to a prior request by Jaffe. Jaffe told Kalugin he returned from Moscow and is now assigned to Washington, D.C. They agreed to get together for lunch on October 8, 1968.

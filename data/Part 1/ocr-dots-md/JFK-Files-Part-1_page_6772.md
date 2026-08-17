@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6772.png
-
-Convert to MarkdownPresentación
+Presentación
 
 El autor de este estudio, el Profesor Maurice Halperin, es uno de los investigadores y catedráticos más prominentes de los Estados Unidos de Norteamérica. Nació en Boston en 1906. Obtuvo su bachillerato en la Universidad de Harvard en 1926 y la Licenciatura en Letras en la Universidad de Oklahoma en 1929. Dos años más tarde se doctoró en Letras y Ciencias Sociales en la Universidad de París y fue conferenciable en la Sorbona sobre la civilización de la América del Norte.
 

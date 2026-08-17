@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11865.png
-
-Convert to Markdown# "SECRET - NO FOREIGN DISSEMINATION"
+# "SECRET - NO FOREIGN DISSEMINATION"
 
 d. Faculty member of an institution of learning
 

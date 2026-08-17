@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1175.png
-
-Convert to MarkdownRena VIERA Gonzalez
+Rena VIERA Gonzalez
 
 Reporter for Diario Las Americas; was speaker for Journalism in Exile at meeting held Flagler Theater, Miami June 1957.
 

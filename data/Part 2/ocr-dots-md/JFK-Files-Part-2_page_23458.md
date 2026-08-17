@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23458.png
-
-Convert to Markdown3 November 1960
+3 November 1960
 
 MEMORANDUM FOR THE RECORD
 

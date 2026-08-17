@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33966.png
-
-Convert to MarkdownU.S. Central Intelligence Agency
+U.S. Central Intelligence Agency
 
 Chief of Staff, JointStaff
 

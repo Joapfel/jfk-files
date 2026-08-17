@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10819.png
-
-Convert to MarkdownDate 8/23/71
+Date 8/23/71
 
 Agents conducted a strip search of WILLIAMSON, at which time three items of evidence were taken, which were as follows:
 

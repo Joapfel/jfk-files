@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26780.png
-
-Convert to MarkdownSECRET
+SECRET
 
 . HE HAS TALKED WITH CAAMANO A SECOND TIME.
 

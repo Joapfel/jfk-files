@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31057.png
-
-Convert to Markdown12. Instructions. Instructions received by you from the Government in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
+12. Instructions. Instructions received by you from the Government in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
 
 13. Unauthorized Commitments. No promises or commitments pertaining to rights, privileges or benefits other than those expressly stipulated in writing in this agreement or any amendment thereto shall be binding on the Government.
 

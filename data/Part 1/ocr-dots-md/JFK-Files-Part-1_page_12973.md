@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12973.png
-
-Convert to Markdown<table><thead><tr><th>ADVANCE COPY ☐</th><th>ASAP ☐</th><th>SLOTTED ☑</th></tr></thead><tbody><tr><td colspan="3">9</td></tr><tr><td>BY whom at ____________?</td><td>2</td><td></td></tr><tr><td>DATED ____________<br/>ACTION WH 8' ☐</td><td>9<br/>JAN 69</td><td>TRD PRN FILE W. R/P/M, C/LEPS, C/OA, FT-2 ☐</td></tr><tr><td>FILE NO. ____________<br/>RID COPY ☐</td><td>INFO<br/>FILE NO. R1/AH, C/LEPS, C/OA, FT-2 ☐</td><td></td></tr></tbody></table>
+<table><thead><tr><th>ADVANCE COPY ☐</th><th>ASAP ☐</th><th>SLOTTED ☑</th></tr></thead><tbody><tr><td colspan="3">9</td></tr><tr><td>BY whom at ____________?</td><td>2</td><td></td></tr><tr><td>DATED ____________<br/>ACTION WH 8' ☐</td><td>9<br/>JAN 69</td><td>TRD PRN FILE W. R/P/M, C/LEPS, C/OA, FT-2 ☐</td></tr><tr><td>FILE NO. ____________<br/>RID COPY ☐</td><td>INFO<br/>FILE NO. R1/AH, C/LEPS, C/OA, FT-2 ☐</td><td></td></tr></tbody></table>
 
 SECRET 241605Z JAN 69 DITE CARACAS 1674
 

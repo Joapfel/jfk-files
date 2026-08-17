@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6209.png
-
-Convert to MarkdownNOMBRA
+NOMBRA
 
 QUINTAIROS SANCISO, Gerardo Jose Antonio Quintairos (nermanok/osta). Rita, R. Pied P.RIO
 QUEIPO CADENAS, Alfredo

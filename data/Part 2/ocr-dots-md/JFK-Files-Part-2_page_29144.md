@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29144.png
-
-Convert to MarkdownReference copy, JFK Collection: HSCA (RG 233)
+Reference copy, JFK Collection: HSCA (RG 233)
 
 NAME SAM L PHYLLIS RUBY
 D.O. NO.

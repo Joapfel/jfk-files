@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34136.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 301600Z CITE JMWAVE 3320
 

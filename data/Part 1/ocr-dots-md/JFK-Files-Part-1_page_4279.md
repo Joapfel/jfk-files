@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4279.png
-
-Convert to MarkdownSECRET
+SECRET
 
  whatever the equipment is worth be made in monthly installments. AMBIDDY-) is not interested in this plan. He is interested in obtaining new aid, independent of what he may obtain from the sale of the equipment, in order to maintain what remains of his group.
 

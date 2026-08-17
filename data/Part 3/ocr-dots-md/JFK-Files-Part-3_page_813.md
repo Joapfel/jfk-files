@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_813.png
-
-Convert to Markdown## Right to Counsel
+## Right to Counsel
 
 (1) You have the right to counsel during interview and/or testimony.
 

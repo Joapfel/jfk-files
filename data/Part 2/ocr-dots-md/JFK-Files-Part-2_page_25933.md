@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25933.png
-
-Convert to Markdown526 ORGANIZED CRIME AND ILLICIT TRAFFIC IN NARCOTICS
+526 ORGANIZED CRIME AND ILLICIT TRAFFIC IN NARCOTICS
 
 of a hoodlum who is entrusted by the Mafia to act as a courier for them between
 the various groups.

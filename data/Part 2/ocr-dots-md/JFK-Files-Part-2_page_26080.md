@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26080.png
-
-Convert to MarkdownO'BRIEN:
+O'BRIEN:
 
 LANSDALE: isn't my idea of a good spot to be in. You just get belabored over that.
 

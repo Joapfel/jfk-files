@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15547.png
-
-Convert to MarkdownOn August 14, 1969, Sergeant WILLIAM KLUSAK, Oak Brook, Illinois PD, advised that RICHARD BLACK and JOHN WILLIAMS were arrested on this date for unlawful use of weapons and among other items, the following were found in their possession:
+On August 14, 1969, Sergeant WILLIAM KLUSAK, Oak Brook, Illinois PD, advised that RICHARD BLACK and JOHN WILLIAMS were arrested on this date for unlawful use of weapons and among other items, the following were found in their possession:
 
 BLACK had a .30 caliber M-1 carbine, serial number 19875, and WILLIAMS had a .30 caliber M-1 carbine, serial number 19405.
 

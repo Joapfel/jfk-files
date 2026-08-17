@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27395.png
-
-Convert to MarkdownA - Project SETTER (Reference SRPOINTER) SECRET
+A - Project SETTER (Reference SRPOINTER) SECRET
 
 B - Memo for Deputy Dir. of Security - 9 Oct 57.
 

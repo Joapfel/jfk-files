@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22510.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ACTIVITIES, July 1959 - January 1974
 

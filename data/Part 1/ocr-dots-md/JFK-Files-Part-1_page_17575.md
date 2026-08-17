@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17575.png
-
-Convert to MarkdownSECRET / KAPOCK
+SECRET / KAPOCK
 
 -19-
 

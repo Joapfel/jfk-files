@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9104.png
-
-Convert to Markdown1. Benito Juárez, Álvaro Juárez
+1. Benito Juárez, Álvaro Juárez
 2. Juanό Gallegos, Ruy Gallegos
 3. Francisco Oteiza, Manuel Oteiza
 4. David Aroldo Soto, Don de la Rocha (1850)

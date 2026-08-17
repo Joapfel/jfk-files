@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13702.png
-
-Convert to Markdown**TOP SECRET**
+**TOP SECRET**
 
 **AMLASH Case Officer.** I can't sit here and presume to give you an explanation for that as to where the person who prepared that particular memorandum got that information. The file itself indicates, as you are well aware, that Fitzgerald did not travel to Paris in November. He travelled in October.
 

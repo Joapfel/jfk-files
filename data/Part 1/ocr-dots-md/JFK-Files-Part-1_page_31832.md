@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31832.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 6 March 1963
 

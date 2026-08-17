@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29325.png
-
-Convert to MarkdownSECREI
+SECREI
 
 part of an assignment abroad within the fullest meaning of the defini-
 tion contained in the referent regulation. Therefore, approval of

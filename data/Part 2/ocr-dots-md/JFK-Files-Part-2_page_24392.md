@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24392.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 The foregoing should not be taken to imply that the procedures always have been clear and tidy, nor that they have always been followed. Prior to 1955, formal procedures barely existed at all. In 1955 the Special Group procedures were made more formal. Nevertheless, the procedures that were followed during the period of 1959-63 were characterized by an internal CIA memorandum as "somewhat cloudy and thus can probably be described as having been based on value judgments by the DCI." (Memorandum for the Record, C/CA/PEG, "Policy Coordination of CIA's Covert Action Operations," 21 February 1967)
 

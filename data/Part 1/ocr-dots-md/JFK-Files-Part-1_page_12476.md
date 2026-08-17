@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12476.png
-
-Convert to Markdown<table><tr><td>CABLE SECRETARIAT DISSEMINATION</td></tr><tr><td>PERSON UNIT NOTIFIED</td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLIPPED</td></tr><tr><td>BY ______ AT ______</td></tr><tr><td>DISTRIBUTION BY______ PER____</td></tr><tr><td>ACTION UNIT WHB</td><td>FILE VR</td></tr><tr><td>ACTION NO 496</td><td></td></tr></table>
+<table><tr><td>CABLE SECRETARIAT DISSEMINATION</td></tr><tr><td>PERSON UNIT NOTIFIED</td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLIPPED</td></tr><tr><td>BY ______ AT ______</td></tr><tr><td>DISTRIBUTION BY______ PER____</td></tr><tr><td>ACTION UNIT WHB</td><td>FILE VR</td></tr><tr><td>ACTION NO 496</td><td></td></tr></table>
 
 SECRET
 

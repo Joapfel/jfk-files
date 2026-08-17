@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2351.png
-
-Convert to MarkdownWhen I worked 11 years in MVD-KGB I understood and found out very many things, details and the real deal of the existing regime, about methods of the work of MGB-MVD-KGB and about their doings, about hundreds of thousands of the people of Russia who were (and still are) considered "politically" dangerous and around whom was (and still is) going an active work of all organs KGB.
+When I worked 11 years in MVD-KGB I understood and found out very many things, details and the real deal of the existing regime, about methods of the work of MGB-MVD-KGB and about their doings, about hundreds of thousands of the people of Russia who were (and still are) considered "politically" dangerous and around whom was (and still is) going an active work of all organs KGB.
 
 At the same time when I was several times abroad I have seen personally the so-called "decay" at the West. I have seen in reality how is living people.
 

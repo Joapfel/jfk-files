@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25024.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 don't recall. But there were those problems down around the copper mines, and Katanga, there was a revolution down there of sorts, And there were many difficulties in the Congo at that time.
 

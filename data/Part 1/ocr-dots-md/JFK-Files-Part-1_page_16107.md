@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16107.png
-
-Convert to MarkdownWhen war breaks out anywhere in the world, former OSS man Mitch WerBell is eager and able to supply weapons to either side — or both. And he's only one of several high-flying operators in a dark and growing trade
+When war breaks out anywhere in the world, former OSS man Mitch WerBell is eager and able to supply weapons to either side — or both. And he's only one of several high-flying operators in a dark and growing trade
 
 Newsfront
 

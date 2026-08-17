@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8678.png
-
-Convert to Markdown14-0000
+14-0000
 
 4.08.04 Complexión Placa Promedio Corpulenta
 

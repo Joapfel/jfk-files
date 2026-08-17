@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23103.png
-
-Convert to MarkdownEn junio de este mismo año- según se ha señalado anteriormente- una red de agentes - de la CIA, dirigidos por Ramón y María Leopoldina Grau Alsina(conocida por "Polita")- se dedicaba a todo tipo de actividades enemigas y otras de carácter antisocial para - lo cual se valían de contactos con sedes capitalistas en el país, que servían de enlace con la Agencia Central de Inteligencia.
+En junio de este mismo año- según se ha señalado anteriormente- una red de agentes - de la CIA, dirigidos por Ramón y María Leopoldina Grau Alsina(conocida por "Polita")- se dedicaba a todo tipo de actividades enemigas y otras de carácter antisocial para - lo cual se valían de contactos con sedes capitalistas en el país, que servían de enlace con la Agencia Central de Inteligencia.
 
 Estos elementos formaban parte de las organizaciones "Rescate", "Movimiento Anticomunista Revolucionario"(MAR) y otras dirigidas y subversionadas por esa Agencia.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17602.png
-
-Convert to Markdown#mo:16
+#mo:16
 
 ALL INFORMATION CONTAINED ON THIS ENVELOPE IS UNCLASSIFIED BY 8/22 AM 8-9
 

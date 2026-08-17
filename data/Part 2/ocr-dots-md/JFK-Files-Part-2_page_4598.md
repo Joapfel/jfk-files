@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4598.png
-
-Convert to Markdownsecurity responsibilities as spelled out in the organizational plan. The FRD security components in Mexico City, Washington and New York will be initially assigned one officer each from the first group of eight candidates. The remaining five candidates will be assigned to Miami. Of those candidates subsequently trained for the security service, two additional men will be assigned to Washington; six to New York; six to Mexico City; and eighteen to Miami.
+security responsibilities as spelled out in the organizational plan. The FRD security components in Mexico City, Washington and New York will be initially assigned one officer each from the first group of eight candidates. The remaining five candidates will be assigned to Miami. Of those candidates subsequently trained for the security service, two additional men will be assigned to Washington; six to New York; six to Mexico City; and eighteen to Miami.
 
 IV. ORGANIZATION
 

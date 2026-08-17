@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12743.png
-
-Convert to MarkdownSTANDARD FORM NO. 1169A
+STANDARD FORM NO. 1169A
 Form prescribed by Comptroller General U.S.
 [Marked as Confidential, Restricted, or秘]
 Revisions and Additions No. 123

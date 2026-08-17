@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16077.png
-
-Convert to Markdown**DETAILS: AT CHICAGO, ILLINOIS**
+**DETAILS: AT CHICAGO, ILLINOIS**
 
 This investigation was predicated upon receipt of information from the New Haven Division reflecting that GEORGE SAMS, JR., had been charged with the holding and subsequent murder of one, ALEX RACKLEY for several days in May, 1969, during which time he was tortured, scalded with boiling water, beaten, burned, and subsequently murdered. An authorized complaint was filed May 27, 1969, before United States Commissioner (USC) ARTHUR H. LATIMER at New Haven, Connecticut, by SA ROBERT C. PUCKETT. A Commissioner's warrant was issued for his arrest on May 27, 1969, charging violation of Title 18, Section 1073, United States Code.
 

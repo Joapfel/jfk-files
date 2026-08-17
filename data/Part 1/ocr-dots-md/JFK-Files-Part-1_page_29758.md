@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29758.png
-
-Convert to MarkdownPrior to entry into military service worked for Bordenis Studios, Manchester, N. J. In 1935 to 1941 as laboratory technician. In 1946 resumed photograph career in U. S. Army and continued in this field up til the present time. Skills were developed in the photographer and photographic laboratory fields and rose to my present rank of Master Sargent. My skills as a photographer include an operating knowledge of all characteristics of cameras and equipment used in Army photography and the theory and practices of still and motion picture photography. For example, some of my duties include:
+Prior to entry into military service worked for Bordenis Studios, Manchester, N. J. In 1935 to 1941 as laboratory technician. In 1946 resumed photograph career in U. S. Army and continued in this field up til the present time. Skills were developed in the photographer and photographic laboratory fields and rose to my present rank of Master Sargent. My skills as a photographer include an operating knowledge of all characteristics of cameras and equipment used in Army photography and the theory and practices of still and motion picture photography. For example, some of my duties include:
 
 1. taking still photographs for news releases, publicity, medical and historical value
 

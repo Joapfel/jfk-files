@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5062.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">ADVANCE COPY ISSUED/SERVING: LA, IID.. D.. 2150</th><th colspan="3">AGENCY MESSAGE</th></tr></thead><tbody><tr><td rowspan="3">LA 13<br/>ACTION 8</td><td>FILE, VR, DDO 9. EPS/EG 2. IR/DMS IID, PCS/INT 5</td><td>1</td><td colspan="2">.</td></tr><tr><td>CI 4. CA 4. CA/SOG 4. SIA</td><td>2</td><td colspan="2">.</td></tr><tr><td>SIA/FL. PCS/ITC 4. FR 5</td><td>3</td><td colspan="2">.</td></tr></tbody></table>
 

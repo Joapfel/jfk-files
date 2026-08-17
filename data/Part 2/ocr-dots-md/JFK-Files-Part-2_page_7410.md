@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7410.png
-
-Convert to Markdown# MBO
+# MBO
 
 Mr. Mahon. Would you please provide the Committee staff with some samples of these performance reports, sanitized as you think appropriate?
 

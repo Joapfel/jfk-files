@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21970.png
-
-Convert to Markdown124.
+124.
 
 alone recruited DREW in an office of the hotel. The KGB First Chief Directorate was interested in DREW's recruitment because he might be able to spot other homosexuals, possibly some in the U.S. Government.
 

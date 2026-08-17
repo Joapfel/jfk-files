@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30306.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
   <caption>SECTION IV</caption>

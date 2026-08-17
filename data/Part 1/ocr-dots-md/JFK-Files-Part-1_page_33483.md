@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33483.png
-
-Convert to MarkdownCABLE SEC DISSEMN BY: G.P.E.
+CABLE SEC DISSEMN BY: G.P.E.
 
 PERSON/UNIT NOTIFIED:
 

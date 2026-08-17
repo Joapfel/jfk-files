@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_693.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><tbody><tr><td colspan="3">Assc. Dir.</td></tr><tr><td>Dep.-A.D.-Adm</td><td></td><td></td></tr><tr><td>Dep.-A.D.-Adv</td><td></td><td></td></tr><tr><td>Asst. Dir.:</td><td></td><td></td></tr><tr><td style="border-top: 1px solid black;">Admin.</td><td style="border-top: 1px solid black;"></td><td style="border-top: 1px solid black;"></td></tr><tr><td>Comp. Sr. C.</td><td></td><td></td></tr><tr><td>Ext. Affairs</td><td></td><td></td></tr><tr><td>Films & Conn.</td><td></td><td></td></tr><tr><td>Gene' Inv.</td><td></td><td></td></tr><tr><td>Ident.</td><td></td><td></td></tr><tr><td>Inspect.</td><td></td><td></td></tr><tr><td>Instrn.</td><td></td><td></td></tr><tr><td>Laboratory</td><td></td><td></td></tr><tr><td>Plan. & Rev.</td><td></td><td></td></tr><tr><td>Spec. Inv.</td><td></td><td></td></tr><tr><td>Trafik</td><td></td><td></td></tr><tr><td>Legal Ctn.</td><td></td><td></td></tr><tr><td>Telephone Rep.</td><td></td><td></td></tr><tr><td>Director Study</td><td></td><td></td></tr></tbody></table>
 

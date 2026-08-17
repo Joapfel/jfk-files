@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25896.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>1</td><td>.</td><td>.</td><td></td><td>1</td><td>.</td><td>.</td><td></td></tr><tr><td colspan="8">SIGNAL CENTER USE ONLY</td></tr><tr><td>OFFICE</td><td>CO.</td><td>DEPT.</td><td>FULL</td><td>OFFICE</td><td>CO.</td><td>DEPT.</td><td>FULL</td></tr></table>
 

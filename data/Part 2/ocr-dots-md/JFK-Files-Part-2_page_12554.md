@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12554.png
-
-Convert to Markdownfurnish copies of reports bearing dual character, "Security of Govern-
+furnish copies of reports bearing dual character, "Security of Govern-
 ment Employees; Security Matter - C," to appropriate intelligence
 agencies of armed services. Instructions regarding dissemination to
 Defense Industrial Security Clearance Office, Defense Supply Agency,

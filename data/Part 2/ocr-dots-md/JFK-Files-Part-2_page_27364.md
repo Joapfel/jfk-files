@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27364.png
-
-Convert to MarkdownX - Ltr from Belin to Attorney General - 1 May 75
+X - Ltr from Belin to Attorney General - 1 May 75
 
 Y - Ltr from Belin to Harvey - 1 May 75 w/attachment
 

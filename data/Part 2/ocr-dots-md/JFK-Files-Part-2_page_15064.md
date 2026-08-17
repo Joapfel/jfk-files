@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15064.png
-
-Convert to MarkdownSPECIAL INQUIRY INVESTIGATIONS FOR THE WHITE HOUSE
+SPECIAL INQUIRY INVESTIGATIONS FOR THE WHITE HOUSE
 
 Conscientious security officers in various governmental agencies, many of whom are former Special Agents of the Bureau, have been shocked at the lack of knowledge or the total disregard of the provisions of the Federal Employee Security Program by the eight or nine individuals at the White House responsible for filling top-level positions in the new Administration. This first came to our attention shortly after November 6, 1968, when Franklin Benjamin Lincoln, Jr., and William Rittenhouse Harman moved into the Pentagon as the vanguard of the transition team. They had no clearance for highly classified information and when no request was forthcoming for a full field investigation of these persons, the security officer at the Pentagon requested the investigation.
 

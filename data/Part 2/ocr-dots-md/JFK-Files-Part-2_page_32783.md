@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32783.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 EYES ONLY
 
 cover and deception operations by that date.

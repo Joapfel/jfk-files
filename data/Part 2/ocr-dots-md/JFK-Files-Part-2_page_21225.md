@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21225.png
-
-Convert to Markdown[ ] KANTOR was furnished by EVGENI NOSKOV, Senior Case Officer, Section 1, 7th Department, who was acting in absence of VATALI DERA, Chief of the Section. This listing of cases was not confined to the 1960-61 period but included recruitments in other years.
+[ ] KANTOR was furnished by EVGENI NOSKOV, Senior Case Officer, Section 1, 7th Department, who was acting in absence of VATALI DERA, Chief of the Section. This listing of cases was not confined to the 1960-61 period but included recruitments in other years.
 
 9. [KAZAN - KOMAREK]()
 

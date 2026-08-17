@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7586.png
-
-Convert to Markdownif such a document exists. Please also provide the Committee with a list of the classifications used in the FBI's filing system as well as a complete set of printed forms used by the Bureau (e.g., FD-165, etc.).
+if such a document exists. Please also provide the Committee with a list of the classifications used in the FBI's filing system as well as a complete set of printed forms used by the Bureau (e.g., FD-165, etc.).
 
 We believe that all the foregoing material will help expedite and focus the inquiry. I assume that Mr. Hotis will contact me promptly to arrange for our review of this material.
 

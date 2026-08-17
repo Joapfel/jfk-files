@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2401.png
-
-Convert to Markdowndelegation from the United States; SDS leaders Nicholas Egleson, Thomas Hayden, and Steven Halliwell, who headed an SDS delegation of nine; John Wilson and John Tillman, both of SNCC; Linda Morse, of the Student Mobilization Committee; Christopher Jencks, a writer for the "New Republic" magazine; Bronson Clark and Russell Johnson, both of the American Friends Service Committee; Robert Cook, a professor at Yale University; and Sol Stern, an editor of "Ramparts" magazine.
+delegation from the United States; SDS leaders Nicholas Egleson, Thomas Hayden, and Steven Halliwell, who headed an SDS delegation of nine; John Wilson and John Tillman, both of SNCC; Linda Morse, of the Student Mobilization Committee; Christopher Jencks, a writer for the "New Republic" magazine; Bronson Clark and Russell Johnson, both of the American Friends Service Committee; Robert Cook, a professor at Yale University; and Sol Stern, an editor of "Ramparts" magazine.
 
 Both North Vietnam and the NLF sent delegations to the conference.
 

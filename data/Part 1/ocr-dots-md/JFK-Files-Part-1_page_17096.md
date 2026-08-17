@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17096.png
-
-Convert to MarkdownFUNDS : $45,000 . $29,020 in FY 67 $15,980 in FY 68
+FUNDS : $45,000 . $29,020 in FY 67 $15,980 in FY 68
 
 Programmed for $45,000 FY 67
 

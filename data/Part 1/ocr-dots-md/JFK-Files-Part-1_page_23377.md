@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23377.png
-
-Convert to MarkdownSENT TO RISAN
+SENT TO RISAN
 
 22 Dec.70
 

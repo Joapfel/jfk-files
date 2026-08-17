@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11148.png
-
-Convert to Markdown106. Salida al 299666 Nnt. 893.-1840.-Albert pregunta por Max
+106. Salida al 299666 Nnt. 893.-1840.-Albert pregunta por Max
 ministró Herranz y MP díaz que llega a las once.- 236.-
 
 295. Salida al 262165.-1955.- Orlando Sudrez al no continuar

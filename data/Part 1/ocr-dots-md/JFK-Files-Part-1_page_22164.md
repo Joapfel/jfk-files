@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22164.png
-
-Convert to Markdown2. Awards and Decorations
+2. Awards and Decorations
 
 Not long after reestablishing contact with CIA in January 1964, NOSENKO mentioned that he had received the Order of Lenin "shortly after the 1962 meetings" in Geneva as a reward for the ideas which he had developed to "enlarge the experience and improve the quality" of KGB Second Chief Directorate staff personnel in Moscow.* During the first series of interrogations, NOSENKO on 6 April 1964 claimed that he was awarded the Order of Lenin in 1963 for his work in the Tourist Department, KGB Second Chief Directorate, after receiving the Order of the Red Banner in 1962 for his performances while in the American Department.
 

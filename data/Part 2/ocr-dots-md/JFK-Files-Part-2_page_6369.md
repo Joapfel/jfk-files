@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6369.png
-
-Convert to Markdown(o) of this section shall be completed by October 1, 1995.
+(o) of this section shall be completed by October 1, 1995.
 
 ### PART 1926—SAFETY AND HEALTH REGULATIONS FOR CONSTRUCTION
 

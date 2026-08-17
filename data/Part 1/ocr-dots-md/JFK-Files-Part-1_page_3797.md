@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3797.png
-
-Convert to MarkdownMIAMI, 24 April 1967
+MIAMI, 24 April 1967
 
 Dear Jim,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15189.png
-
-Convert to MarkdownMemorandum Mr. Donahoe to Mr. Belmont
+Memorandum Mr. Donahoe to Mr. Belmont
 Re: Intelligence Coverage of
 Friendly Foreign Countries
 

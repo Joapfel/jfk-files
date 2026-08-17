@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11222.png
-
-Convert to MarkdownLa Habana, 29 de Julio de 1955
+La Habana, 29 de Julio de 1955
 
 Sr. Embajador:
 

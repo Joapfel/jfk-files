@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6519.png
-
-Convert to Markdown9 April 1976
+9 April 1976
 
 DRAFT
 

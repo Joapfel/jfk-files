@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17090.png
-
-Convert to Markdown(1) Speaker fees and honorariums received by BPP leaders for appearances at educational institutions and other public gatherings.
+(1) Speaker fees and honorariums received by BPP leaders for appearances at educational institutions and other public gatherings.
 
 (2) Monthly assessments of BPP members, as well as fees charged for processing applications for membership in Chicago BPP Chapter.
 

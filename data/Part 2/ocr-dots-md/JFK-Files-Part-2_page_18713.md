@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18713.png
-
-Convert to MarkdownSTANDARD FORM NO. 64
+STANDARD FORM NO. 64
 
 Office M dum • UNITE
 

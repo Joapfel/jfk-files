@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20768.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SECTION C</td><td colspan="3">NARRATIVE COMMENTS</td></tr><tr><td colspan="4">Indicate significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give recommendations for training. Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Manner of performance of managerial or supervisory duties and cost consciousness in the use of personnel space, equipment and funds, must be commented on, if applicable. If extra space is needed to complete Section C, attach a separate sheet of paper.</td></tr><tr><td colspan="4">See attached Memorandum in Lieu of Fitness Report.</td></tr></table>
 

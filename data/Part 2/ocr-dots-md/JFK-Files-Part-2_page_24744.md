@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24744.png
-
-Convert to Markdownwas briefed on something that was being done, as I now believe, on the initiative of the Agency. His (Bundy's) comment is that he made no objection to it. I suspect that his reaction was somewhat more favorable than that, but this is a matter that probably someone listening to the conversation on which such a person could have had differing interpretations. (Bissell, 7/22/75, p. 33).
+was briefed on something that was being done, as I now believe, on the initiative of the Agency. His (Bundy's) comment is that he made no objection to it. I suspect that his reaction was somewhat more favorable than that, but this is a matter that probably someone listening to the conversation on which such a person could have had differing interpretations. (Bissell, 7/22/75, p. 33).
 
 Bissell's testimony on any conversation with Bundy regarding executive action was speculative reconstruction from first appearance to last because he had no "clear recollection" of the events (Bissell, 7/22/75, pp. 29, 36). But Bissell maintained that more "formal and specific and explicit approval would have been required" before any "actual overt steps in use of the capability." (Bissell, 7/22/75, p. 31).
 

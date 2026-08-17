@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4217.png
-
-Convert to MarkdownNovember 14, 1962
+November 14, 1962
 
 MEMORANDUM FOR: General Carter, DDCI
 

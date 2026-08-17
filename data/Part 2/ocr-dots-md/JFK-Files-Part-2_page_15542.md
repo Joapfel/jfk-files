@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15542.png
-
-Convert to Markdownalleged police brutality in the black community.
+alleged police brutality in the black community.
 
 If he (police) comes to us talking of love, we will also talk of love' CAMPBELL said. 'But, if he comes to talk with a .357 magnum (a high velocity gun), we will also talk with a .357 magnum.'
 

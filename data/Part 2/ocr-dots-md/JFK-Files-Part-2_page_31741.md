@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31741.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH:ay
 
 The letter stated fifty percent of the funds raised would be used for the legal defense of HUEY NEWTON and fifty percent would be used to mobilize the people of Oakland, in support of the effort to free HUEY NEWTON, and to stop police harassment. This letter was signed by eleven individuals including ROBERT and ANN SCHEER.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35375.png
-
-Convert to MarkdownPAID TO REQUIREMENTS
+PAID TO REQUIREMENTS
 
 "Annex 1"
 

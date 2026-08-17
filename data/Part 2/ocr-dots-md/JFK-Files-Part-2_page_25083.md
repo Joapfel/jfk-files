@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25083.png
-
-Convert to MarkdownMarch 4, 1965
+March 4, 1965
 
 Mr. Bundy
 

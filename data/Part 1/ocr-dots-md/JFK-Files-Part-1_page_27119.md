@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27119.png
-
-Convert to Markdown140000
+140000
 
 <table><tr><td>DD/0217</td></tr></table>
 

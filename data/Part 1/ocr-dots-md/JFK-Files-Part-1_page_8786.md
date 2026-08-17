@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8786.png
-
-Convert to MarkdownSECRET
+SECRET
 
 H/W Attachment to FUMA-37762, 27 August 1969
 

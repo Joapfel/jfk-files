@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24880.png
-
-Convert to Markdown5 JUN 1966
+5 JUN 1966
 
 SECRET
 REASSIGNMENT QUESTIONNAIRE

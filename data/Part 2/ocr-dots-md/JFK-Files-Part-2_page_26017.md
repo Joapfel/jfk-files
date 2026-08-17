@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26017.png
-
-Convert to Markdown-49-
+-49-
 
 O'BRIEN: Well, you have some successes and failures in--I guess mostly failures in the last of the Eisenhower administration--I'm thinking in terms of Laos. Laos is the immediate problem in 1961. How do you respond to some of these people who are in policy-making positions at that time? I'd like to get your feeling for them--people like [Walther's] Robertson, in the State department--people like [J. Graham] Parsons; John Irwin in the Defense, and on the Agency side, people like [Desmond] Fitzgerald. How do they see . . .?
 

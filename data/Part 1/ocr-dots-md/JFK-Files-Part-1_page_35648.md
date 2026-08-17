@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35648.png
-
-Convert to Markdown-1-Porque Fis... (3-15-65.-919)
+-1-Porque Fis... (3-15-65.-919)
 
 su solidaridad con el caso de cualquier intervinctor extranjero; en la
 Declaración de La Habana, 1940, se concluye que cualquier accion por

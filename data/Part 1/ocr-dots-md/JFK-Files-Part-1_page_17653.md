@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17653.png
-
-Convert to Markdown1. The attached project outline is presented for renewal for the period 1 Jul. 1957 through 30 June 1958. The project outline is accompanied by a review of LIEAT activities during the past year.
+1. The attached project outline is presented for renewal for the period 1 Jul. 1957 through 30 June 1958. The project outline is accompanied by a review of LIEAT activities during the past year.
 
 2. In support of the renewal of Project LIETAT there are attached memoranda prepared by CI/OPS/A-1, EE/P and SS/C.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20929.png
-
-Convert to Markdown4 March 1975
+4 March 1975
 
 BACKGROUND ON REQUEST FOR CREDITABLE SERVICE: August 1950 Until 3 March
 1954

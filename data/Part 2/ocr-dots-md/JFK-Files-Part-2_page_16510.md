@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16510.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 (Three-level Organizational Structure)
 

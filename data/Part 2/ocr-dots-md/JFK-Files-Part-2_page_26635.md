@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26635.png
-
-Convert to Markdown**Top Secret**
+**Top Secret**
 
 No Foreign Dissem
 

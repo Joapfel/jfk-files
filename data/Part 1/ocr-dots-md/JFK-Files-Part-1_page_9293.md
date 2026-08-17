@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9293.png
-
-Convert to Markdown9...Opening of 1941-2 Far Winter Relief Drive, Sportspalast, Berlin.
+9...Opening of 1941-2 Far Winter Relief Drive, Sportspalast, Berlin.
 
 10...Hitler reviewing German Youth, 1939.
 

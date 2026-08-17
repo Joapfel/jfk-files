@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2502.png
-
-Convert to Markdownsuccessfully accomplished this, but due to certain problems in KGB-UB liaison relations, it was not possible for the KGB to exploit this directly.
+successfully accomplished this, but due to certain problems in KGB-UB liaison relations, it was not possible for the KGB to exploit this directly.
 
 The previous summary stated that with respect to the female UB agent, there was persuasive evidence that neither NOSENKO nor KOSOLAPOV played the roles in the (MORONE) case described by NOSENKO. That summary cited the travel of NOSENKO to Cuba and of KOSOLAPOV to Finland at approximately the same time as the (MORONE) trip to Warsaw as evidence of the impossibility of NOSENKO and KOSOLAPOV being involved personally in this part of the (MORONE) case.
 

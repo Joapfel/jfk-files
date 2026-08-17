@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10949.png
-
-Convert to MarkdownPolish, Yugoslav, Czechoslovakian and other communist-bloc countries. For instance, in the Cuban field on several occasions, FBI informants have been able to develop high-level or current intelligence regarding conditions in Cuba, and policies of the Castro regime through personal contacts with ranking Cuban officials both in the U.S. and abroad.
+Polish, Yugoslav, Czechoslovakian and other communist-bloc countries. For instance, in the Cuban field on several occasions, FBI informants have been able to develop high-level or current intelligence regarding conditions in Cuba, and policies of the Castro regime through personal contacts with ranking Cuban officials both in the U.S. and abroad.
 
 Through our coverage of the Communist Party, USA, and related organizations we have also frequently produced foreign intelligence, although to a lesser extent than in our operations in the foreign nationality field. One of our best sources of foreign intelligence in the domestic area is our so-called Solo operation* wherein we have informants acting in a liaison/capacity between the Communist Party, USA; and foreign communist groups, including the Communist Party of the Soviet Union. We have developed information through this operation regarding the Sino-Soviet dispute, social and political conditions in various countries, both in and outside the Soviet bloc, and tactics of the international communist movement.
 

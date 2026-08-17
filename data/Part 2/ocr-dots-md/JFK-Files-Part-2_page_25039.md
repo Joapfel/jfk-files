@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25039.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Baron. Do you have any independent recolleciton of being made aware of this meeting?
 

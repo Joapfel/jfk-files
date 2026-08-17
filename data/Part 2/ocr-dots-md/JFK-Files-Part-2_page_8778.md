@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8778.png
-
-Convert to Markdown13-00000
+13-00000
 
 <u>DIRECTOR 8214 to WAVE dated 2 January 1963</u>
 

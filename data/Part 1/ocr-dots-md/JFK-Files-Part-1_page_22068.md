@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22068.png
-
-Convert to Markdown### (iii) ABIDIAN's Letter Mailings
+### (iii) ABIDIAN's Letter Mailings
 
 During the 1962 meetings in Geneva, NOSENKO reported KGB knowledge of one type of operational task performed by ABIDIAN in Moscow in addition to his recruitment of LANGELE (see above). This task, NOSENKO said, involved mailing at least three clandestine letters, in each case to KGB double agents.
 

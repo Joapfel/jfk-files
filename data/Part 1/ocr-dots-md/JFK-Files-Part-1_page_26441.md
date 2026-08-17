@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26441.png
-
-Convert to Markdown**INFORMATION REPORT**
+**INFORMATION REPORT**
 
 **INFORMATION REPORT**
 

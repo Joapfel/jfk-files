@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24080.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 4. ORPHONE/1 will be compensated by WOFIRM in an amount mutually agreed upon for the relocation of himself and his family to a new residence if such relocation is considered desirable by him and WOFIRM. NOTE: This provision was included in ORPHONE/1's original Letter of Agreement and was retained in this HCC since it may be operationally desirable for ORPHONE/1 to accept employment with a target organization based elsewhere.
 

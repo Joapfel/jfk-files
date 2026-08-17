@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24097.png
-
-Convert to Markdown30 Aug 67 in 4213B
+30 Aug 67 in 4213B
 
 SECRET 301632Z CITE LCPIPIT 1286
 DIRECTOR INFO: LONDON

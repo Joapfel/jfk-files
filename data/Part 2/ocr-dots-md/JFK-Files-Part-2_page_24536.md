@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24536.png
-
-Convert to MarkdownAs Sorensen (a member of the Executive Committee established to deal with the Missile Crisis) testified, even though Cuba was the "No. 1 priority" during the Missile Crisis, and "all alternatives, plans, possibilities were exhaustively surveyed" during that time, the subject of assassination was never raised in the high-level National Security Council Executive Committee (of which Helms was not a member) that was formed to deal with the Missile Crisis.
+As Sorensen (a member of the Executive Committee established to deal with the Missile Crisis) testified, even though Cuba was the "No. 1 priority" during the Missile Crisis, and "all alternatives, plans, possibilities were exhaustively surveyed" during that time, the subject of assassination was never raised in the high-level National Security Council Executive Committee (of which Helms was not a member) that was formed to deal with the Missile Crisis.
 
 (Sorensen, 7/21, p. 11.)***
 

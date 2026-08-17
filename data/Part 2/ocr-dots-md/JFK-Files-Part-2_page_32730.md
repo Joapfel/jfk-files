@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32730.png
-
-Convert to Markdownhad in fact been removed, to guard against hiding, and to prevent
+had in fact been removed, to guard against hiding, and to prevent
 reintroduction of such weapons. Various schemes were considered
 and the USSR made clear its willingness to have UN verification take place.
 Castro adamantly refused to accept any form of verification in Cuba by the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5417.png
-
-Convert to Markdownwe have not, to my knowledge, denied the right of anyone presently employed to be interviewed with, of course again, the requirements that if they want to consult with us they may do so.
+we have not, to my knowledge, denied the right of anyone presently employed to be interviewed with, of course again, the requirements that if they want to consult with us they may do so.
 
 **QUESTION:** Well, in other words, you're saying that FBI Agents can be interviewed by the Senate staff. Is that correct?
 

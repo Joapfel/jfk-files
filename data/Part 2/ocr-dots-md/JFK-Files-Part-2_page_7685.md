@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7685.png
-
-Convert to MarkdownMr. KANKIN. Mr. McCone, when you said that supplying all of the information about U.S. citizens who went abroad and came back to the country would not be a profitable exercise, did that comment include the thought that such an intrusion upon all citizens would be questionable?
+Mr. KANKIN. Mr. McCone, when you said that supplying all of the information about U.S. citizens who went abroad and came back to the country would not be a profitable exercise, did that comment include the thought that such an intrusion upon all citizens would be questionable?
 
 Mr. MCCONE. Such an intrusion?
 

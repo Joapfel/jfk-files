@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17220.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">MESSAGE FORM</th></tr></thead><tbody><tr><td>ORIG:</td><td>Bustos-Videla:jah</td></tr><tr><td>UNIT:</td><td>WH/1</td></tr><tr><td>DKT:</td><td>4506</td></tr><tr><td>DATE:</td><td>27 Nov 1964</td></tr></tbody></table>
 

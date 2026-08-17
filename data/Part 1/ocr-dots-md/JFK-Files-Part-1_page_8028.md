@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8028.png
-
-Convert to MarkdownSECRET
+SECRET
 CONTROLE-U.S. OFFICIALS ONLY
 
 HKH - 737

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1697.png
-
-Convert to MarkdownOVERSEAS PROCESSING SHEET
+OVERSEAS PROCESSING SHEET
 
 SUBJECT Concern, Lucien Emile
 

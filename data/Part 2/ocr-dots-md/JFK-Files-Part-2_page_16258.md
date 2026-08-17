@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16258.png
-
-Convert to MarkdownARS
+ARS
 2
 
 to be furnished on a volunteer basis. Source further

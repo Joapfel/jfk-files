@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16640.png
-
-Convert to MarkdownOTHER: Explanation of charges or credits
+OTHER: Explanation of charges or credits
 
 43-2017
 

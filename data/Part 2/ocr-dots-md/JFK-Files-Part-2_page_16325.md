@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16325.png
-
-Convert to MarkdownA male individual who was referred to as WADDELL (phonetic) is being held in the Chicago BPP "Political Jail" at Chicago BPP Headquarters, 2350 West Madison Street, Chicago, Illinois. WADDELL reportedly raped a sister Panther and is to be expelled from the BPP.
+A male individual who was referred to as WADDELL (phonetic) is being held in the Chicago BPP "Political Jail" at Chicago BPP Headquarters, 2350 West Madison Street, Chicago, Illinois. WADDELL reportedly raped a sister Panther and is to be expelled from the BPP.
 
 6/2/69)
 

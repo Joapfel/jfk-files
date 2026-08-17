@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27198.png
-
-Convert to MarkdownP. Duckett, Carl E. (plus misc. related papers) (SECRET)
+P. Duckett, Carl E. (plus misc. related papers) (SECRET)
 
 Q. Dudley, Donald (SECRET/SENSITIVE)
 

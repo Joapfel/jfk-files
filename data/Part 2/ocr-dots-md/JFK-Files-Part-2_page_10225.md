@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10225.png
-
-Convert to MarkdownMEMORANDUM FOR: Deputy Director for Management and Services
+MEMORANDUM FOR: Deputy Director for Management and Services
 
 SUBJECT : Special Report
 

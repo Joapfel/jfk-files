@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12282.png
-
-Convert to MarkdownSECRET O
+SECRET O
 
 MEMORANDUM DE ACUERDO
 

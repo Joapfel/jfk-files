@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21066.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>1. NAME (Last, first, middle)</td>
     <td colspan="4">2. DESCRIPTION OF PERSONNEL DATA FOR EMPLOYMENT OF UNITED STATES CITIZEN</td>

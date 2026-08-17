@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33178.png
-
-Convert to MarkdownAnswer to WJ/Miami 3326 which was prompted by PARIS 7580
+Answer to WJ/Miami 3326 which was prompted by PARIS 7580
 
 1. When AMBEDEW-1 was working for the counter revolutionary section, he became acquainted with the case of the penetration of Miguel Diaz Isalgue's group.
 

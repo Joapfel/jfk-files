@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3873.png
-
-Convert to MarkdownEarl Williamson:
+Earl Williamson:
 
 We sent cable to Flexi asking them to meet with LISASSY-1 and detrip re mission to Venezuela offer.
 

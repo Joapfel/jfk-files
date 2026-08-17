@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20461.png
-
-Convert to MarkdownRIDERS' INSTRUCTIONS
+RIDERS' INSTRUCTIONS
 
 **2:00 am:** Train departs from Pennsylvania Station, New York. Coffee and snacks will be available on the train; please eat your lunches before the train arrives in Washington. Sandwiches available for purchase on return train from Washington.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13365.png
-
-Convert to MarkdownOLSEN: Did -- Where did you meet with him?
+OLSEN: Did -- Where did you meet with him?
 
 STURGIS: One time at the Holiday Inn --
 OLSEN: Where?

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16949.png
-
-Convert to Markdown11/28/69
+11/28/69
 
 LOGAN, MARVIN; JESSE WARD
 

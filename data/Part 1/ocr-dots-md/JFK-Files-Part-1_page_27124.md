@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27124.png
-
-Convert to MarkdownRE: CUBANOS UNIDOS
+RE: CUBANOS UNIDOS
 (UNITED CUBANS)
 
 BOB RAMEY (phonetic), a commentator on Channel 4 TV. Miami, who will travel with WILFREDO NAVARRO.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3366.png
-
-Convert to Markdown29 February 1960
+29 February 1960
 
 MEMORANDUM FOR: Director of Central Intelligence
 VIA: Deputy Director (Plans)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26409.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MODEL</td><td colspan="2">□ Yes □ No</td></tr><tr><td>CLASS TO S/M</td><td colspan="2">3c</td></tr><tr><td>TO FC S/N</td><td colspan="2"></td></tr><tr><td>PRI NO</td><td colspan="2">ST 10 MARCH 89</td></tr><tr><td>DISTRN</td><td colspan="2">S/M</td></tr><tr><td colspan="3">H G. ANDERSSON</td></tr><tr><td colspan="3">W/WD 11041 Road Galena, MI 49506 Calumet Shores, MI 49506 Eau Claire, WI 53703 S/SAS</td></tr><tr><td colspan="3"><b>CLASSIFIED MESSAGE</b></td></tr><tr><td colspan="2"><b>SECRET</b></td><td style="text-align: right;"><b>ROUTING</b></td></tr><tr><td></td><td></td><td><b>1</b> 4</td></tr><tr><td></td><td></td><td><b>2</b> 5</td></tr><tr><td></td><td></td><td><b>3</b> 6</td></tr></table>
 

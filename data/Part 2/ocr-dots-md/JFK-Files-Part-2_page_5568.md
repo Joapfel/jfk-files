@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5568.png
-
-Convert to MarkdownDEC 12 '92 09:47PM
+DEC 12 '92 09:47PM
 
 MEMORANDUM
 

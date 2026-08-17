@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28866.png
-
-Convert to Markdown9 OCT 1973
+9 OCT 1973
 
 Mr. James Ballard
 Acting Director of Personnel

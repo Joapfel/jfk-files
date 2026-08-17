@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22682.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE : 172 ES/BJ<br/>30 DECEMBER 1958</td>
     <td colspan="2">CLASSIFIED MESSAGE</td>

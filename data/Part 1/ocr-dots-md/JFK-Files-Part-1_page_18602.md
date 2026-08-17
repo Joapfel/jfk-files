@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18602.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">BIOGRAPHIC PROFILE (PART I - Continued)</td></tr><tr><td>NAME (Last, First)-</td><td>DATE OF BIRTH</td></tr><tr><td>WICKS, Calvin Wilson</td><td>S Nov 1924.</td></tr></table>
 

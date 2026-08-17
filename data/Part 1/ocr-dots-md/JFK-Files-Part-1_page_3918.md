@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3918.png
-
-Convert to Markdown14-0000
+14-0000
 
 Att. No 41 to UFGA-21693
 

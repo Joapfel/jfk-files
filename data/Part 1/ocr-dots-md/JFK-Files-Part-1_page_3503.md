@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3503.png
-
-Convert to Markdown7. A-1 would like to have several of the village radios sent to him in Miami in order to hand carry them to Nicaragua. A-1 was informed we would have to check into the matter.
+7. A-1 would like to have several of the village radios sent to him in Miami in order to hand carry them to Nicaragua. A-1 was informed we would have to check into the matter.
 
 8. Upon arriving in Miami, A-1 accidentally met Luis Somoza. The latter stated he is going to Egypt, Italy and West Germany. On his return he will stop in Washington to speak to President Johnson and Attorney General Kennedy concerning "his plan."
 

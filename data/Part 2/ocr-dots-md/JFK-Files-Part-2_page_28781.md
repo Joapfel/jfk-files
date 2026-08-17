@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28781.png
-
-Convert to Markdown resume - Joan Talbert Thornell
+resume - Joan Talbert Thornell
 
 4/72 -
 10/72 Staff Director

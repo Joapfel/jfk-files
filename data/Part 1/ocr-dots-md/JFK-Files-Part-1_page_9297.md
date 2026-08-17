@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_9297.png
-
 , when he will offer to pay either:
 
 (a) a fixed fee, half down and half on publication; or

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31274.png
-
-Convert to Markdown## SEC. II. WORK EXPERIENCE (CONT'D)
+## SEC. II. WORK EXPERIENCE (CONT'D)
 
 3. Special Work Experience: Check any of the following organizations by which you may have been employed.
 

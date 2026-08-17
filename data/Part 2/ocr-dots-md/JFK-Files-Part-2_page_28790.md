@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28790.png
-
-Convert to MarkdownTRIPLETT, Bill
+TRIPLETT, Bill
 
 Name of Employee
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17157.png
-
-Convert to MarkdownREQUEST FOR PROJECT RENEWAL
+REQUEST FOR PROJECT RENEWAL
 
 PROJECT ________________ LIEEMPTY
 

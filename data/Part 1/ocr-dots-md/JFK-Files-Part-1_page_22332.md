@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22332.png
-
-Convert to Markdownof International Relations to a position in the school of the CPSU Central Committee and ceased agent work. Although she was inactive, NOSENKO continued to be registered as her case officer until 1964, when he defected.
+of International Relations to a position in the school of the CPSU Central Committee and ceased agent work. Although she was inactive, NOSENKO continued to be registered as her case officer until 1964, when he defected.
 
 ### (i) FRIPPEL
 

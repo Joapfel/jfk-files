@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19698.png
-
-Convert to Markdown# Security Information
+# Security Information
 
 ## INSPECTION & SECURITY OFFICE
 

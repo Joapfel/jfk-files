@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9560.png
-
-Convert to MarkdownAddress by
+Address by
 the Al-Fateh Delegation
 to the Second International
 Conference in Support

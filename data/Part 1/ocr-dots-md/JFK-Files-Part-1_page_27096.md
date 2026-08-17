@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27096.png
-
-Convert to MarkdownSTURGIS, Frank Anthony
+STURGIS, Frank Anthony
 
 MINISTER OF PUBLIC RELATIONS
 OFFICE OF CENSUS

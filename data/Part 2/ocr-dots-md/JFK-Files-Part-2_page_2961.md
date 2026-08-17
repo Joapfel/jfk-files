@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2961.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4-5 March 1964
 McCone meets with General Eisenhower who discusses relations with de Gaulle.

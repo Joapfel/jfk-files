@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23081.png
-
-Convert to MarkdownEs de destacar que en las innumerables- infiltraciones organizadas por la CIA,- utilizando miembros de organizaciones - contrarrevolucionarias, uno de los obje- tivos constantes ha sido también la eli- minación física del Comandante en Jefe- Fidel Castro Ruz.
+Es de destacar que en las innumerables- infiltraciones organizadas por la CIA,- utilizando miembros de organizaciones - contrarrevolucionarias, uno de los obje- tivos constantes ha sido también la eli- minación física del Comandante en Jefe- Fidel Castro Ruz.
 
 La CIA, para la ejecución de sus planes, ha utilizado elementos contrarrevolucio- narios en el interior y exterior del -- país. No sólo ha tenido como colaborado- res a los desplazados del poder, sino - también a elementos de distinta proce- dencia social, incluyendo a exponentes- de todo tipo de lacras.
 

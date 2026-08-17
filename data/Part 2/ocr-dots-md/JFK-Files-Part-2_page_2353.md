@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2353.png
-
-Convert to Markdown# Agreement
+# Agreement
 
 AGREEMENT made this 29th day of November, 1961, effective the 8 day of December, 1961, by and between the United States of America (hereinafter referred to as the Government), as represented by the Central Intelligence Agency, and O'Malley, Birch D. (hereinafter referred to as the Employee).
 

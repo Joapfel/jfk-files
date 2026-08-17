@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9630.png
-
-Convert to Markdown# Second Army Organization
+# Second Army Organization
 
 ## TRAINING PROGRAM
 

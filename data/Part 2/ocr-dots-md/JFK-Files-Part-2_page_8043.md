@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8043.png
-
-Convert to Markdown13-00000
+13-00000
 
 National Broadcasting Company. There Was A President. New York: Random House, 1960
 "The Nations: How Sorrowful Bad." Time, 29 November 1963, pp. 30-39.

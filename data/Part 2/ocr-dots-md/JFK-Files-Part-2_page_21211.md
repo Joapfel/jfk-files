@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21211.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 and would not be reinstated as an agent of KGB.
 

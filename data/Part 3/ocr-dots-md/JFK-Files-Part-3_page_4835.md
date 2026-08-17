@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4835.png
-
-Convert to MarkdownSECRET
+SECRET
 
 [POSADA] provided the following background information concerning individuals involved with BORGES in the procurement of arms and munitions by the three Americans:
 

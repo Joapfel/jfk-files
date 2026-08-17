@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5351.png
-
-Convert to MarkdownSECRET
+SECRET
 
 le 14 juin 1968
 

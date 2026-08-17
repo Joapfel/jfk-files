@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5143.png
-
-Convert to Markdown16. All memoranda and any other materials* which related to:
+16. All memoranda and any other materials* which related to:
 
 a. The preparation and/or dissemination of a "composite" tape (or copies thereof) which contained any or all parts of any tapes which resulted from electronic surveillance of Dr. King.
 

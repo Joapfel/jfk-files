@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7740.png
-
-Convert to Markdown9.04.12
+9.04.12
 
 Does he Pay little attention to the drinking needs of others
 Serve drinks in a socially appropriate manner

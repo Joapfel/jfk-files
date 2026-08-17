@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32554.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. The Central Intelligence Agency:
 

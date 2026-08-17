@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4409.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr><tr><td>INDEX: ☐ YES ☐ NO<br>CLASSIFY TO FILE NO.<br>B-REF TO FILE NO.<br>FILE RIC ☐ RET. TO BRANCH ☐<br>DESTROY ☐ SIS.</td><td>24</td><td>SECRET<br>PERSONal unit notified</td></tr><tr><th>ACTION<br>FROM<br>LUH/8</th><th>RID COPY</th><th>DIVANCE COPY<br>☐ ISSUED ☐ EROTTED ☐ OVED</th><th>UNIT<br>TIME</th></tr></thead><tbody><tr><td>REPRODUCTION PROHIBITED</td><td></td><td></td><td>E1<br>E2<br>T<br>F1</td></tr><tr><td></td><td></td><td></td><td>G<br>J<br>P<br>L</td></tr></tbody></table>
 

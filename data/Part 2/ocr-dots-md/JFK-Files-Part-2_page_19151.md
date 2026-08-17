@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19151.png
-
-Convert to Markdown# JEANNETTE RANKIN BRIGADE
+# JEANNETTE RANKIN BRIGADE
 
 Re: Elizabeth Meredith,
 also known as

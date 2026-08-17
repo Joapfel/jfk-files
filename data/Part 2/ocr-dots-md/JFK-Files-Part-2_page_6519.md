@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6519.png
-
-Convert to Markdowncomplete spectrum of actions, it is realized that some may be found
+complete spectrum of actions, it is realized that some may be found
 unsuitable, on political or other grounds:
 
 a. Surveillance

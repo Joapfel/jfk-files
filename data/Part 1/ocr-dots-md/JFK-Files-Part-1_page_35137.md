@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35137.png
-
-Convert to MarkdownCONTINUA
+CONTINUA
 
 AMEXO "I-E"
 

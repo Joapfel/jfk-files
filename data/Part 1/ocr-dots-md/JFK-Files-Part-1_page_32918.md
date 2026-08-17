@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32918.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>0. MICHAEL OLEJARZ:ak</td>

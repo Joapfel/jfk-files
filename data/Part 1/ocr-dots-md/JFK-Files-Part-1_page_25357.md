@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25357.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 FIA:
 

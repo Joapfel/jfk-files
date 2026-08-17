@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7196.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 Memorandum to Mr. Adams
 Re: SELECT COMMITTEE OF THE SENATE

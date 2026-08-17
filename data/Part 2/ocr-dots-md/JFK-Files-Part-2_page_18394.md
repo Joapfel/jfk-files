@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18394.png
-
-Convert to MarkdownUNRECORDED COPY FILED IN
+UNRECORDED COPY FILED IN
 
 <table>
    <tr>

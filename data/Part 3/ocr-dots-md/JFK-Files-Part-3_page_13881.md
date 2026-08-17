@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13881.png
-
-Convert to Markdown**NO FOREIGN DISSEM**
+**NO FOREIGN DISSEM**
 
 A Salvadoran student source has provided detailed information on Cuban instructions and encouragement to pro-Communist Salvadoran students who visited Cuba in October to participate in the First Latin American University Games in Havana. The source, who talked at length with one of the students who had visited Cuba, reported that the Salvadoran group to the games was given special instructions in "revolutionary tactics" on the recommendation of the leaders of the Cuban Union of Young Communists (UJC).
 

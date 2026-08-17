@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31738.png
-
-Convert to Markdown23 January 1953
+23 January 1953
 
 MEMORANDUM FOR: CHIEF, IO BRANCH I
 

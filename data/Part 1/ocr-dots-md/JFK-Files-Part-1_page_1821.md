@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1821.png
-
-Convert to MarkdownTHE WHITE HOUSE
+THE WHITE HOUSE
 
 WASHINGTON
 

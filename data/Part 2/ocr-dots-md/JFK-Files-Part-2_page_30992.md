@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30992.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5/24/75 Memo Dec. 12, 1963
 

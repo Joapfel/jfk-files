@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_844.png
-
-Convert to Markdown# Reviewing Comments
+# Reviewing Comments
 (Continued)
 
 CONFIDENTIAL

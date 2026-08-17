@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34070.png
-
-Convert to Markdownwith private Charterers, not the Russians or Cubans, for the fixing of
+with private Charterers, not the Russians or Cubans, for the fixing of
 his older tonnage , the Liberties? This takes place at a time that
 Greek and possibly Lebanon Authorities are supposed to be prosecuting him
 for his past sins. This is how much notice he takes of the Authorities.

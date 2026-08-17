@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22738.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 the Bureau.
 2 Would it help today if there was a separate Bureau under

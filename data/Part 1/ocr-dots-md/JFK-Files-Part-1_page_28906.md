@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28906.png
-
-Convert to MarkdownSECRET
+SECRET
 
 VITHEIN-GRAZ PROMOTION FOR CONTRACT EMPLOYERS
 (If provided for in Contract)

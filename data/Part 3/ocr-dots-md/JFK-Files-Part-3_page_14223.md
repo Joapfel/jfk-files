@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14223.png
-
-Convert to Markdowncover might devolve within the society. In those areas where nonofficial cover may provide legality for an agent's residence in the area and concealment of his ultimate objectives, it still may not give him access to designated targets. Unless it does, nonofficial cover is unproductive. The identification of a target and access to it through a viable cover instrument is an essential combination in the employment of nonofficial cover.
+cover might devolve within the society. In those areas where nonofficial cover may provide legality for an agent's residence in the area and concealment of his ultimate objectives, it still may not give him access to designated targets. Unless it does, nonofficial cover is unproductive. The identification of a target and access to it through a viable cover instrument is an essential combination in the employment of nonofficial cover.
 
 The more tactical operations (particularly in those countries where CIA presence is welcome or at least tolerated) are better done by individuals under official cover. For example, liaison and joint operations are more effectively and more cheaply carried on from an official installation than from a nonofficial one, for the simple reason that secure files, work space and communications are readily at hand. It is poor economy of manpower and overseas dollars to conduct this collaborative effort through the usage of the much more expensive nonofficial cover unless some clear advantage is gained thereby.
 

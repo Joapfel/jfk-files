@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27221.png
-
-Convert to MarkdownSECRET
+SECRET
 
 What special qualifications do you wish the candidate tested for?
 

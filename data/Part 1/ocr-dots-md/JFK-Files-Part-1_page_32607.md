@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32607.png
-
-Convert to MarkdownSECRET
+SECRET
 
 STANDARD FORM 50 (7 PART)
 REV. APRIL 1981

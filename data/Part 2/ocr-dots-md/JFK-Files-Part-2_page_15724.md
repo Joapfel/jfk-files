@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15724.png
-
-Convert to MarkdownThe Murder of Bobby Ton and the Arrest of the Panther 8
+The Murder of Bobby Ton and the Arrest of the Panther 8
 
 17.
 

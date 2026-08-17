@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6585.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 January 11, 1957
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27694.png
-
-Convert to Markdown12 August 1959
+12 August 1959
 
 MEMORANDUM FOR: Secretary, CS/CS Panel (Section C)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34948.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td rowspan="2">REGISTRO DEL ESTADO CIVIL DE</td><td>ARRUTO HARANJO -</td><td colspan="3">FECHA DEL ASIENTO</td></tr><tr><td></td><td>LA 30. MIRS Junio.-</td><td>AFR 1920.-</td><td></td></tr><tr><td>SECCION DE</td><td>Moviemotoc.-</td><td>TOMO 159.-</td><td>FOLIO 563.-</td><td>INSERCIÓN 1031.-</td></tr><tr><td>HORA</td><td>once de la Nata.</td><td>Menbrs.-</td><td>DIA tres.-</td><td></td></tr><tr><td>MEG</td><td>Julio.-</td><td>APO mil novecientos cincuenta y</td><td></td><td></td></tr><tr><td>NOMBRES Y APELIDOS DEL INSCRIPTO</td><td>Laura Horina Blanco y Herdones.-</td><td></td><td></td><td></td></tr><tr><td>LUGAR DE NACIMIENTO</td><td>La habana.-</td><td></td><td></td><td></td></tr><tr><td>NOMBRES Y APELIDOS DEL PADRE</td><td>Jose lauro Blanco Muñiz.-</td><td></td><td>LUGAR DE NACIMIENTO DEL PADRE</td><td>Matanzana.-</td></tr><tr><td>NOMBRES Y APELIDOS DE LA MADRE</td><td>Josina Hardones y Viva.co.-</td><td></td><td>LUGAR DE NACIMIENTO DE LA MADRE</td><td>Habana.-</td></tr><tr><td>PADRES</td><td>Jose y Avelina:</td><td></td><td>DOMINGO y Juana.-</td><td></td></tr><tr><td>INSTRUCCION PRACTICADA EN VIRTUD DE</td><td>Ley 797 de 20 de Mayo de 1960 y declaración de la madre de la inscripta.-</td><td></td><td></td><td></td></tr><tr><td>No constan.-</td><td></td><td></td><td></td><td></td></tr></table>
 

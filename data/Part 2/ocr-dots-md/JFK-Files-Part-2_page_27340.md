@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27340.png
-
-Convert to MarkdownSelected Documents Relating to Allegations
+Selected Documents Relating to Allegations
 Concerning the Assassination of President Kennedy
 
 Tab No.

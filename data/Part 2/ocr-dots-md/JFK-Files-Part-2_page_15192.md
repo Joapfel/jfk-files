@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15192.png
-
-Convert to MarkdownMemorandum Mr. Donahoe Mr. Belmon
+Memorandum Mr. Donahoe Mr. Belmon
 Re: Intelligence Coverage of Friend y Foreign Countries
 
 (Semiannual Evaluation)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4343.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 Information was furnished by this source on November 29 and 30, 1969, concerning the purchase and use of two offset printing presses by the BPP. On December 3, 1969, this source furnished information regarding the whereabouts of the BPP Chief of Staff David Hilliard, which information aided the United States Secret Service in arresting Hilliard without incident for making a public threat against the President. On January 14, 1970, this source furnished information regarding over $2,500 owed to national headquarters by two BPP chapters for past editions of the newspaper and the source also furnished details regarding these two accounts.
 

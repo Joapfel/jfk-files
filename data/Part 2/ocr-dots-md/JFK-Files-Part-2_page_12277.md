@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12277.png
-
-Convert to Markdown1. **Recording investigative activity**
+1. **Recording investigative activity**
 
 All investigative activity must be made a matter of record in the field office filed with all sources of information being completely identified.
 

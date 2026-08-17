@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14066.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, San Jose
 Chief, WH Division

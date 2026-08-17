@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9452.png
-
-Convert to Markdown31 May 1950
+31 May 1950
 
 TO: PDQUICK
 

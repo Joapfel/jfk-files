@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6989.png
-
-Convert to Markdown13-00000
+13-00000
 
 PAGE 32
 Federal News Service, JUNE 4, 1997

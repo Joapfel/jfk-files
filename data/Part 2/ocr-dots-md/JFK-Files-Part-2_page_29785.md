@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29785.png
-
-Convert to MarkdownMEXICO CITY -- CIA
+MEXICO CITY -- CIA
 
 ORGANIZATION
 

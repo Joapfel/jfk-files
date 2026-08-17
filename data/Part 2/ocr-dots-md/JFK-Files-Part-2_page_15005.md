@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15005.png
-
-Convert to MarkdownWIRETAPPING
+WIRETAPPING
 
 The Attorney General testified before the House Judiciary Subcommittee on March 15, 1967, that microphone and wiretapping were unnecessary in connection with control of crime in the United States. Various bills to outlaw wiretapping and eavesdropping or to legalize such practices are pending in the Congress. We directed a letter to the Department dated March 6, 1967, concerning legislation proposed by Senator Eastland which would authorize wiretapping and use of microphones with court approval in organized crime investigations. We informed the Attorney General that such legislation would be very beneficial to our efforts in the field of organized crime and would appear to provide a statutory basis for practices now being followed in connection with use of such devices in national security matters. Microphones were of inestimable value in determining La Cosa Nostra weaknesses and day-to-day organizational moves, and enabled us to develop excellent informants, disseminate information to local authorities and to make counter moves to dry up La Cosa Nostra sources of income.
 

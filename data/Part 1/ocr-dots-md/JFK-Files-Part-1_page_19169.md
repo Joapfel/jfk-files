@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19169.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 SF: 12 SEPT. 07

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35157.png
-
-Convert to MarkdownCHECKS A JUSTIFICAR
+CHECKS A JUSTIFICAR
 
 ANEXO "I-P"
 Hoja No. 2

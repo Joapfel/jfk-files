@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22178.png
-
-Convert to MarkdownLater in the same session the interrogator returned to this subject. The following is a transcript of the discussion:
+Later in the same session the interrogator returned to this subject. The following is a transcript of the discussion:
 
 **Question:** You said you think GRIBANOV might be fired. Yet, there is nothing in the protocol you signed (see above) about your relations with GRIBANOV which would seem to make him personally responsible for you. Is there something else, something you haven't told me?
 

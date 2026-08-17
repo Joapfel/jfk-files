@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3527.png
-
-Convert to Markdown# DISSEMINATION CONTROL ABBREVIATIONS
+# DISSEMINATION CONTROL ABBREVIATIONS
 
 NOFORN- Not Releasable to Foreign Nationals
 NOCONTRACT- Not Releasable to Contractors or Contractor/Consultants

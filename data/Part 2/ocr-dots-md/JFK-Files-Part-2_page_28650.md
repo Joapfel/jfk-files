@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28650.png
-
-Convert to Markdown<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Nancy P. Schultz</td><td>5/23/77</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>209 46 4088</td><td>☑ Appointment</td></tr><tr><td colspan="2">Employing Office or Committee</td></tr><tr><td>Assassinations</td><td>☐ Salary Adjustment</td></tr><tr><td></td><td>☐ Termination (At close of business on effective date)</td></tr></table>
+<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Nancy P. Schultz</td><td>5/23/77</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>209 46 4088</td><td>☑ Appointment</td></tr><tr><td colspan="2">Employing Office or Committee</td></tr><tr><td>Assassinations</td><td>☐ Salary Adjustment</td></tr><tr><td></td><td>☐ Termination (At close of business on effective date)</td></tr></table>
 
 (If type of action is an Appointment or Salary Adjustment, complete the following information.)
 

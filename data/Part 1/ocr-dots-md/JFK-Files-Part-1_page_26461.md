@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26461.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td style="vertical-align: top; padding-right: 20px;"><table><tr><td>SECRET</td></tr></table></td><td style="vertical-align: top;"><table><tr><td>ROUTING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></table></td></tr></table>
 

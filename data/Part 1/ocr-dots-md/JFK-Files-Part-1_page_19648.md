@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19648.png
-
-Convert to MarkdownJCD FORM NO. 08
+JCD FORM NO. 08
 
 Office Memorandum • UNITED STATES GOVERNMENT
 

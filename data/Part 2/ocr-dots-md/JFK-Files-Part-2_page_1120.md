@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1120.png
-
-Convert to MarkdownSTANDARD FORM 50 (R PART)
+STANDARD FORM 50 (R PART)
 
 NEW: APRIL 1984
 APPROVED BY

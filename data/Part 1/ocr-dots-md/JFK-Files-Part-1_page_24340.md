@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24340.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. In organizing a report exercise, he did extremely well. In exercises requiring fact from inference, he did only fairly well, considering his background and compared to trainees with no where near his experience or education. He has a slight tendency toward jumping to conclusions and reading meanings into words. He realized this and from then on he overcame this weakness to a considerable degree. However, even on the last day, writing reports based on New York Times newspaper articles, he twice (out of five reports) substituted his own word for a word in the article for no valid reason and which new word in fact changed the meaning of the sentence, though only slightly.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_708.png
-
-Convert to Markdown89383
+89383
 
 SECRET
 

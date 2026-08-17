@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16719.png
-
-Convert to Markdownof the
+of the
 FEDERAL BUREAU OF INVESTIGATION
 
 WASHINGTON, D. C. 20535

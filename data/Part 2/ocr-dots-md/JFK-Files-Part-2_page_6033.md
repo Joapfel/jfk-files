@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6033.png
-
-Convert to MarkdownHENRY F. GRAFF
+HENRY F. GRAFF
 
 Professor Emeritus of History, Columbia University
 

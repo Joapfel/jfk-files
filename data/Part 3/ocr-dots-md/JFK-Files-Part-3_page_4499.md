@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4499.png
-
-Convert to Markdown" I have Identified the photograph of CARLOS MARCIALLO by writing on the reverse of the photograph:
+" I have Identified the photograph of CARLOS MARCIALLO by writing on the reverse of the photograph:
 
 "This is a photo of CARLOS MARCIALLO" and
 signing my name.

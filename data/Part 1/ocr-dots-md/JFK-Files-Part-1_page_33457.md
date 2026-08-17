@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33457.png
-
-Convert to MarkdownCABLE SEC DISSEM BY: J. PER
+CABLE SEC DISSEM BY: J. PER
 
 TOTAL COPIES: 10-1
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4690.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ACTION: LA-13 (3/82) INFO: FILE. #. C/PBS. LA-. TPB/TS-2. 110. 10/4/82
 L64/1D. B&W, PCS/141-5. (38/8)

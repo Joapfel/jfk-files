@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25323.png
-
-Convert to Markdownactive in the Soviet films presented in Mexico, smoothing out customs difficulties, arranging for favorable publication of Soviet films, and is making an effort to circulate Soviet films elsewhere in Mexico beside in the capital. CALVET, according to one report, is the sole exhibitor of Soviet films in Mexico.
+active in the Soviet films presented in Mexico, smoothing out customs difficulties, arranging for favorable publication of Soviet films, and is making an effort to circulate Soviet films elsewhere in Mexico beside in the capital. CALVET, according to one report, is the sole exhibitor of Soviet films in Mexico.
 
 On 1 December 1955, MATEVSKI consulted CALVET about some books which he (MAYEVSKI) wished sent to the Soviet Export Film Office. MAYEVSKI had received a cable from Soviet Export Films on returning films which were on permit No. 11777242. CALVET arranged an appointment with Jorge CAPPETIS, head of Cinematography (Mexican Government film department), for MAYEVSKI on 3 December 1955. It is believed that PELLETIS is the man to see for withdrawal approvals,
 

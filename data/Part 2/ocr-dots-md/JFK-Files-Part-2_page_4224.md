@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4224.png
-
-Convert to Markdown26 September 1963
+26 September 1963
 
 MEMORANDUM
 

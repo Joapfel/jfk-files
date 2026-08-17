@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5190.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><td>DATE</td><td>CODE</td><td>SIGNATURE</td></tr></thead><tbody><tr><td>10-24-76</td><td>09</td><td>ORLANDO NUNEZ PEREZ</td></tr></tbody></table>
 

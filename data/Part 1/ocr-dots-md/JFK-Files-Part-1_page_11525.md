@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11525.png
-
-Convert to Markdown31 December, 1968
+31 December, 1968
 
 Subject: LIRING/3 Report of Meeting with FAR Members in Mexico City.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4202.png
-
-Convert to Markdownserve in this capacity and also in others. In this connection, the President stated that he was not satisfied with the Ambassador-elect to Yugoslavia and had therefore held up the appointment. His request for help and the suggestion of names in connection with Yugoslavia and the satellites is along the same line as to who would be a good representative in South Vietnam.
+serve in this capacity and also in others. In this connection, the President stated that he was not satisfied with the Ambassador-elect to Yugoslavia and had therefore held up the appointment. His request for help and the suggestion of names in connection with Yugoslavia and the satellites is along the same line as to who would be a good representative in South Vietnam.
 
 4. The President asked concerning our relationships on the Hill. I said that they were excellent. The only problem was a continual harangue for a Joint Committee on Intelligence. I said that I felt that if Senator Russell would expand his Committee to include Fulbright and Hickenlooper, and Vinson expand his Committee to include two members of the House Foreign Affairs Committee, that the issue would be put to rest. The President said he thought this was a good idea and that he would speak to both Fulbright and Russell about it.
 

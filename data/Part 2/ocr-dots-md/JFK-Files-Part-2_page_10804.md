@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10804.png
-
-Convert to MarkdownPM 52-7165
+PM 52-7165
 
 All of the writing on this particular card was in black ink.
 

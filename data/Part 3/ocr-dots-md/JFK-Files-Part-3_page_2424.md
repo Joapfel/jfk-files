@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2424.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Women Strike for Peace (WSP)
 

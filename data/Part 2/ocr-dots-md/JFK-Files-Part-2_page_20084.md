@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20084.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## CHICAGO COUNCIL OF AMERICAN-SOVIET RELATIONS, Formerly known as Chicago Council of American-Soviet Friendship
 

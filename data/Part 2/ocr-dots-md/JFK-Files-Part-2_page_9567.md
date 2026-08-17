@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9567.png
-
-Convert to Markdownproof." He continued with a smile, before I asked him a new question: "Now the situation is different. Poems of praise are written about us. Those who accused us before, now view us as heroes who have given back to this Arab nation its confidence and its hope for victory at a time when it was sunk in the shame of defeat."
+proof." He continued with a smile, before I asked him a new question: "Now the situation is different. Poems of praise are written about us. Those who accused us before, now view us as heroes who have given back to this Arab nation its confidence and its hope for victory at a time when it was sunk in the shame of defeat."
 
 I said: "Some explain the accusations against you as a result of not clarifying your ideological identity... " Abu Amar moved and said: "This is the root of the matter. Let us first define our terms. What is meant by ideological identity? Is it to declare to people my belief in Marxism? Is this what I have to do at this stage? Everybody inquires about the social content of our movement and our revolution. Is this the time for defining the social content? Are we not, still, at a stage of national liberation? How do you expect me, then, to deprive many classes of the Palestinian people of their right to participate in the struggle for liberation?"
 

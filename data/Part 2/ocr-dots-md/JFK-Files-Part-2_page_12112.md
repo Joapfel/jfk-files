@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12112.png
-
-Convert to MarkdownP. SIGNING OF LOYALTY OATHS, AFFIDAVITS, AND STATEMENTS
+P. SIGNING OF LOYALTY OATHS, AFFIDAVITS, AND STATEMENTS
 
 1. Every effort should be made to guide security informants away from situations requiring them to sign or fill out loyalty oaths or forms.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29921.png
-
-Convert to MarkdownMurphy, David E.
+Murphy, David E.
 
 operation and therefore the cited progress is a direct
 reflection of Mr. Murphy's talent and skill as a dynamic

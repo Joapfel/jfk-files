@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18363.png
-
-Convert to Markdown# AFFIDAVIT
+# AFFIDAVIT
 
 STRIKING AGAINST THE FEDERAL GOVERNMENT
 

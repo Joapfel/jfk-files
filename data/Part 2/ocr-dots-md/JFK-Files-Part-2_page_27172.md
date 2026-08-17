@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_27172.png
-
 s are of a general nature, focusing on no particular portion of the investigation.
 
 **Schwarzer-Manfredi Files (S-M).** This team was responsible for Chapters 14, 15 and 18 of the Report, on Watergate, domestic activities of the Directorate of Operations and CIA file systems.

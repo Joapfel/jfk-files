@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8768.png
-
-Convert to Markdown505
+505
 
 Buss. Visas.
 

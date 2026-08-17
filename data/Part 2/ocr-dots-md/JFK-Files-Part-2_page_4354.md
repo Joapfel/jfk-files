@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4354.png
-
-Convert to MarkdownTUESD
+TUESD
 10
 
 JANUARY      1961

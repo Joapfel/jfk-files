@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27595.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="3">20 EXPERIENCE (Start with your PRESENT position and work back. Account for periods of under-employment in separate blocks in order.)</td>
     </tr>

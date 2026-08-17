@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3986.png
-
-Convert to Markdown2 JUN 1965
+2 JUN 1965
 
 MEMORANDUM FOR: Chief, VI Division
 SUBJECT : Interview between Mr. George Cabot Lodge and Manuel Artime Buea

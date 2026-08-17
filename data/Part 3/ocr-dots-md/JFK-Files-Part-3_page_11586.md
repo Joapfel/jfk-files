@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11586.png
-
-Convert to Markdownsmash the U. S. blockade, and to make a breach in the
+smash the U. S. blockade, and to make a breach in the
  facade of the U. S. imperialist monster."
 
 Each of the more than 1500 brigade members has been the subject of a security investigation which includes the identification and obtaining of background data as well as a personal interview with each brigade member. These investigations are being made to determine the immediate danger presented by these young revolutionaries and also to ascertain the long-range role they will take in the revolutionary movement in the U. S. Upon completion of the investigation and the interview of each of these individuals, the field must recommend either the inclusion or noninclusion of the subject in the Security Index. In addition the field must continue to report every 90 days for a period of one year on the activities and whereabouts of each brigade member.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24309.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 PLANS, PROGRAMS, AND PROJECTS
 

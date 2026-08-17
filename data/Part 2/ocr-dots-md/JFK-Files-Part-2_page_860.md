@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_860.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NARRATIVE (CONT'D)
 

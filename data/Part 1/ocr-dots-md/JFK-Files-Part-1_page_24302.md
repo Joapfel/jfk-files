@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24302.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the conditions which would confront ORPHONE in say Rome. But
 If we are not to channel his energies in this direction, it is incumbent

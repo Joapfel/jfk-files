@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24194.png
-
-Convert to MarkdownSECRET, - 84 -
+SECRET, - 84 -
 
 DEINHAUL (Cont'd) -
 in concert with the original objectives of the pro-

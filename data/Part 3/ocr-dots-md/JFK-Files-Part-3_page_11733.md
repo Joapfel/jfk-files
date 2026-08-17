@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11733.png
-
-Convert to Markdowninformants and sources during our period of operation there,
+informants and sources during our period of operation there,
 and we feel that these could be reactivated to become a
 productive source of HILEV material.
 

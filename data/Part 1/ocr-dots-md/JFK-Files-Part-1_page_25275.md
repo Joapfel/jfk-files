@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25275.png
-
-Convert to Markdown3. KAZANTSEV informed the Oficina de la Conision Econonica para la America Latina (CEPAL) on 13 September that the Ambassador would be unable to attend the reception that day, but that GOUINASOV would come in his place.
+3. KAZANTSEV informed the Oficina de la Conision Econonica para la America Latina (CEPAL) on 13 September that the Ambassador would be unable to attend the reception that day, but that GOUINASOV would come in his place.
 
 4. The Ambassador's request for an audience with the Mexican Foreign Minister was postponed until 11:00 a.m., Tuesday of the following week, 18 September, which is the usual reception day.
 

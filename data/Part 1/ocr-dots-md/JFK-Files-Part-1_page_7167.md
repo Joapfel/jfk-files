@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7167.png
-
-Convert to Markdown19 February 1965
+19 February 1965
 
 Subject: Contract matter/ 1304Y-5
 18 Feb 1970, Subject's office

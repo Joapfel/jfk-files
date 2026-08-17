@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25868.png
-
-Convert to Markdown"2 of 10
+"2 of 10
 
 Mémoranda for Record:
 

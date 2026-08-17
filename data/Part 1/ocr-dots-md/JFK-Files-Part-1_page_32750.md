@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32750.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26 APR 63 # S95229
 

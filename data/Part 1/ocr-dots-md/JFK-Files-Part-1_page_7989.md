@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7989.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 From: Varela
 No. of Pages: 2

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19109.png
-
-Convert to Markdown22 November 1948
+22 November 1948
 
 **From:** Paris
 **To:** [REDACTED]

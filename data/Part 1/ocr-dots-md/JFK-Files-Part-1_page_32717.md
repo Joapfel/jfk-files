@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32717.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td colspan="3">24 DECEMBER 1945. Let three persons living in the United States or territories of the United States who are NOT related to you and who have definite knowledge of your qualifications for any other office or position for which they are applying. Don't repeat names of supervisors listed under Item 16 (EXPERIENCE).</td></tr><tr><th>PAST BUSINESS OR CURRENT ADDRESS, INCLUDING STREET AND NUMBER</th><th>FULL NAME</th><th>BUSINESS OR OCCUPATION</th></tr></thead><tbody><tr><td>100 S. 47th St., Harrisburg, Pa.</td><td>Kr. Z. J. Henry</td><td>personnel Kr.</td></tr><tr><td>Crocker Bldg., San Francisco, Calif.</td><td>Leland E. McGrath</td><td>Attorney</td></tr><tr><td>Box 2014, Balboa, Canal Zone</td><td>Abner Riddle</td><td>Businessman</td></tr></tbody></table>
 

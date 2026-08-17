@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4197.png
-
-Convert to Markdown4. I reviewed the report from Mexico City station, 27 November, advising the number of Soviets in Cuba, indicating that this report which we thought was quite responsible more or less verified our own current estimates.
+4. I reviewed the report from Mexico City station, 27 November, advising the number of Soviets in Cuba, indicating that this report which we thought was quite responsible more or less verified our own current estimates.
 
 5. Reference the Oswald matter, reviewed with the President CAS Mexico City 7127 reporting on the interrogation of Alvarado. We briefly discussed the composition of the Review Board announced by the President on the 29th. Discussion of the Oswald situation was inconclusive and no action required.
 

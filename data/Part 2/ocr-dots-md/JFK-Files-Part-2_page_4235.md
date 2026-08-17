@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4235.png
-
-Convert to Markdown3. Revised January Peripheral Reconnaissance Schedule.
+3. Revised January Peripheral Reconnaissance Schedule.
 
 The JRC paper dated 8 January 1964 was approved as amended.
 No change was made in the following BOX TOP missions: Jane, Paula,

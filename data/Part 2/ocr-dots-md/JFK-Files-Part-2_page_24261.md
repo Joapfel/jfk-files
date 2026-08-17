@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24261.png
-
-Convert to Markdown727's would be used on MAC contracts to be available on an over-
+727's would be used on MAC contracts to be available on an over-
 riding basis if needed for some major national security operation.
 
 They were used, usually when they had spare time.

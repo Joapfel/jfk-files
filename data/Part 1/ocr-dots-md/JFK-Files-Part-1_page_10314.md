@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10314.png
-
-Convert to Markdown<table><tr><td>MICROFILMED</td></tr><tr><td>DEC 9 1958 2</td></tr><tr><td>DOC. MICRO. BER.</td></tr></table>
+<table><tr><td>MICROFILMED</td></tr><tr><td>DEC 9 1958 2</td></tr><tr><td>DOC. MICRO. BER.</td></tr></table>
 
 Subject: Report of Debriefing of LIRING/3.
 

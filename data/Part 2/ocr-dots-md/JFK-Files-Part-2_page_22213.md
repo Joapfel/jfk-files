@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22213.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>GENERAL LANSDALE, MCGEORGE BUNDY</td><td>4 Sept 1962</td><td>MONGODB (Phase II)</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>GENERAL LANSDALE, MCGEORGE BUNDY</td><td>4 Sept 1962</td><td>MONGODB (Phase II)</td></tr></tbody></table>
 
 OCCURRENCE:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29230.png
-
-Convert to Markdown6/6/63 A. Hi Selle
+6/6/63 A. Hi Selle
 social security # 433-54-3937
 Lee Harney Donald
 

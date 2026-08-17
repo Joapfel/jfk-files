@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17478.png
-
-Convert to MarkdownOBAC (BLACK UNITED FESTIVAL,
+OBAC (BLACK UNITED FESTIVAL,
 AUGUST 16, 1969, DIXMOOR, ILLINOIS)
 
 The source advised that OBAC has obtained

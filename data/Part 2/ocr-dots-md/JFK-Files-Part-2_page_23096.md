@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23096.png
-
-Convert to MarkdownAnte el fracaso, la RCA elabora un -- nuevo plan contra el Primer Ministro, esta vez en el stadium Latinoamericano el 7 de abril de 1963. En el mismo participarían 16 hombres armados de pistolas y granadas de fragmentación.
+Ante el fracaso, la RCA elabora un -- nuevo plan contra el Primer Ministro, esta vez en el stadium Latinoamericano el 7 de abril de 1963. En el mismo participarían 16 hombres armados de pistolas y granadas de fragmentación.
 
 Entre los principales encartados se-- encontraban Enrique Rodríguez Valdés-- conocido por "Mulgado", Ricardo López-Cabrera, Onorio Torres Perdomo y Jorge Carlos Espinosa Escarles.
 

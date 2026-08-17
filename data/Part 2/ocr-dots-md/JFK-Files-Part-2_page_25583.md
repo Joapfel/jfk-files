@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25583.png
-
-Convert to Markdown# United States Senate
+# United States Senate
 COMMITTEE ON
 INTELLIGENCE AND INDOOR AFFAIRS
 WASHINGTON, D.C. 20516

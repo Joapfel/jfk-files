@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21591.png
-
-Convert to MarkdownSECRET
+SECRET
 
 select NOSENKO as the individual who would be dispatched to counter-
 act the possible damage, and appropriately brief NOSENKO prior to

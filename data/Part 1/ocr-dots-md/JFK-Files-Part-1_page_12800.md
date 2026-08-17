@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12800.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CABLE DEC'D BY PB/78 FOR S.P.1, TTY COPY 18-3</td></tr><tr><td>PERSON/UNIT NOTIFIED</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5122.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>00-0000</td></tr><tr><td>SIGNAL CENTER USE ONLY</td></tr><tr><td>AED</td><td>CCH</td><td>SCP</td><td>104</td><td>IPE</td><td>BDO</td><td>CLV</td></tr><tr><td>CMF</td><td>N</td><td>O</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr></table>
 

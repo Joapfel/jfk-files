@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15093.png
-
-Convert to Markdown# FBI FOREIGN LAISON OPERATIONS
+# FBI FOREIGN LAISON OPERATIONS
 
 In the U.S., maintains liaison posts abroad in many countries. These offices function as a liaison post and serve as an office for consultation with criminal and security matters involving the Bureau's domestic responsibilities. In addition, the Bureau belongs to one international security committee and corresponds with police agencies all over the world except in countries controlled by the communists. In addition to its activities of its representatives abroad the Bureau exchanges certain types of information with other government agencies to have investigations conducted in those countries to obtain intelligence agencies in many of the foreign countries on a regular basis.
 

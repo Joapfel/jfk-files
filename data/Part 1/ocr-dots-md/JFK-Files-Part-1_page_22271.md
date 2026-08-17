@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22271.png
-
-Convert to Markdown678.
+678.
 
 D. Examination of NOSENKO'S Intelligence Career
 

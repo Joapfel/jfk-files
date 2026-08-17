@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20744.png
-
-Convert to Markdown1 - Mr. R. L. Shackelford (FS)
+1 - Mr. R. L. Shackelford (FS)
 1 - Mr. G. J. Lex, Jr.
 
 SAC, Philadelphia (100-53818)

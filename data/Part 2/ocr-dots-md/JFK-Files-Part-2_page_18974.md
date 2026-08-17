@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18974.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 Since the interview of 3/27/69, JAFFE has telephonically furnished some general information regarding his current contacts with Soviet and Satellite nationals and his unsuccessful efforts to recontact SEDOV.
 

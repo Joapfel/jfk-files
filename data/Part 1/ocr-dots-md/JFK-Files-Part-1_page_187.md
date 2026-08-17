@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_187.png
-
-Convert to Markdown20. Carnegie Endowment for International Peace - Manhattan, New York (35) 08
+20. Carnegie Endowment for International Peace - Manhattan, New York (35) 08
 
 Used on a negotiated basis in 1956 to provide an os-
 tensible grant to [CAZAR] for residence in [Germany]. Actual

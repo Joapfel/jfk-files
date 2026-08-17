@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4341.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 on behalf of the [BPP]. A survey of this telephone number for the period from October 6, 1969, through October 28, 1969, disclosed over 150 long distance telephone calls ranging from New York to the West Coast.
 

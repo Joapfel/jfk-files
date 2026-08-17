@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34840.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG.</td><td>N. GRATZ</td></tr><tr><td>UNIT.</td><td>WH/COG/SA</td></tr><tr><td>SER.</td><td>4163</td></tr><tr><td>DATE:</td><td>30 JULY 1968</td></tr></table>
 

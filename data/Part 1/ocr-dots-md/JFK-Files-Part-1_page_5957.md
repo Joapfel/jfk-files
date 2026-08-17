@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5957.png
-
-Convert to MarkdownSUSAN HEILICMAN FRANK, 201.191098 (Vol. 1 of 4)
+SUSAN HEILICMAN FRANK, 201.191098 (Vol. 1 of 4)
 3rd Agency Documents
 
 ① Bureau File 100-339235

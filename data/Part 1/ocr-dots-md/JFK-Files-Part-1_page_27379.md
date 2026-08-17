@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27379.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13 OCT 1958
 

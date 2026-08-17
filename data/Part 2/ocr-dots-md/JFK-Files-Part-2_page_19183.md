@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19183.png
-
-Convert to MarkdownBRIGADE FORMED TO CONFRONT CONGRESS
+BRIGADE FORMED TO CONFRONT CONGRESS
 
 Helena, Montana
 

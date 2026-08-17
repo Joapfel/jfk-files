@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9133.png
-
-Convert to MarkdownThe following are some of the activities (generally limited to) that have been engaged in by members of the Department:
+The following are some of the activities (generally limited to) that have been engaged in by members of the Department:
 
 The University of Maryland, which is located in Baltimore, has a graduate school of dentistry.
 

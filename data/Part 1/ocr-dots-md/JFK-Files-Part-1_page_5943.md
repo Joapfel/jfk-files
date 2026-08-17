@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5943.png
-
-Convert to MarkdownWatch Officer was also asked to immediately phone the Wiesbaden Com-
+Watch Officer was also asked to immediately phone the Wiesbaden Com-
 municator who in turn would contact TOCHENSKY and both of them would
 go to their office.
 

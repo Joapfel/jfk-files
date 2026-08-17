@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8988.png
-
-Convert to MarkdownAmistad o contacto con un tal Carol J. Soles.- Detalles, americano residente en Corpus Christy, Texas, dueño de un Fiat 62, pacas 63 Texas KU-94-95, Silvia estaba con Soles en este coche en el mes de enero 1963 y se cree que tuvieron relaciones íntimas.
+Amistad o contacto con un tal Carol J. Soles.- Detalles, americano residente en Corpus Christy, Texas, dueño de un Fiat 62, pacas 63 Texas KU-94-95, Silvia estaba con Soles en este coche en el mes de enero 1963 y se cree que tuvieron relaciones íntimas.
 
 Amistad o contactos con un tal Tomas L. Ross - prueba - nombre supuesto.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3427.png
-
-Convert to Markdown2
+2
 
 4. A-1 wanted five metascopes for the next operation. Since those aboard the MV. SANTA MARIA will not arrive in time, Dick will get more and give them to Mike GEIDEL who in turn will deliver them to ANYUM-19.
 

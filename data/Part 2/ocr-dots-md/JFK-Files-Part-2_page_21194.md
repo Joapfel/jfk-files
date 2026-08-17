@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21194.png
-
-Convert to Markdown~~15.~~
+~~15.~~
 
 [ROBERT BARRETT](s)
 

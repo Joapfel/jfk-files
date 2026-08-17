@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26085.png
-
-Convert to Markdown-115-
+-115-
 
 minister and some of the others, and invited me to look at their defense system in Israel. I was quite enthusiastic about going and had everything arranged and was to leave on a Saturday, when about on a Wednesday or Thursday, I was asked to go to Vietnam with the other mission and stuff, and unfortunately, had to cancel out everything and never got into see what I wanted to see there.
 

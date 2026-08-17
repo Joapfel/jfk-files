@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15853.png
-
-Convert to Markdown<table><thead><tr><th colspan="4" style="text-align:center;">CLASSIFIED MESSAGE</th></tr><tr><td colspan="2">D. NIESCTUR<br>AF/W/2<br>8284<br>19 December 1960</td><td colspan="2">S-E-C-R-E-T</td></tr></thead><tbody><tr><td>UNIT<br>EXT<br>DATE:</td><td colspan="3">536</td></tr><tr><td>TO</td><td colspan="3">LEOPOLYLLA</td></tr><tr><td>FROM:</td><td colspan="3">DIRECTOR</td></tr><tr><td>CONF:</td><td colspan="3">(C/AF 3)</td></tr><tr><td>INFO:</td><td colspan="3">COP, C/C1, C/F1 2, S/C</td></tr><tr><td colspan="4" style="text-align:right; font-weight:bold;">OUT54652</td></tr><tr><td>CITE DIR</td><td colspan="3">17181</td></tr><tr><td></td><td colspan="3"></td></tr><tr><td>PER GEM 42-43</td><td colspan="3"></td></tr></tbody></table>
+<table><thead><tr><th colspan="4" style="text-align:center;">CLASSIFIED MESSAGE</th></tr><tr><td colspan="2">D. NIESCTUR<br>AF/W/2<br>8284<br>19 December 1960</td><td colspan="2">S-E-C-R-E-T</td></tr></thead><tbody><tr><td>UNIT<br>EXT<br>DATE:</td><td colspan="3">536</td></tr><tr><td>TO</td><td colspan="3">LEOPOLYLLA</td></tr><tr><td>FROM:</td><td colspan="3">DIRECTOR</td></tr><tr><td>CONF:</td><td colspan="3">(C/AF 3)</td></tr><tr><td>INFO:</td><td colspan="3">COP, C/C1, C/F1 2, S/C</td></tr><tr><td colspan="4" style="text-align:right; font-weight:bold;">OUT54652</td></tr><tr><td>CITE DIR</td><td colspan="3">17181</td></tr><tr><td></td><td colspan="3"></td></tr><tr><td>PER GEM 42-43</td><td colspan="3"></td></tr></tbody></table>
 
 RE: LEOP 0478 (IN 18739)*
 

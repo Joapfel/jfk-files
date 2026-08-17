@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8785.png
-
-Convert to MarkdownAMTRUNK Operation
+AMTRUNK Operation
 
 19-6-84/1-4
 

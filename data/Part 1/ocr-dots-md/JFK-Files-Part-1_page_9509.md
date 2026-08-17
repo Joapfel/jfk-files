@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_9509.png
-
 s. At this date one of the juniors is on duty in Berlin, three others are ready to depart this week; the two senior consultants are expected to be in Berlin during this month.
 
 (d) Approval of initial propaganda operations, involving mailing of approximately 100,000 pieces to East Germany, was cabled.

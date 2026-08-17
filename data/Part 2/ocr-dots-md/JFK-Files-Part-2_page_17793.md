@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17793.png
-
-Convert to MarkdownMrs. Jeanne W. Davis
+Mrs. Jeanne W. Davis
 Staff Secretary
 National Security Council
 

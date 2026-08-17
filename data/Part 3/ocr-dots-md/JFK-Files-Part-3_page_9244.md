@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9244.png
-
-Convert to MarkdownA. To determine communist influence of that organization.
+A. To determine communist influence of that organization.
 
 Q. What is your recollection of the Bureau's efforts to influence any political campaign.
 

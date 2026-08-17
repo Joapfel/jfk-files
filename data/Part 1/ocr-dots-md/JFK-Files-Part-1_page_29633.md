@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29633.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="4">CERTIFICATION OF OFFICER CHIEF, CONTROL DIVISION</th><th>DATE<br/>17 FEB 71</th></tr></thead><tbody><tr><td rowspan="2">TO:<br/>(Check)</td><td>X</td><td>CHIEF, CONTROL DIVISION</td><td>FILE NUMBER<br/>11814</td><td></td></tr><tr><td></td><td>CHIEF, CONTRACT PERSONNEL DIVISION</td><td>EMPLOYEE NUMBER<br/>035055</td><td></td></tr><tr><td></td><td>X</td><td>CHIEF, OPERATING COMPONENT (For action)</td><td>ID CARD NUMBER<br/>Air Force 8995</td><td></td></tr><tr><td colspan="3">ATTN:<br/>NPIC/Chief Support Staff</td><td>OFFICIAL<br/>COVER</td><td>BACKSTOP ESTABLISHED</td></tr><tr><td colspan="3">REF:<br/>Form 1322 DTD FEB 71</td><td></td><td>X DISCONTINUED</td></tr><tr><td colspan="3">SUBJECT<br/>MAKSYMIEC, Myroslaw A.</td><td>UNIT</td><td>Logistical Support Grp. Prov.</td></tr></tbody></table>
 

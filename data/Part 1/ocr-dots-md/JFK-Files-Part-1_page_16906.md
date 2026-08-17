@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16906.png
-
-Convert to Markdown21 October, 1969 (Tuesday)
+21 October, 1969 (Tuesday)
 
 To: Gerome
 From: LILYMIC Contact Report

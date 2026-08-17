@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7583.png
-
-Convert to Markdowncame in about 1530 and ROMANCHEVKO about 1540. All watched the fight until it ended about 1550, after which the class began.
+came in about 1530 and ROMANCHEVKO about 1540. All watched the fight until it ended about 1550, after which the class began.
 
 1700-1830 -- KOVALEV and SOKOLOV.
 

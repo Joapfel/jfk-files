@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12975.png
-
-Convert to MarkdownMemorandum to Mr. Belmont
+Memorandum to Mr. Belmont
 RE: EUGENE THOMAS, ET AL
 
 OBSERVATIONS OF GENERAL INVESTIGATIVE DIVISION

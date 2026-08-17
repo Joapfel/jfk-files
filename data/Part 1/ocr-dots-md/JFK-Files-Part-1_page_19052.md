@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19052.png
-
-Convert to Markdown# Anlage 1
+# Anlage 1
 
 ## Stellenbesetzung des Bundesparteivorstandes der NPD
 

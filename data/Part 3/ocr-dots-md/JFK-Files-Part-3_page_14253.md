@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14253.png
-
-Convert to Markdownthe President will be informed of the Board's view that a Presidential Directive should be issued along the lines already proposed. Mr. Pace thought that the Chairman should proceed in that fashion without necessarily having to call another Board meeting on the subject.
+the President will be informed of the Board's view that a Presidential Directive should be issued along the lines already proposed. Mr. Pace thought that the Chairman should proceed in that fashion without necessarily having to call another Board meeting on the subject.
 
 The Chairman noted approval given to the proposed letters he would send to Defense, State, CIA and the DCI requesting updated coverage of matters dealt with in their annual reports to the Board on their intelligence activities.
 

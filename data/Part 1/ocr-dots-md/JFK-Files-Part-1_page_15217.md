@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15217.png
-
-Convert to Markdown⑤
+⑤
 
 To still me and I need to hear from
 and be with you as before. I am

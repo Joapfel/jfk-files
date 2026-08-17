@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1269.png
-
-Convert to Markdown<table><tr><td colspan="2">14-00000</td></tr><tr><td>104-10101-10256</td><td>2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992</td></tr></table>
+<table><tr><td colspan="2">14-00000</td></tr><tr><td>104-10101-10256</td><td>2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992</td></tr></table>
 
 <table><tbody><tr><td>LIVE ROOM ASK BODG</td></tr><tr><td>BUDG CARA CULT LDM</td></tr><tr><td>MMA MOIT PRIU QUTT</td></tr><tr><td>RJGD 3400 SJOS SDOM</td></tr><tr><td>TCUD NELI LAPA BALV</td></tr><tr><td>FACY DATA GORG RBCI</td></tr><tr><td>WAVE KOJA OTTA</td></tr></tbody></table>
 

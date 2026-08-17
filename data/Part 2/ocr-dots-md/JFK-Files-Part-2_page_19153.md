@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19153.png
-
-Convert to MarkdownChairman:
+Chairman:
 Jeannette Rankin
 
 Executive Secretary:

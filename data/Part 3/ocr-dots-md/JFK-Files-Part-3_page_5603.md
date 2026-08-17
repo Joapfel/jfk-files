@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5603.png
-
-Convert to Markdown63-64-037-1-1
+63-64-037-1-1
 63-73-022-1-1
 
 9. Photostat of several thousand checks from various KLAN UNITS, payable to SHELTON or ALABAMA RESCUE SERVICE, were secured from the House Un-America Activities Committee file. I found only one of these checks which was not endorsed "For deposit only" to ALABAMA RESCUE SERVICE account in Tuscaloosa. A check dated 3/28/63 payable to ROBERT N. SHELTON, in amount of $50.00, on the account of WHITE PATRIOTS, P. O. Box 7094, Montgomery, Alabama, was endorsed by SHELTON and THE AUTO-KITE STORE in Tuscaloosa. The amount was entered in receipts on the KLAN books as a donation from WHITE PATRIOTS of Montgomery. SHELTON stated that the $50.00 was for four repairs on his automobile which was used for KLAN business.

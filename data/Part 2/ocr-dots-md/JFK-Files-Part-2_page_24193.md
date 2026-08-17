@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24193.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TAB D
 

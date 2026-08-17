@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22993.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. into these various timeframes. When you talk about, was there
 2. ever a discussion of assassination, you know, when people

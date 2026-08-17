@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3786.png
-
-Convert to MarkdownMiami, 23 May 1967
+Miami, 23 May 1967
 
 Dear Jim:
 

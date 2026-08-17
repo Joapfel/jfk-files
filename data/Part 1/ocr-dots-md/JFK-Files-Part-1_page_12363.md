@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12363.png
-
-Convert to Markdown<table><thead><tr><th>SECRET</th></tr></thead><tbody><tr><td>ACTION NO.</td></tr><tr><td>REF:</td></tr><tr><td>1. ACTION REQUESTED REF TAKEN WITH LNYUMA 20 FEBRUARY 1973.<br>FILZ: 201-300985. E2, IMPDET.</td></tr><tr><td>SECRET</td></tr></tbody></table>
+<table><thead><tr><th>SECRET</th></tr></thead><tbody><tr><td>ACTION NO.</td></tr><tr><td>REF:</td></tr><tr><td>1. ACTION REQUESTED REF TAKEN WITH LNYUMA 20 FEBRUARY 1973.<br>FILZ: 201-300985. E2, IMPDET.</td></tr><tr><td>SECRET</td></tr></tbody></table>
 
 CS COPY
 SECRET

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7105.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ATTACHMENT TO INNIA - 28808
 DATED 28 APRIL 1966

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6111.png
-
-Convert to Markdowninsure that all developments of this type occurring within his territory are promptly reported to his office and upon receipt thereof furnished to the Bureau by whatever form of communication is warranted under the circumstances.
+insure that all developments of this type occurring within his territory are promptly reported to his office and upon receipt thereof furnished to the Bureau by whatever form of communication is warranted under the circumstances.
 
 b. Since the Bureau does not have investigative jurisdiction in general racial matters, no open investigation is to be conducted concerning general racial matters as such.
 

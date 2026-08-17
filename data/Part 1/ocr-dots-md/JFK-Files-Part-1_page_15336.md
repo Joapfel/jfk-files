@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15336.png
-
-Convert to MarkdownBut he, probably, has not thought of how dangerous it was for him to re-register two times in Paris under his right name for re-employment in Germany after he had abandoned there two working places. nor has he thought how dangerous it was for him to visit his parents or those occasions in Paris, at the addresses on which he might have been wanted, while these addresses, probably, were registered as his home addresses when he applied for work in Germany.
+But he, probably, has not thought of how dangerous it was for him to re-register two times in Paris under his right name for re-employment in Germany after he had abandoned there two working places. nor has he thought how dangerous it was for him to visit his parents or those occasions in Paris, at the addresses on which he might have been wanted, while these addresses, probably, were registered as his home addresses when he applied for work in Germany.
 
 c/ David has shown during the debriefing broad knowledge of different advanced techniques and tactics of clandestine work, which he claims having used. If believing his story, then the question arises: where could he have learned all this knowledge at that early time, before 1944?
 

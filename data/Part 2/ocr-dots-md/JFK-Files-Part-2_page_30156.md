@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30156.png
-
-Convert to MarkdownREEVES, FLOYD LEROY
+REEVES, FLOYD LEROY
 
 3540 N. Campcreek Pkwy., S.W, #C-7
 Atlanta, Georgia 30331

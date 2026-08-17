@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7742.png
-
-Convert to Markdown9.05.05 A steady drinker who holds his liquor very well. He always remains quite dignified and usually maintains his poise even though others are becoming quite drunk or tight. He still remains part of the crowd, however—that is, he gives few signs of being disgusted or bored.
+9.05.05 A steady drinker who holds his liquor very well. He always remains quite dignified and usually maintains his poise even though others are becoming quite drunk or tight. He still remains part of the crowd, however—that is, he gives few signs of being disgusted or bored.
 
 9.05.06 A light drinker who paces his drinks. He seems to drink only because it is socially necessary. As a party progresses he tends to become aloof and distant. Is likely to continue to talk about his work even when it is inappropriate.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8686.png
-
-Convert to Markdown13-00000
+13-00000
 
 agent. One Eugenio Rolando MARTINEZ Careaga was
 a Miami Station agent involved in the Watergate

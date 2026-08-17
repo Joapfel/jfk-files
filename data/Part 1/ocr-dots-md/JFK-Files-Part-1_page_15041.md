@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15041.png
-
-Convert to MarkdownBUNDESAMT FÜR VERFASSUNGSSCHUTZ
+BUNDESAMT FÜR VERFASSUNGSSCHUTZ
 
 Gesch. Z.: IV A 4 - 112-P-50580-
 

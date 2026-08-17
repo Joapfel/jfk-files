@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30211.png
-
-Convert to MarkdownAdmiral Stansfield Turner OCR
+Admiral Stansfield Turner OCR
 
 Page six
 

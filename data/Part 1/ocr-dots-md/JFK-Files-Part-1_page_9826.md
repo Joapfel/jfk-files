@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9826.png
-
-Convert to Markdown19 February, 1960
+19 February, 1960
 
 Subject: LIVING/4 Report of Conversation with Echemendia ( Ismail Suarez de la Paz).
 

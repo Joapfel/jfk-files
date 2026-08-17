@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20192.png
-
-Convert to MarkdownJACQUES GABRIEL RICHARDSON
+JACQUES GABRIEL RICHARDSON
 
 17. MILITARY TRAINING (continued)
 

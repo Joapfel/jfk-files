@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32151.png
-
-Convert to MarkdownDate : 07/23/96
+Date : 07/23/96
 
 Page : 1
 

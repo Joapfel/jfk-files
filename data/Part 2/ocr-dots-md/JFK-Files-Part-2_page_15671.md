@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15671.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 Meek stated that everyone should be armed and that when their door is broken down, people can and should defend themselves. He concluded saying that the "pigs" are out to get everyone.
 

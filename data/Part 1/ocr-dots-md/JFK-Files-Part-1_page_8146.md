@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8146.png
-
-Convert to MarkdownEXCELSIOR
+EXCELSIOR
 
 15A
 

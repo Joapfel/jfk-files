@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10087.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>SECTION VI</td>

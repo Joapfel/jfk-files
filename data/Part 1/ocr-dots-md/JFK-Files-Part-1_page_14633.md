@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14633.png
-
-Convert to MarkdownB-2-C-R-B-T
+B-2-C-R-B-T
 
 CO-3(L) 322/05021-64
 

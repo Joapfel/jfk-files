@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31075.png
-
-Convert to Markdown<table><tr><td>Executive Agency</td></tr><tr><td>67-1516</td></tr></table>
+<table><tr><td>Executive Agency</td></tr><tr><td>67-1516</td></tr></table>
 
 South African Police Headquarters,
 Private Bag 94,

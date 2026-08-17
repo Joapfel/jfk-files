@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31541.png
-
-Convert to MarkdownNow as to the questions you raise in your letter of November 24th. The National Committee for a Free Europe should certainly look after these people when they arrive and while they are here except insofar as they are directed by you to take up certain activities on behalf of the Crusade. The National Committee should also cooperate in trying to help you in your effort to find jobs for them when their tour is over, and I am sure the people there will do their best. I am sending a copy of this note to Whitney and I know that he will cooperate to the fullest.
+Now as to the questions you raise in your letter of November 24th. The National Committee for a Free Europe should certainly look after these people when they arrive and while they are here except insofar as they are directed by you to take up certain activities on behalf of the Crusade. The National Committee should also cooperate in trying to help you in your effort to find jobs for them when their tour is over, and I am sure the people there will do their best. I am sending a copy of this note to Whitney and I know that he will cooperate to the fullest.
 
 As to your second question, I think the expenses of all seven ought to be paid for out of Crusade funds. They are over here on behalf of the Crusade and you are the one who asked them to come.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15895.png
-
-Convert to MarkdownIch hörte schließlich auch noch westliche Sonder, um mich zu orientieren. Kino feindliche Einstellung zum Kommunismus wurde immer stärker und es wurde für mich inner schwieriger, mich mit meinen Redensarten zu kontrollieren und diesen Gefühlen nicht offen Ausdruck zu verleihen.
+Ich hörte schließlich auch noch westliche Sonder, um mich zu orientieren. Kino feindliche Einstellung zum Kommunismus wurde immer stärker und es wurde für mich inner schwieriger, mich mit meinen Redensarten zu kontrollieren und diesen Gefühlen nicht offen Ausdruck zu verleihen.
 
 In Juni 1962 kam schließlich der Sicherheitsdienst zu ir an meinen Arbeitsplätze. In der anschließenden Vernehmung wurde ich beschuldigt, ein langjähriges Mitglied einer georgischen Forderstandsgruppe zu sein und regierungsoffensive Außerungen getan zu haben. Obwohl ich solche Außerungen bei verschiedenen Uelegenheiten gemacht hatte und deshalb schuldig in Sinne des letzteren Trile der Anschuldigungen war, konnte ich fuhlen, daß der Sicherheitsdienst nicht genügend Informationen bessat. Ich verneinte deshalb alle Anschuldigungen.
 

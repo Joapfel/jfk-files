@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21124.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Significant inaccuracies were detected in the CIA paper regarding the [KEYZERS, MORONE] and ABIDIAN cases. Contrary to statements in the paper, [KEYZERS] was not interviewed about homosexual activities before he left Moscow; [MORONE] did have contact with a girl at American House posing as a West German journalist; the Soviet maid TATYANA FEDOROVICH did have access to ABIDIAN's living quarters within six months after his arrival in Moscow.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17314.png
-
-Convert to Markdown: Chief of Station, Mexico City
+: Chief of Station, Mexico City
 
 X
 : Chief of Station, Guatemala City

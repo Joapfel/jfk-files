@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23156.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Wallach. Did somebody tell you that the FBI had primary jurisdiction?
 

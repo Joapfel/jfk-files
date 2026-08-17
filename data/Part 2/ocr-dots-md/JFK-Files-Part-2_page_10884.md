@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10884.png
-
-Convert to MarkdownSACs must be alert in recommending SAC contacts that they are not proposing individuals who because of business connections or personal activities or close association with other persons will be involved in unfavorable publicity or become the subject of adverse investigative activity, or who will capitalize on their friendly association with the SAC.
+SACs must be alert in recommending SAC contacts that they are not proposing individuals who because of business connections or personal activities or close association with other persons will be involved in unfavorable publicity or become the subject of adverse investigative activity, or who will capitalize on their friendly association with the SAC.
 
 4. Except where a suitable file is already in existence, a dead file in classification 80 is to be opened on each contact.
 

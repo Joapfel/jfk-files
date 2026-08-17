@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1510.png
-
-Convert to MarkdownU.S. GOVERNMENT OFFICE 104-0775-482
+U.S. GOVERNMENT OFFICE 104-0775-482
 
 # Memorandum
 

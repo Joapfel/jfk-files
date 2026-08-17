@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4482.png
-
-Convert to MarkdownIN 71454
+IN 71454
 
 CONFIDENTIAL
 

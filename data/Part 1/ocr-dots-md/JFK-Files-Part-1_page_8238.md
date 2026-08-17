@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8238.png
-
-Convert to MarkdownICAP Corporation is an in- ternational consulting and financial organization, spe- cializing in the developing countries, which offers three principal services to its clients:
+ICAP Corporation is an in- ternational consulting and financial organization, spe- cializing in the developing countries, which offers three principal services to its clients:
 
 ■ Financial and industrial studies, particularly feasibility reports and market research
 

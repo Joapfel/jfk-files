@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29747.png
-
-Convert to MarkdownClassification: TOP SECRET
+Classification: TOP SECRET
 
 1059/ Cable from Mexico City to the Director, 7/5/67, MEXI 1991; Wx7241, Entry 627, p. 119, CIA #746.
 

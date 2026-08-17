@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9024.png
-
-Convert to Markdowni. Civic Action MTIs were sent to Guatemala, Bolivia, Colombia, El Salvador, Jamaica and Ecuador.
+i. Civic Action MTIs were sent to Guatemala, Bolivia, Colombia, El Salvador, Jamaica and Ecuador.
 
 6. Exchange of Intelligence in Cuban Subversion
 

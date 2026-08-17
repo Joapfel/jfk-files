@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9986.png
-
-Convert to Markdown5 August,1967
+5 August,1967
 
 Subject: Analysis of LIFETT Traffic Relating to LIRING/3 Operation. For the Period 29 June to 1 August, 1967.
 

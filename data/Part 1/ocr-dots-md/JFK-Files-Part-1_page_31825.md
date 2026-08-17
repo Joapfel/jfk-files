@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31825.png
-
-Convert to MarkdownEVE ONLY
+EVE ONLY
 SECRET
 
 8 JUL 1965

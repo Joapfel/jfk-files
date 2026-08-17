@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13811.png
-
-Convert to Markdownintelligence agencies with respect to narcotics
+intelligence agencies with respect to narcotics
 intelligence?
 
 5. What standards and procedures has the Attorney General adopted for:

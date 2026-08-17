@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22005.png
-
-Convert to MarkdownDuring this period I was the agent handler for agents 'SHMELEV', 'GRIGORIY', 'PROKHOR', 'ARTUR' and 'SARDAR'.*
+During this period I was the agent handler for agents 'SHMELEV', 'GRIGORIY', 'PROKHOR', 'ARTUR' and 'SARDAR'.*
 
 "Throughout this entire period I sat in room 618 of KGB Headquarters at House Number 2, Dzhershinsky Square, Moscow. GRYAZNOV and KOSOLAPOV shared this office with me throughout most of this period."
 

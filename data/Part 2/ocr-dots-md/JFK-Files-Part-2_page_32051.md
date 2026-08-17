@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32051.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 USAPSG (23 May 67)
 

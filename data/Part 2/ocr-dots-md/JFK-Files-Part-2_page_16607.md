@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16607.png
-
-Convert to Markdown# BACKGROUND INFORMATION
+# BACKGROUND INFORMATION
 
 The following account of the Cook County State's Attorney's raid upon the Black Panther Party (BPP) apartment at 2337 West Monroe Street, Chicago, Illinois, on December 4, 1969, is summarized from news media reports:
 

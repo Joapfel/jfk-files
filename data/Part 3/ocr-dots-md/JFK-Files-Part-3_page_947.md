@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_947.png
-
-Convert to MarkdownI. THE PROBLEM:
+I. THE PROBLEM:
 
 What should be the relationship between the Federal Bureau of Investigation and the other Departments and Agencies of the Federal Government? To what extent should the Federal Bureau of Investigation keep tabs on other Departments and Agencies through the development of sources and informants in those Agencies?
 

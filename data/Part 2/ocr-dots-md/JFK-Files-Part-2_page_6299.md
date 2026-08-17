@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6299.png
-
-Convert to Markdown# SUMMARY
+# SUMMARY
 
 --We hope that the Board has found this discussion of the sequestered documents useful.
 

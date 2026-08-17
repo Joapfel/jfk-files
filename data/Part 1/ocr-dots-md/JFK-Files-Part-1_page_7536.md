@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7536.png
-
-Convert to Markdown25 June 1951
+25 June 1951
 
 MEMORANDUM FOR: PT/CS
 

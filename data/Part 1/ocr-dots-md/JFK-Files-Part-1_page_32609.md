@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32609.png
-
-Convert to Markdown# Personnel Action in limit of S-52.
+# Personnel Action in limit of S-52.
 Change of Service Designation from D to DI.
 
 Effective date: 17 June 1955

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33811.png
-
-Convert to Markdownexiles, through their loosely organized Councils or Committees, to
+exiles, through their loosely organized Councils or Committees, to
 wholly develop, manage, and control RFE broadcasting.
 
 Since the advent of RFE was the most important development

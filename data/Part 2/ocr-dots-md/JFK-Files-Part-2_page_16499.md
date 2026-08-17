@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16499.png
-
-Convert to Markdown7 program in Lincoln Park which expels Latin families from their homes and apartments to be replaced by upper-middle-income white professionals. The pigs have come down hard on the Lords as a result of their involvement in these struggles. Cha Cha Jimenez, president of the YLO, has been arrested at least 10 times in the past few months on charges ranging from disorderly conduct to curfew violations to mob action. Lords are continually harassed on the streets by the pigs.
+7 program in Lincoln Park which expels Latin families from their homes and apartments to be replaced by upper-middle-income white professionals. The pigs have come down hard on the Lords as a result of their involvement in these struggles. Cha Cha Jimenez, president of the YLO, has been arrested at least 10 times in the past few months on charges ranging from disorderly conduct to curfew violations to mob action. Lords are continually harassed on the streets by the pigs.
 
 We occasionally hear it said that the fault lies with the individual policeman, and that he needs to be "educated". But the hatred for the police comes not as a result of the actions of the individual cop but as a response to the functions (outlined above) which the police play. Those of us who were in the park during the Convention this summer or who live in black or Spanish communities know that it doesn't matter if a cop is a PhD or a grade school dropout because once he puts on the uniform, he begins to "do his job".
 

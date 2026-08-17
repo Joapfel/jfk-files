@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32724.png
-
-Convert to MarkdownSoviet ships in the next few days in order to minimize the risk of an
+Soviet ships in the next few days in order to minimize the risk of an
 outward incident." He expressed the further hope that such cooperation
 could be the prelude to a quick agreement in principle on the basis of
 which the quarantine measures could be called off as soon as possible.

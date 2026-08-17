@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17954.png
-
-Convert to MarkdownTELETYPE UNIT
+TELETYPE UNIT
 
 RECEIVED
 Mar.25 7 PM 175

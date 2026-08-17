@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22389.png
-
-Convert to MarkdownEarly June 1965 (Reported to CIA by the KGB c. 20 September 1965)
+Early June 1965 (Reported to CIA by the KGB c. 20 September 1965)
 
 Major General BANNIKOV is currently temporary Chief of the Second Chief Directorate, having replaced GRIBANOV who was expelled from the KGB because he supported NOSENKO in his career.* GRIBANOV is working in a small city outside Moscow as the chief of security at an important military plant and is now a "nothing."
 

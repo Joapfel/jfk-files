@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12225.png
-
-Convert to Markdowndocument in the pertinent informant file and is not to be serialized. If a particular section of this form is not applicable, such should be noted thereon. If it later becomes applicable, the serial number can be noted at that time.
+document in the pertinent informant file and is not to be serialized. If a particular section of this form is not applicable, such should be noted thereon. If it later becomes applicable, the serial number can be noted at that time.
 
 12. Bulky material submitted by informant Where informant or source submits bulky material other than a statement and same pertains to a specific investigative matter, bulky material may be filed in the investigative case file, together with a copy of executed form FD-306 or a channelizing memorandum containing all applicable items set forth on form FD-306. In such a case, the original form FD-306 or channelizing memorandum should be filed in the subfile of the informant or source and the file and serial number where the bulky material is located should be noted thereon.
 

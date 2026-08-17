@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8174.png
-
-Convert to MarkdownAPPEALS REVIEW FORM
+APPEALS REVIEW FORM
 
 Tab A-69 contains DISPATCH H HMNA-34688 dated 20 May 1968.
 

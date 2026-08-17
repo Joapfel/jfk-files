@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1921.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SEC. 3... In...
 INTEROFFICE MEMORANDUM

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32397.png
-
-Convert to Markdown<table><tr><td>CONFIDENTIAL</td></tr></table>
+<table><tr><td>CONFIDENTIAL</td></tr></table>
 
 DEPARTMENT OF THE AIR FORCE
 STAFF MESSAGE DIVISION

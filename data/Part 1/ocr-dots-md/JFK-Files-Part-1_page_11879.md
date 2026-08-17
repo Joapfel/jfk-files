@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11879.png
-
-Convert to MarkdownSECRET
+SECRET
 
 610a USE PREVIOUS
 EDITIONS

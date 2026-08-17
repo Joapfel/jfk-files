@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24456.png
-
-Convert to Markdown4. With OBSON out of the way, VERGES and his supporters were hoping to resume publication of the English edition.. OBSON also seemed determined to carry on and it has been reported that as early as June 1964 he was acquiring into the possibility of publishing an English version in the Netherlands.
+4. With OBSON out of the way, VERGES and his supporters were hoping to resume publication of the English edition.. OBSON also seemed determined to carry on and it has been reported that as early as June 1964 he was acquiring into the possibility of publishing an English version in the Netherlands.
 
 5. The only other charge of significance which has occurred during 1964 has been the resignation from the Editorial Board of Hamza ALAVI who objected to the publication's pro-Chinese attitude. Issue No. 11 of "Africa, Latin America, Asia Revolution" shows that he was replaced by another Pakistani, the 78 year old Maulana Abul Hanif Khan SHASHANT. SHASHANT, who lives in East Pakistan, is the leader of the National Awami Party.
 

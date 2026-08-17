@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13485.png
-
-Convert to MarkdownCompartmented
+Compartmented
 Clearance
 Designated Briefed
 

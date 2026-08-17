@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6361.png
-
-Convert to Markdown**Issues:**
+**Issues:**
 
 Non-related (36,000+ pages) and OP (10,000 pages) material in microfilm collection
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34208.png
-
-Convert to Markdownparing the cotting for the "discovery" of Cuernavaca's corpse: it will be said that asthma killed him, or the imperialists, or the head-hunteres of South America.
+paring the cotting for the "discovery" of Cuernavaca's corpse: it will be said that asthma killed him, or the imperialists, or the head-hunteres of South America.
 
 "The Second Chapter of Marcus Rodriguez' Trial." In his statements to American journalists, Carlos Rafael Rodriguez has dug out the issue of the trial against an informor, which trial was recorded as one against the "Old Guard". This trial has something more to it: the "dossier" on Joaquín Orozqui, which Fidel keeps hidden in his sleeve in order to produce it whenever it may suit his purposes. Perhaps Rafael has definterred this issue to signify that internal rifts are more acute than ever before.
 

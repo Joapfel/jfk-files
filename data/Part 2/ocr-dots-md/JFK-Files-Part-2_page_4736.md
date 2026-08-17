@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4736.png
-
-Convert to MarkdownSECRET
+SECRET
 
 wasn't witting there under oath, in the first place. And when I got under
 oath, yeah I told them the truth. They didn't like to hear it. I got into a

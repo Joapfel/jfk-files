@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14609.png
-
-Convert to MarkdownMemo Donahoe to Belmont
+Memo Donahoe to Belmont
 Re: INTELLIGENCE COVERAGE OF FRIENDLY FOREIGN COUNTRIES (SEMIANNUAL EVALUATION)
 
 3. With respect to the third category, we have specific State Department clearance to develop live sources in the establishments in the United States of the countries listed below. The actual sources developed to date and the potential sources currently under investigation with respect to each target country are noted under appropriate headings.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12379.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPY</td><td>Routing and initials been by</td></tr></thead><tbody><tr><td>PURSUANT TO NOTIFIED</td><td colspan="3"></td></tr><tr><td>ADVANCE COPY ☑</td><td>☑ ISSUED</td><td>☐ SLOTTED</td><td></td></tr><tr><td>BY D. AT 2046 ☐</td><td></td><td></td><td></td></tr><tr><td>DISSED BY 25 PER .</td><td></td><td></td><td></td></tr><tr><td>ACTION UNIT WH8</td><td>FILE VR 19/MAR/73</td><td colspan="2">EURO, F1, colors, c500, etc.</td></tr><tr><td>STATUS</td><td></td><td></td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12758.png
-
-Convert to MarkdownCommunist Party members, review of field office files, pretext interviews, surveillances, Special Agents attending mass meetings, etc.
+Communist Party members, review of field office files, pretext interviews, surveillances, Special Agents attending mass meetings, etc.
 
 4. Internal Security Act of 1950
 

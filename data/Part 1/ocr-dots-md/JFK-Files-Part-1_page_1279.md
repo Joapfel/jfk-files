@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1279.png
-
-Convert to MarkdownE. These assurances will preclude any meaningful CIA action on a phased basis to provoke a revolt inside Cuba, since unless there are major changes in operational and internal conditions in Cuba, such a revolt if provoked would be totally destroyed by Cuban counteraction in a matter of hours or, at the most, a few days unless supported by a major United States Military commitment. In addition, the non-invasion assurances as a practical matter will preclude invading Cuba on the pretext of a contrived provocation such as an attack on Guantanamo.
+E. These assurances will preclude any meaningful CIA action on a phased basis to provoke a revolt inside Cuba, since unless there are major changes in operational and internal conditions in Cuba, such a revolt if provoked would be totally destroyed by Cuban counteraction in a matter of hours or, at the most, a few days unless supported by a major United States Military commitment. In addition, the non-invasion assurances as a practical matter will preclude invading Cuba on the pretext of a contrived provocation such as an attack on Guantanamo.
 
 C. CIA operations involving a high noise level and a distinct element of attributability, particularly paramilitary, guerrillas, and commando type operations will be unacceptable as a matter of policy.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35717.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 # I. ENTRY INTO DEMOCRATIC NATIONAL HEADQUARTERS
 

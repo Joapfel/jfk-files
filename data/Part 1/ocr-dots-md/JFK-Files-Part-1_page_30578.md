@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30578.png
-
-Convert to MarkdownPERSONNEL - 1947-1950
+PERSONNEL - 1947-1950
 
 This Form is to be filled in by the disbursing officer or Office Chief, with assistance from the Director of Finance and one other person selected to the Disbursing Office.
 

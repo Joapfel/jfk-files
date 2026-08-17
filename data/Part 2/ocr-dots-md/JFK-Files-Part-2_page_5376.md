@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5376.png
-
-Convert to Markdownconducted by the Review Board with regard to specific assassination records; and
+conducted by the Review Board with regard to specific assassination records; and
 
 (B) a statement, based on a review of the proceedings and in conformity with the decisions reflected therein, designating a recommended specified time at which or a specified occurrence following which the material may be appropriately disclosed to the public under this Act.
 

@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_25427.png
-
-Convert to MarkdownBook V, p. 28 "D" tells his story in Mexico City on November 25. On November 26, Mexico City cables details of "D" interrogation to CIA Headquarters. On December 1, CIA Headquarters cables Mexico City that the White House has been told that D's story is a fabrication.
+Book V, p. 28 "D" tells his story in Mexico City on November 25. On November 26, Mexico City cables details of "D" interrogation to CIA Headquarters. On December 1, CIA Headquarters cables Mexico City that the White House has been told that D's story is a fabrication.

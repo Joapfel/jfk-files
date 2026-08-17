@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32961.png
-
-Convert to Markdown<table><tr><td>ORIG: D. STANFORD/j1n</td></tr><tr><td>UNIT: VII/C/RR/OS</td></tr><tr><td>EXT: 7646</td></tr><tr><td>DATE: 24 MARCH 1966</td></tr></table>
+<table><tr><td>ORIG: D. STANFORD/j1n</td></tr><tr><td>UNIT: VII/C/RR/OS</td></tr><tr><td>EXT: 7646</td></tr><tr><td>DATE: 24 MARCH 1966</td></tr></table>
 
 [ ] INDEX
 [X] NO INDEX

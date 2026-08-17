@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12213.png
-
-Convert to MarkdownADLE SEC DSSM BY______ PER __________ TOTAL COPIES _________ RUP
+ADLE SEC DSSM BY______ PER __________ TOTAL COPIES _________ RUP
 
 PERSON/UNIT NOTIFIED _________________________________________________ S E C R E T
 

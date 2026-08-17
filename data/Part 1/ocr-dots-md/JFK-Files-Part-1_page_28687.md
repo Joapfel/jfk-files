@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28687.png
-
-Convert to Markdown14-0000
+14-0000
 
 11 November 1950
 

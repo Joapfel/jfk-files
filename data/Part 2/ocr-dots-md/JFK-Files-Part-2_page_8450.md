@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8450.png
-
-Convert to MarkdownHussein on
+Hussein on
 
 Following the disclosure that Jordan's King Hussein had for years taken secret payments from the CIA. NEWSWEEK'S Arnaud de Borchgrave flew to Amman last week for an exclusive interview with the King. The result was what Hussein called "my first and very last words" on The Washington Post's revelation of the payments and their possible impact on chances for peace in the Middle East. Some excerpts:
 

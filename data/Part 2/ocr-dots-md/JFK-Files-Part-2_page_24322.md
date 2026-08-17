@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24322.png
-
-Convert to Markdown3 February 1975
+3 February 1975
 
 MEMORANDUM FOR: Director of Central Intelligence
 

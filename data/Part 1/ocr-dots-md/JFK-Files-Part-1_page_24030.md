@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24030.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG: A. GOODRICH
 UNIT : CI/ICG

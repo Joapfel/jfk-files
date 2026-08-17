@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35667.png
-
-Convert to MarkdownPrograma Radial "El Médico y USTED"
+Programa Radial "El Médico y USTED"
 Los de Septiembre
 
 <table>

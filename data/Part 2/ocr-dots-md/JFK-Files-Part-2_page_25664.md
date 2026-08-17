@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25664.png
-
-Convert to MarkdownDONALD F. MASSEY
+DONALD F. MASSEY
 RE: LEE HARVEY OWALD
 
 December 8, 1976

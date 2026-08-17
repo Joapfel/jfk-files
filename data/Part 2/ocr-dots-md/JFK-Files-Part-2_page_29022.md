@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29022.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>SCHEDULE<br/>A</td>
     <td>CALIFORNIA</td>

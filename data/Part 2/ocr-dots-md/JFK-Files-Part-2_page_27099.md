@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27099.png
-
-Convert to MarkdownSECRET
+SECRET
 
 developing special applications for BW agents and toxins. The principal customer of its activities appears to have been the U.S. Army Special Forces. Its concern was both with the development of suitable agents and delivery mechanisms for special use in paramilitary situations. These applications clearly included one-on-one situations in which clandestine delivery was a concern. Both standard BW agents and biologically derived toxins were investigated by the Division. Discussions with former Fort Detrick employees indicates that SOD was first established as a distinct, highly secure activity within Fort Detrick in about 1948, though no records going back that far have been found. The Division was abolished in 1970 or 1971 as the Fort Detrick operation was terminated.
 

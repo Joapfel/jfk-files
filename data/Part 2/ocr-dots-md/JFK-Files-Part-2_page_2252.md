@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2252.png
-
-Convert to Markdown10 March 1947
+10 March 1947
 
 NOTE TO FILES:
 

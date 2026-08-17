@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7047.png
-
-Convert to MarkdownLegal Counsel to J. B. Adams Memo
+Legal Counsel to J. B. Adams Memo
 Re: HOUSE GOVERNMENT INFORMATION IN
 INDIVIDUAL RIGHTS SUBCOMMITTEE
 

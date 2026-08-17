@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21708.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Operations and OPC, the staff structure emerged as follows:
 

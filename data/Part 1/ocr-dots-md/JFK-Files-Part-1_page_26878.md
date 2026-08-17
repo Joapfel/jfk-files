@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26878.png
-
-Convert to MarkdownSECRET 172204Z
+SECRET 172204Z
 
 LEOP INFO DIR CITE WAVE 1932
 

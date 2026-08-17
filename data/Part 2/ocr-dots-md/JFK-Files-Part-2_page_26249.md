@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26249.png
-
-Convert to MarkdownThe argument against incorporating the research and estimate function in State was made by Dulles in 1947: "For the proper judging of the situation in any foreign country it is important that information should be processed by an agency whose duty it is to weigh facts, and to draw conclusions from those facts, without having either the facts or the conclusions warped by the inevitable and even proper prejudices of the men whose duty it is to determine policy and who, having once determined a policy, are too likely to be blind to any facts which might tend to prove the policy to be faulty."
+The argument against incorporating the research and estimate function in State was made by Dulles in 1947: "For the proper judging of the situation in any foreign country it is important that information should be processed by an agency whose duty it is to weigh facts, and to draw conclusions from those facts, without having either the facts or the conclusions warped by the inevitable and even proper prejudices of the men whose duty it is to determine policy and who, having once determined a policy, are too likely to be blind to any facts which might tend to prove the policy to be faulty."
 
 Precisely the same argument can be used with equal effect against the incorporation of the research and estimate function in CIA ... I.e., if intelligence is too closely connected with operations, then these committed to a particular operation will tend to select out the intelligence which validates the operation.
 

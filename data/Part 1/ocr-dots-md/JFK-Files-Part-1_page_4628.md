@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4628.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tbody><tr><td colspan="5">CLASSIFIED MESSAGE</td></tr><tr><td rowspan="2">From: JMWAVE</td><td colspan="3"></td><td>REDACTED</td></tr><tr><td colspan="3"></td><td></td></tr><tr><td>Subject: WHIC8 (RFID COPY)</td><td colspan="2"></td><td>Advanced copy</td><td>TXT</td></tr><tr><td>File: VR.WHIC8.CIEPS.FI.c1</td><td colspan="2"></td><td colspan="2"></td></tr></tbody></table>
 

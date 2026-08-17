@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_214.png
-
-Convert to MarkdownRamparts®
+Ramparts®
 
 Kittle Foundation, Wiloughby* N Providence, R.I.
 

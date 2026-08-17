@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2765.png
-
-Convert to Markdown(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
 
 NOSENKO'S Information
 

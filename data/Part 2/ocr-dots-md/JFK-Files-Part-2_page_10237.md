@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10237.png
-
-Convert to MarkdownOGC 73-0930
+OGC 73-0930
 
 25 May 1973
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15477.png
-
-Convert to MarkdownParaguay
+Paraguay
 Peru
 Saudi Arabia
 Sudan

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6627.png
-
-Convert to Markdown6 MARCH 1953
+6 MARCH 1953
 
 V
 

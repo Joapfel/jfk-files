@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8708.png
-
-Convert to Markdown10.04.20 ¿Ha ido usted a alguien describirlo como atleta?
+10.04.20 ¿Ha ido usted a alguien describirlo como atleta?
 En caso afirmativo, súrvase dar detalles: Sí No
 
 10.04.21 Diga si es persona que Se ocupa mucho de mantenerse en buenas condiciones físicas

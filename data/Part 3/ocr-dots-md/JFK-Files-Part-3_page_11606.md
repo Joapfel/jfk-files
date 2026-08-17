@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11606.png
-
-Convert to Markdownsupporters were disenchanted bringing to a halt the flow of donations into the organization. The resulting strain added to the paranoia of Newton causing him to create complete chaos within BPP national headquarters. Newton, in an effort to justify his position and to criticize Cleaver and his dissident followers, claimed that Cleaver and his appetite for violence were the root of all of the BPP problems in the recent past. Newton maintained the BPP was really nonviolent but was led astray by Cleaver and that he, Newton, will now return the organization to a position of nonviolence and community work.
+supporters were disenchanted bringing to a halt the flow of donations into the organization. The resulting strain added to the paranoia of Newton causing him to create complete chaos within BPP national headquarters. Newton, in an effort to justify his position and to criticize Cleaver and his dissident followers, claimed that Cleaver and his appetite for violence were the root of all of the BPP problems in the recent past. Newton maintained the BPP was really nonviolent but was led astray by Cleaver and that he, Newton, will now return the organization to a position of nonviolence and community work.
 
 In summation, our COINTELPRO efforts split the BPP, cut off their supplies of outside funds and created chaos within.
 

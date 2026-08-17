@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29229.png
-
-Convert to MarkdownMother: Victoriana (Enriquez) Cruz, age 56
+Mother: Victoriana (Enriquez) Cruz, age 56
 Father: Claudio Cruz, age 64, unemployed, on Welfare.
 Sisters: Hordensia Maria Cruz, age 26, a student at Capelle
 Beauty Schoold, 1509 St. Charles Avenue.

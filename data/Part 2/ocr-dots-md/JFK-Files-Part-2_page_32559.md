@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32559.png
-
-Convert to MarkdownSECRET
+SECRET
 
 assets who have reported from Cape Haitien, Port de Paix and La Gonave and La Tortue Islands that they were unable to uncover any evidence of travel to or from Cuba. No cooperation between the station and Haitian authorities can be expected under the present political circumstances.
 

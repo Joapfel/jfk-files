@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6028.png
-
-Convert to MarkdownT. Jeremy Gunn
+T. Jeremy Gunn
 
 Paris and London in the Nineteenth Century (John Clive)
 

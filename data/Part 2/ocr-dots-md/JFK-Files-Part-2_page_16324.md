@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16324.png
-
-Convert to Markdown2
+2
 
 Inspector AHERN advised that RACKLEY had been
 suspected by the New Haven Chapter of the BPP of being a

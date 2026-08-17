@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21296.png
-
-Convert to MarkdownWFO 65-8517
+WFO 65-8517
 
 DEW:lpr
 

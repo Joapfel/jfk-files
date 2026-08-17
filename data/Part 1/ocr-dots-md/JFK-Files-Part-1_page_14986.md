@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14986.png
-
-Convert to Markdown14-00800
+14-00800
 
 # REPORT ON CONTACT WITH AGENT OR DEFECTOR
 

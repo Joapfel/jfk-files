@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18255.png
-
-Convert to Markdownradicales, el Sr. Ibáñez, el Sr. Alessandri, el propio Sr. Frei, han resurrido todo el país sin gendarme, ni pistoleros a sueldo como los que utiliza Castro.
+radicales, el Sr. Ibáñez, el Sr. Alessandri, el propio Sr. Frei, han resurrido todo el país sin gendarme, ni pistoleros a sueldo como los que utiliza Castro.
 
 No se puede decir que Frei sea un cobarde, un mentiroso y un desapota como Fidel Castro afirma - anadía Lorca-. En cambio él está resguardado por metralletas y no puede dormir, ni se le conoce comicilio sino porque los hijos de los muertos en el parque le buscan. Además -puntualizó Lorca- vale la pena destacar que nadie se ha ido de Chile. En cambio, es público y notorio que más de 300 000 personas han huido del paraiso fidelista. Y me atrevo a pensar que si Fidel Castro diera libertad a quienes quieren irse de Cuba, se quedaría solo con sus barbas y su hermano Raúl, porque Camilo Cienfuegos ya no está. Dicen que se cayó de un avión.
 

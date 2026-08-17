@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33583.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 Extension of Remarks In _The Roman Republic_ on September 18th, 1711, gives the total number of those "loyal Americans" as 20,000,000. --I think it is rather too high an estimate. Even if we would include all Jews from those areas the number could hardly be higher than 15 million; this would be 10% of the total population of the United States. This work seeking, economic emigration from our countries was mainly concentrated in the big cities and the great industrial or mining areas, of the sixteen last and five-western states of Pennsylvania, New Jersey, Delaware, Maryland, West Virginia, New York, Connecticut, Rhode Island, Massachusetts, Michigan, Nebraska, Ohio, Indiana, Illinois, Wisconsin and Minnesota. In some of those states these Europeans comprise about one third of the population. This applies especially to big cities such as Chicago, Detroit, Cleveland, Toledo, Pittsburgh, Boston, Buffalo, Milwaukee, Trenton, Newark, Camden, New Britain, etc. No one who Id also mention that not less than one fifth of this big emigration managed to find work on farms--in such states as Wisconsin, Minnesota, Illinois, Michigan, Nebraska, Massachusetts, and New York.
 

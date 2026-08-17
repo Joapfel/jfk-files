@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12106.png
-
-Convert to MarkdownEqbal Ahmad
+Eqbal Ahmad
 
 INS records further indicate that Ahmad first came
 to the United States in September, 1957, on a trip

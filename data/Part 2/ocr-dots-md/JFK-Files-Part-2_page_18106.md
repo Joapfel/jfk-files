@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18106.png
-
-Convert to Markdownr. Belmon
+r. Belmon
 r. Rosen
 r. Sullivan
 

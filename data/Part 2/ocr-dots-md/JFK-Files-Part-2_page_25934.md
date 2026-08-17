@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25934.png
-
-Convert to Markdownusing the same alias. We alerted the St. Louis police and upon Vitale's arrival there, he was interviewed by detectives of that city. He declared that he had traveled to Tampa to settle a debt of the Lombardo Produce Co., of St. Louis, Mo., to the Diecidue Bros. of Tampa.
+using the same alias. We alerted the St. Louis police and upon Vitale's arrival there, he was interviewed by detectives of that city. He declared that he had traveled to Tampa to settle a debt of the Lombardo Produce Co., of St. Louis, Mo., to the Diecidue Bros. of Tampa.
 
 To me it does not seem probable that Vitale would go to the expense and trouble of flying to Tampa and returning the same day in order to settle a debt between two produce companies with which he has no known connections. More significantly, his use of an alias to run this errand, too, points out his own doubts that he was engaged in a legitimate errand.
 

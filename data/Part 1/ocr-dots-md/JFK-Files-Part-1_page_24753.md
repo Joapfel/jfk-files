@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_24753.png
-
 to the Cultural Affairs Officer, Svyatoslav
 Fedorovich KUZNETSOV. A KGB officer KUZNETSOV is, as of
 this writing, once again serving in Mexico, this time

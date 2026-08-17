@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9224.png
-
-Convert to MarkdownCopy to: 1 - Secret Service, Detroit
+Copy to: 1 - Secret Service, Detroit
 
 Report of:
 Date: SA LAWRENCE W. LEVINE

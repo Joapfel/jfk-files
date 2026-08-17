@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31492.png
-
-Convert to MarkdownSAN FRANCISCO SCHOOL OF SOCIAL SCIENCES, aka
+SAN FRANCISCO SCHOOL OF SOCIAL SCIENCES, aka
 San Francisco School of Social Science,
 San Francisco Marxist Study Group,
 San Francisco School of Marxism-Leninism,

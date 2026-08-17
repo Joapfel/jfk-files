@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13060.png
-
-Convert to Markdown**PHILIP J. HENRY, III**
+**PHILIP J. HENRY, III**
 *WALTER P. CONKLIN, JR.*
 *JAMES B. DOUGHERTY, JR.*
 *ROBERT WOONHAART, II*

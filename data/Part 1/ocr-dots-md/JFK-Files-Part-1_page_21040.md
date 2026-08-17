@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21040.png
-
-Convert to Markdown# Attachment #1
+# Attachment #1
 
 ## Item 44. Operational Expenses
 

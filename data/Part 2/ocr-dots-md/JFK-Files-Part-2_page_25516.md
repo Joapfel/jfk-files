@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25516.png
-
-Convert to MarkdownHW 50955 DocId:32423630 Page 249
+HW 50955 DocId:32423630 Page 249
 
 FS: Honey, I don't want to know everything you did in 6 years. I don't want to know everything you did because you can't...
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_919.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (Film: F1102-1)
 

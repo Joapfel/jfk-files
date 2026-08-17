@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33954.png
-
-Convert to MarkdownI. The Bundesminister fuer das Post- und Fernmeldewesen hereby grants to the NCFE, a membership corporation organized under the laws of the State of New York (USA) recognized in the Federal Republic as a foreign "Verein", a licence to operate the radio installations listed and specified in the Annex as foreign radio station on German territory on the following conditions.
+I. The Bundesminister fuer das Post- und Fernmeldewesen hereby grants to the NCFE, a membership corporation organized under the laws of the State of New York (USA) recognized in the Federal Republic as a foreign "Verein", a licence to operate the radio installations listed and specified in the Annex as foreign radio station on German territory on the following conditions.
 
 1. In operating the radio installations the NCFE will use only the frequencies and call signs al ocated to it from time to time by the competent authorities of the USA, and duly notified by said authorities to the competent organs of the International Telecommunications Union.
 

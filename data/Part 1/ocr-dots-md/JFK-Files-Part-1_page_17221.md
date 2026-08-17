@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17221.png
-
-Convert to Markdown14-0000
+14-0000
 
 MESSAGE FORM
 <table><tr><td>ORIG: C. Bustos-Videla</td><td>84</td></tr><tr><td>UNIT: WH/1</td><td>☐ INDEX</td><td>S E C R E T</td></tr><tr><td>EXT : 4506</td><td>☐ NO INDEX</td><td></td></tr><tr><td>DATE : 20 November 1969</td><td colspan="2">FILE IN C F FILE NO. 50-6-74/1</td></tr></table>

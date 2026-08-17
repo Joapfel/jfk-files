@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31707.png
-
-Convert to MarkdownFebruary 25, 1953
+February 25, 1953
 
 Dear George:
 

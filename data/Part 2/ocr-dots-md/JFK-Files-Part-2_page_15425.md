@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15425.png
-
-Convert to MarkdownOPTIONAL FORM NO. 10
+OPTIONAL FORM NO. 10
 
 UNITED STATES C
 M emora

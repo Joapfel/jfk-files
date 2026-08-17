@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5339.png
-
-Convert to Markdown13-00000
+13-00000
 
 [ ] UNCLASSIFIED [x] INTERNAL USE ONLY [ ] CONFIDENTIAL [x] SECRET
 

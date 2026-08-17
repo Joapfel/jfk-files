@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13563.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 TESTIMONY OF PAUL O'NEILL
 

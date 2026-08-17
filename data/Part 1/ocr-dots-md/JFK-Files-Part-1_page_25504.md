@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25504.png
-
-Convert to Markdown7. On 14 July 1970, headquarters cabled Mexico City Station advising them of the above development, and requested they contact Mrs. GERENDE and inform her of the following Headquarters answers to her requests (as outlined in paragraph 4 above):
+7. On 14 July 1970, headquarters cabled Mexico City Station advising them of the above development, and requested they contact Mrs. GERENDE and inform her of the following Headquarters answers to her requests (as outlined in paragraph 4 above):
 
 A. We cannot release her from her from her security agreement.
 

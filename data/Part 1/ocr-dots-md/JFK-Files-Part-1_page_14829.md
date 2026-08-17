@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14829.png
-
-Convert to Markdownin democrats and police
+in democrats and police
 ing the neo-Nazi election
 rags occurred in Saarbrueck.
 Flensburg, Recklinghausen,

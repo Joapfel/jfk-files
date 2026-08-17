@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27087.png
-
-Convert to Markdowntop secret dinar chess ruff idealiste
+top secret dinar chess ruff idealiste
 
 time and bureaucratic process that it reached the working level
 only in the form of SNIE 85-3, which held that establishment of

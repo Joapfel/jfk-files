@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9679.png
-
-Convert to Markdown association with the American Nazi Party or with the National
+association with the American Nazi Party or with the National
 Socialist White Peoples Party.
 
 DRAPER advised he knows no one in Illinois associated

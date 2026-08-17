@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2453.png
-
-Convert to MarkdownSECRET
+SECRET
 
 William Stanley WILBY) in June 1959, the recruitment of David TAYLOR in the summer of 1959, the recruitment of Gerard MERTENS)in July - August 1959, and the recruitment of Arsene FRIPPEL)in 1959. The foregoing is not a complete list of all cases in which NOSENKO claims personal involvement, but is representative of cases in which his alleged participation has been confirmed by interviews with the individual who was the KGB target.
 

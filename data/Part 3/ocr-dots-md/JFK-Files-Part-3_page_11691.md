@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11691.png
-
-Convert to MarkdownRCMP pointed out that the above area is visited frequently by black extremist figures from the United States and admitted that they have experienced considerable difficulty in the recruitment of suitable sources in the Halifax area. RCMP requested of the Bureau another source of the caliber of the one presently operating in Canada.
+RCMP pointed out that the above area is visited frequently by black extremist figures from the United States and admitted that they have experienced considerable difficulty in the recruitment of suitable sources in the Halifax area. RCMP requested of the Bureau another source of the caliber of the one presently operating in Canada.
 
 By memorandum dated 7/29/71 it was recommended and approved that we solicit of the field the identities of informants who may be able to travel to Canada. This project is presently being followed very closely.
 

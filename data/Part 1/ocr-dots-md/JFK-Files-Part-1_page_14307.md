@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14307.png
-
-Convert to Markdown<table><tr><td>14-0000</td></tr></table>
+<table><tr><td>14-0000</td></tr></table>
 
 <table><thead><tr><th colspan="5">NO. IN PERSONALITY</th><th rowspan="2">FOR APPLICATION OF SECOND COPY</th></tr><tr><th>SUPPLEMENT 3</th><th>DATE</th><th>PROOF NUMBER</th><th>CHECK</th><th>REVISED</th></tr></thead><tbody><tr><td>SX-20079</td><td>1 Nov 72</td><td>24</td><td>6</td><td>755/5</td><td></td></tr></tbody></table>
 

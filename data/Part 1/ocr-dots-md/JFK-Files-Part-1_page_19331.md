@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19331.png
-
-Convert to MarkdownINCOMING CLASSIFIED MESSAGE
+INCOMING CLASSIFIED MESSAGE
 
 (1940)
 

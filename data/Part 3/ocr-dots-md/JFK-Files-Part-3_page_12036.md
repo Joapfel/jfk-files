@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12036.png
-
-Convert to MarkdownBLACK STUDENT GROUPS ON COLLEGE CAMPUSES
+BLACK STUDENT GROUPS ON COLLEGE CAMPUSES
 
 On October 29, 1970, the Executive Conference
 approved a program to conduct discreet preliminary inquiries,

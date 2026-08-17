@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7873.png
-
-Convert to Markdownno indication that SHPAKEVICH was ever riotous or dead drunk. He is neither a skirt-chaser, although with his fluent Spanish and a human tank for a wife, SHPAKEVICH would be justified in immersing investigating grasshopper pastures among the Mexican women. But he is decidedly devoid of any imagination.
+no indication that SHPAKEVICH was ever riotous or dead drunk. He is neither a skirt-chaser, although with his fluent Spanish and a human tank for a wife, SHPAKEVICH would be justified in immersing investigating grasshopper pastures among the Mexican women. But he is decidedly devoid of any imagination.
 
 Despite her great bulk, SHPAKEVICH'S wife, Tatyana Ivanovna, seems to be a very amiable person and all the Soviet wives agree that she is very "nice". Tatyana is two years SHPAKEVICH'S junior, but she acts like a protective mother-then-towards him. She has high blood pressure and that was probably why she left for Moscow over a month ago. Consequently SHPAKEVICH is here all by himself for the present and some of his friends, who refer to him simply as "SHPAK", invite him occasionally for dinner or lunch.
 

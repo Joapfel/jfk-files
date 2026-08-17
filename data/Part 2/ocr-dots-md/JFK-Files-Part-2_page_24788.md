@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24788.png
-
-Convert to MarkdownCopies of Berle's memorandum were sent to Wymberly Coerr, the Acting Assistant Secretary for Inter-American Affairs, and to Special Assistant Frank Devine.
+Copies of Berle's memorandum were sent to Wymberly Coerr, the Acting Assistant Secretary for Inter-American Affairs, and to Special Assistant Frank Devine.
 
 Both Herbert and Devine, who had been in almost daily contact with each other since August of 1960, had been advised of the assassination plans of the dissident group. In fact, Herbert, along with Bissell, had signed off on the proposed cable of May 2, releasing the machine guns for passage.
 

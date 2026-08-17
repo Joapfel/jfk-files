@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21155.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 appear that his retention and delivery of notes
 regarding these cases should be given serious

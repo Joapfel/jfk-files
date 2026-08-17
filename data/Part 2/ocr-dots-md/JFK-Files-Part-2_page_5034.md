@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5034.png
-
-Convert to Markdown13.05000
+13.05000
 
 SECRET
 SENSIND: RYBAT

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28614.png
-
-Convert to MarkdownTo: Thomas Howarth, Budget Officer
+To: Thomas Howarth, Budget Officer
 
 From: G. Robert Blakey, Chief Counsel and Staff Director
 

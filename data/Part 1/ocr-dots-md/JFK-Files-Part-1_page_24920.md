@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24920.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 242357Z
 DIR CITE SDOM 0998

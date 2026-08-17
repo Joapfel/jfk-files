@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15038.png
-
-Convert to Markdown# SYNOPSIS
+# SYNOPSIS
 
 ## BUREAU STATISTICS
 

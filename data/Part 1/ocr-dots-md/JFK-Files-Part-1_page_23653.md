@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23653.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 FS-1247-74
 

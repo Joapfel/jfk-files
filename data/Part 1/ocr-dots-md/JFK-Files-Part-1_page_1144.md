@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1144.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CSHB 43-1-1
 CHAPTER III

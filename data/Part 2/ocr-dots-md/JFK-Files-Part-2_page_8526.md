@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8526.png
-
-Convert to MarkdownAttachment
+Attachment
 
 E. O. 11652 Exemptions for Items in
 The CIA and The Cult of Intelligence

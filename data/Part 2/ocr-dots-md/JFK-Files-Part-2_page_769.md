@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_769.png
-
-Convert to MarkdownRELOCATION FOR: CHC/branch C
+RELOCATION FOR: CHC/branch C
 
 SUBJECT: Mr. Jerome Fox, Request for Reassignment from EMI/OMR to FI/VCL
 

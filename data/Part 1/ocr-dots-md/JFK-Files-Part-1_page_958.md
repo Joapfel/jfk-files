@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_958.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 Date of Report: 04/02/2001
 

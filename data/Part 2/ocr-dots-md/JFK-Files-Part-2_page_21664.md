@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21664.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Robert Maheu • Foreign Head of State
 

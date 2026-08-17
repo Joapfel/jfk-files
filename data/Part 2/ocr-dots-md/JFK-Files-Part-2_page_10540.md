@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10540.png
-
-Convert to Markdown5. MHCHAOS reporting from abroad relating to the program originates in two ways: Individuals who are noted in contact with Cubans, the Chinese Communists, etc., and who appear to have extremist connections, interests or background are reported upon. Other individuals are reported upon in response to specific Headquarters requirements received from the FBI because such individuals are of active investigatory security interest to the FBI.
+5. MHCHAOS reporting from abroad relating to the program originates in two ways: Individuals who are noted in contact with Cubans, the Chinese Communists, etc., and who appear to have extremist connections, interests or background are reported upon. Other individuals are reported upon in response to specific Headquarters requirements received from the FBI because such individuals are of active investigatory security interest to the FBI.
 
 6. All cable and dispatch traffic related to the MHCHAOS program is sent via restricted channels. It is not processed by either the Cable Secretariat or the Information Services Division. The control and retrievability of information obtained, including information received from the FBI, is the responsibility of the Special Operations Group.
 

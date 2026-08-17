@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27381.png
-
-Convert to MarkdownA. Memo to File from Harold A. Baker - 10 May 75
+A. Memo to File from Harold A. Baker - 10 May 75
 
 SECRET
 

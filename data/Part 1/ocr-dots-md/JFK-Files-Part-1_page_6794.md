@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6794.png
-
-Convert to MarkdownMAURICE HALPERIN
+MAURICE HALPERIN
 
 79.—Rnbotchii Khss V Cuvoboditelnom Dvizhenii Naro-
 dov Latınskoy Ameriki. (La clase obrera en el Movimiento

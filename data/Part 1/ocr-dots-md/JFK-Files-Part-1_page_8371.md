@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8371.png
-
-Convert to MarkdownSUBJECT: Gloria Pinto
+SUBJECT: Gloria Pinto
 
 DATE OF INFORMATION: January 31, 1968. 2100-0200 hours.
 PLACE ACQUIRED: Restaurant Normandia, Niza.

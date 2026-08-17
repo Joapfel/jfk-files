@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9147.png
-
-Convert to MarkdownRH 157-1558
+RH 157-1558
 
 DRAGER would have access to a small cache of weapons maintained
 at the ANP Headquarters and at Spotsylvania, Virginia.

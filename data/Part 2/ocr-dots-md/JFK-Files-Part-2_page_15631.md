@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15631.png
-
-Convert to Markdownto his job. Anybody who would ride a jackass and smoking
+to his job. Anybody who would ride a jackass and smoking
 his cigar, and that is what you call a jackass riding a
 jackass and that is what you call with a cigar in his
 mouth: fire on one end and fool on the other, and the

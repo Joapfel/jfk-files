@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17028.png
-
-Convert to Markdown# BLACK PANTHER PARTY
+# BLACK PANTHER PARTY
 
 Debra Johnson, a BPP survivor of the above raid, stated that she was in the back bedroom of the above apartment, asleep with Fred Hampton (deceased Deputy Chairman, Illinois Chapter of the BPP) who was also asleep when she heard gunfire. She stated that Hampton raised his head, then lowered it slowly almost immediately and closed his eyes. She stated that a moment later, he was shot as she tried to move him to cover. She stated that Hampton might have been asleep when he was killed.
 

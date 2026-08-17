@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35271.png
-
-Convert to Markdown-Continuación-
+-Continuación-
 
 ## COMISIONES O DELEGACIONES (ANEXO "I-I")
 

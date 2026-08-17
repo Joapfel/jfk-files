@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21393.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA furnished copies of letters dated 8/13 through 20/65, from Hodee W. Edwards (100-397465) to Sugar, who, because of operational considerations maintained contact with Edwards. The letters were of a political nature and contained an exchange of ideas between Edwards and Sugar. (S)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26820.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="4">CLASSIFIED TO BE MAINTAINED OUTDOOR</td></tr><tr><td colspan="2"><b>FOR SECRET USE ONLY</b></td><td colspan="2"></td></tr><tr><td colspan="2"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td style="border:none;"></td><td style="border-bottom: 1px solid black; padding: 0 5px;">SECRET</td></tr></tbody></table></td><td colspan="2"></td></tr><tr><th scope="row">ACTION</th><td>REVIEW COPY</td><th scope="col">TIME</th><td>10.30 a.m.</td></tr><tr><th scope="row">ISSUED</th><td>☐</td><th scope="col"></th><td>☑</td></tr><tr><th scope="row">FILE, REF, NOTES</th><td>☐</td><th scope="col"></th><td>☑</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17308.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>SECRET / ~~CONFIDENTIAL~~ T</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>SECRET / ~~CONFIDENTIAL~~ T</td></tr></table>
 
 HMMA-22267
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25167.png
-
-Convert to Markdown<table><tr><th>PERSONS/ENTITIES:</th><th></th><th>DATES:</th><th></th></tr><tr><td>HELMS, Richard</td><td>LODGE, Henry Cabot</td><td rowspan="2">26 August 1963</td><td rowspan="4">DIEM ✓</td></tr><tr><td>CARTER, Gen. Marshall</td><td>KENNEDY, John F.</td></tr><tr><td>NHU</td><td>CIA</td></tr><tr><td>DIEM</td><td>DEPTEL 243</td></tr><tr><td>FELT, ADM. Harry D. (CINCPAC)</td><td></td><td></td><td></td></tr></table>
+<table><tr><th>PERSONS/ENTITIES:</th><th></th><th>DATES:</th><th></th></tr><tr><td>HELMS, Richard</td><td>LODGE, Henry Cabot</td><td rowspan="2">26 August 1963</td><td rowspan="4">DIEM ✓</td></tr><tr><td>CARTER, Gen. Marshall</td><td>KENNEDY, John F.</td></tr><tr><td>NHU</td><td>CIA</td></tr><tr><td>DIEM</td><td>DEPTEL 243</td></tr><tr><td>FELT, ADM. Harry D. (CINCPAC)</td><td></td><td></td><td></td></tr></table>
 
 **OCCURRENCE:**
 

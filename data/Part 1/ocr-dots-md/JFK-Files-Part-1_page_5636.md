@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5636.png
-
-Convert to MarkdownMEMORANDUM FOR : Chief, Domestic Contact Service
+MEMORANDUM FOR : Chief, Domestic Contact Service
 
 SUBJECT : DCS Case 47540 - Contact with Louis A. Brun/Clelland Joseph Charles
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3536.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # SYNOPSIS OF AMBIDDY-1'S SPEECH TO AREC
 

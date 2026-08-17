@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4905.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On May 21, 1966, MM T-6 advised that ROTHMAN is deeply involved in the shylock business and is looking out for some of PATTY ERRA's interests in this field and likely is closely tied in with MAX EDER as he holds conferences with EDER on behalf of ERRA. MM T-6 also advised that he received information that ROTHMAN as either a representative of ERRA or EDER or both, has some arrangement whereby items which are taken as security from time to time when a shylock loan is made are pawned. MM T-6 stated he further learned that stolen jewelry enters into the picture but could furnish no additional information regarding this phase of the business. Reportedly, EDER, ERRA and ROTHMAN deal with the Simpson Pawn Shop, North Miami Avenue, Miami, Florida.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24648.png
-
-Convert to MarkdownHedgman described the extraordinary security precautions he took cabling his request for confirmation of the assassination instructions:
+Hedgman described the extraordinary security precautions he took cabling his request for confirmation of the assassination instructions:
 
 > There was some special channel ... because it was handled differently than any other normal message. For example, it was not put on a regular cable form, which, you know, you have several copies for your various files. And it was my recollection that I personally carried the message to the communicator to encrypt, and that was worded in a doubt-talk way that even the communicator would not necessarily know what it was about." (Hedgman, 8/21/75, pp. 42-43.)
 

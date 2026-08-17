@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1635.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REQUEST FOR PERSONNEL ACTION
 

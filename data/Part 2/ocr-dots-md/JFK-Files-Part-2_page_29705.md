@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29705.png
-
-Convert to MarkdownClassification: U U LUNCI
+Classification: U U LUNCI
 
 (This form is to be used for material extracted
 from CIA—controlled documents.)

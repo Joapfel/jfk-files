@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14427.png
-
-Convert to MarkdownThe Honorable Elliot L. Richardson
+The Honorable Elliot L. Richardson
 
 October 10, 1973
 Page 2

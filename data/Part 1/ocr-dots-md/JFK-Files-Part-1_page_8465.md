@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8465.png
-
-Convert to Markdown12 March 1968
+12 March 1968
 
 MEMORANDUM FOR THE RECORD
 SUBJECT: Jorge ARIAS Buerba

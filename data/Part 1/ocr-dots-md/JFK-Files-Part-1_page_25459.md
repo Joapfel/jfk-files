@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25459.png
-
-Convert to MarkdownS-E-C-2-E-T
+S-E-C-2-E-T
 
 MLA 00-A(S) 322/26389-69
 

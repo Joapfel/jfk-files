@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27140.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 protection to secrets shared with us. And they
 look to us for leadership. At times we have

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33703.png
-
-Convert to MarkdownAt this time, Mr. Augustine advised, the Czechoslovakies are still meeting in separate groups, but that the Motor is expected to take place very shortly. The further advised that Mr. Zenkl had announced his Committee's intention to the sum of 2 to 3,000, which was given by Mr. Vodeler advised that he had received no confirmation of the allegation that the Zenkl Committee had disposition of Independent Funds in Switzerland.
+At this time, Mr. Augustine advised, the Czechoslovakies are still meeting in separate groups, but that the Motor is expected to take place very shortly. The further advised that Mr. Zenkl had announced his Committee's intention to the sum of 2 to 3,000, which was given by Mr. Vodeler advised that he had received no confirmation of the allegation that the Zenkl Committee had disposition of Independent Funds in Switzerland.
 
 Mr. Augustine advised that HIE'S Subcommittee will continue in existence, and that it will be available for advice and assistance to the Czechoslovak provisional administrators, and the body of II,
 

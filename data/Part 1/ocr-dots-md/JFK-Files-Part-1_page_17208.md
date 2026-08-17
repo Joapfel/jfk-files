@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17208.png
-
-Convert to Markdownc) As in the past, Raymond H. GERENDE will submit bi-weekly accountings for all project expenditures with appropriate receipts and certifications. There are no requirements for foreign currency beyond the Station's capability to provide.
+c) As in the past, Raymond H. GERENDE will submit bi-weekly accountings for all project expenditures with appropriate receipts and certifications. There are no requirements for foreign currency beyond the Station's capability to provide.
 
 ## 8. EMERGENCY CONDITIONS
 

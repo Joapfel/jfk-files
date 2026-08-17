@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18139.png
-
-Convert to MarkdownHMMA 35208, 8 August 1968
+HMMA 35208, 8 August 1968
 
 LIEDFTY/6 terminated amicably and resettled by his son-in-law -
 was content with termination bonus of $1,736. Following termination, effec-

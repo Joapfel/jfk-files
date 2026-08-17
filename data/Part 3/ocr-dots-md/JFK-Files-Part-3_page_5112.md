@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5112.png
-
-Convert to MarkdownJuly 23, 1975
+July 23, 1975
 
 # PROPOSED CHANGE IN MANUAL OF RULES AND REGULATIONS
 

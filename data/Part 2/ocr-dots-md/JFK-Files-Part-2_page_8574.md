@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8574.png
-
-Convert to Markdown13-00000
+13-00000
 
 >situation in private with his superiors. But Bob and his cohorts at FI/D were
 >one step ahead of Ambassador Meyer. They had figured out a way to intercept

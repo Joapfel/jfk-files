@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18634.png
-
-Convert to MarkdownJ. C. Farrington to Mr. McDermott Memo
+J. C. Farrington to Mr. McDermott Memo
 
 REQUEST BY U.S. SENATOR WALTER F. MONDALE, SENATE SELECT COMMITTEE MEMBER TO REVIEW HIS FBI FILES
 

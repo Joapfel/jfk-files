@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32179.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 RE: MR. JOSEPH S. PICCOLO
 

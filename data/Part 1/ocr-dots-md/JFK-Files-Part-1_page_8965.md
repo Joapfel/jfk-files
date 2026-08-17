@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8965.png
-
-Convert to Markdownthe less wealthy people in El Salvador have looked askance at the Alliance for Progress. I think you will remember that in my last report I predicted that we would have problems with respect to many reforms if they were to be the sine qua non of aid from the United States.
+the less wealthy people in El Salvador have looked askance at the Alliance for Progress. I think you will remember that in my last report I predicted that we would have problems with respect to many reforms if they were to be the sine qua non of aid from the United States.
 
 With respect to the Church, I think it might be a good idea to give some very detailed study as to how we can exploit to the best possible extent, the apparent change within the Church not only in El Salvador but all over Latin America. I think that it might be a thing that we should sit around or someone sit around for a considerable time trying to analyze all the ins and outs, and how we can fit this into the whole program of action in Latin America.
 

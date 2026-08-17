@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11196.png
-
-Convert to Markdown[G. VISITORS TO COMMUNIST-BLOC COUNTRIES [AND TO CUBA] (For instructions on visitors to Communist China, see section 105F.)
+[G. VISITORS TO COMMUNIST-BLOC COUNTRIES [AND TO CUBA] (For instructions on visitors to Communist China, see section 105F.)
 
 Soviet-bloc Intelligence Services (SBIS) have used the technique of contacting visitors to communist-bloc countries to recruit intelligence agents from among the visitors. Individuals in the U. S., either permanent resident aliens or others who travel to communist-bloc countries (except Yugoslavia) [and to Cuba,] should be considered as being available to SBIS for recruitment purposes.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4938.png
-
-Convert to MarkdownNY 100-149194
+NY 100-149194
 
 MARTIN LUTHER KING movement could be organized in Louisiana, the State Senatorial District where CAULFIELD resides permanently (Lettsworth, Louisiana), CAULFIELD might be furnished as much as $1,000.00 per month to promote this movement. The funds are to come from the MARTIN LUTHER KING movement and the object is to get every eligible Negro to register to vote. CAULFIELD reportedly met MARTIN LUTHER KING, JR., while in Atlanta, and discussed with him the voter registration matter in Louisiana.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24773.png
-
-Convert to Markdowncable advising that the pistols were being pouched is the
+cable advising that the pistols were being pouched is the
 very cable which was sent in response to a request by the
 dissidents for machine guns to be used in an assassination
 effort which had been previously described to Headquarters.

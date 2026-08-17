@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21053.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (c) Without prior notice by the Government, in the event of a breach of this contract by your violation of the security provisions hereof or by your otherwise rendering yourself unavailable for acceptable service.
 

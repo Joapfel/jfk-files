@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25224.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 <table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td></td><td></td><td></td></tr></table>
 

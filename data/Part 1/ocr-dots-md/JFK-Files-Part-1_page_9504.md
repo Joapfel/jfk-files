@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9504.png
-
-Convert to MarkdownCirculation of a forged order, indicating that the rally actually is a device for recruitment of German youth into the Soviet Zone People's Police;
+Circulation of a forged order, indicating that the rally actually is a device for recruitment of German youth into the Soviet Zone People's Police;
 
 Planting a news story to the effect that the rally came about as the result of direct orders issued by Moscow to Walter Ulbricht, German Communist leader, on the occasion of his recent visit to the Russian capital;
 

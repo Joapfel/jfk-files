@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6918.png
-
-Convert to Markdownhowever, Kennedy's murder will probably become, like Lincoln's, more an interest of buffs than of the public at large.
+however, Kennedy's murder will probably become, like Lincoln's, more an interest of buffs than of the public at large.
 
 The chances of clearing away all doubts are lessened by the fact that every bit of relevant documentation will not be released. This bill itself speaks of protecting secret agents and intelligence sources and methods. It speaks also of privacy rights. CIA and FBI reports and National Security Agency intercepts contain much material that, by these criteria, would have to remain secret.
 

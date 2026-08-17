@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32332.png
-
-Convert to Markdown# VI. Exchange of Intelligence on Cuban Subversion
+# VI. Exchange of Intelligence on Cuban Subversion
 
 ## Department of Defense
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34149.png
-
-Convert to Markdownd) Contenido de Arsenico: El Arsenico es una de las contaminaciones que más afectan la calidad de cualquier producto alimenticio, y mucho más significativo es en el azúcar. Los productos auxiliares usados en la refinación del azúcar tales como Acido Fosfórico suministrado por países comunistas, tiene un alto porcentaje de Arsenico - los que contaminan el azúcar, habiéndose elevado esta cifra en un 70% sobre los valores normales.
+d) Contenido de Arsenico: El Arsenico es una de las contaminaciones que más afectan la calidad de cualquier producto alimenticio, y mucho más significativo es en el azúcar. Los productos auxiliares usados en la refinación del azúcar tales como Acido Fosfórico suministrado por países comunistas, tiene un alto porcentaje de Arsenico - los que contaminan el azúcar, habiéndose elevado esta cifra en un 70% sobre los valores normales.
 
 e) Contenido de Plomo: La presencia de Plomo en los azúcares refinados debe ser significativo, pero en los últimos años el empleo de Tierras de Infusorios y Acido Fosfórico de paises comunistas que tienen baja calidad y están contaminados con este金属, ha producido un aumento del contenido de plomo en los azúcares refinos de un 50% sobre los valores normales.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11517.png
-
-Convert to MarkdownI THINK IT'S TIME WE FOUND ANOTHER LINE OF WORK, PHILBRICK...
+I THINK IT'S TIME WE FOUND ANOTHER LINE OF WORK, PHILBRICK...
 
 Retired Agent Questions Morgan's FBI Position
 

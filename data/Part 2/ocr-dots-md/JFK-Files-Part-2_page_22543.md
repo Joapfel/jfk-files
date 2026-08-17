@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22543.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EUROPEAN TRIP, 1970
 

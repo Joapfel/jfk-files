@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11504.png
-
-Convert to MarkdownVII. Maintenance of key figure list
+VII. Maintenance of key figure list
 
 (A) Each office must maintain current list of key figures including top functionaries. List may be kept by simple list system, by maintaining a file wherein all additions and deletions to the list are reported, or by a card index system. Maintain key figure list separate from security index.
 

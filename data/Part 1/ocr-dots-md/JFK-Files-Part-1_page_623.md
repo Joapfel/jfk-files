@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_623.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 COST CONTROL SYSTEMS
 DO NOT DELETE

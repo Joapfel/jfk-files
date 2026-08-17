@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2236.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 STANDARD FORM NO. 83
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8286.png
-
-Convert to MarkdownValentin LGINOV
+Valentin LGINOV
 
 Edad aproximada de 43-45 años, aunque aparenta menos. Fisicamente de complexión atlética, alto. Juega muy bien al ténis. Recientemente quedó en segundo lugar en el campeonato del D.F. que tuvo lugar en el Club Francia, donde practica este deporte. Cuida muchísimo su condición física y más que nada su apariencia. En este sentido es muy vanidoso. Muy pocos amigos saben que tiene una hija de 16-17 años. Cuando le preguntan si tiene hijos hable solo de su hijo de 11 años de edad. Le da pena presentar a su mujer, que es muy amable y buena, porque se ve de más edad que él. No fuma, toma muy poco, aunque cuando la ocasión requiere de tomar mucho aguacate y siempre se le ve sereno. Es muy amable en el trato. Nunca trata de imponer sus ideas, pero siempre pendiente de convencer por las buenas a sus contrincantes. Cuando ve que no puede hacer lo último, rompe diplomaticamente los relaciones amistosas con elujeto.
 

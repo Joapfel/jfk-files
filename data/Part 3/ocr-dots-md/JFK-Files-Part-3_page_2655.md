@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2655.png
-
-Convert to Markdownward & paul
+ward & paul
 
 1 revolutionary and violence-prone groups.
 

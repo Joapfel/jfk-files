@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6084.png
-
-Convert to MarkdownUnited States Senate
+United States Senate
 Committee on Governmental Affairs
 
 Biographical and Financial Information requested of Nominees

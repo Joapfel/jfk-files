@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_38.png
-
-Convert to Markdown11000 Wilshire Boulevard
+11000 Wilshire Boulevard
 Los Angeles, California 90024
 
 July 25, 1972

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27785.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 5. Mr. Keenan has an agile and retentive mind. He is quick at distinguishing the wheat from the chaff. He does his homework and I have never known him to go off half cocked. In making operational judgments, his initiative is tempered by a healthy dose of prudence. Mr. Keenan's writing is first rate; his prose is lean, often elegant, and always precise. I have admired his talents as a briefer. His presentations are balanced and detailed, often spiced with his engaging humor.
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_2810.png
-
 , BELOGLAZOV. NOSENKO could not initially recall how long he supervised service attache operations; he later said "several months" and finally "five or six months". Neither could NOSENKO recall what other pressing duty or duties caused him to be relieved of this function. He said this resulted from KOVSHUK'S proposal that supervision of the service attaches be assumed by ALESHIN who was Deputy Chief of the Second Directorate's American Department and coordinator for Second Directorate operations against military intelligence officers of all nationalities.
 
 ### Supervisor of Service Attache Operations:

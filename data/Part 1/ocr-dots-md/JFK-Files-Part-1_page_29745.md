@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29745.png
-
-Convert to Markdown<table><tr><td>1. Select a payment method: e.g., VISA, MasterCard, orAMEX.</td></tr><tr><td>2. Enter your credit card details:</td></tr><tr><td>3. Complete the form and submit it.</td></tr></table>
+<table><tr><td>1. Select a payment method: e.g., VISA, MasterCard, orAMEX.</td></tr><tr><td>2. Enter your credit card details:</td></tr><tr><td>3. Complete the form and submit it.</td></tr></table>
 
 <table><thead><tr><th colspan="4">Payment Method Information</th></tr><tr><th>Name</th><th>Address Line 1</th><th>Address Line 2</th><th>City / State</th></tr></thead><tbody><tr><td>Amex</td><td>Home</td><td>Home</td><td>California</td></tr><tr><td>VISA</td><td>MasterCard</td><td>MasterCard</td><td>Northern California</td></tr><tr><td>AMEX</td><td>Credit Card</td><td>Credit Card</td><td>Oklahoma</td></tr></tbody></table>
 

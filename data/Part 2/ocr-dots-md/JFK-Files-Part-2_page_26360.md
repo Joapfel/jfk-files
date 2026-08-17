@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26360.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONFIDENTIAL</td>
     <td>TDCS DB-3/656,771</td>

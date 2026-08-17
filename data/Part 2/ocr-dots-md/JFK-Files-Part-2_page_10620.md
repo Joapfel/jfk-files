@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10620.png
-
-Convert to MarkdownRE: Further Documents Pertaining to
+RE: Further Documents Pertaining to
 the FBI and Department of Justice
 
 Policies and Procedures

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14165.png
-
-Convert to Markdown(74. 8/31/62 Continued)
+(74. 8/31/62 Continued)
 
 interpretation shows 7 SA-2 sites in early stages of construction . . . a modern first-line AA missile with an engagement range of 30 miles and high reliability from 2500 to 60,000 feet, and limited effectiveness up to 80,000 feet . . . probably capable of use with a nuclear warhead, but there is no evidence that the Soviet Government has ever provided nuclear warheads to another state, and it seems unlikely that such a move is currently planned -- although there is little reason to suppose that the Soviets would refuse to introduce such weapons if the move could be controlled in the Soviet interest.
 

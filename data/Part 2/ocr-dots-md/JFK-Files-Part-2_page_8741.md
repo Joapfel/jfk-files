@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8741.png
-
-Convert to Markdown# AMLOAN Operation 19-6-79/3
+# AMLOAN Operation 19-6-79/3
 
 ## EGGA 3171 Dated 2 November 1964
 

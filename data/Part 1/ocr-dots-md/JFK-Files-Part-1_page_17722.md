@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17722.png
-
-Convert to Markdown29 CP 129 12.7
+29 CP 129 12.7
 
 Suzie with Sonya. Suzie and Sonya are going to the theater. They mention Maggie who told them that they shouldn't go; they won't understand anything.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_711.png
-
-Convert to Markdown104-10290-10162
+104-10290-10162
 
 CIRA CUBA
 

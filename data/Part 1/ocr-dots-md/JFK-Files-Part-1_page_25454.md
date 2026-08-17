@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25454.png
-
-Convert to MarkdownChief, TSD/HPS
+Chief, TSD/HPS
 
 22 April 1969
 

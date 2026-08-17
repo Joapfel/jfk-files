@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15197.png
-
-Convert to MarkdownMemorandum Marnall to Sullivan
+Memorandum Marnall to Sullivan
 
 Re: INTELLIGENCE COVERAGE OF NON-SOVIET-BLOC COUNTRIES (ANNUAL EVALUATION)
 

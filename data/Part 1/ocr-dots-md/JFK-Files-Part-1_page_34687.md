@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34687.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><tr><td rowspan="2">CLASSIFICATION<br/>SECRET</td><th colspan="3">PROCESSING</th></tr><tr><th>PRO<br/>POSTED</th><th>ACTION</th><th>ACCOM.<br/>PUSHED</th></tr><tr><td>TO<br/>Chief, Western Hemisphere Division</td><td>X</td><td>MARKED FOR INDEXING<br/>NO INDEXING REQUIRED</td><td></td></tr><tr><td>INFO</td><td colspan="3">ONLY QUALIFIED<br/>HEADQUARTERS DESA<br/>CAN JUDGE INDEXING</td></tr><tr><td>FROM<br/>Chief of Station, JMWAVE</td><td colspan="3">ABSTRACT<br/>MICROFILM</td></tr></table>
 

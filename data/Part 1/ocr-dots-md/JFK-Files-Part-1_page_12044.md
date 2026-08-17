@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12044.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3 May 1972
 

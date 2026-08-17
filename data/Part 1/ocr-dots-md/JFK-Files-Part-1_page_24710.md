@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24710.png
-
-Convert to Markdown14-0000
+14-0000
 
 X-REF. SHEET S-E-C-R-E-T CATE 03/01/76
 

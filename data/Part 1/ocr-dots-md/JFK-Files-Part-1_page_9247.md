@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9247.png
-
-Convert to Markdownto LST, and there is or was a contract with Vanguard.
+to LST, and there is or was a contract with Vanguard.
 
 First, I was instructed to draw up a project to substitute David Shub to complete the biography. Later I was told that Boris had been sent to MI, with instructions to complete it himself.
 

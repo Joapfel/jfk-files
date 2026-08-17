@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16761.png
-
-Convert to Markdown3. In addition to bullet holes in the front bedroom that were produced by bullets passing through the front bedroom from shots fired in the living room, there were three shot patterns on the north wall of the front bedroom, six bullet holes in the east wall of the front bedroom, three bullet holes through the east wall of the closet in the front bedroom and five bullet holes in a dresser in the front bedroom.
+3. In addition to bullet holes in the front bedroom that were produced by bullets passing through the front bedroom from shots fired in the living room, there were three shot patterns on the north wall of the front bedroom, six bullet holes in the east wall of the front bedroom, three bullet holes through the east wall of the closet in the front bedroom and five bullet holes in a dresser in the front bedroom.
 
 A. Two shot patterns in the north wall of the front bedroom were produced by one or more shotguns firing shotshells loaded with Number 7 1/2 or 8 shot. These patterns were 47" and 56" from the northwest corner of the front bedroom and 42" and 31" from the floor respectively. The trajectory of these shots established that they were fired from the hallway through the open door to the front bedroom. Pieces of lead shot were recovered from both holes.
 

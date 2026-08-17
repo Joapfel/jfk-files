@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29017.png
-
-Convert to Markdown12 DEC 1969
+12 DEC 1969
 
 MEMORANDUM FOR: Head, Clandestine Service
 Career Service

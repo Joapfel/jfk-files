@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10304.png
-
-Convert to Markdown7/11/68
+7/11/68
 
 Estimado Caidos
 sabes la alegría

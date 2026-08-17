@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23344.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA A I R
 (Special Air or Sea Pouch)

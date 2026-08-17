@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17310.png
-
-Convert to MarkdownPERSONALITY BRIEF
+PERSONALITY BRIEF
 
 1. General Lazaro CARDENAS del Río
 ---

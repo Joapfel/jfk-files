@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4464.png
-
-Convert to MarkdownVII. AGENT SUMMARIES
+VII. AGENT SUMMARIES
 
 The scope and nature of the Agency's Foreign Intelli-
 gence operations is most clearly seen in the character, personal

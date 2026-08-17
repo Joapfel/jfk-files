@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_334.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9 DEC 68 56646
 

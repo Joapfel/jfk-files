@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28067.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td colspan="3"> U. S. GOVERNMENT PRINTING OFFICE: 1075 - 89734 </td>

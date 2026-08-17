@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6673.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and the Office of Security also had a subject file on Lee Harvey Oswald (#0351164). This information was reflected in the automated security database known as the Management Data Program/Personnel Security (MDP/PS). These files were originally miscellaneous files which were converted to the above numbers circa 1964. A hand search was also conducted of microfiche records which were superseded by the automated system. This hand search produced the same results as the automated search of MDP/PS.
 

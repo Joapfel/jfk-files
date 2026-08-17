@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25486.png
-
-Convert to Markdown2 October 1970
+2 October 1970
 
 MEMORANDUM FOR: CI/OA
 

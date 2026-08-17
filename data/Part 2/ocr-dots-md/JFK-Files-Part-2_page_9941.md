@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9941.png
-
-Convert to MarkdownRECEIVED FROM
+RECEIVED FROM
 
 FEB 12 1976
 

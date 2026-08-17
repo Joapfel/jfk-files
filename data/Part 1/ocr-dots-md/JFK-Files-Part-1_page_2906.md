@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2906.png
-
-Convert to MarkdownEXHIBIT 3 - Temporary Duty Authorization for Lt. Colonel
+EXHIBIT 3 - Temporary Duty Authorization for Lt. Colonel
 Yuriy Ivanovich NOSENKO, 15-30 December 1963
 
 REVERSE

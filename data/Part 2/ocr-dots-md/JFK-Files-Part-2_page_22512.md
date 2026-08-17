@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22512.png
-
-Convert to MarkdownIn February 1960, Wiley did testify before HCUA as an expert regarding the 7th WYF and covered "violence" against himself and other anti-Communists and the Communist dominance of delegations.
+In February 1960, Wiley did testify before HCUA as an expert regarding the 7th WYF and covered "violence" against himself and other anti-Communists and the Communist dominance of delegations.
 
 On or about 1 April 1960, the House Committee on Un-American Activities was interested in consultations with Wiley based on articles by Wiley appearing in the American Legion Magazine, Elks magazine, National Review, and the Ukranian Quarterly, apparently based on Wiley's observations of Iron Curtain countries derived from his travels to the USSR, the World Youth Festival in Vienna, and other Iron Curtain countries during the summer of 1959. (In February 1960, Wiley had testified before HCUA about his experiences at the Vienna Youth Festival.) The HCUA staff members interested in Wiley were Francis McNamara and Richard Arens.
 

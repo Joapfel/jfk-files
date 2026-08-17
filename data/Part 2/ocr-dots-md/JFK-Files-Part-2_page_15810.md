@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15810.png
-
-Convert to MarkdownOne Colt 45 caliber automatic, Serial
+One Colt 45 caliber automatic, Serial
 #7111, Model #1927;
 
 One Sears Roebuck 20 guage shotgun, Model

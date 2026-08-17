@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24152.png
-
-Convert to MarkdownEmployees* of Proprietaries as of October 30, 1975
+Employees* of Proprietaries as of October 30, 1975
 
 | | U.S. Agency Employees | U.S. Prop. Hire | Foreign Prop. Hires | Totals |
 |---|---|---|---|---|

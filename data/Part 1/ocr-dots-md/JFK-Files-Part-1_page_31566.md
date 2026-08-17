@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31566.png
-
-Convert to MarkdownPage 3
+Page 3
 Mr. H:dvood
 717-1
 

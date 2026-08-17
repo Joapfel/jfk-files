@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25866.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Dr. H. KUNOV, professor, University of Toronto, visited Moscow from September 1-14, 1975 to undertake research at the USSR Academy of Sciences, under the USSR/Canada General Exchange Agreement. The research was carried out at the Academy of Sciences Computer Centre, 40 Vavcoha Street. KUNOV's host was Yuriy I. TORGOV, 2nd in charge of the Computer Centre and on whom a separate personality sketch is attached.
 

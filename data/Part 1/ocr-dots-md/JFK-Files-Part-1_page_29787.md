@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29787.png
-
-Convert to Markdown14-0000
+14-0000
 
 Mr. David J. Murphy
 1537 Forest Villa Lane

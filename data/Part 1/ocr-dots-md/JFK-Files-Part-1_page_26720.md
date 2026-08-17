@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26720.png
-
-Convert to Markdown- 8 -
+- 8 -
 
 KOOI 72-KICO-23
 

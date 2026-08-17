@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22555.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 and few additional weapons could be important. . . . . I replied
 I had no submachine guns under my control and that any U.S.

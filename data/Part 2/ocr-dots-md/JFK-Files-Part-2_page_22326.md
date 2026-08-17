@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22326.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 police officers in the Washington, D.C., area for their assistance to the CIA. Each Christmas a list would be prepared of those individuals from local police departments who had provided assistance, and appropriate gifts would be given to these individuals, ranging from candy and liquor to $25 gift certificates. The money for these gifts was taken from CIA's "Blue Jay" fund, used for miscellaneous expenses. Some police officials would not accept such gratuities.
 

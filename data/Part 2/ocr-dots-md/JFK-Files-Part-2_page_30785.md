@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30785.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>9/70 or 71 - C.O. in DOD operating in U.S.</td>
    </tr>

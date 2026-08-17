@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24861.png
-
-Convert to MarkdownThe Committee does not have this new "marching order" in its possession.
+The Committee does not have this new "marching order" in its possession.
 
 However, CIA officials from whom the Committee took testimony believed
 that there had been no such definitive end to Track II. It merely

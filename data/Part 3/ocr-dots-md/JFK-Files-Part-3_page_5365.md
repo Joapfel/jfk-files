@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5365.png
-
-Convert to Markdown| | CODE |
+| | CODE |
 |:---|:---|
 | **TELETYPE** | NITEL |
 

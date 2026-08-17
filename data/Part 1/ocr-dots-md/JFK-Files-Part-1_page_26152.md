@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26152.png
-
-Convert to MarkdownRICO Galan, Victor
+RICO Galan, Victor
 DPRB 6 FEB 1928, SPAIN
 MLN
 

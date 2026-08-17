@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13959.png
-
-Convert to MarkdownN\W'185
+N\W'185
 
 Docld:2492
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3249.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 By August of 1960, WH/D had approved a program of "subtle sabotage paying off, without resorting to the more risky and sensational type of sabotage." Unfortunately, however, there was a communications gap between the operations people and the intelligence analysts most familiar with the world petroleum industry and a number of demonstrably unworkable -- though subtle -- sabotage efforts came to naught.*
 

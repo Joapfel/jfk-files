@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25411.png
-
-Convert to MarkdownMM 105-1742
+MM 105-1742
 
 search warrant and seized 2,400 pounds of dynamite and 20 bomb casings near Lacombé, Louisiana. This material was located on the property of WILLIAM J. MC LANDY, brother of MICHAEL J. MC LANDY, a Miami Beach gambler and former operator of a casino in the Nacional Hotel, Havana, Cuba.
 

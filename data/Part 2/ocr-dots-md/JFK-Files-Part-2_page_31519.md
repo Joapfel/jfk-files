@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31519.png
-
-Convert to MarkdownSF10-0-33836
+SF10-0-33836
 
 VIETNAM DAY COMMITTEE (VDC)
 

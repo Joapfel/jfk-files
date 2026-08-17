@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12272.png
-
-Convert to Markdown# I. FOUNDING
+# I. FOUNDING
 
 The Black Panther Party, with headquarters in Oakland, California, was founded in 1966 by two Oakland Negroes — Huey Percy Newton and Bobby George Seale — both at that time at Merritt College in Oakland. The name and symbol of the new party were taken from the Lowndes County Freedom Organization, an Alabama political party known informally in 1965 as the Black Panther Party.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9587.png
-
-Convert to MarkdownOPTIONAL FORM NO. 10
+OPTIONAL FORM NO. 10
 JULY-073 EDITION
 GSA FPM 141 (CPR) 101-11.8
 

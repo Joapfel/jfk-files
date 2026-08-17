@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31706.png
-
-Convert to Markdown**William F. Heinlich**
+**William F. Heinlich**
 
 Scheduled to be employed at a salary of $10,000 on December 1949 as a program adviser until March 1950. Worked under General Clay and under General Frank Howley.
 

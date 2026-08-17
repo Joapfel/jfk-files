@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_835.png
-
-Convert to MarkdownMr. William D. Ruckelshaus
+Mr. William D. Ruckelshaus
 The Deputy Attorney General - Designate
 
 However, we recognize that these two documents may assist the Department in analyzing our proposal concerning the issuance of an Executive order and therefore I am enclosing a copy of the two documents requested by Mr. Goldklang. We request that these documents not be disseminated outside the Department of Justice; that the documents not be duplicated or photographed; and that, if possible, they be returned to the FBI after they have served their purpose.

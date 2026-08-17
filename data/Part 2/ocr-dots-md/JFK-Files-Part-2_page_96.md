@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_96.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CASE OFFICER CHECK LIST
 PROJECT

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9109.png
-
-Convert to MarkdownIn addition to the various below interested in, Volen-
+In addition to the various below interested in, Volen-
 cruet, he was then a pen pal for a bit of Intuition.
 
 Comme il est-il dit d'un autre côté, pour George Ensign,

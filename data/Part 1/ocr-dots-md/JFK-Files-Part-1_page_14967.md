@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14967.png
-
-Convert to Markdown3. SERGO (?) KOKREIDZE (GOKH- KHOKH-)
+3. SERGO (?) KOKREIDZE (GOKH- KHOKH-)
 
 Lives 5 r. Leconte de Lisle (Metre Eglise d'Auteuil) c/o Mrs. Koulia. Does not live there but visits often. Is in close contact with Ilse DJABADARI, artist's agent, 16 r. du Cherche Midi. Pari XVI, Phone Little 190. DJABADARI is an agent for ballets and movies. Trying to set up a Georgian ballet together with Sergo KOKREIDZE. Have 12 boys and girls in troupe, want to expand to 30 members and come to US. Expect to tour Spain in near future. Sergo KOKREIDZE is about 5'8", 140 - 150 lbs. Is a dancer, thin body and face. Light hair, part bald. Narrow mustache. 41 years old. Is a wu II escapee with friends in Georgia. ALEPADDLE is of the opinion that :an not suitable for our specific purposes, but willing to do something. Can write.
 

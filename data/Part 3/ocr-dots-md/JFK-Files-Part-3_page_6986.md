@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6986.png
-
-Convert to MarkdownDESCRIPTION
+DESCRIPTION
 
 The following is a description of ANGELA YVONNE DAVIS
 as obtained from LA T-2, LA T-3 and Los Angeles County

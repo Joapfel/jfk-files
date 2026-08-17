@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8891.png
-
-Convert to Markdown# NATIONAL GUARD ARMORY BOMBED, HEROES SUCCESSFULLY ESCAPE
+# NATIONAL GUARD ARMORY BOMBED, HEROES SUCCESSFULLY ESCAPE
 
 Newburyport, Mass. is a small residential New England town basically composed of people from the White working class. Until last Saturday, September 19, Newburyport's only claim to fame was that it is one of the many small towns surrounding Boston which are strongholds for groups like the Minutemen and other right-wing fascist reactionaries. Last Saturday, however, at 6:00 a.m. in the morning a National Guard Armory was bombed, hundreds of rounds of ammunition ripped off, military personnel records taken and to top it off, they left the scene in a one ton army pick-up truck. They (the bombers) attempted to open the vault holding
 

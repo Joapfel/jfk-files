@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14029.png
-
-Convert to MarkdownMr. Colby concluded his discussion with the Board and left the meeting at 1:00 p.m.
+Mr. Colby concluded his discussion with the Board and left the meeting at 1:00 p.m.
 
 In executive session, the Board had a further discussion of its report to be made to President Kennedy on the Dunlap case. Chairman Clifford brought Messrs. Murphy and Pace up to date on the principal matters covered at the preceding day's session of the Board meeting with regard to the extensive review and materials which had been completed thus far by Mr. Gray and Mr. Coyne in the Dunlap case. Mr. Clifford summed up the Board's reaction of being agitated at the shocking looseness of security attitude at the NSA. He referred to the many questions which had been put to the Director of NSA at yesterday's session. Mr. Clifford observed that General Fitch had made a very intelligent presentation, and that an exceedingly valuable session had been had with General Carroll of DIA. Mr. Clifford said that after lunch the Board would complete its consideration of the Dunlap report and recommendations which the Board Panel had drafted. Arrangements had not been made for a meeting of Board members with President Kennedy in conjunction with this particular Board meeting because Mr. Clifford had felt that the Board would require all the time of this 2-day meeting to complete action on its report on a complex subject.
 

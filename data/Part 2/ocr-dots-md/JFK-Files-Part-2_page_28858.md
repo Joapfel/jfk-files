@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28858.png
-
-Convert to MarkdownAssociate in the law firm of PAUL, HASTINGS & JANOFSKY,
+Associate in the law firm of PAUL, HASTINGS & JANOFSKY,
 Los Angeles, California (1975).
 
 Assistant to the Financial Vice-President, Harvard

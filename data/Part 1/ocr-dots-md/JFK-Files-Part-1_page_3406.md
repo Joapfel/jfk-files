@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3406.png
-
-Convert to Markdowngood or ill have left a political philosophy to history. A
+good or ill have left a political philosophy to history. A
 leader has a duty to understand them completely. But the ide-
 oligies that are most familiar to me are moulded in the unfor-
 gettable thoughts of Jesus Christ, Marti and Bolivar.

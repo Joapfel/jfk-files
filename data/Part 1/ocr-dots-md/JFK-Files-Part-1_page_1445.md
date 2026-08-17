@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1445.png
-
-Convert to MarkdownRETURN TO GIA
+RETURN TO GIA
 Background Use Only
 Do Not Reproduce
 

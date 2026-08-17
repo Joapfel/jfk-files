@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15597.png
-
-Convert to MarkdownEXPLANATION OF THE PASSPORT ENTRIES
+EXPLANATION OF THE PASSPORT ENTRIES
 
 Inside front cover: Contains cachet indicating that Subject paid 20 Schilling to obtain passport.
 

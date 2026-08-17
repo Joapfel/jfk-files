@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3757.png
-
-Convert to Markdown**United States Senate**
+**United States Senate**
 
 SELECT COMMITTEE TO
 STUDY GOVERNMENTAL OPERATIONS WITH

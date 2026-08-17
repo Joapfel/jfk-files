@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25920.png
-
-Convert to MarkdownHarvey states that as soon as the missile crisis was over,
+Harvey states that as soon as the missile crisis was over,
 i.e., late 1962, he indicated to Roselli that he wanted the
 project cut off, although gradually so as not to create hard
 feelings.

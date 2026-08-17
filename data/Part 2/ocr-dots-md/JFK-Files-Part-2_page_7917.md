@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7917.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SUBJECT: Extracts from Monthly Counterintelligence Report, OBI, AAC
 

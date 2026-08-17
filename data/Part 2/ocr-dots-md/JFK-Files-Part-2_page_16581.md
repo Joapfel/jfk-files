@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16581.png
-
-Convert to Markdown2. Identify the police officers who took part in the raid and interview the subjects named above.
+2. Identify the police officers who took part in the raid and interview the subjects named above.
 
 3. It is understood that two autopsies on victim FRED HAMPTON's body were performed, one by the coroner and one by a group of physicians headed by Dr. VICTOR LEVINE of Northwestern University. Obtain copies of each report.
 

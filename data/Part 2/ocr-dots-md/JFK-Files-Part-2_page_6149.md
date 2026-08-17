@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6149.png
-
-Convert to Markdown56 Md. L. Rev. 1, *19
+56 Md. L. Rev. 1, *19
 
 n121. See id.
 

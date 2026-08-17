@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3431.png
-
 s, but the branch in reality is an extension of the chief of station's personal clandestine capabilities, giving force and effect to that facet of the chief of station's personality as an operator. The deputy chief of station, in addition to his administrative duties, also personally handles the operations of three projects.
 
 ## Cuban Operations

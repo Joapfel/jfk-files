@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18835.png
-
-Convert to MarkdownLetter to Director, FBI (105-28333)
+Letter to Director, FBI (105-28333)
 From SAC, San Francisco (105-3646)
 
 to exceed two weeks. JAFFE stated that he had contacted FEDOSEEV in hopes to obtain a visa for a longer period of time but FEDOSEEV had advised him that the issuance of such a visa would not follow but that he could possibly obtain an extension on the two weeks' visa. JAFFE stated that he challenged the statement of FEDOSEEV that his visa would be extended and since he could receive assurance of a visa for a period not to exceed two weeks he had decided against making the trip to the Soviet Union and had returned to his home in Atherton from Washington, D.C., and New York.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3972.png
-
-Convert to Markdown92224
+92224
 
 Department of State
 

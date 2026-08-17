@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24321.png
-
-Convert to Markdown4. The charge is made that QRPHONE is too thinly spread and there is a recurring urge that his targetting be better focussed. Can he in fact be better focussed on a multi-divisional basis or would focussing, in practice, result in his being narrowed down to a primarily divisional target?
+4. The charge is made that QRPHONE is too thinly spread and there is a recurring urge that his targetting be better focussed. Can he in fact be better focussed on a multi-divisional basis or would focussing, in practice, result in his being narrowed down to a primarily divisional target?
 
 5. Granting that the CIA label is somewhat in-discriminately used for character assassination in the conspiratorial fringe in which QRPHONE has been operating, isn't he in fact stuck with this label and in view of the international character of this conspiratorial fringe, won't it turn up wherever he goes? In this milieu is there really much chance he will be given any signifi-cant information (and not deception information) by anyone who will do so because he wants the information passed to CIA?
 

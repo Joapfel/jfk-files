@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26032.png
-
-Convert to MarkdownMEMORANDUM FOR: Director of Training
+MEMORANDUM FOR: Director of Training
 Attention: Chief, Cover Training OS/TR
 
 SUBJECT: Cover Training Requirement for Station Caracas, Project CIFLUTE

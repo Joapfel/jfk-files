@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31652.png
-
-Convert to MarkdownAdministration policies in Viet Nam" was "presently" touring South Vietnam and Cambodia, the latter country at the invitation of Prince SHIANOUK.
+Administration policies in Viet Nam" was "presently" touring South Vietnam and Cambodia, the latter country at the invitation of Prince SHIANOUK.
 
 SF T-18 related on May 16, 1966, he could not recall who told him, but he had the distinct impression he was told that MARVIN GARSON was the main author of the "soldier's leaflet." SF T-18 added he had not heard anything linking JACK WEINBERG with the preparation of the leaflet or that ROBERT SCHEER had proofread the leaflet.
 

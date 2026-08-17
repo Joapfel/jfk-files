@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5708.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: (S) Required Protection of Warrenton Training Center as CIA Facility
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5889.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA-IR-19 Computer Search on Specific Individuals and Organizations
 

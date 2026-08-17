@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6249.png
-
-Convert to MarkdownHunt: SUMMARY
+Hunt: SUMMARY
 Hardway
 4/7/76
 

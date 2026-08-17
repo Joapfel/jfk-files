@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12465.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HVCA-18640, 19 January 1972
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30270.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 it is not one officer, it is a big amount of people involved
 on each case, because it is very serious target.

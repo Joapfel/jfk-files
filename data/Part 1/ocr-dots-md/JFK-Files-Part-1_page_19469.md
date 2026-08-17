@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19469.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 SUBJECT: Memorandum of Performance
 MOORE, J. Walton

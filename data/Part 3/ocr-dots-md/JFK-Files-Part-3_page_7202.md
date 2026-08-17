@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7202.png
-
-Convert to MarkdownI will also offer ideas for improvements that could help us
+I will also offer ideas for improvements that could help us
 do our job better.
 
 It is important that our intelligence activities be

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4559.png
-
-Convert to Markdownb. Mann is to send around a draft OAS resolution which was prepared during Martin's time.
+b. Mann is to send around a draft OAS resolution which was prepared during Martin's time.
 
 c. As to the specific paragraphs of the Vance memo, Bundy indicated his personal views (not an Administration commitment) that items 1 and 2a were OK; 2b for Cuban ships only; 3a should be intensified; 3b and 3c were directly connected to a separate black-list enterprise; 4 was OK. As for actions against Cuban subversion in Latin America, on paragraph 1 we should see just what our opportunities are, and on paragraph 2 CIA should determine just what we think the local traffic will bear and just what our capabilities might be.
 

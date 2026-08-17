@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_174.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 In October, 1967, the Miami Office furnished newspaper articles to television station WCKT-TV regarding bombings and firebombings. Some individuals involved in the firebombings and bombings were Klansmen and were identified as such in the newspaper articles.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10864.png
-
-Convert to Markdown6) India-Pakistan
+6) India-Pakistan
 
 a. Developments in Indo-Pakistani relations and attitudes toward the US, the USSR and Communist China.
 

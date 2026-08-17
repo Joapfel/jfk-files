@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25070.png
-
-Convert to MarkdownCUBA
+CUBA
 
 # FIDEL CASTRO INTERVIEWED BY DAGENS NYHETER
 

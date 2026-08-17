@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5177.png
-
-Convert to MarkdownFBI CABLE
+FBI CABLE
 
 FROM DIRECTOR FBI
 

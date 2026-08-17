@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25728.png
-
-Convert to Markdown18 October 1963
+18 October 1963
 
 MEMORANDUM TO: Contract Personnel Division
 SUBJECT : Raymond H. GERENDE (ps)

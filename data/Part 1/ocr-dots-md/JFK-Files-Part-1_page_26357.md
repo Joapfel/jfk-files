@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26357.png
-
-Convert to MarkdownThis material contains information affecting the National Defense of the United States within the meaning of the Emergency Laws Title 18, U.S.C. §§93 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+This material contains information affecting the National Defense of the United States within the meaning of the Emergency Laws Title 18, U.S.C. §§93 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
 
 SECRET/NO FOREIGN DISSEM
 

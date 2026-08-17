@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4623.png
-
-Convert to Markdown1300000
+1300000
 
 24 OCT 1975
 

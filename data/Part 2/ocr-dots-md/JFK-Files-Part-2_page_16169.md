@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16169.png
-
-Convert to MarkdownF-372 (Rev. 4-15-64)
+F-372 (Rev. 4-15-64)
 
 FEDERAL CUREAU OF INVESTIGATION
 

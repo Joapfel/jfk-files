@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25259.png
-
-Convert to MarkdownSR/6/Bio (Rebecca T. Clarke)
+SR/6/Bio (Rebecca T. Clarke)
 
 30 June 61
 

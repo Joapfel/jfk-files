@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11798.png
-
-Convert to MarkdownApril 9, 1963
+April 9, 1963
 
 Dear Sir,
 

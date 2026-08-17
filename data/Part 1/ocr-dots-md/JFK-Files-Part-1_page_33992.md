@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33992.png
-
-Convert to Markdown10. Mr. Ioannis Vellidis
+10. Mr. Ioannis Vellidis
 Makedonia
 Thessaloniki, Greece
 

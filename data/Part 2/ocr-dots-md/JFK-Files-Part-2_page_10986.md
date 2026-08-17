@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10986.png
-
-Convert to MarkdownJanuary 27, '64
+January 27, '64
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 137

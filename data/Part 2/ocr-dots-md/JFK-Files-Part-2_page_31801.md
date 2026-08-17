@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31801.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FAIR PLAY FOR CUBA COMMITTEE, BAY AREA CHAPTER, also known as Bay Area Fair Play for Cuba Committee (BAFPCC)
 

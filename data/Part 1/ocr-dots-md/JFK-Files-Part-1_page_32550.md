@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32550.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">DISPATCH</th></tr></thead><tbody><tr><td>1st</td><td>Clerk, F</td><td>27-263</td></tr><tr><td>No</td><td>Chief of Staff, World</td><td>19 January 1962</td></tr><tr><td>Ave.</td><td>Administrative/Finance</td><td>FLS - CHIEF S O/S</td></tr><tr><td></td><td>Reconnaissance for Promotion - [REDACTED]</td><td>WARS FOR INDOING<br/>NO PILING UPON</td></tr><tr><td>Sig.</td><td>Rec. Belge</td><td>OFFICER CAN BE JUDGED<br/>BY QUALIFIED H.O. SEX ONLY</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">DISPATCH</th></tr></thead><tbody><tr><td>1st</td><td>Clerk, F</td><td>27-263</td></tr><tr><td>No</td><td>Chief of Staff, World</td><td>19 January 1962</td></tr><tr><td>Ave.</td><td>Administrative/Finance</td><td>FLS - CHIEF S O/S</td></tr><tr><td></td><td>Reconnaissance for Promotion - [REDACTED]</td><td>WARS FOR INDOING<br/>NO PILING UPON</td></tr><tr><td>Sig.</td><td>Rec. Belge</td><td>OFFICER CAN BE JUDGED<br/>BY QUALIFIED H.O. SEX ONLY</td></tr></tbody></table>
 
 **PROPRIETORS**
 

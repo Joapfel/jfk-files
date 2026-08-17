@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26606.png
-
-Convert to Markdown1. Venezuela
+1. Venezuela
     a. Election campaigning ended at midnight, but boosters for the several candidates continued to mill about streets of Caracas in defiance of terrorist threats to shoot anyone who ventured out for the next three days.
 
     b. The terrorists, it seems, were all but drowned out by the carnival air.

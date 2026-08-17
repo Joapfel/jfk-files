@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14223.png
-
-Convert to Markdown4/17/75
+4/17/75
 
 MR. JENKINS
 D.W. MOORE, JR.

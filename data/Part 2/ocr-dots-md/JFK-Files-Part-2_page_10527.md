@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10527.png
-
-Convert to Markdown7 JUN 1972
+7 JUN 1972
 
 Foreign Support for Activities Planned to Disrupt or Harass the Democratic National Convention
 

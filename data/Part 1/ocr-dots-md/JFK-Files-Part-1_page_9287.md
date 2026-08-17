@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9287.png
-
-Convert to Markdownbut, with brevity, it paints a picture, after a fashion.) After all, words alone can paint pictures, and evoke emotions, and as your basic aim is to evoke an emotional response, there's no need to cramp your style with a self-imposed restriction banning the use of words. I should think the test would be: If the reader wants to stop reading it in the middle, the caption, however true, is bad; if you've held his interest to a pitch where he really wants to read or, _and_ is painting pictures in his own mind as he reads, then it's OK.
+but, with brevity, it paints a picture, after a fashion.) After all, words alone can paint pictures, and evoke emotions, and as your basic aim is to evoke an emotional response, there's no need to cramp your style with a self-imposed restriction banning the use of words. I should think the test would be: If the reader wants to stop reading it in the middle, the caption, however true, is bad; if you've held his interest to a pitch where he really wants to read or, _and_ is painting pictures in his own mind as he reads, then it's OK.
 
 E.g., if you have the photo of the three purges Bykov, K., & Z., and then continue in your caption to the time "there was a bullet in the back of the head for X, and for Y, and for Z too" it will be, _fante de nique_, OK if the reader is already gripped to the point of picturing to himself all these Comrades being ground thru the mill of "opposition"—dission—arrest—"confession"—death.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9227.png
-
-Convert to Markdown# I. ORGANIZATIONAL AND OPERATIONAL STRUCTURE OF THE DETROIT BLACK PANTHER PARTY (BPP)
+# I. ORGANIZATIONAL AND OPERATIONAL STRUCTURE OF THE DETROIT BLACK PANTHER PARTY (BPP)
 
 The Black Panther Party (BPP) is a black extremist organization started in Oakland, California, in December, 1966. It formerly advocated the use of guns and guerrilla tactics to bring about the overthrow of the United States Government. Since early 1971, it has preached a policy of "survival pending revolution".
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11771.png
-
-Convert to MarkdownMemorandum to Mr. Tolson
+Memorandum to Mr. Tolson
 Re: Proposed Transfer of Supervisory Responsibility for Certain Cases from General Investigative Division to Domestic Intelligence Division
 
 reassignment of the entire classification to DID should present no problems with respect to any division of responsibility or routing of communications. Experience gained thus far under apparent violations which the Bureau has been requested by the Department to investigate supports the close correlation of such violations with racial intelligence matters now handled by DID. If specific cases have been opened thus far and are now pending, The most recent involves allegations of police brutality during Democratic Convention in Chicago involving injury to over 70 police officers. Review of these cases disclosed them to be noncomplex in nature and in view of the current status of supervision and investigation, it appears most practicable for GD to retain the specific supervision of these if cases to their conclusion. Thus supervisory responsibility under this classification will be fixed at a clear cut-off point after which all new cases arising will automatically be routed to and supervised by DID from inception. No further guidelines appear necessary in this classification.

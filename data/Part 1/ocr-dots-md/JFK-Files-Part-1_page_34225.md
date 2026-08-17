@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34225.png
-
-Convert to Markdown# "CUBA... IN THE CUMMUNIST WAY" (G.D.U.L)
+# "CUBA... IN THE CUMMUNIST WAY" (G.D.U.L)
 
 **December 15, 1965:** "WHY THE CUBAN LEADER IS BELOVED COUNTRY".- He rebuff an editorial published by the Havana newspaper "El Abad" whereby the communists editorialists attack those Cubans whose leave for exile. He point at the real course of the Cuban exodus, which we confirmed with the words of MJ. Sergio del Valle, a prominent Castro officer, who in Ciudad Libertad, on Dec. 13 spoke of the harsh life of the prisoners.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23768.png
-
-Convert to MarkdownMr. Inderfurth. But just to be a devil's advocate for
+Mr. Inderfurth. But just to be a devil's advocate for
 
 a moment, we don't want to insert then, using your language,
 

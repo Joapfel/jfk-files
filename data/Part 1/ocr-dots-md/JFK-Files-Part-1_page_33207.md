@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33207.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5 APR 68 IN 86154
 

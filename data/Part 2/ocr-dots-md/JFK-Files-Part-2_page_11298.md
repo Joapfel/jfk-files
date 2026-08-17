@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11298.png
-
-Convert to Markdown(4) Content
+(4) Content
 
 (a) Each card in section A and section B should contain, as a minimum, the following:
 

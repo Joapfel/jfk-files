@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1759.png
-
-Convert to Markdown20 December 1967
+20 December 1967
 
 MEMORANDUM FOR: Chief, LEOB/GRG
 

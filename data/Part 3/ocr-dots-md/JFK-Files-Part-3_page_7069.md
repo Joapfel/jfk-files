@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7069.png
-
-Convert to MarkdownTHE WHITE HOUSE
+THE WHITE HOUSE
 WASHINGTON
 
 July 24, 1950

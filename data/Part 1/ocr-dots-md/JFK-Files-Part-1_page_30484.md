@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30484.png
-
-Convert to MarkdownMEMORANDUM FOR: Acting Chief, CI Staff
+MEMORANDUM FOR: Acting Chief, CI Staff
 
 SUBJECT: Recommendation for Promotion of
 Newton Scott Miler

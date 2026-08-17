@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10790.png
-
-Convert to MarkdownFEB 2, 1970
+FEB 2, 1970
 
 LIBERTAD, VIERNES 9 DE ENERO DE 1970 Pag. 14.
 

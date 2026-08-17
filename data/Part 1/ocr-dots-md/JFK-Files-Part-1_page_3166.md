@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3166.png
-
-Convert to MarkdownSECRET
+SECRET
 OPERATIONAL SUMMARY SHEET
 
 JUN 1970

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20210.png
-
-Convert to MarkdownNY.100-174481
+NY.100-174481
 
 It was announced that the demonstration was planned
 to be completely non-violent and that the scheduled speakers

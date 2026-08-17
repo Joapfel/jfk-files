@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10281.png
-
-Convert to Markdownrelación, los brazos y las piernas, la cabeza y la mano... (18)
+relación, los brazos y las piernas, la cabeza y la mano... (18)
 
 La praxis productiva es así la praxis fundamental porque en ella el hombre no sólo produce un mundo humano o humanizado, en el sentido de un mundo de objetos que satisfacen necesidades humanas y que sólo pueden ser producidas en la medida en que se plasman en ellos fines o proyectos humanos, sino también, en el sentido de que en la praxis productiva el hombre se produce, forma o transforma a sí mismo. A la par que de ese modo actúa sobre la naturaleza exterior a él y la transforma —dice Marx— en El Capital—, transforma su propia naturaleza desarrollando las potencias que forman en él y someterá el juego de sus fuerzas a su propia disciplina (19).
 

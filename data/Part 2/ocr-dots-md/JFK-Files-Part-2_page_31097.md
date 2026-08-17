@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31097.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① 26 July.1963. Covert Security Approval requested so Luce can contact COS, Rome (Wm. Harvey) when he visits U.S. or she visits Italy.
 

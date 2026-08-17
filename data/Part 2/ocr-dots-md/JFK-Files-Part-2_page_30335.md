@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30335.png
-
-Convert to Markdown connections between the Soviets and Oswald and the assassination of President Kennedy. Obviously the USSR would need this for obvious reasons. They would badly need this for all sorts of international reasons.
+connections between the Soviets and Oswald and the assassination of President Kennedy. Obviously the USSR would need this for obvious reasons. They would badly need this for all sorts of international reasons.
 
 And finally, the fourth option is that you were dispatched here by the Soviet Government and the KGB because there was an actual connection between the KGB and the assassination of President Kennedy.
 

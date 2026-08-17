@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8760.png
-
-Convert to MarkdownNo. 288
+No. 288
 
 La Embajada de la Unión de Repúblicas Socialistas Soviéticas saluda muy atentamente a la Embajada de los Estados Unidos de América y tiene el honor de solicitar que se sirva extender las visas de tránsito en los pasaportes diplomáticos del Sr. VALENTIN LOGUINOV, Tercer Secretario de la Embajada de la URSS en México, su esposa Sra. ALEXANDRA LOGUINOVA, con el hijo DMITRI.
 

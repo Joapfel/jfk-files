@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2423.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A. NOSENKO did not serve in the Naval RU in any of the capacities
 or at the places and times he claimed. (Previous conclusion)

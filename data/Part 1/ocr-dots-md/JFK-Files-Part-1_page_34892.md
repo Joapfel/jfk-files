@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34892.png
-
-Convert to MarkdownSECRET F
+SECRET F
 
 CLASSIFIED MESSAGE TOTAL COPIES 30
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6793.png
-
-Convert to Markdown66.—Armando Samper, según informó Política, México, D. F., Septiembre 1 de 1960, pág. 45.
+66.—Armando Samper, según informó Política, México, D. F., Septiembre 1 de 1960, pág. 45.
 
 67.—"A primera vista puede parecer que este incremento en los servicios personales es el mismo fenómeno que ocurre en los países más desarrollados, donde según aumentan los ingresos per cápita la demanda por servicios especializados altamente remunerados es muy elástica. Sin embargo, este no parece ser el caso de... [América Latina] donde los servicios personales pobremente remunerados prevalecen y el exceso de trabajadores que no puede ser absorbido por otras ocupaciones... se oculta de esta manera... En segun- do lugar... la clase media, que no puede encontrar una ocupación productiva en actividades económicas privadas, ejerce una presión constante sobre el sector público, el cual evidentemente..., debe cumplir una función de absorción de no poca significación social". (Economic Survey of Latin America 1954, Naciones Unidas 1955, págs. 26-27).
 

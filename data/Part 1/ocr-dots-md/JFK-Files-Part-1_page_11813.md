@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11813.png
-
-Convert to Markdown# III. THE PROPOSAL
+# III. THE PROPOSAL
 
 ## A. Statement of the Proposal
 

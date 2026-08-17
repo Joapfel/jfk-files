@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18582.png
-
-Convert to Markdown11 AUG 1975
+11 AUG 1975
 
 | Name | Compartmented Clearance Designated Briefed (SI, TK, B) | Date and Place of Birth | Social Security No. |
 |---|---|---|---|

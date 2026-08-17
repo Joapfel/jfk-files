@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1853.png
-
-Convert to Markdown29 MAR 1966
+29 MAR 1966
 
 MEMORANDUM FOR: Mr. James S. Woods
 SUBJECT : Quality Step Increase

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7237.png
-
-Convert to MarkdownSEC.
+SEC.
 
 CONTACT REPORT
 

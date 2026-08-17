@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21913.png
-
-Convert to MarkdownJune 1962
+June 1962
 
 and we reported this to Moscow. I don't know what was done with this information after this. So, we were concerned with information."
 

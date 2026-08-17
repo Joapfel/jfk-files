@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7072.png
-
-Convert to Markdownrecords was its belief that the FBI's evidence did not enumerate specific harms that would result from disclosure.
+records was its belief that the FBI's evidence did not enumerate specific harms that would result from disclosure.
 
 A. *The FBI's May 1996 Appeals to the President.* On May 10 and 28, 1996, the FBI appealed to the President to overturn the Board's vote on 17 records relating to the FBI's surveillance of officials and establishments of four Communist countries—the Soviet Union, Cuba, Czechoslovakia, and Poland—during the 1960s. The FBI's overarching arguments were that disclosure of the information would reveal sensitive sources and methods that would compromise the national security of the United States, and that disclosure of the targets of the surveillance—the four Communist countries—would harm the foreign relations of the United States.
 

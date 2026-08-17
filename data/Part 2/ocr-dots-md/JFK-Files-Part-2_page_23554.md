@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23554.png
-
-Convert to MarkdownMay 24, 1961
+May 24, 1961
 
 MEMORANDUM OF CONVERSATION WITH:
 

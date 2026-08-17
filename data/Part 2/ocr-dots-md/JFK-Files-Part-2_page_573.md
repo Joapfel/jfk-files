@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_573.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE THREE MEXICO CITY 4271 SECRET
 WAS WORKING IN MINREX.

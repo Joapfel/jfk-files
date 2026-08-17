@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19249.png
-
-Convert to MarkdownAMERICAN WOMEN represent 51% of the voting population of our country.
+AMERICAN WOMEN represent 51% of the voting population of our country.
 
 AMERICAN WOMEN have the power to achieve peace and a decent life for every American.
 

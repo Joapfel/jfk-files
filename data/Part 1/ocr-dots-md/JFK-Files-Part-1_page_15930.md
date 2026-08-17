@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15930.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Under Separate Cover Attachment to EGOT-19339, dated 3 June
 1963

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26519.png
-
-Convert to Markdownarrived [Dondonita?] took this note to us, which I would like to read. It
+arrived [Dondonita?] took this note to us, which I would like to read. It
 is dated 21 September 1964. It is a note which [Juan Chaoon] sends to comrades
 Adan, and it reads as follows:
 

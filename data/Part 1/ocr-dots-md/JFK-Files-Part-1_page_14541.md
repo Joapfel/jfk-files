@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14541.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>14:00:00</td>
   </tr>

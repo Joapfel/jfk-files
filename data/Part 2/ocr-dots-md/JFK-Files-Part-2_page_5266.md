@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5266.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 CSI 0327/96
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12256.png
-
-Convert to Markdown<table>
+<table>
   <caption>ROUTING AND RECORD SHEET<br/>JAN 1972</caption>
   <thead>
     <tr><th colspan="5" style="text-align:center;">INSTRUCTIONS</th></tr>

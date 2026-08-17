@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19799.png
-
-Convert to MarkdownCOPY
+COPY
 
 20 April 1974.
 

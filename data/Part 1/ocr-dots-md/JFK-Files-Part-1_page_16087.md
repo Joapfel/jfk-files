@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16087.png
-
-Convert to Markdownto be kept close to his chosen targets. Special training for other individuals should be provided for officers and men. Officers should be given opportunities to study the psychology of war, especially combat心理 as it is called from 1950 to 1960.
+to be kept close to his chosen targets. Special training for other individuals should be provided for officers and men. Officers should be given opportunities to study the psychology of war, especially combat心理 as it is called from 1950 to 1960.
 
 c. Psychological operations.
 

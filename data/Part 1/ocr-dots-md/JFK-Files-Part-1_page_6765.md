@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6765.png
-
-Convert to Markdown201-1285
+201-1285
 
 <table><thead><tr><th>DATE RECEIVED</th><th>DATE RETURNED</th><th>REVIEWED BY (PRINT NAME)</th><th>SIGNATURE OF REVIEWING OFFICIAL</th></tr></thead><tbody><tr><td>18 MAY</td><td>-</td><td>JOHANNA SMITH</td><td>Thomas Smith</td></tr><tr><td>23 MAY</td><td>23 MAY</td><td>"</td><td>"</td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></tbody></table>
 

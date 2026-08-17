@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5912.png
-
-Convert to Markdown# CENTRAL INTELLIGENCE AGENCY
+# CENTRAL INTELLIGENCE AGENCY
 
 This material contains information effective as of August 23, 1968. All orders, instructions or orders to be given by the President are hereby revoked and replaced with the following:
 

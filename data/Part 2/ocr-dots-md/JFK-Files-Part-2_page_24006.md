@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24006.png
-
-Convert to Markdown13 October)* This Viaux kidnapping of Schneider was reported by the Sta-
+13 October)* This Viaux kidnapping of Schneider was reported by the Sta-
 
 tion "as part of a coup that included Valenzuela." (Station 529, 13 October)
 

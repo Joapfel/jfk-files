@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22026.png
-
-Convert to Markdownin the fall of 1964 to ask whether he knew anything about KOSENKO's defection. Shown KOSOLOV's photograph in October 1966, NOSENKO immediately identified him as KOSOLAPOV.
+in the fall of 1964 to ask whether he knew anything about KOSENKO's defection. Shown KOSOLOV's photograph in October 1966, NOSENKO immediately identified him as KOSOLAPOV.
 
 KOSOLPOV told the FBI that he was a Soviet officer and had been to Moscow for a business trip. Subsequently CIA prepared a protocol, which KOSENKO read and signed, corroborating its accuracy. This protocol reads:
 

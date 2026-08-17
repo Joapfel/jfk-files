@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10652.png
-
-Convert to Markdown# Radio Stations
+# Radio Stations
 
 WGBS, BOB MARTIN, News
 WIOD, JAMES LE GATE

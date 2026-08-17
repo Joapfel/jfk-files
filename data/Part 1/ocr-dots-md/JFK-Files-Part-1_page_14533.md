@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14533.png
-
-Convert to Markdown14-0020
+14-0020
 
 MESSAGE FORM
 TOTAL COPIES:

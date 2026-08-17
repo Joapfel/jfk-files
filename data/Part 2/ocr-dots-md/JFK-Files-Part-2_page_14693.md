@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14693.png
-
-Convert to MarkdownWALTER BERYL CHIPMAN, ET AL.
+WALTER BERYL CHIPMAN, ET AL.
 
 CRIME ON HIGH SEAS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6152.png
-
-Convert to Markdowncertain secrets from disclosure. See 44 U.S.C. 2107(6) (1994) (identifying the grounds on which the Review Board may postpone release of assassination materials); Sanders & Zaid, supra note 62, at 419 (explaining the Board's obligations when it decides to postpone release of a document).
+certain secrets from disclosure. See 44 U.S.C. 2107(6) (1994) (identifying the grounds on which the Review Board may postpone release of assassination materials); Sanders & Zaid, supra note 62, at 419 (explaining the Board's obligations when it decides to postpone release of a document).
 
 n144. See DuVal, supra note 14, at 668-71 (identifying 10 justifications for nondisclosure).
 

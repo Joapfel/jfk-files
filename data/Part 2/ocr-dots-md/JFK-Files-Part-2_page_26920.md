@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26920.png
-
-Convert to MarkdownSECRET
+SECRET
 
 it wasn't feasible to continue these things. The agents were getting wrapped up. We were -- we just felt that the return wasn't sufficient for what the investment was.
 

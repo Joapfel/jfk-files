@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3411.png
-
-Convert to Markdown2. to conduct full domestic intelligence investigations on the basis of specific and articulable facts justifying the conclusion that an individual, or individuals acting in concert, are engaged in activities which are likely to involve the use of violence as described in 1 above.
+2. to conduct full domestic intelligence investigations on the basis of specific and articulable facts justifying the conclusion that an individual, or individuals acting in concert, are engaged in activities which are likely to involve the use of violence as described in 1 above.
 
 The draft guidelines also discuss the surveillance techniques to be used in full domestic intelligence investigations, including informants, mail covers, and electronic surveillance. The guidelines note that additional techniques may need to be covered, such as inquiries made under "pretext", photographic surveillance, "trash covers", etc. However, the legislation may deal with techniques more generally by providing that the FBI is authorized:
 

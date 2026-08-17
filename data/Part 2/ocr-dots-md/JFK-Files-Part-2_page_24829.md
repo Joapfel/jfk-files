@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24829.png
-
-Convert to Markdown"any further action on the subject would henceforth be the responsibility of the CIA and that DIA would perform normal support functions." (Roth, p. 8)*
+"any further action on the subject would henceforth be the responsibility of the CIA and that DIA would perform normal support functions." (Roth, p. 8)*
 
 Both Bennett and Philpott testified that the activities described by Roth were routine DIA activities. However, Colonel Roth testified:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26291.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">MESSAGE FORM</th></tr><tr><td colspan="2">TOTAL COPIES:</td></tr></thead><tbody><tr><td>☐ FILE RID</td><td rowspan="4">S E C R E T</td></tr><tr><td>☐ INDEX</td></tr><tr><td>☐ NO INDEX</td></tr><tr><td>☐ FILE IN CS FILE NO.</td></tr></tbody><tfoot><tr><td colspan="2"><table><caption>ROUTING</caption><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table></td></tr><tr><td colspan="2"><input type="checkbox" id="destroy" checked /> DESTROY <input type="checkbox" id="return" checked /> RETURN TO ____ BRANCH</td></tr></tfoot></table>
+<table><thead><tr><th colspan="2">MESSAGE FORM</th></tr><tr><td colspan="2">TOTAL COPIES:</td></tr></thead><tbody><tr><td>☐ FILE RID</td><td rowspan="4">S E C R E T</td></tr><tr><td>☐ INDEX</td></tr><tr><td>☐ NO INDEX</td></tr><tr><td>☐ FILE IN CS FILE NO.</td></tr></tbody><tfoot><tr><td colspan="2"><table><caption>ROUTING</caption><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table></td></tr><tr><td colspan="2"><input type="checkbox" id="destroy" checked /> DESTROY <input type="checkbox" id="return" checked /> RETURN TO ____ BRANCH</td></tr></tfoot></table>
 
 G:
 

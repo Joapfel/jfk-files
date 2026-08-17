@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17296.png
-
-Convert to Markdown-13-
+-13-
 
 PROJECT OUTLINE
 

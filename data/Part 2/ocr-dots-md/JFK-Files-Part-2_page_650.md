@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_650.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>DATE: J. GIBBS/</td><td></td><td>TOTAL COPIES: 26</td></tr><tr><td>CHG: 2</td><td>[FIL. &amp; D]</td><td rowspan="3"><table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table></td></tr><tr><td>LAT: 36°54′</td><td>□ INDEX</td></tr><tr><td>EAT: 20 JUNE 66</td><td>Z NO INDEX</td></tr><tr><td></td><td colspan="2">Z FILE IN CS FILE NO. 201-793301</td></tr></table>
 

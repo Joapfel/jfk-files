@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18795.png
-
-Convert to MarkdownENGAGEMENT SHEET
+ENGAGEMENT SHEET
 
 1. To be filled out in duplicate by the Unit Administrative Officer for all prospective employees to be paid from Special Funds.
 

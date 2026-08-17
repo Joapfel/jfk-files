@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4641.png
-
-Convert to MarkdownSECRET
+SECRET
 
 that. Bissell was a one-man operator and Helms knew
 exactly what to expect from Tracy Barnes.

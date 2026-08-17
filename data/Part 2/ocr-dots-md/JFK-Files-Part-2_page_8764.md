@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8764.png
-
-Convert to Markdowntime he expected to present the Cuban-in-exile plan.
+time he expected to present the Cuban-in-exile plan.
 
 UFK-16 dated 15 May 1962
 

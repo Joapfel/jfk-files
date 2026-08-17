@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21747.png
-
-Convert to Markdownor that the papers were other than the collection of material by a
+or that the papers were other than the collection of material by a
 disgruntled employee which he very carefully selected or accumulated,
 the removal of which would only have constituted a minimal risk to
 CHEREPANOV.

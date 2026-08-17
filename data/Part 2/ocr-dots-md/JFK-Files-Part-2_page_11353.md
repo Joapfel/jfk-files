@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11353.png
-
-Convert to Markdown# SECTION 87. SECURITY INVESTIGATI
+# SECTION 87. SECURITY INVESTIGATI
 
 87D
 

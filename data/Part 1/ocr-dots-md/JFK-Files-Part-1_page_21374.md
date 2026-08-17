@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21374.png
-
-Convert to MarkdownFBI Doc.
+FBI Doc.
 17 Sept. 1970 (Wash.)
 RE: Communist Party, USA Contacts with Communist Parties of
 Venezuela, Colombia, and Peru

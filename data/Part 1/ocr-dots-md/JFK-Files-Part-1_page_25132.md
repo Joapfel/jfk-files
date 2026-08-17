@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25132.png
-
-Convert to Markdown12 May 1965
+12 May 1965
 
 SUBJECT: Contact Report, Silvia McDonald
 12 May; Maria Cristina Garden

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6642.png
-
-Convert to MarkdownLAWRENCE DUNBAR REDDICK
+LAWRENCE DUNBAR REDDICK
 
 LAWRENCE DUNBAR REDDICK is Professor of Social Sciences at Coppin State College, Baltimore, Maryland. He currently resides at 3704 Winterbourne Road, Baltimore, Maryland.
 

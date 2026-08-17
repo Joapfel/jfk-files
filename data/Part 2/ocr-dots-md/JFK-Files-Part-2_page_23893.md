@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23893.png
-
-Convert to Markdown1 first of all, and then we'll take up 47.
+1 first of all, and then we'll take up 47.
 
 2 Mr. Miller, will you call the roll?
 

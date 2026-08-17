@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14980.png
-
-Convert to MarkdownCRIME LEGISLATION
+CRIME LEGISLATION
 
 The Congress is presently holding hearings with
 respect to the President's request for crime legislation entitled

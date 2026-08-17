@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6391.png
-
-Convert to MarkdownCONFIDENTIAL/US OFFICIALS ONLY
+CONFIDENTIAL/US OFFICIALS ONLY
 
 - 2 -
 

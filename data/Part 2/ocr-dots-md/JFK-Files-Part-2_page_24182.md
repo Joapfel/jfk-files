@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24182.png
-
-Convert to MarkdownTAB C
+TAB C
 
 ENTITIES OTHERWISE DISPOSED OF
 ---

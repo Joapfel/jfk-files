@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3266.png
-
-Convert to Markdown<table><thead><tr><th>SECRET UNIT NOTIFIED</th><th>CABLE SECRETARIAT DISSEMINATE</th></tr></thead><tbody><tr><td>ADVANCE COPY</td><td>SLOTED</td></tr><tr><td>BY:</td><td>AT:</td></tr><tr><td>ISSUED BY:</td><td>PED:</td></tr></tbody></table>
+<table><thead><tr><th>SECRET UNIT NOTIFIED</th><th>CABLE SECRETARIAT DISSEMINATE</th></tr></thead><tbody><tr><td>ADVANCE COPY</td><td>SLOTED</td></tr><tr><td>BY:</td><td>AT:</td></tr><tr><td>ISSUED BY:</td><td>PED:</td></tr></tbody></table>
 
 CS COPY
 SECRET

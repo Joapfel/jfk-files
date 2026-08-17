@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12781.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>AGENCY MESSAGE</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></table>
 

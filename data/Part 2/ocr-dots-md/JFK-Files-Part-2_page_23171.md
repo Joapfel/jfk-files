@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23171.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Senator Schweiker. He's the sugar king there.
 

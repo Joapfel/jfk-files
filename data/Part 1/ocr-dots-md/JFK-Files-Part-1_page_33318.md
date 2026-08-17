@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33318.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 The Government's delay in making public the results of June 1972 elections for top posts in the Communist-dominated CUT labor federation also damaged Government credibility. The opposition media scored heavily in a barrage of charges of irregularities and vote fraud with a public that takes justified price in clean elections.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1310.png
-
-Convert to MarkdownSECRET
+SECRET
 
 trusted "operational authorities" (the CIA). (VOLSKY originally took full credit for the plan, called "Leonardo Plan," which eventually became known as the AMTRUNK Operation.)
 

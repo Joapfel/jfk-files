@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11860.png
-
-Convert to MarkdownWhile there is no objection to the Inspector's
+While there is no objection to the Inspector's
 suggestion that all communications approving initial payments
 on a regular basis to these informants be routed through
 Mr. Tolson's office for review and approval it must be pointed

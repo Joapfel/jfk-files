@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1253.png
-
-Convert to MarkdownCLASSIFIED
+CLASSIFIED
 
 <table><tr><td rowspan="2">ORG:</td><td colspan="2"></td></tr><tr><td>☐ INDEX</td><td>SECRET</td></tr><tr><td>UNIT:</td><td colspan="2"></td></tr><tr><td>FXT:</td><td>☐ NO INDEX</td><td></td></tr><tr><td>DATE:</td><td colspan="2">☑ FILM IN C.A. FUL MO.</td></tr></table>
 

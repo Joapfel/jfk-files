@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15066.png
-
-Convert to MarkdownSELECTIVE SERVICE
+SELECTIVE SERVICE
 
 Selective Service investigations conducted by the Federal Bureau of Investigation in recent years have broadened to cope with recurring schemes to obstruct the draft. At the present time, we have slightly over 14,000 pending investigations, compared to 9,000 a year ago.
 

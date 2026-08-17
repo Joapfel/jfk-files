@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19443.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>NAME</th><th></th><th>DATE</th></tr></thead><tbody><tr><td>James Walton Moore</td><td></td><td>1 April 1948</td></tr><tr><td>LEGAL ADDRESS<br/>Abilene, Texas</td><td>MARITAL STATUS</td><td>Married</td></tr><tr><td>LOCAL ADDRESS</td><td>NUMBER OF DEPENDENTS</td><td>3</td></tr><tr><td>TELEPHONE</td><td>CITIZENSHIP</td><td>USA</td></tr><tr><td>NATURE OF ACTION</td><td>SEX</td><td>Male</td></tr><tr><td>Periodic Pay Increase</td><td>AGE</td><td>39</td></tr><tr><td></td><td>EFFECTIVE DATE</td><td>8 March 1948</td></tr></tbody></table>
 

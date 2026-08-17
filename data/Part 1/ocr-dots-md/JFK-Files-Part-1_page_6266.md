@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6266.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><thead><tr><th colspan="3">CLASSIFICATION</th></tr><tr><td></td><td>SECRET</td><td></td></tr><tr><td colspan="2">TO</td><td>PROCESSING</td></tr></thead><tbody><tr><td>Chief, NH</td><td>X</td><td>ABSTRACT IN RECEIVING</td></tr><tr><td>INFO.</td><td></td><td>ONLY QUALIFIED. NO ADDRESSEE DESIRED CAN BE OBTAINED</td></tr><tr><td>FROM</td><td></td><td>ABSTRACT</td></tr><tr><td>SUBJECT</td><td colspan="2">TYPIC/AMSPELL/Operations AMSPELL Progress Report, May 1965</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27389.png
-
-Convert to MarkdownINDEX
+INDEX
 
 A. Memo for File from Baker - 16 Mar 74 SECRET - SENSITIVE
 

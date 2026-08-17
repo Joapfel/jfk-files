@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30994.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>1. Agency and organizational designation</td>
     <td colspan="6"></td>

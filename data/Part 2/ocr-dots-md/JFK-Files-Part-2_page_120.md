@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_120.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. Letter from CIA to Director, FBI, dated 8/19/64 captioned "Lyle Stuart" (CSI 316/00789-64). June Cobb interviewed re Lyle Stuart. Lyle Stuart attempted to get close to Fidel Castro for the purpose of exploiting the journalistic advantages of an interview. Therefore, there is no significance attached to this report considering that it was merely an interview.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1656.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 GETTING Phil to come to our end of the hall a couple of times. I was not in on the discussions between C/Cuba (Raymond F. FRADYER) and Phil, but I believe they were mainly held to see who Phil had met who might be useful against the Cuban target. I know we thought at the time Phil was spending almost full time on his overt activities and the SB target, and he gave the Cuban target little attention.
 

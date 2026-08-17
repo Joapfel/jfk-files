@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15940.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Wilmer Lee Angrum, 305 South 11th Avenue, Maywood, Illinois, 5'9" tall, 150 pounds, brown eyes, black hair, born April 20, 1950, Cook County, Social Security Number 320-42-6495. A pistol revolver, star, caliber 7.65 found in his possession.
 

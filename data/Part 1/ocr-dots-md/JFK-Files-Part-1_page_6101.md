@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6101.png
-
-Convert to MarkdownSECRET
+SECRET
 
 J. OGC has not yet concurred in these recommendations.
 

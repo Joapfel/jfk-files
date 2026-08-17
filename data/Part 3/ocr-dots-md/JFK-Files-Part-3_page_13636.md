@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13636.png
-
-Convert to Markdown1 meeting when he first arrived in Paris, and the meeting that he had -- I don't recall specifically.
+1 meeting when he first arrived in Paris, and the meeting that he had -- I don't recall specifically.
 
 3 I do recall, if I may, I do recall that he said he was
 

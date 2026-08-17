@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7880.png
-
-Convert to MarkdownCaption on Folder or File: (Print)
+Caption on Folder or File: (Print)
 
 Note:
 Aides Initial:

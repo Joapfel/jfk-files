@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16980.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE: 24 OCT 62</td><td style="text-align:right;">SECRET</td></tr><tr><td>TO: DIRECTOR</td><td rowspan="5" style="vertical-align:top;"><table border="1"><tbody><tr><td colspan="3">ROUTING</td></tr><tr><td>1</td><td>4</td><td></td></tr><tr><td>2</td><td>5</td><td></td></tr><tr><td>3</td><td>6</td><td></td></tr></tbody></table><br/>OCT 25 0432Z 62</td></tr><tr><td>FROM: MEXICO CITY</td></tr><tr><td>ACTION: C/WH 5 (C/WH TEMPO COPY SLOTTED 0300, 25 OCT) WCJ</td></tr><tr><td>INFO: DD/P, ADDP, DOP/SIT 3, C/SOD 3, C/CA 2, C/CA/O 2, C/CI, C/FI 2, C/FI/D, C/FI/INT, C/IW 2, C/SR 4, C/TFW 5, DD/I, S/C 2</td><td>PRIORITY</td></tr><tr><td></td><td>IN 45628</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE: 24 OCT 62</td><td style="text-align:right;">SECRET</td></tr><tr><td>TO: DIRECTOR</td><td rowspan="5" style="vertical-align:top;"><table border="1"><tbody><tr><td colspan="3">ROUTING</td></tr><tr><td>1</td><td>4</td><td></td></tr><tr><td>2</td><td>5</td><td></td></tr><tr><td>3</td><td>6</td><td></td></tr></tbody></table><br/>OCT 25 0432Z 62</td></tr><tr><td>FROM: MEXICO CITY</td></tr><tr><td>ACTION: C/WH 5 (C/WH TEMPO COPY SLOTTED 0300, 25 OCT) WCJ</td></tr><tr><td>INFO: DD/P, ADDP, DOP/SIT 3, C/SOD 3, C/CA 2, C/CA/O 2, C/CI, C/FI 2, C/FI/D, C/FI/INT, C/IW 2, C/SR 4, C/TFW 5, DD/I, S/C 2</td><td>PRIORITY</td></tr><tr><td></td><td>IN 45628</td></tr></table>
 
 PRITY DIR CITE MEXI 2292
 

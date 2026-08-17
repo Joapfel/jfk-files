@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2411.png
-
-Convert to MarkdownSECRET
+SECRET
 
 could have provided NOSENKO with some type of document which
 would support at least one of his claimed positions in the SCD, KGB.

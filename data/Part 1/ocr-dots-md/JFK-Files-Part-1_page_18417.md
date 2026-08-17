@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18417.png
-
-Convert to MarkdownMEMORANDUM No. 350
+MEMORANDUM No. 350
 
 18 June 1957
 

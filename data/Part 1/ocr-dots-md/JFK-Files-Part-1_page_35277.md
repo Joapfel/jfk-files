@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35277.png
-
-Convert to MarkdownSTATEMENT "I"e
+STATEMENT "I"e
 ---
 STATEMENT OF RECEIPTS AND EXPENDITURES
 

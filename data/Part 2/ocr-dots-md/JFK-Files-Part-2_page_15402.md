@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15402.png
-
-Convert to MarkdownOffice Mem
+Office Mem
 
 n • UNITED STATES
 

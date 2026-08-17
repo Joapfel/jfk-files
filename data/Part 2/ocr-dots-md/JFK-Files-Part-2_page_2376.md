@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2376.png
-
-Convert to MarkdownThe aim of the Executive order, September 4, 1924, under which this examination is made, is to obtain information as to the physical condition of appointees to the classified civil service with a view to promoting efficiency and minimizing accidents and claims under United States employees' compensation laws.
+The aim of the Executive order, September 4, 1924, under which this examination is made, is to obtain information as to the physical condition of appointees to the classified civil service with a view to promoting efficiency and minimizing accidents and claims under United States employees' compensation laws.
 
 ## Notes for Examining Physician
 

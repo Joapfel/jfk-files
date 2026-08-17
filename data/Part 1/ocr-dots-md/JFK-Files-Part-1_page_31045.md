@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31045.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 1. DEC '60</td><td>SECRET</td></tr><tr><td>TO : DIRECTOR</td><td></td></tr><tr><td>FROM : MEXICO CITY</td><td></td></tr><tr><td>ACTION : C/WH 2</td><td></td></tr><tr><td>INFO : COP, C/CCD 2, C/Ci, DP/S, SEA, D/OP, D/OS 2, S/C</td><td>PRIORITY</td></tr><tr><td></td><td>IN 10827</td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 1. DEC '60</td><td>SECRET</td></tr><tr><td>TO : DIRECTOR</td><td></td></tr><tr><td>FROM : MEXICO CITY</td><td></td></tr><tr><td>ACTION : C/WH 2</td><td></td></tr><tr><td>INFO : COP, C/CCD 2, C/Ci, DP/S, SEA, D/OP, D/OS 2, S/C</td><td>PRIORITY</td></tr><tr><td></td><td>IN 10827</td></tr></table>
 
 PRITY DIR CITE MEXI 6843
 

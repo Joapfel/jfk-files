@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4.png
-
-Convert to Markdown**Separated or homogenized?** Is he willing to read a regular intelligence document, or does he prefer to be briefed?
+**Separated or homogenized?** Is he willing to read a regular intelligence document, or does he prefer to be briefed?
 
 In each of the previous administrations, OCI had established a satisfactory channel directly to the President. However, the system had never carried over from one incumbent to the next. Eisenhower did not want the personal weekly briefing from the Director that Truman had received; it was preferred to be briefed in the setting of weekly meetings.
 

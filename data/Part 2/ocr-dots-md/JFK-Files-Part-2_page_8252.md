@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8252.png
-
-Convert to Markdown1 November 1950
+1 November 1950
 
 DIMITROV again visited the Lavrion Camp to inform his recruitsthat they would shortly be moved to a pleasant hime in Athens which the Americans were repainting for the purpose. On the occasion of this visit, the re- cruits were divided into three groups, as follows:
 

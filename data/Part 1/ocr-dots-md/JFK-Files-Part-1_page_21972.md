@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21972.png
-
-Convert to Markdownm. Compromise of BARRETT (1959)
+m. Compromise of BARRETT (1959)
 
 NOSENKO'S INFORMATION: Robert BARRETT, a guide at the U.S.
 Exhibition in Moscow in 1959, had become friendly with the homo-

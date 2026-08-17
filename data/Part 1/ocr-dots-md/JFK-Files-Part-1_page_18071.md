@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18071.png
-
-Convert to Markdown- J. Technical Annex:
+- J. Technical Annex:
 
 Project LIONION continues to receive excellent technical support from the local WOACRE representative, Walter W. CORNBURY.
 

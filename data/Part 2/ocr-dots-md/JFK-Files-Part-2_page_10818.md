@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10818.png
-
-Convert to MarkdownDate: August 23, 1971.
+Date: August 23, 1971.
 
 At approximately 11:35 a.m., entry was made into the Selective Service Office in Room 501, Fifth Floor, Federal Courthouse and Post Office, Camden. On entry, seven persons were seen standing in various positions. They were traditionally advised that they were under arrest and that they were arrested by Special Agents of the FBI.
 

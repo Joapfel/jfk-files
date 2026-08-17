@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30728.png
-
-Convert to Markdown9. IF COURSE OF INSTRUCTION DUE COMPLETED DURING PERIOD OF THIS REPORT, LIST TITLE, LOCATION OF SCHOOL, LENGTH OF COURSE AND DATE COMPLETED.
+9. IF COURSE OF INSTRUCTION DUE COMPLETED DURING PERIOD OF THIS REPORT, LIST TITLE, LOCATION OF SCHOOL, LENGTH OF COURSE AND DATE COMPLETED.
 
 <table><thead><tr><th rowspan="2">COURSE TITLE</th><th colspan="3">OFFERING</th><th colspan="3">COMPLIANCE</th></tr><tr><th>DECE. 15</th><th>DECE. 16</th><th>DECE. 17</th><th>DECE. 18</th><th>DECE. 19</th><th>FEB. 01</th></tr></thead><tbody><tr><td>JUNIOR</td><td>X</td><td>X</td><td>X</td><td></td><td></td><td></td></tr><tr><td>SOPHOMORE</td><td></td><td></td><td></td><td>X</td><td></td><td></td></tr><tr><td>JUNIOR</td><td>X</td><td></td><td>X</td><td>X</td><td></td><td></td></tr><tr><td>SOPHOMORE</td><td></td><td></td><td></td><td>X</td><td></td><td></td></tr><tr><td>JUNIOR</td><td></td><td></td><td></td><td></td><td>X</td><td></td></tr><tr><td>SOPHOMORE</td><td></td><td></td><td></td><td></td><td>X</td><td></td></tr><tr><td>SOLOMOR</td><td></td><td></td><td></td><td></td><td></td><td>X</td></tr></tbody></table>
 

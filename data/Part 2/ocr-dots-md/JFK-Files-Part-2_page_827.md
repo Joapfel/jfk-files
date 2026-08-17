@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_827.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED BY)
 
 <table><thead><tr><td>1 EMP. SERIAL NO.</td><td>2</td><td>NAME</td><td>3 ASSIGNED ORGAN.</td><td>4 FUNDS</td><td>5 ALLOTMENT</td></tr></thead><tbody><tr><td>517974</td><td></td><td>FOX JEROME</td><td>NPI 3 UV</td><td></td><td></td></tr></tbody></table>

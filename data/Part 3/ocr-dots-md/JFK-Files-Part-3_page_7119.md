@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7119.png
-
-Convert to MarkdownFRANK CHURCH, IDAHO
+FRANK CHURCH, IDAHO
 CHARLES MC C. MATHIAS, JR., MD.
 CO-CHAIRMEN
 

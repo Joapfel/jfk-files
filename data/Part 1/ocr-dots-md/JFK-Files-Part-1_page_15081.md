@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15081.png
-
-Convert to MarkdownDARONNAT told Subject that any South American immigration thoughts should be shelved, that he should work and establish himself in Germany and if he intended to immigrate in the future he would have to do it on his own. It was pointed out that he would have to study and learn Russian, that any professed Soviet refugee arriving in South America without Russian would be immediately suspect by the emigres there.
+DARONNAT told Subject that any South American immigration thoughts should be shelved, that he should work and establish himself in Germany and if he intended to immigrate in the future he would have to do it on his own. It was pointed out that he would have to study and learn Russian, that any professed Soviet refugee arriving in South America without Russian would be immediately suspect by the emigres there.
 
 ODIBEX authorities at Camp King had readily agreed that Subject's original political recognition interview story did not provide the proper framework around which a decent legend could be built. It was agreed that given a detailed legend prepared to HARVARD's satisfaction ODIBEX could prepare a new political recognition interview story and would remove copies of the old story from the various FEDREP files and replace them with the new.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9163.png
-
-Convert to MarkdownMEDITATION ROOM
+MEDITATION ROOM
 
 GLASS
 

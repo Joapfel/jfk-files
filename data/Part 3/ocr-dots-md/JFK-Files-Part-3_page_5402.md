@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5402.png
-
-Convert to MarkdownO'Haver, Robert R. Exhibits Section Exhibits Section
+O'Haver, Robert R. Exhibits Section Exhibits Section
 
 Page, Thomas L., SA Clerk Indianapolis
 (Special Agent)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23167.png
-
-Convert to Markdownmétodos de exploración radiológicas, como son las colecistografías y pie-
+métodos de exploración radiológicas, como son las colecistografías y pie-
 lografías, son muy difíciles de hacer por la falta de los medios de cono
 traste adecuados.
 

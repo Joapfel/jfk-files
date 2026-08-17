@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7560.png
-
-Convert to MarkdownOctober 25, 1971
+October 25, 1971
 
 16. Mahlum, M. R., D. D. Mahlum, T. D. Mahony, and M. F. Sullivan. 1966. Particle Size and Animal Age as Factors in Evaluating Awards from Ingested Radionuclides. In: Gastrointestinal Radiation Injury, M. F. Sullivan, Ed., pp. 524-535.
 

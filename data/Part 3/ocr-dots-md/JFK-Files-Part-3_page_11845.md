@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11845.png
-
-Convert to MarkdownSet forth below, by Branch, are more specific
+Set forth below, by Branch, are more specific
 observations with respect to the Inspector's comments and
 recommendations; however, in summary, I desire to point out
 that we cannot reassign manpower of the quantity involved for

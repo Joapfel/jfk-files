@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15357.png
-
-Convert to Markdown12 July 1965
+12 July 1965
 
 TO: HENGEN
 

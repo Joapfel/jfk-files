@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9122.png
-
-Convert to MarkdownD.C. greeting African brothers
+D.C. greeting African brothers
 
 Chinese 2nd Ambassador (R), Press Attaché (M) and Cultural Attaché (L) talking with Eldridge
 

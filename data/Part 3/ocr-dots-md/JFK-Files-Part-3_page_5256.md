@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5256.png
-
-Convert to Markdown4. Interview Subject's brother, LAWRIN BECKHUSEN, who resides on Fairview Street, Oakland.
+4. Interview Subject's brother, LAWRIN BECKHUSEN, who resides on Fairview Street, Oakland.
 
 5. Consider contacting Baltimore CS-4 for information regarding the Subject's employment.
 

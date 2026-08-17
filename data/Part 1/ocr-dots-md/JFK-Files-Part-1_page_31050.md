@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31050.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE</td><td></td><td>ACCT.</td><td></td></tr><tr><td>TO</td><td>: DIRECTOR</td><td></td><td></td></tr><tr><td>FROM</td><td>: MEXICO CITY</td><td></td><td></td></tr><tr><td>ACTION</td><td>: C/W1 2</td><td></td><td></td></tr><tr><td>INS</td><td>: COP, C/CCD 2, C/CI, DD/S, SSA, D/OP, D/CS 2, S/C 2</td><td></td><td></td></tr></table>
 

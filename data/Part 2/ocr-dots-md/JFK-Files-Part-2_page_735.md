@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_735.png
-
-Convert to MarkdownMr. Jerome Fox
+Mr. Jerome Fox
 2004 Wellfleet Court
 Falls Church, Virginia 22043
 

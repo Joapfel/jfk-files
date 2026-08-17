@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24596.png
-
-Convert to MarkdownIn addition, the ONE Paper warned that the United States
+In addition, the ONE Paper warned that the United States
 would most likely be blamed if Castro should die by another's
 hand. "If Castro were to die by other than natural causes the
 U.S. would be widely charged with complicity, even though it

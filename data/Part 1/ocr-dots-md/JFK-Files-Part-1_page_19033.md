@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19033.png
-
-Convert to MarkdownSECRET
+SECRET
 
 If the 1969 federal election follows the pattern of the 28 April election, the same problems will arise in Bonn. With this kind of a breakdown of the vote, the FDP and the SPD together cannot form a majority, and a refusal on the part of both of them to join the CDU means that the latter cannot organize a majority government either--unless the CDU invites NPD collaboration, which it is far from ready to do.
 

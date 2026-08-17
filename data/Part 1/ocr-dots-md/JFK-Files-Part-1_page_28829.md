@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28829.png
-
-Convert to Markdown<table><tr><td>STANDARD FORM 57<br/>4-27-56</td></tr></table>
+<table><tr><td>STANDARD FORM 57<br/>4-27-56</td></tr></table>
 
 <table>
   <tbody>

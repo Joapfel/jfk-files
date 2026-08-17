@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3316.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of a second, also of interest, which he will proceed to discuss to the confusion of the first. This problem was perhaps compounded by the fact that Subject was uncertain as to the type of information of interest to KUBARK. He grasped quickly, however, the type of information which would be of most interest to us and it rapidly became less difficult to get to the meat of the subject we were discussing. Further contact and debriefing of him will become progressively less difficult.
 

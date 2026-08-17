@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1523.png
-
-Convert to MarkdownTOP SECRET - EIDER - CHESS
+TOP SECRET - EIDER - CHESS
 
 SC-01836-78
 Copy 1

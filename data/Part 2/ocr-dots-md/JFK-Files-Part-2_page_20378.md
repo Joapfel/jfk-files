@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20378.png
-
-Convert to MarkdownTHOUSANDS of American women will see to it that
+THOUSANDS of American women will see to it that
 PEACE in Vietnam will be the first order of
 business when Congress convenes.
 

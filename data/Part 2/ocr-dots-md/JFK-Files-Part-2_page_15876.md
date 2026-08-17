@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15876.png
-
-Convert to MarkdownJeffries, Alvin
+Jeffries, Alvin
 
 Arrested: 1/26/69
 Charge: Disorderly Conduct

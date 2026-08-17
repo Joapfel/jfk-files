@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_551.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>S-E-C-RET</td></tr></table>
 

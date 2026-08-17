@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5461.png
-
-Convert to Markdown15 June 1967
+15 June 1967
 
 MEMORANDUM FOR: C/WHD
 SUBJECT: Clemard Joseph CHARLES

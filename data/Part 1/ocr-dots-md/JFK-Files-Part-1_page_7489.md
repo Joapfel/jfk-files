@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7489.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 According to a usually reliable source of this agency, PALLITO was not able to completely refect to Philippines life after having lived in the United States. He is known for his strong pro-American views and according to sources probably his greatest desire is to reside permanently in the United States. Although it is known that PALLITO was on friendly terms with Jose LACAYO there is no reason that he shared LACAYO's political views.
 

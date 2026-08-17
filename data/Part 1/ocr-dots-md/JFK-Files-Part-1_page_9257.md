@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9257.png
-
-Convert to Markdown3 Nov. '50
+3 Nov. '50
 
 "LIURSS IN CUST OCTETS," 72
 

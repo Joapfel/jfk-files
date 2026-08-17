@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30765.png
-
-Convert to Markdownbut never heard of
+but never heard of
 Consolidation of files
 when Rocky commission
 looked into it

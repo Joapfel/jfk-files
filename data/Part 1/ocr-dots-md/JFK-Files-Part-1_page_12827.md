@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12827.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>TABLE SET DESIGNED BY</td>
     <td>PER</td>

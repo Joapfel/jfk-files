@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8994.png
-
-Convert to Markdowntrabajo de investigador e informador particular, esto es --
+trabajo de investigador e informador particular, esto es --
 sin ningun carácter oficial, y por lo tanto devenga honora-
 arios en relación con la información que pasa; que independe--
 dientemente de ello y como ayuda para sus gastos personales,

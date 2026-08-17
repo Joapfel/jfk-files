@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11928.png
-
-Convert to Markdown4-E
+4-E
 
 By letter to the Director 6/10/70, the U. S. Air Force expressed its appreciation for the invaluable contribution of Bureau personnel in supporting an OSI counterintelligence operation involving an East German Intelligence Service (EGIS) officer who came to the U. S. to service an Air Force double agent. We had been cooperating with Air Force in this case since 1965.
 

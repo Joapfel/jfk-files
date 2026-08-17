@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13051.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="8">REQUEST FOR INVESTIGATION AND/OR NAME CHECK</th></tr><tr><td colspan="4">TO : Deputy Director Security, IOS<br/>FROM: Chief, CI/Operational Approval and Support Division<br/>SUBJECT: 201 -</td><th colspan="3">PROJECT AND AREA OF ASSIGNMENT</th></tr><tr><th>TYPE OF REQUEST</th><th>POA</th><th>OJ</th><th>CNC</th><th>S</th><th>(Date)</th><th>FBI CHECK RESULTS BY (Date)</th></tr></thead><tbody><tr><td>USE OF SUBJECT</td><td colspan="6"></td></tr><tr><td>SPECIAL INSTRUCTIONS (Limitations on investigation, cover pretext, etc.)</td><td colspan="6"></td></tr><tr><td>CS TRACE RESULTS</td><td>RI</td><td></td><td>DIVISION</td><td></td><td>FIELD</td><td></td></tr><tr><td>GREEN LIST INITIATED</td><td></td><td></td><td>ATTACHMENTS</td><td></td><td></td><td></td></tr><tr><td>YES</td><td>No</td><td></td><td>PRO. PART I</td><td>PARTIAL BID</td><td>OTHER</td><td></td></tr><tr><td>REMARKS</td><td colspan="6"></td></tr><tr><td colspan="7">Encoragement</td></tr></tbody></table>
 

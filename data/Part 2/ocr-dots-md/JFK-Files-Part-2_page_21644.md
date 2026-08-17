@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21644.png
-
-Convert to Markdown129
+129
 
 there were it says, "There is no doubt that this will confuse Colonel Wimert. Background for his information".
 

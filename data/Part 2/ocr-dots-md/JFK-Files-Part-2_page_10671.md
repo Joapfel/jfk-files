@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10671.png
-
-Convert to MarkdownMemorandum to Mr. Sullivan
+Memorandum to Mr. Sullivan
 
 Re: Burglary of FBI Resident Agency
 Media, Pennsylvania, 3-8-71

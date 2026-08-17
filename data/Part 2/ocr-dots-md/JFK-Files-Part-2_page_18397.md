@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18397.png
-
-Convert to MarkdownTeletype to New York
+Teletype to New York
 
 Re: SENSTUDY 75
 

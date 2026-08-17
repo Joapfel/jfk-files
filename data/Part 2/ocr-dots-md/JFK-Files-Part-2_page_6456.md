@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6456.png
-
-Convert to MarkdownCuba Selected Documents
+Cuba Selected Documents
 
 #3
 

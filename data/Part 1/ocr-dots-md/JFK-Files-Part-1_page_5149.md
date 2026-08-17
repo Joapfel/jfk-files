@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5149.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>DATE</th><th>TIME</th><th>CENTER</th><th>TO</th></tr></thead><tbody><tr><td>OMF</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="4">CLASSIFICATION</td></tr><tr><td colspan="4">SECRET</td></tr><tr><td colspan="4">MESSAGE HANDLING INDICATOR</td></tr><tr><td colspan="2">STAFF</td><td colspan="2">CONF:</td></tr><tr><td>INFO:</td><td>[Signature]</td><td>FILE</td><td>[Signature]</td></tr></tbody></table>
 

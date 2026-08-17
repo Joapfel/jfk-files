@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14385.png
-
-Convert to MarkdownReport No.350 (continued)
+Report No.350 (continued)
 
 24 June 1970.
 

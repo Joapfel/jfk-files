@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34453.png
-
-Convert to Markdownof the KGB operation against U. S. Professor Barzooorn which MOSENIKO said he had personally supervised at the direction of SEMICLASTIY, the Chairman of the Committee for State Security (KGB).
+of the KGB operation against U. S. Professor Barzooorn which MOSENIKO said he had personally supervised at the direction of SEMICLASTIY, the Chairman of the Committee for State Security (KGB).
 
 5. During these most recent meetings MOSENKO announced his desire to leave the USSR permanently and seek his future in the West. He claimed his new work in the KGB (First Deputy Chief of that department charged with the surveillance and recruitment of American visitors to the USSR) was expanding and that he would not be able to visit the West with any frequency. Accordingly, he prepared a request for political asylum in the United States. He was taken to Frankfurt, Germany where he is currently undergoing interrogation. Plans are now being made to remove him to the U. S.
 

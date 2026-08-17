@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22381.png
-
-Convert to Markdown781.
+781.
 
 (Reported to the FBI on 22 June 1964)
 

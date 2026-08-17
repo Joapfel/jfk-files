@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7861.png
-
-Convert to MarkdownTPS
+TPS
 resp.
 to
 WEISBERG

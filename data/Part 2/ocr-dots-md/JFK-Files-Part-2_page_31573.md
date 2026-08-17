@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31573.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 October 16, 1965, movies were shown. At 3:15 AM, the crowd had dwindled to approximately 150 persons.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10365.png
-
-Convert to MarkdownALVARADO, C.A.
+ALVARADO, C.A.
 D03 9
 
 CIT COLOMBIA

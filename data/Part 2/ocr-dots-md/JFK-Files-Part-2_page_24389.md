@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24389.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Agreed to by Drafting Subcommittee
 on August 28, 1975

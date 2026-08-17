@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6791.png
-
-Convert to Markdown19.—Para 1958, Economic Survey of Latin America 1958, Naciones Unidas, 1959, pág. 71; para 1959, les calculas de la CEPAL publicadas en Excélsior, México D. F., Julio 5, 1960; para 1960, calcules preliminares de "South America Economic Review" y "Caribbean Economic Review", New York Times, Enero de 1961.
+19.—Para 1958, Economic Survey of Latin America 1958, Naciones Unidas, 1959, pág. 71; para 1959, les calculas de la CEPAL publicadas en Excélsior, México D. F., Julio 5, 1960; para 1960, calcules preliminares de "South America Economic Review" y "Caribbean Economic Review", New York Times, Enero de 1961.
 
 20.—De no indicarse lo contrario, las estadisticas concernientes a los países en particular, han sido tomadas o computadas de las ediciones anuales del Economic Survey of Latin America de las Naciones Unidas. Las cifras del PBN, convertidas por esta publicación en dólares de 1950, han sido reconvertidas en dólares de 1957, con un incremento del 14%. Todos los aumentos o disminuciones en los porcentajes del PBN han sido calculados sobre la base de dólares de valor constante.
 

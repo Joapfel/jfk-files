@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3708.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>ADVANCE COPY</th><th>ISSUED</th><th>SLOTTED</th></tr></thead><tbody><tr><td>BY_________</td><td>AT_________</td><td>2</td></tr><tr><td>DUE BY_________ PER __________</td><td>_________ @ $_________</td><td>_________</td></tr><tr><td>ACTION __________</td><td colspan="2">RID COPY</td></tr></tbody></table>
 

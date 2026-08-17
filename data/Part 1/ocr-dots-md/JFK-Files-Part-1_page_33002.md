@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33002.png
-
-Convert to Markdownthat WIBALDA understood the situation, and that I was sure it would all go well. AMCHALK-5 assured me that he has no intention of letting himself get into a physically dangerous situation during the contact.
+that WIBALDA understood the situation, and that I was sure it would all go well. AMCHALK-5 assured me that he has no intention of letting himself get into a physically dangerous situation during the contact.
 
 5. If the contact is made next week, AMCHALK-5 will be back before PACHANKIS is. I said we would want to debrief him in Miami and that either I would see him or PACHANKIS would. I said that if PACHANKIS talks to him, he can tell PACHANKIS the complete details of the operation unless I phoned him otherwise.
 

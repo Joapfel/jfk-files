@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15715.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, Security Support Division
+MEMORANDUM FOR: Chief, Security Support Division
 
 ATTENTION : Mr. John Lavery
 

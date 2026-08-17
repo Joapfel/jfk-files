@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16494.png
-
-Convert to MarkdownOUTGOING MESSAGE:
+OUTGOING MESSAGE:
 
 SIGNAL CENTERS USE ONLY...
 

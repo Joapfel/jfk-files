@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5170.png
-
-Convert to MarkdownSAS CAIDIS and O'HARA have been specifically assigned to develop informants who can give coverage in fugitive deserter matters and they have concentrated their efforts in specific areas where deserters are most likely to be found, as set forth below:
+SAS CAIDIS and O'HARA have been specifically assigned to develop informants who can give coverage in fugitive deserter matters and they have concentrated their efforts in specific areas where deserters are most likely to be found, as set forth below:
 
 137-5670 South of Market Street Area
 

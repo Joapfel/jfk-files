@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3940.png
-
-Convert to MarkdownAtt. No. 66 to UFGA-21693
+Att. No. 66 to UFGA-21693
 
 SUBJECT: SUAREZ, Jose C.I.R. Cuay Dec. 5 1963 Doc. No. 14
 

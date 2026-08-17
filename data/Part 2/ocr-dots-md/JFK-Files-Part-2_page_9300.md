@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9300.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 The Ministry of Information for the Detroit NCCF was moved to a new office at 157 Collingwood, Detroit, Michigan, by orders of KENNETH HORSTON, leader of the Detroit NCCF.
 

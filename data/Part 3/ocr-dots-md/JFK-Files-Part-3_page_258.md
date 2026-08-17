@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_258.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 On May 25, 1970, the Charlotte FBI Office contacted Angus A. McKellar, Attorney, Northampton County School Board, Jackson, North Carolina, and at that time information relating to the New Left activities of Joseph Holt Woodside, a faculty member, was furnished to Mr. McKellar.
 

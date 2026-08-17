@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17892.png
-
-Convert to MarkdownTELETYPE UNIT
+TELETYPE UNIT
 
 MAR 25 '77 47 PM
 

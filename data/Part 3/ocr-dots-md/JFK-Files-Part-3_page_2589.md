@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2589.png
-
-Convert to Markdown4. All memoranda and other materials pertaining to a request from Tom Charles Huston for an FBI investigation of the involvement of the New Mobilization Committee in violent demonstrations in November 1969. (C.5.)
+4. All memoranda and other materials pertaining to a request from Tom Charles Huston for an FBI investigation of the involvement of the New Mobilization Committee in violent demonstrations in November 1969. (C.5.)
 
 5. All memoranda and other materials pertaining to FBI policies, practices, and procedures for liaison with the CIA from 1960 to May 1970. (C.6.)
 

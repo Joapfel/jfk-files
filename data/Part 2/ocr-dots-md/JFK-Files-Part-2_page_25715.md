@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25715.png
-
-Convert to MarkdownThe Washington Merry-Go-Round
+The Washington Merry-Go-Round
 
 Oswald-Agent Contact Covered Up
 W Past 10/28/88

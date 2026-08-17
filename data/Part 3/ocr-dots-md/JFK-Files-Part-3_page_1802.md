@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_1802.png
-
 Agent in charge at the time.
 
 Further, SA Kusch was questioned relative to the content of several interview report forms (FD 302s) concerning interviews that he conducted and prepared appropriate FD 302s in connection therewith, or FD 302s covering interviews that he was a party to. House Select Committee on Assassinations members exhibited said FD 302s to SA Kusch to refresh his memory.

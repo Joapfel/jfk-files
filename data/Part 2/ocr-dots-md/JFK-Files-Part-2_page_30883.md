@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30883.png
-
-Convert to MarkdownThe above individuals were selected for interview because of the position they held at the time with the CIA at the Tokyo Station during the time frame of 1959 to 1964.
+The above individuals were selected for interview because of the position they held at the time with the CIA at the Tokyo Station during the time frame of 1959 to 1964.
 
 James Wiley made a gave testimony in a closed hearing before the SCA that a CIA case officer told him that LHO was a CIA Agent and also mentioned LHO's crypto specialist.
 

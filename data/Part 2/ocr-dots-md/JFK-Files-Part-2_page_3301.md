@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3301.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 asked if he could identify the "Must Go List" the
 former Chief of WH/4 stated:

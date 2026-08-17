@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34238.png
-
-Convert to Markdownother hand, availed themselves of their Cuban puppet to present to the delegates a view of the breach of Cuban-Chinese trade relations. The Chinese were made to appear as the "villain" who wants to starve the Cuban people of their rice rations.
+other hand, availed themselves of their Cuban puppet to present to the delegates a view of the breach of Cuban-Chinese trade relations. The Chinese were made to appear as the "villain" who wants to starve the Cuban people of their rice rations.
 
 JANUARY 8, 1966:
 

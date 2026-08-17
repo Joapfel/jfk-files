@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8308.png
-
-Convert to Markdown14-6.000
+14-6.000
 
 DO NOT: DO NOT COVET AT FIRST CLUE
 

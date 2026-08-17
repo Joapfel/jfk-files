@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7276.png
-
-Convert to Markdown# AGREEMENTS TO BE SOUGHT BY THE DCI WITH CHAIRMEN OF THE SELECT COMMITTEES
+# AGREEMENTS TO BE SOUGHT BY THE DCI WITH CHAIRMEN OF THE SELECT COMMITTEES
 
 1. It would be desirable if the DCI could secure agreement with the Chairmen of the Select Committees, as has been customary in other Congressional proceedings regarding sensitive matters, that:
 

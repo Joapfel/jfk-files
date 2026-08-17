@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10436.png
-
-Convert to MarkdownSUBJECT: DCS Domestic Activity
+SUBJECT: DCS Domestic Activity
 
 7. Collect specific information and supply duplicate or master keys for foreign hotels.
 

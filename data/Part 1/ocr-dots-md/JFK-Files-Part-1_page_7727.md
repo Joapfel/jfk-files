@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7727.png
-
-Convert to Markdown4.14 Sleep
+4.14 Sleep
 
 <table>
    <tr>

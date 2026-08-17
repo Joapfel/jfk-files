@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7378.png
-
-Convert to MarkdownS NOV 1965
+S NOV 1965
 
 MEMORANDUM FOR: Deputy Director for Support
 

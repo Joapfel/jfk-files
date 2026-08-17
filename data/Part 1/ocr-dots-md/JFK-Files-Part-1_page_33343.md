@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33343.png
-
-Convert to Markdown## Collapse of Socialist 'Model'
+## Collapse of Socialist 'Model'
 
 The Soviet policy vis-a-vis Chile emphasized cooperation in the political field, the forcing of an anti-US front with Chile, Peru and Cuba, and expansion of trade and aid relations while re-training from polemics and interfering in Chile's internal affairs (mainly through its influence over the Chilean Communist Party). The Chilean Communists were given moral and material support for widening the base of support of the regime, but it made no difference to the final outcome. The weakness of the Allende regime, its fateful internal contradictions, official consensus in the arming and violence of the ultra-left, the Weimar-type inflation and food shortages, the growing political polarisation and violence, and the fatal alienation of the armed forces were the decisive conditions that triggered the coup d'état that led to Allende's downfall and replacement by a military junta on 11 September, 1973.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_322.png
-
-Convert to MarkdownBUEK, Joseph J.
+BUEK, Joseph J.
 
 2425 Panorama Ave.
 Boulder, Col. 80302

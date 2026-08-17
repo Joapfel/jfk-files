@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13799.png
-
-Convert to Markdowna. Ku Klux Klan;
+a. Ku Klux Klan;
 
 b. Students for a Democratic Society;
 

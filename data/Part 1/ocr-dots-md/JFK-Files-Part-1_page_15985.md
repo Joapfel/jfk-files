@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15985.png
-
-Convert to MarkdownJ. L. Scaife, "Com- priser-offact when he is, and death, and has been in the mill- ness for years, and red or produced—or watermelon sound Latin America and in the U.S. armed ramilitary "adviser." The warrior, an armed against "ungodly
+J. L. Scaife, "Com- priser-offact when he is, and death, and has been in the mill- ness for years, and red or produced—or watermelon sound Latin America and in the U.S. armed ramilitary "adviser." The warrior, an armed against "ungodly
 
 alene In this occupa- tives it in a unique diers of fortune are they live from one next, brawling and through a tough and arding life.
 

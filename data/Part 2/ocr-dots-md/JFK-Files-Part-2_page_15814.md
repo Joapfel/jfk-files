@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15814.png
-
-Convert to MarkdownALL
+ALL
 POWER
 TO
 THE

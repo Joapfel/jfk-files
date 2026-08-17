@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15579.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE: 438<br/>28 MAR 61</td></tr><tr><td>TO: DIRECTOR L-10 copy</td></tr><tr><td>FROM: LEOPOLDVILLE</td></tr><tr><td>ACTION: C/AF 3 (TEMPO COPY SLOTTED FOR AF AT 1420 28 MAR)</td></tr><tr><td>INFO: COP, C/CA, C/C1, C/F1 2, S/C 2</td></tr><tr><td>Routing</td></tr><tr><td>1 H.O. 4</td></tr><tr><td>2 5AM 5</td></tr><tr><td>3 8PM 6</td></tr><tr><td>MAR 28 1900Z 61</td></tr><tr><td>PRIORITY</td></tr><tr><td>IN 26480</td></tr></table>
 

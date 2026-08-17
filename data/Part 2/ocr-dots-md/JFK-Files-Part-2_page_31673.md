@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31673.png
-
-Convert to MarkdownThe constitution further states that this new
+The constitution further states that this new
 organization shall be a membership organization open to individuals,
 or if five or more people so desire, a chapter can be formed which
 shall in turn be guided by the policies and principles of the parent

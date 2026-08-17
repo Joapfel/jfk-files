@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30234.png
-
-Convert to MarkdownThe first request for cards was filled, and received the latter part of the week of June 25, 1978. The second request was filled and received on July 5, 1978. Investigator John Moriarty had contacted a
+The first request for cards was filled, and received the latter part of the week of June 25, 1978. The second request was filled and received on July 5, 1978. Investigator John Moriarty had contacted a
 
 of the section, and requested he try to make comparisons of known and latent prints. During the week of June 26, 1978 spent one hour in Committee spaces checking staff members prints against those lifted. On July 5, 1978 at the request of and with the consent of Chief Counsel G. Robert Blakey the 13 cards of lifted prints and all staff member print cards from the FBI were turned over to which he receipted for, so he could take them away from Committee spaces to enable him to spend more time studying them. During the week of July 2, 1978. was able to obtain the fingerprints of Regis Blahut, an employee of the Central Intelligence Agency. On Friday July 7, 1978 at approximately 2:30 P.M.
 

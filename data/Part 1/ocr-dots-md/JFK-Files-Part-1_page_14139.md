@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14139.png
-
-Convert to MarkdownWHD AGENT BOARD
+WHD AGENT BOARD
 
 **Part I - Request for Action**
 

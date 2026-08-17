@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19085.png
-
-Convert to MarkdownLegat, Hong Kong
+Legat, Hong Kong
 
 REC. 22
 

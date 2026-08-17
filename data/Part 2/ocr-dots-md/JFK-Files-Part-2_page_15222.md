@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15222.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 - Mr. Belmont
 1 - Mr. Sullivan

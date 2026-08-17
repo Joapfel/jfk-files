@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27522.png
-
-Convert to MarkdownNovember 15, 1978
+November 15, 1978
 
 United States House of Representatives
 Select Committee on Assassinations

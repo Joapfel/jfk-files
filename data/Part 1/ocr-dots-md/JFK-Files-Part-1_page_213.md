@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_213.png
-
-Convert to MarkdownRamparts
+Ramparts
 
 Institute for Propaganda Analysis, Inc.* Man., NY
 Institute for Social Science Research, The; Inc.* Wash., D.C.

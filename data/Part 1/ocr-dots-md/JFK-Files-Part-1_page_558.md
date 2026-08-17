@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_558.png
-
-Convert to Markdown<table><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>8</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table>
+<table><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>8</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table>
 
 <table><tr><td>SECRET</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6996.png
-
-Convert to MarkdownORIG: A. POTOCKI
+ORIG: A. POTOCKI
 SAS/CI
 EXT: 4422
 DATE: 5 JULY 63

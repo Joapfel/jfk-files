@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20070.png
-
-Convert to MarkdownCONFIDENTIAL,
+CONFIDENTIAL,
 
 At noon January 15 on the Polk street steps of the San Francisco City Hall ten thousand women in black who cannot go to Washington will protest the war in Vietnam. In cities from New York to Los Angeles women will gather to express their Christmas prayers for peace.
 

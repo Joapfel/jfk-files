@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20886.png
-
-Convert to MarkdownNR009 NY CODE
+NR009 NY CODE
 
 APR10 7/71
 

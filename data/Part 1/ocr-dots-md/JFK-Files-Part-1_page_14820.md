@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14820.png
-
-Convert to Markdown14-0000"
+14-0000"
 
 HENRY WINSTON DENOUNCES U.S. POLICY IN INDochINA
 

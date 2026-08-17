@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6730.png
-
-Convert to MarkdownA' esq. Helendrzrers.- Salio de Cuba (Habana') el 29 de Julio via Mexico, Estuvo 10 dias en la Ciudad de Mexico y llego a New Orleans el 30th de Agosto.
+A' esq. Helendrzrers.- Salio de Cuba (Habana') el 29 de Julio via Mexico, Estuvo 10 dias en la Ciudad de Mexico y llego a New Orleans el 30th de Agosto.
 
 Antes del Gobierno Comunista trabajaba en la Productora de Super-fosfatos de Regla; cuando esta fábrica fue confiscada e incluida en el Consolidado de Fertilizantes desepeño el cargo de Auxiliar del Jefe en el Departamento de Tecnología; sus servicios terminaron cuando renunció, una semana antes de su viaje.
 

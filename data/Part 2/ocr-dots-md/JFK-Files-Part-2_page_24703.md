@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24703.png
-
-Convert to Markdowndiscussion (Dillon, 9/2/75, p. 60).
+discussion (Dillon, 9/2/75, p. 60).
 
 Dillon was clear about the fact that "top level" CIA people were in attendance, although he did not remember who lodged the negative reaction to the assassination question (Dillon, 9/2/75, pp. 22, 25). He said it "would have to have been either Allen Dulles, or possibly [General] Cabell . . . most likely Cabell" (Dillon, 9/2/75, p. 25). He added that it was "very likely" that Richard Bissell was in attendance (Dillon, 9/2/75, p. 21).
 

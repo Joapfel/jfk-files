@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17508.png
-
-Convert to MarkdownDUNN and BROOKS were fined $50 each and costs for their disorderly conduct and resisting arrest charges.
+DUNN and BROOKS were fined $50 each and costs for their disorderly conduct and resisting arrest charges.
 
 April 23, 1969
 

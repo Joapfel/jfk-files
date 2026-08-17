@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8640.png
-
-Convert to Markdown# EXPELLED
+# EXPELLED
 
 WEEKS, EXPELLED
 

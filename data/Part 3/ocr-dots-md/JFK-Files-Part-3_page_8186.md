@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8186.png
-
-Convert to MarkdownNRØ14 NK CODED
+NRØ14 NK CODED
 
 9:42PM URGENT 5/2/75 DJP
 

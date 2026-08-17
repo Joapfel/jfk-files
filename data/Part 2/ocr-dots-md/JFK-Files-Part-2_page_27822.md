@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27822.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: All Staff Employees
 

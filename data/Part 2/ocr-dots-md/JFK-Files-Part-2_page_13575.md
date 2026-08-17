@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13575.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee, etc.
 
 interview or testimony, and afforded an opportunity to discuss with the witness those areas of the proposed interview or testimony which would require no special arrangements and those areas which would require the information possessed by the witness to be furnished to members of the Committee or to the Chairman exclusively.

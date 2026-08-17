@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28416.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 APM: 11 APR 73

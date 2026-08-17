@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6777.png
-
-Convert to Markdowncorrespondió a un aumento en el volumen de las exportaciones.¹⁸
+correspondió a un aumento en el volumen de las exportaciones.¹⁸
 
 Saldría de los límites de esta discusión examinar en detalle las fluctuaciones y la complejidad de los factores que afectaron la evolución de los precios de las exportaciones y de las importaciones principales de la región. En el caso del café, por ejemplo, que para más de la tercera parte de las repúblicas es uno de los principales productos de exportación, una aguda, aunque pasajera disminución en la producción brasileña causada por condiciones atmosféricas adversas, elevó los precios y estimuló una serie de compras especulativas. Con respecto a las importaciones, la tendencia hacia la sustitución de bienes de consumo por bienes de capital jugó un papel importante, ya que los precios de estos últimos tendieron a aumentar más lentamente que los precios de los bienes de consumo.¹⁷ Además, los precios de los productos elaborados de Europa Occidental tendieron a declarar durante cierto período debido a la devaluación de la libra esterlina y otras divisas y en algunos países tuvo lugar cierto cambio hacia fuentes de abastecimiento europeas.
 

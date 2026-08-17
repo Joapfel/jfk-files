@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5888.png
-
-Convert to MarkdownCIA-12-JMWAVE—5 Files
+CIA-12-JMWAVE—5 Files
 
 The DA conducted file searches in OS and HRM for records on Theodore Shackley, Ronald Cross, Bart Henry, Doug Gupton, David Morales. We were subsequently advised by HRP that the David Morales OS file was part of the collection so the OS searched for records on the first four names only. OS identified files on Shackley, Cross and Gupton which were reviewed by the ARRB staff. HRM identified files on Morales and Shackley which were provided to HRP. Neither office surfaced records on Bart Henry. (Attachment 4)
 

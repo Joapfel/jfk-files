@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22067.png
-
-Convert to Markdownleft the Soviet Union for Cuba two or three, but not more than
+left the Soviet Union for Cuba two or three, but not more than
 five, days after his return from leave; he could not recall
 the date of his departure for Cuba.
 

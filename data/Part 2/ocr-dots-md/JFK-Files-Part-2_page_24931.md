@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24931.png
-
-Convert to Markdownactivity increases the probability that it will occur,
+activity increases the probability that it will occur,
 since the capability represents a tool that is available
 for use. There is the further danger that authorizing a
 capability may be misunderstood as authorizing its use

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2297.png
-
-Convert to MarkdownSECRET
+SECRET
 
 but not to mislead this Agency in any material matters of an operational or policy nature.
 

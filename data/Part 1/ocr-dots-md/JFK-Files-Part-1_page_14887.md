@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14887.png
-
-Convert to Markdownhis hands away from certain things. This bomb incident may be indicative of the things which were discussed in the preceding paragraphs. There may be more to the bomb incident than the Subject offers but this could not be established by the clinical method.
+his hands away from certain things. This bomb incident may be indicative of the things which were discussed in the preceding paragraphs. There may be more to the bomb incident than the Subject offers but this could not be established by the clinical method.
 
 Subject feels that a critic would say of him that the majority of his undertakings have brought results which were considerably less than hoped for. Consequently, he feels that a critic would regard him either an optimist or a joker or else that his views on the possibilities of accomplishing are not very sound.
 

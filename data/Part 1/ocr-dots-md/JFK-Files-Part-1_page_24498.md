@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24498.png
-
-Convert to MarkdownSOVIET LABOR UNION ENVOYS
+SOVIET LABOR UNION ENVOYS
 
 By Felipe Ruskak
 

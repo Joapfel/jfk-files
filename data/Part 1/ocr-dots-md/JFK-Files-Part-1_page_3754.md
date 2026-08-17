@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3754.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 SEP 67
 

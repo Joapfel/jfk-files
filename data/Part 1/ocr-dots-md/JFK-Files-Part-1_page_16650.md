@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16650.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RECEIPT FOR AUTHENTICATION MATERIALS
 

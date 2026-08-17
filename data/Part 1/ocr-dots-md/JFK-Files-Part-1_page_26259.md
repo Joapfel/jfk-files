@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26259.png
-
-Convert to Markdown1.- 1. una cuna de los que se hallan en la leva del agujero de su cama, con el fin de que los gatos no les haga daños a los humanos.
+1.- 1. una cuna de los que se hallan en la leva del agujero de su cama, con el fin de que los gatos no les haga daños a los humanos.
 
 2.- Si ha de ser así, que se quite el cuero de las piernas, las patas y los pelos, para poder encima de la cuna ir con la cuna apoyada, y así lo hará sin derramamientos, y con la cuna apoyada entre las patas y los pelos, para poder encima de la cuna ir con la cuna apoyada entre las piernas y los pelos, y así lo hará sin derramamientos.
 

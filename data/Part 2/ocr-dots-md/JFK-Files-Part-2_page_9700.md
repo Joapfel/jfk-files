@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9700.png
-
-Convert to Markdown2. The Stoeger .22 caliber Luger automatic, serial number 363, was sold to OLAF WILLIAM AIKEN 1846 West Lake, Famimish Parkway, Bellvue, Washington. AIKEN was noted to be a white male, born October 17, 1939, at Webster, South Dakota. He is 5'8", 150 pounds, having Washington State License AIKENOW61PP. This weapon was purchased April 18, 1959, from the Seattle Sporting Goods, 4740 Rosenfelt Way, Northeast, Seattle, Washington.
+2. The Stoeger .22 caliber Luger automatic, serial number 363, was sold to OLAF WILLIAM AIKEN 1846 West Lake, Famimish Parkway, Bellvue, Washington. AIKEN was noted to be a white male, born October 17, 1939, at Webster, South Dakota. He is 5'8", 150 pounds, having Washington State License AIKENOW61PP. This weapon was purchased April 18, 1959, from the Seattle Sporting Goods, 4740 Rosenfelt Way, Northeast, Seattle, Washington.
 
 3.. The .30 caliber Plainfield carbine was allegedly purchased by FRANK AUGUST DRAGER, 100-101 Ocean Street, Marathon, Florida, on April 13, 1974.
 

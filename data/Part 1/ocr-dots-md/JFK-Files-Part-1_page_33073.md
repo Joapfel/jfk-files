@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33073.png
-
-Convert to Markdown3P.
+3P.
 
 <table><tr><td>CRAT AT. AT TELEPHONE</td></tr><tr><td>CIP NO - UFAW-675</td></tr><tr><td>FILM NO - 201-307537</td></tr><tr><td>DATE - 2 DECEMBER 1969</td></tr><tr><td>INDEX - NO</td></tr><tr><td>TO - CHIEF OF STATION, WH/MIAMI</td></tr><tr><td>FROM - CHIEF, WESTERN HEMI-PHERE DIVISION</td></tr><tr><td>SUBJ - WH/MIAMI REPRESENTATIVE MEETING WITH SMADOVE IN MONTREAL/DIFFER CANADIAN ITEMS - RYAT/TYPIC/ SMADOVE</td></tr><tr><td>ACTION - FYI</td></tr><tr><td>REF - UFAW-671, 1 DECEMBER 1969</td></tr></table>
 

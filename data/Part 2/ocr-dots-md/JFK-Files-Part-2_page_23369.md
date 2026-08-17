@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23369.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Tweedy. "Eliminating Lumumba from any possibility resuming governmental position." This, if I may say so, reverts to the original instruction from Mr. Dulles which was that the U.S. position was that Mr. Lumumba must be removed from a position of authority in the Congo and that assassination was not by any means the only way by which this might be accomplished.
 

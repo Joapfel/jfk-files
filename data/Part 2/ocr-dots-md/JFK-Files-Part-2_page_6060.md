@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6060.png
-
-Convert to Markdownand to 10 Downing Street by Special Branch in the Pentagon, and
+and to 10 Downing Street by Special Branch in the Pentagon, and
 was also classified TOP SECRET ULTRA.
 
 (b) What do you think of our current security classification system? For example, would you say it operates well, has integrity, and serves the public interest?

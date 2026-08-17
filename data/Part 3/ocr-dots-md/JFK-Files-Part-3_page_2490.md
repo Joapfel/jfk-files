@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2490.png
-
-Convert to MarkdownLA 100-24345C
+LA 100-24345C
 
 28. Los Angeles letter to Director dated 1/11/63.
 

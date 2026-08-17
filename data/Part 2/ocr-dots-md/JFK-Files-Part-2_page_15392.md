@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15392.png
-
-Convert to MarkdownMr. A. H. Belmont
+Mr. A. H. Belmont
 
 September 9, 1959
 

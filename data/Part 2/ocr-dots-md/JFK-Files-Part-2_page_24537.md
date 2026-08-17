@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24537.png
-
-Convert to MarkdownE. The Issue of Authority Outside the Agency
+E. The Issue of Authority Outside the Agency
 
 This section discusses the evidence as to whether there was authorization
 from outside the Agency for the assassination activity that took place during

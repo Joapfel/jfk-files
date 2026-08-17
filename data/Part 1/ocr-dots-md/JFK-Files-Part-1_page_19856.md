@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19856.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. I have been advised that, in the event I am called upon by the properly constituted authorities to testifying or provide information which I am obliged hereby not to disclose, I will notify the Organization immediately; I will also advise said authorities of my scope, contributions to our government and will request that my right or need to testifying be established before I am required to do so.
 

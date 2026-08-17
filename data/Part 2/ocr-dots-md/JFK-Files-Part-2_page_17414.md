@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17414.png
-
-Convert to Markdown# STUDENT NONVIOLENT COORDINATING COMMITTEE (SNCC), CHICAGO BRANCH
+# STUDENT NONVIOLENT COORDINATING COMMITTEE (SNCC), CHICAGO BRANCH
 
 A source advised in May, 1968, that the Chicago branch of the SNCC is an affiliate of the national SNCC with headquarters located in Atlanta, Georgia. It is a non-membership type group headed in Chicago by ROBERT ALFONZO BROWN, a 19 year old male Negro, with the title of Midwest Region Director. BROWN maintains strict loyalty to STOKELY CARMICHAEL, Recruiter and Organizer and former National Director of SNCC. BROWN attempts to align Chicago's SNCC activities within the framework of CARMICHAEL'S policies.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34107.png
-
-Convert to MarkdownSC Att. #5 UFGA-26348
+SC Att. #5 UFGA-26348
 
 economic intelligence rep...
 

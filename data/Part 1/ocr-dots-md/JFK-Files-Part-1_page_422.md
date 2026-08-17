@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_422.png
-
-Convert to Markdown1. McCARTHY, Justin
+1. McCARTHY, Justin
 2. McCURLEY, A.D.
 3. McLANEY, Michael aka McClainey
 4. McMILLIAN, K.C.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7910.png
-
-Convert to Markdown23. All reports, notes, correspondence, or memorandums pertaining to any effort by the Department of Justice to expedite the transcript of the evidentiary hearing held in October, 1974, on James Earl Ray's petition for a writ of habeas corpus.
+23. All reports, notes, correspondence, or memorandums pertaining to any effort by the Department of Justice to expedite the transcript of the evidentiary hearing held in October, 1974, on James Earl Ray's petition for a writ of habeas corpus.
 
 24. All reports, notes, or memorandums on information contained in any tape recording delivered or made available to the FBI or the District Attorney General of Shelby County by anyone whomsoever. All correspondence engaged in with respect to any investigation which was made of the information contained in any of the foregoing.
 

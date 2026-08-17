@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10795.png
-
-Convert to Markdown# 4. Responsibilities of CIA
+# 4. Responsibilities of CIA
 
 ## a. The National Security Act of 1947
 

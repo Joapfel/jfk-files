@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6062.png
-
-Convert to MarkdownACABAR COM A UNE, CONQUISTÁ-LA
+ACABAR COM A UNE, CONQUISTÁ-LA
 OU CRIAR OUTRA ENTIDADE?
 
 O movimento universitário brasileiro é apre-

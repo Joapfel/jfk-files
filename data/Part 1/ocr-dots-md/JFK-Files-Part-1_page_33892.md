@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33892.png
-
-Convert to Markdownidentified publicly with domestic political philosophies at issue in their own countries. Many, in fact, most of the staff people are controversial figures among their own countrymen in exactly the same way that prominent Americans are controversial in our political arena. Many indeed are members of the Councils, but are men of sufficient stature to give their primary allegiance to the non-partisan policy of RFE. The decisive factor is that there be no controversy or question about their anti-Communist convictions and records.
+identified publicly with domestic political philosophies at issue in their own countries. Many, in fact, most of the staff people are controversial figures among their own countrymen in exactly the same way that prominent Americans are controversial in our political arena. Many indeed are members of the Councils, but are men of sufficient stature to give their primary allegiance to the non-partisan policy of RFE. The decisive factor is that there be no controversy or question about their anti-Communist convictions and records.
 
 At this point, it must be noted that our target countries have been subject to repetitive political formant prior to and following World War II, as well as the successive occupations of Nazi and Communist Armies.
 

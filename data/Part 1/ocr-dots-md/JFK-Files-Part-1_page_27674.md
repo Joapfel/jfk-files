@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27674.png
-
-Convert to Markdown1 March 1967
+1 March 1967
 
 MEMORANDUM FOR: Secretary, GSCS Panel, Section A
 SUBJECT : Recommendation for Promotion:

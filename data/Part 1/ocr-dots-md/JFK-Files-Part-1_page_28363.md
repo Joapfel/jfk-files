@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28363.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE:
 CTC No.

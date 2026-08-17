@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7491.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET</td><td><table><thead><tr><th colspan="2">ROUTING</th></tr><tr><th>1</th><th>4</th></tr></thead><tbody><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET</td><td><table><thead><tr><th colspan="2">ROUTING</th></tr><tr><th>1</th><th>4</th></tr></thead><tbody><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr></tbody></table>
 
 RECORDS OFFICER STAMP
 

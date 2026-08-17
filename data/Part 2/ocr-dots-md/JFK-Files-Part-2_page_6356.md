@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6356.png
-
-Convert to MarkdownCentral Intelligence Agency
+Central Intelligence Agency
 Washington, D.C. 20505
 
 22 February 1995

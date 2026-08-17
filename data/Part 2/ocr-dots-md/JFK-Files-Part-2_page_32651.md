@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32651.png
-
-Convert to MarkdownINVESTIGATION OF
+INVESTIGATION OF
 
 THE PREPAREDNESS PROGRAM
 

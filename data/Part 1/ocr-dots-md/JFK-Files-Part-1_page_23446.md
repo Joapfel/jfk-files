@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23446.png
-
-Convert to Markdown# CERTIFICATION
+# CERTIFICATION
 
 I certify that I have read the names of the above listed organizations.
 

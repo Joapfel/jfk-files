@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32731.png
-
-Convert to Markdownwere included as such in the Kennedy-Khrushchev exchange of October 27-28.
+were included as such in the Kennedy-Khrushchev exchange of October 27-28.
 
 The United States made it clear that it could not consider lifting the quarantine until the Soviets agreed to remove the IL-28s within a short time.
 

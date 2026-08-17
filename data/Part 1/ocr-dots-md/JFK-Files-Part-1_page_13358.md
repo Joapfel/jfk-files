@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13358.png
-
-Convert to MarkdownDIR 1809b (dated 7 July 67)
+DIR 1809b (dated 7 July 67)
 
 Headquarters opposed too any use being made of AMCLEVE/15 that would involve his appearance as a witness for prosecution.
 

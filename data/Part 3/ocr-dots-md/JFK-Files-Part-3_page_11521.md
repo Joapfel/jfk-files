@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11521.png
-
-Convert to MarkdownC O P Y
+C O P Y
 
 JESSE HELMS
 North Carolina

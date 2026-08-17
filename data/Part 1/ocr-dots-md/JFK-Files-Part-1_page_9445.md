@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9445.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9 June 1980
 

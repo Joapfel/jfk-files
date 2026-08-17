@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14263.png
-
-Convert to Markdownpresented at an Executive Session, or classified papers, and other materials received by the staff or its consultants while in the employ of the Committee shall be made public, in whole or in part or by way of summary, or disclosed to any person outside the Committee unless authorized by a majority vote of the entire Committee, or after the termination of the Committee, in such manner as may be determined by the Senate.
+presented at an Executive Session, or classified papers, and other materials received by the staff or its consultants while in the employ of the Committee shall be made public, in whole or in part or by way of summary, or disclosed to any person outside the Committee unless authorized by a majority vote of the entire Committee, or after the termination of the Committee, in such manner as may be determined by the Senate.
 
 7.6 Before the Committee is called upon to make any deposition with respect to the testimony, papers, or other materials presented to it, the Committee members shall have a reasonable opportunity to examine all pertinent testimony, papers and other materials that have been obtained by the Committee staff. No member shall release any such to testimony, papers, or other materials, or any information contained in such testimony, papers, or other materials, to the public or any person outside the Committee unless authorized by a majority vote of the entire Committee, or after the termination of the Committee, in such manner as may be determined by the Senate.
 

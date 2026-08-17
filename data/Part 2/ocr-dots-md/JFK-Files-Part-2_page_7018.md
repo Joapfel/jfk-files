@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7018.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EVENT: STAFF BRIEFING
 PLACE: H-405 CAPITOL

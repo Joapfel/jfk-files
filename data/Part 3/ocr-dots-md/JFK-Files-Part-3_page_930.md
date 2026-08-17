@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_930.png
-
-Convert to Markdown# The Acting Attorney General
+# The Acting Attorney General
 
 but we feel that such could be handled during oral briefings during high-level conferences. In this regard, you have designated Messrs. Henry E. Petersen, Robert Dixon, J. Stanley Pottinger, and Irving Jaffe to be available for consultation and advice.
 

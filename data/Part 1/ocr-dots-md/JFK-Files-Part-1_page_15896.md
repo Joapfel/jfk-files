@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15896.png
-
-Convert to MarkdownIch vorstreckte mich wieder und wartete die zum Abland.
+Ich vorstreckte mich wieder und wartete die zum Abland.
 
 Ich ging schließlich wieder ins Wustorf und schweiften nun
 der Klinte entlang. Ich mußte mich wieder die ganze Nacht

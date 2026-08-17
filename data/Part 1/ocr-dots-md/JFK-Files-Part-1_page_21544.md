@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21544.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NOSENKO and others of his generation have lived in a Soviet society throughout their entire lives. The environment is an important factor of influence in the life of an individual and true disillusionment is at best usually a gradual process in which many factors, some recognized and some not recognized by the individual, have played a role in varying degrees.
 

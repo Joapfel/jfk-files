@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_14008.png
-
 , states he has written at least 12 speeches on
 this subject for Mr. Dulles. However the timing and manner of release
 has given special notice by the press in this instance.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20588.png
-
-Convert to Markdown8 NOV 1965
+8 NOV 1965
 
 **MEMORANDUM FOR:** Deputy Director for Support
 **SUBJECT:** Request for Exception to Provision of

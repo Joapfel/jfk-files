@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27192.png
-
-Convert to Markdown# B-W Files
+# B-W Files
 
 ## III. Robert Vesco
 

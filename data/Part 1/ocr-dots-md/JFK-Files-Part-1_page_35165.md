@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35165.png
-
-Convert to MarkdownDecember 31, 1960
+December 31, 1960
 
 Bank Balance as per Statement $ 34,119.48
 

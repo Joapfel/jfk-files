@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26971.png
-
-Convert to Markdown18 April 1975
+18 April 1975
 
 MEMORANDUM FOR THE RECORD
 

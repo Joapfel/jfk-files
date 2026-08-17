@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23362.png
-
-Convert to Markdown1. on is exactly what Mr. Gottlieb conveyed to Mr. Hedgeman, which, of course, you could not testify to.
+1. on is exactly what Mr. Gottlieb conveyed to Mr. Hedgeman, which, of course, you could not testify to.
 
 2.
 

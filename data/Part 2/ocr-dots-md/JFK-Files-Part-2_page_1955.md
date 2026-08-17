@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1955.png
-
-Convert to MarkdownSECRET
+SECRET
 
 20 MAR. 1965
 

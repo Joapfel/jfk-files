@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17504.png
-
-Convert to MarkdownApril 18, 1969
+April 18, 1969
 
 NORTHWESTERN UNIVERSITY, EVANSTON, ILLINOIS
 WILLIAM O'NEAL

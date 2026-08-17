@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20808.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">REPORT OF HONOR AND MERIT AWARDS BOARD</td>
         <td></td>

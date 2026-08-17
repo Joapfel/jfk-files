@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29428.png
-
-Convert to MarkdownClassification:
+Classification:
 
 (This farm is to be used for material extracted
 from CIA—controlled documents.)

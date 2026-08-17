@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8293.png
-
-Convert to Markdownhis hate. Subject asked F was it possible to get those hats for him. ? said he did not know if it can be done.
+his hate. Subject asked F was it possible to get those hats for him. ? said he did not know if it can be done.
 
 7. Subject asked F what type of a reception will be given on the 4th of July by the Emb and was there something arranged that any American could drop in, as signing the book at the Emb. - promised to prove to Subject in case there was something like that.
 

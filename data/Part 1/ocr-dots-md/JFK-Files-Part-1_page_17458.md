@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17458.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DATE : 20 JAN 62</td>
     <td>TO : DIRECTOR</td>

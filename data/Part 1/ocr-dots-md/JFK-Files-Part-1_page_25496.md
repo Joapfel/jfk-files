@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25496.png
-
-Convert to MarkdownC.M. Rounds:dp
+C.M. Rounds:dp
 
 C/WH/1
 7375/9354

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21706.png
-
-Convert to Markdownto anyone in the First Section of the First Department, within the
+to anyone in the First Section of the First Department, within the
 scope plausibly available to NOSENKO in his claimed position, there
 is no reason to question his statement.
 

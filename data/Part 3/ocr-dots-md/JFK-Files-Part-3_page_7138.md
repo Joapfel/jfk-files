@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_7138.png
-
 in charge of liaison with
 the Commission and its Staff.
 

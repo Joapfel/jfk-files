@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15173.png
-
-Convert to MarkdownEduardo CAUIC
+Eduardo CAUIC
 
 Caixa Postal 11724 (Lepa)
 São Paulo

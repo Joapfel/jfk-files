@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27182.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><caption>REQUEST FOR PERSONNEL ACTION</caption><tbody><tr><td rowspan="2">1. Serial No.</td><td rowspan="2">2. Name (Last, First, Middle)</td><td colspan="3">3. Date Of Birth</td><td rowspan="2">4. Vet. Pref.<br/>None-P<br/>S Pt-1<br/>10 Pt-2</td><td rowspan="2">5. Sex<br/>M</td><td rowspan="2">6. CS - EOD</td></tr><tr><td>Mo 08</td><td>Do 21</td><td>Yr 13</td><td>Mo De Yr</td></tr><tr><td rowspan="2">7. SCD</td><td colspan="2">8. CSC Retired</td><td rowspan="2">9. CSC Or Other Legal Authority</td><td colspan="3">10. Appmt. Affidav.</td><td rowspan="2">11. FEGLI<br/>Yes-No</td><td rowspan="2">12. LCD<br/>Mo Do Yr</td><td rowspan="2">13. Bill Ser.<br/>Credit I co.<br/>Yes-No</td></tr><tr><td></td><td>Yes-1<br/>No-2</td><td>Code</td><td>Yes-No</td></tr></tbody></table>
 

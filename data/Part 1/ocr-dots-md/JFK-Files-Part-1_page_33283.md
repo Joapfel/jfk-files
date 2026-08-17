@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33283.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th colspan="6">SIGNAL CENTRAL USE ONLY</th></tr><tr><th>AGE</th><th>LON</th><th>AFF</th><th>FCC</th><th>VRE</th><th>NM</th></tr></thead><tbody><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td>CLASSIFICATION</td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

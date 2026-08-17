@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3024.png
-
-Convert to Markdown**QUESTION:**
+**QUESTION:**
 
 ....You do use informants and do instruct them to
 spread dissention among certain groups that they are

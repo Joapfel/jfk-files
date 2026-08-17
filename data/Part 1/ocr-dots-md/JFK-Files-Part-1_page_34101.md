@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34101.png
-
-Convert to MarkdownSA 10
+SA 10
 
 (110)
 

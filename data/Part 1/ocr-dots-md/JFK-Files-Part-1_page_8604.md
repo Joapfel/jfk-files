@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8604.png
-
-Convert to MarkdownOctober 4, 1965.
+October 4, 1965.
 
 Contact Report
 Subject: LIOVAL-1 (P-8903)

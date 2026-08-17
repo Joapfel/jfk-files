@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4990.png
-
-Convert to MarkdownAirtel
+Airtel
 
 2. Mr. J. A. Mintz
    (1-Mr. J. B. Hotis)

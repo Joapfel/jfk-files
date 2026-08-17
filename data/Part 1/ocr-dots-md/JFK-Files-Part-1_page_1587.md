@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1587.png
-
-Convert to MarkdownSECRET
+SECRET
 
 had given a very general outline of her activities to PARLIN and it is reliably reported that PARLIN and BERGER shared a hotel room in Holland in 1957. PARLIN recommended a Willard Woart LANCASTER for OSS employment. LANCASTER was a member of the same law firm as PARLIN and had a long record of Communist front affiliations. PARLIN in 1956 traveled to Russia as a member of a delegation under the sponsorship of the National Council of Churches. He was also the lawyer for a Swiss a moment industrialist who sold arms to the Nazis and the Communist countries since that time.
 

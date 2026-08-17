@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14180.png
-
-Convert to MarkdownII - Groups and Organizations:
+II - Groups and Organizations:
 
 International Peasant Union which is made up of
 representatives of Polish Agrarian Party; Bulgarian

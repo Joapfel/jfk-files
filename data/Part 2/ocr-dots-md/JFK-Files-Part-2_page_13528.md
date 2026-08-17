@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13528.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="4">4. AVAILABILITY OF APPLICANT</td>

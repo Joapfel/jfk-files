@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1241.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONTRACT INFORMATION AND CHECK LIST (CONTINUED)</td>
     <td>CASE OFFICE</td>

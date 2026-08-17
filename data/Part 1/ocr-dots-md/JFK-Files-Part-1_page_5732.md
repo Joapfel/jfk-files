@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5732.png
-
-Convert to MarkdownE 2 IMPDET
+E 2 IMPDET
 
 CL BY: 019522
 

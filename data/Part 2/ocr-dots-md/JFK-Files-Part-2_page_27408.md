@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27408.png
-
-Convert to Markdownby President Nixon Mentioned
+by President Nixon Mentioned
 (1 page).
 
  Item 54 is contained in a file labeled "DCI Correspondence - 1973"

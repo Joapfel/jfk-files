@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33393.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="5">FORM 30208<br/>71 NIG. 11/73</td></tr><tr><td>CABLE SEC DISSEMINATED BY:</td><td>JO6</td><td>PER</td><td>TOTAL COPIES 25-1</td><td>RUN BY</td></tr><tr><td colspan="2">PERSON UNIT NOTIFIED</td><td colspan="3">SECRET</td></tr><tr><td colspan="3"></td><td colspan="2">REPRODUCTION BY OTHER THE<br/>ISSUING OFFICE IS PROHIBITED</td></tr><tr><td colspan="3">ADVANCE COPY ISSUED/SLOTTED</td><td>BY</td><td>AT</td></tr><tr><td>ACTION UNIT</td><td>I</td><td>F</td><td>/F</td><td>VR</td></tr><tr><td>Mil 7</td><td>N</td><td>F</td><td>O</td><td>FILE: EUFOR, EUR 8, SSS</td></tr><tr><td colspan="2">ACTION *</td><td></td><td></td><td></td></tr></table>
 

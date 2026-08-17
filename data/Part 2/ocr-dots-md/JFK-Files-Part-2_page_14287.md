@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14287.png
-
-Convert to Markdown# Appendix A
+# Appendix A
 
 ## DOCUMENTS PERTAINING TO THE COMMITTEE'S PRIOR REQUESTS
 

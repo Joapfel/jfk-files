@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2797.png
-
-Convert to Markdown# FBI
+# FBI
 
 Date: 9/8/75
 

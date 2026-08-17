@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6057.png
-
-Convert to MarkdownPondador
+Pondador
 
 JAIRO CALADO
 Diretora

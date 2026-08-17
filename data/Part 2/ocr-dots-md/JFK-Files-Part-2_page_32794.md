@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32794.png
-
-Convert to Markdown# MEMORANDUM FOR MR. JOHN H. CRIMMINS
+# MEMORANDUM FOR MR. JOHN H. CRIMMINS
 Coordinator of Cuban Affairs
 Department of State
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15272.png
-
-Convert to MarkdownSECRET
+SECRET
 
 39. Another person who Subject met in Berlin was named LUCAS, a Frenchman who was employed in a radio shop in Berlin. LUCAS became an associate of Subject and helped Subject by stealing various spare parts, for the purpose of setting up the radio station. LUCAS was also instrumental in bringing about Subject's downfall. LUCAS had met a young lady in Berlin. She was a Belgian national and said that she had a fiance in Paris whom she had not seen for some time. She asked for help in going to Paris, and Subject was to meet her in the Cafe Trundl in Berlin. Subject eventually met her and told her that he (Subject) would make her some false documents, to enable her to get to Paris. A meeting was arranged for the next day, at which time she was to bring a passport and a photograph and transit to Subject. She did not show up at the appointed hour and place. Subject waited for a short time and then went to the railroad station, accompanied by his girlfriend, Astree SCHMIDT (NR-IRD), and his partner in black-market activities, KATZ. The platform was empty, except for the girl Subject was to meet. Subject addressed her and asked her why she had not kept the appointment, and she replied, 'You are going to be arrested.' At this moment the German Police converged on the platform where Subject, SCHMIDT, and KATZ were standing, and arrested them.
 

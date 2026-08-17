@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9241.png
-
-Convert to MarkdownDE T-1
+DE T-1
 
 April 27, 1973
 

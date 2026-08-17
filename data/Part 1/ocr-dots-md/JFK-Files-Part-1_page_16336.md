@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16336.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">SECRET</th></tr><tr><td>(When First Used)</td><td>TOBY COLE</td><td>TDCS no.</td><td>57075</td></tr></thead><tbody><tr><td></td><td>315/00189-6A</td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="4">SECRET</th></tr><tr><td>(When First Used)</td><td>TOBY COLE</td><td>TDCS no.</td><td>57075</td></tr></thead><tbody><tr><td></td><td>315/00189-6A</td><td></td><td></td></tr></tbody></table>
 
 THAT SAME DAY, BELGIAN ARMY COLONEL F. P. MARLIERE, WAS "EXTREMELY COOPERATIVE," ALLOWING HIM TO EXAMINE AVAILABLE SUPPLIES AND EQUIPMENT. MOARE WAS ASTOUNDED TO DISCOVER 20 NEW AMERICAN-BUILT ASSAULT BOATS AND 15 NEW 25-HP ENGINES, WHICH HE WILL USE IN THE ASSAULT ON ALBERTVILLE. MOARE LISTED HIS REQUIREMENTS AND MADE ARRANGEMENTS FOR THE SUPPLIES TO BE TRANSPORTED TO NOJILI AIRPORT FOR AIRSHIPMENT TO KAMINA BASE BY C-130. (FIELD COMMENT: THE BOATS AND ENGINES WERE EN ROUTE TO KAMINA BY AIR ON 21 AUGUST.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2798.png
-
-Convert to Markdown<table><tr><td>FBI</td></tr><tr><td>Date:</td></tr><tr><td>Transmit the following in</td></tr><tr><td>(Type in plaintext or code)</td></tr><tr><td>Via</td></tr><tr><td>(Priority)</td></tr></table>
+<table><tr><td>FBI</td></tr><tr><td>Date:</td></tr><tr><td>Transmit the following in</td></tr><tr><td>(Type in plaintext or code)</td></tr><tr><td>Via</td></tr><tr><td>(Priority)</td></tr></table>
 
 PAGE TWO
 

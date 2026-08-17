@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6056.png
-
-Convert to Markdown# AFFIDAVIT
+# AFFIDAVIT
 
 **Henry F. Graff** being duly sworn, hereby states that he/she has read and signed the foregoing Statement on Biographical and Financial Information and that the information provided therein is, to the best of his/her knowledge, current, accurate, and complete.
 

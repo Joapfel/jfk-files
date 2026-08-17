@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14433.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>ROTC</td></tr><tr><td>DATE</td></tr><tr><td>29 MAY 1970</td></tr></table>
 

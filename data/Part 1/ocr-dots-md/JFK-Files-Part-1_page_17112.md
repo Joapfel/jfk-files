@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17112.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 8 JAN 1960
 

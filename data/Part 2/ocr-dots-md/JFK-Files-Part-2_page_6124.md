@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6124.png
-
-Convert to Markdown2. What do you consider to be your primary responsibilities and priorities as an ARRB member?
+2. What do you consider to be your primary responsibilities and priorities as an ARRB member?
 
 I see our primary responsibilities as:
 

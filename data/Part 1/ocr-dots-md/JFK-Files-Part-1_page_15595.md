@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15595.png
-
-Convert to Markdown5. Letter indicated acceptance for employment in West Berlin.
+5. Letter indicated acceptance for employment in West Berlin.
 
 For business reasons in accordance with cover legend, subject has been
 in and out of Germany ever since 1955. By 1958 subject became interested in seeking

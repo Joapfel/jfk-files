@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17194.png
-
-Convert to MarkdownBLACK PANTHER PARTY (PP)
+BLACK PANTHER PARTY (PP)
 
 Appeal To The People
 

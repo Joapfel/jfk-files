@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31504.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/evs
 
 HOLLAND ROBERTS, President of the ARI, spoke about the great work being done by the USSR and the Soviet bloc for peace. ROBERTS said he always is inspired when he visits these countries and hears of their achievements to bring about peace and he is always disappointed on returning to the United States to find the war mongers holding the upper hand and keeping the people obsessed with the idea that they have to stay prepared for war against the communists. ROBERTS said the United States was constantly on the side of the landlords and money lenders of small countries throughout the world such as South Vietnam. He said these people only aspire justice for themselves and an opportunity to live in peace and comfort. However, they are ground down ruthlessly by native oppressors with the help of American troops and American support.

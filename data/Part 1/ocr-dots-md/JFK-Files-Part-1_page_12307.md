@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12307.png
-
-Convert to MarkdownSUBJECT: Cuban Exiles Involved with DEA
+SUBJECT: Cuban Exiles Involved with DEA
 
 received a bank loan of $1,500 in Miami and has defaulted on some $800 of the amount. The final note on De ARMAS is that he received a general discharge from the U.S. Army with a notation that he had psychological and behavioral problems." The gist of the aforementioned FBI information has been passed to DEA Caracas. All agencies concerned agree that contact with De ARMAS should cease. De ARMAS again contacted S.A. Duncan in Caracas on 26 February 1976 and requested a meeting; he said that the request was not drug related, but concerned the "Cuban matter." S.A. Duncan advised De ARMAS that he was on his own and that DEA would not get involved. As DEA Headquarters is aware, De ARMAS reportedly left for Mexico o/a 26 February 1976. We have no subsequent reporting on his movements.
 

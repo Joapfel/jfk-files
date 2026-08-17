@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10260.png
-
-Convert to MarkdownArenas por la policía.
+Arenas por la policía.
 En la Gringa Perón Paredes en
 Compañía de los letreros. de Leon Barno
 gringos prisionneris Compañero disante

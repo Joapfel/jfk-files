@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16794.png
-
-Convert to MarkdownQ221 Metal fragment, FBI #39
+Q221 Metal fragment, FBI #39
 Q222 .45 Auto bullet, FBI #40
 Q223 Metal fragment, FBI #41
 Q224 Unfired 12-gauge shotshell, Federal Monark, FBI =42

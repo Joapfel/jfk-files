@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30154.png
-
-Convert to Markdown# PART III.—DETERMINING CREDITABLE SERVICE AND SERVICE COMPUTATION DATE FOR LEAVE PURPOSES
+# PART III.—DETERMINING CREDITABLE SERVICE AND SERVICE COMPUTATION DATE FOR LEAVE PURPOSES
 
 <table><thead><tr><th>YEARS</th><th>MONTHS</th><th>DAYS</th></tr></thead><tbody><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr></tbody></table>
 

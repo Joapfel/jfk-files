@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12266.png
-
-Convert to MarkdownSECTION 107. SECURITY INFORMANTS AND CONFIDENTIAL SOURCES
+SECTION 107. SECURITY INFORMANTS AND CONFIDENTIAL SOURCES
 
 5. Listed below are all of the Bureau offices and the dates semiannual letters should be submitted. This list is also applicable to the submission of semiannual letters on criminal informants.
 

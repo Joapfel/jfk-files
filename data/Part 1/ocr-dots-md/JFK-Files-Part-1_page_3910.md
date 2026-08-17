@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3910.png
-
-Convert to MarkdownUFGA-21693/14
+UFGA-21693/14
 Att. No. 33 to UFGA-21693
 
 SUBJECT: GOMEZ, Ezequiel

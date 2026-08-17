@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1307.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 country, he could well have had questions about his
 reception after serving in the CASTRO government.)

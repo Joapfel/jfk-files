@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_64.png
-
-Convert to Markdown104-10012-10024
+104-10012-10024
 
 U K . S E C R I P T
 

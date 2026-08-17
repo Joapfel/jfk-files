@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22042.png
-
-Convert to Markdown(iv) KGB-Polish UB Activities Against MORONE
+(iv) KGB-Polish UB Activities Against MORONE
 
 (a) Introduction
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5139.png
-
-Convert to Markdowng. All memoranda and other materials which reflect the "various recent conversations" between the Director and the Attorney General, as referenced in the first sentence of the September 14, 1965, memorandum from the Director to the Attorney General concerning "special investigative techniques".
+g. All memoranda and other materials which reflect the "various recent conversations" between the Director and the Attorney General, as referenced in the first sentence of the September 14, 1965, memorandum from the Director to the Attorney General concerning "special investigative techniques".
 
 h. All memoranda and other materials which reflect the following actions referred to in the September 14, 1965, memorandum from the Director to the Attorney General concerning "special investigative techniques":
 

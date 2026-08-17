@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24252.png
-
-Convert to MarkdownSECRET/RYBAT
+SECRET/RYBAT
 
 31 July 1972
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23785.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Kirbow. That kind of relationship is something that we should stay away from because I don't see any harm in it,
 

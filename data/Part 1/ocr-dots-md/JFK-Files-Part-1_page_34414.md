@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34414.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Subject: Attempted R.I.S. Penetration of Bell Telephone Labs
 

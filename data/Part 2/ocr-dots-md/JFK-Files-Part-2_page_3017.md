@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3017.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 businessmen who had been kidnapped by Raül Castro.
 

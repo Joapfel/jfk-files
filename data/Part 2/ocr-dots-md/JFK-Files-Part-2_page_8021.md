@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8021.png
-
-Convert to Markdownsions, he added, the district hopes to make such
+sions, he added, the district hopes to make such
 computer assistance available at a nearby rural ele-
 mentary school attended by children of migrant farm
 workers.

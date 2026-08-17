@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33686.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 realized that mistakes had been made and the Crusade had criticised the Voice, strategically the Crusade could be of enormous help to the Voice by publishing the need for communicating to people in slavery.
 

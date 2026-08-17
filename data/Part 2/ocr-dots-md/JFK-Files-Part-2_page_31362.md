@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31362.png
-
-Convert to Markdown07218-1
+07218-1
 
 "On 31 January 1969, Mr. Ross B. Young, EMI/LSM acknowledged my 25
 January 1969 memo cited above in writing and notified me that the requested

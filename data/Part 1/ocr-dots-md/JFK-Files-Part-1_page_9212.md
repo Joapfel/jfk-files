@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9212.png
-
-Convert to MarkdownMarch 3, 1951
+March 3, 1951
 
 Dear Bill:
 

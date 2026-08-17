@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30084.png
-
-Convert to MarkdownHerman Edward Kimsey
+Herman Edward Kimsey
 
 Questioned Document Analyst (Continued)
 

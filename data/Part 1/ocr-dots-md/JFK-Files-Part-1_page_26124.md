@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26124.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AND DEMOLITIONS.
 

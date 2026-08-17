@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24545.png
-
-Convert to MarkdownAnd, as stated above, Helms also testified that "Harvey kept Phase 2 (the Roselli pill operation) pretty much in his back pocket" and that although Helms stated "I do not know this for sure," he testified it was his "presumption" that Robert Kennedy was not informed of the Phase 2 operation.* (Helms, 6/13, p. 57-58.)
+And, as stated above, Helms also testified that "Harvey kept Phase 2 (the Roselli pill operation) pretty much in his back pocket" and that although Helms stated "I do not know this for sure," he testified it was his "presumption" that Robert Kennedy was not informed of the Phase 2 operation.* (Helms, 6/13, p. 57-58.)
 
 e. Helms' Testimony as to Why He Did Not Obtain a Direct Order
 

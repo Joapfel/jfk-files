@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4583.png
-
-Convert to MarkdownSUNNY SOUTH AIRPORT SERVICE, INC.
+SUNNY SOUTH AIRPORT SERVICE, INC.
 
 Cessna
 

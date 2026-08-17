@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7605.png
-
-Convert to MarkdownREPRODUCTION BY OTHER
+REPRODUCTION BY OTHER
 ISSUING OFFICE IS PROHIB
 
 <table>

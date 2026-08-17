@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15694.png
-
-Convert to MarkdownORIG: D. WIDCTR
+ORIG: D. WIDCTR
 UNIT : AF/W/1
 EXT : 3966
 DATE : 16 November 1960

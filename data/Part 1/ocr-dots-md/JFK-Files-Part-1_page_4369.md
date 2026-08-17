@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4369.png
-
-Convert to MarkdownMira, horicando ejercicios y hablando más bien que el diablo...” (Se oculta un murmullo de lasas)
+Mira, horicando ejercicios y hablando más bien que el diablo...” (Se oculta un murmullo de lasas)
 
 Yo no quiero, yo no quiero hacer el papel del monito. Efficientemente, yo digo que la guerra iba a ser muy larga y muy dura... que iba a ser muy cruel. Se que, con esto, no me gané simpatias: yo lo aleato, mi función no es de ganarme simpatias mi función en dedicarme por entero a la labor de liberación de mi Patria. Y esta labor de liberación de mi Patria exije que cuando haya que decir una cosa dura se diga esa cosa dura, aunque no sea simpático.
 

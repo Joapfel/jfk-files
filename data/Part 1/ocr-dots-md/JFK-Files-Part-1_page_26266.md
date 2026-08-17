@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26266.png
-
-Convert to MarkdownRico which pointed Rico as an extremely evil and clever character, who did not possess one ounce of sincerity, and who would never cease being a Marxist revolutionary, for stripped of his Marxist propaganda weapons Rico was a nobody - and Rico did not want to be a nobody.
+Rico which pointed Rico as an extremely evil and clever character, who did not possess one ounce of sincerity, and who would never cease being a Marxist revolutionary, for stripped of his Marxist propaganda weapons Rico was a nobody - and Rico did not want to be a nobody.
 
 4. I told L/2 briefly of my successful experience with a similar case in the Philippines. He commented that it was easier to be successful in the Philippines "for the level of culture there, perhaps, is not as high as here."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2011.png
-
-Convert to Markdown1. Mr. Monahan
+1. Mr. Monahan
 2. Mr. Peelman
 3. Mr. Foster
 4. Mr. Aldhizer

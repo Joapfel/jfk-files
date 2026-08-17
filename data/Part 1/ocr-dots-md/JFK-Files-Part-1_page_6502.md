@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6502.png
-
-Convert to Markdown11 Aug 52
+11 Aug 52
 
 HP 52-698
 

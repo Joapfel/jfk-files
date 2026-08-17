@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5075.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th>DATE</th><th>TIME</th><th>TO</th></tr></thead><tbody><tr><td>06</td><td>19752</td><td>DIRECTOR</td></tr><tr><td>C-COG</td><td colspan="2">MESSAGE TO BE TRANSMITTED</td></tr><tr><td>3. COG/OPS</td><td>04666</td><td>DISSENT BY: GJ</td></tr><tr><td>4. RR</td><td>0</td><td>NO ORDER</td></tr><tr><td>F CA</td><td>0</td><td>RETURN TO PER</td></tr><tr><td>6. C./D/S</td><td>0</td><td>#5</td></tr><tr><td>7. O/WHA</td><td colspan="2"></td></tr><tr><td>8. O/EUR</td><td colspan="2"></td></tr><tr><td>9. O/EA</td><td colspan="2"></td></tr><tr><td>10. O/NEAF</td><td colspan="2"></td></tr></tbody></table>
 

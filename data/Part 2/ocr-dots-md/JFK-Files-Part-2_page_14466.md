@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14466.png
-
-Convert to MarkdownMemorandum to Mr. Belmont
+Memorandum to Mr. Belmont
 Re: BUREAU INFORMANT 200
 105-67845
 

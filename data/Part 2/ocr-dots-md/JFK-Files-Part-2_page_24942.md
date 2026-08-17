@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24942.png
-
-Convert to MarkdownINTERVIEW AND MEETING SUMMARY
+INTERVIEW AND MEETING SUMMARY
 
 **INTERVIEW WITH:** Congo Chief of Station
 

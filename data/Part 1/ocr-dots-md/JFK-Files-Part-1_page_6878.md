@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6878.png
-
-Convert to MarkdownDr. Maurice Halperin
+Dr. Maurice Halperin
 Medellin 36 - 9
 Mexico 7, D. F.
 Mexico

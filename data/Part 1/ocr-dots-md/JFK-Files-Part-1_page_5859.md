@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5859.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (Proofread)
 
 <table><tr><td colspan="2">REGISTRATION REQUEST</td></tr><tr><td>NAME</td><td>CUESTA VALLE, Antonio</td></tr><tr><td colspan="2">ALIASES AND/OR SPELLING VARIATIONS</td></tr><tr><td>DATE OF BIRTH</td><td>PLACE OF BIRTH</td><td>CITIZENSHIP</td></tr><tr><td>PRESENT ADDRESS</td><td>OCCUPATION</td><td></td></tr><tr><td colspan="3">PRESENT EMPLOYMENT</td></tr><tr><td colspan="3">TRAVEL</td></tr><tr><td colspan="3">ADDITIONAL PERTINENT IDENTIFYING DATA</td></tr><tr><td colspan="3">Terminated without prejudice 10 May 1966<br>SUBJECT would not submit to control.</td></tr></table>

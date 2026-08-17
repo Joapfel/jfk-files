@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16124.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 OCC. 77-0704
 

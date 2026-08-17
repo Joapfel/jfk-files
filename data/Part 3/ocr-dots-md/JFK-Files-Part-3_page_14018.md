@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14018.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Turning to the subject of Counterintelligence which was included on the Board's list of items of interest, Mr. McCone asked Mr. Helms to speak to this matter.
 

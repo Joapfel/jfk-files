@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17676.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">2. Field agents</td>

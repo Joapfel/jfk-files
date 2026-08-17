@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19311.png
-
-Convert to MarkdownDEPARTMENT OF STATE
+DEPARTMENT OF STATE
 
 July 18, 1949
 

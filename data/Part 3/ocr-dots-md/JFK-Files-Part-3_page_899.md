@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_899.png
-
-Convert to MarkdownMemorandum to Mr. E. S. Miller
+Memorandum to Mr. E. S. Miller
 Re: U.S. vs. John William Butenko and
 Igor A. Ivanov, vs. A. Ivanov,
 Appellant

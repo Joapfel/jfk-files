@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26708.png
-
-Convert to MarkdownFrom 0620 to 1210, 29 April (Thursday) 1965
+From 0620 to 1210, 29 April (Thursday) 1965
 
 2.0 In. NO asks Inge(bord) Rico (v), who answers, for Victor Rico Gelen (VRO). He is asleep. No is Emilio Cordero, a Dominican. When will he be up? Around 0900 or 0930. No will phone back
 

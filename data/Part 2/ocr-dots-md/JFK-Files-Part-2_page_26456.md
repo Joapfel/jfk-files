@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26456.png
-
-Convert to MarkdownJFK Assassination System
+JFK Assassination System
 
 Date: 8/26/201
 

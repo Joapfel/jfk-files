@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10547.png
-
-Convert to MarkdownSenator Gary W. Hart
+Senator Gary W. Hart
 
 displayed the photograph to you and you did not recognize the suspect. For your information this is no longer an active investigation as the unknown subject was not identified and the original allegation was not corroborated. Other than the reasonably segregable portion of the references to you as set forth above, this file is exempt from disclosure under the provisions of the Freedom of Information Act, Title 5, United States Code, Section 552 (b) (2), (b) (5) and (b) (7) (C) and (D).
 

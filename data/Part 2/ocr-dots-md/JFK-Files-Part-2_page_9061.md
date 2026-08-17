@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9061.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (7) Live Sources in the Non-Bloc Area. Sources such as code clerks and diplomats are a fertile field for procurement of much-needed intelligence relating to the activities of certain Latin American and Middle Eastern countries which are expanding their subversive and terrorist activities, even to the United States. I do not feel confident that both agencies have adequately exploited the full potential of this field, and would urge that this subject be explored by our respective representatives.
 

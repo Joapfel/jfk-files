@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17593.png
-
-Convert to MarkdownSECRET - KAPOK
+SECRET - KAPOK
 
 PROJECT OUTLINE
 

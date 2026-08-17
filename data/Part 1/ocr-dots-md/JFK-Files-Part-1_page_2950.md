@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2950.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 (Annex B)
 

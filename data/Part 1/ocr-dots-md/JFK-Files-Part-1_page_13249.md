@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13249.png
-
-Convert to MarkdownThis morning, Dr. Uzcategui phoned up my house and asked me to come in - his office at the Ministry of Interior about, I'll am. Once I was there, the other people from P.T.J.(mentioned in previous report), and who - were supposed to form Uzcategui's new group of investigation, joined me, and Dr. Uzcategui talked to them like this:
+This morning, Dr. Uzcategui phoned up my house and asked me to come in - his office at the Ministry of Interior about, I'll am. Once I was there, the other people from P.T.J.(mentioned in previous report), and who - were supposed to form Uzcategui's new group of investigation, joined me, and Dr. Uzcategui talked to them like this:
 
 "....Gentlemen, this is to report you that Dr. OLIVARES RESUMED (P.T.J., Director), has refused the Ministry of Interior, Dr. LEANDRO MORA, the permission of having you here to work with me. Unless you decide to quit your job in P.T.J. and then join my office, I am afraid it will be impossible for us to work together, at least openly.....I think that Dr. OLIVARES'S great fault of cooperation with us, is increasing Dr. LEANDRO MORA'S feeling of unfriendliness towards him and myself as well. So, each one of you, shall have time until the 30 of this month to give me an answer as to about that decision to renounce P.T.J. or not; definitely, due to actual conditions, it is not possible to "borrow you" from P.T.J...."
 

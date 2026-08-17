@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1296.png
-
-Convert to Markdownfrequently mentioning the name of other CIA officers with
+frequently mentioning the name of other CIA officers with
 whom he was acquainted.
 
 3. Although the suspicions have increased, and SZULC's anti-Agency activities have become much more serious and blatant in the 1970's, it has not been possible to clear up any of the suspicions about his motives or his possible connections with a foreign intelligence service. There have been numerous reviews of his files and the interest in his activities has extended from the case officer level to the DCI. In fact, it is not possible to come to any clear conclusion about this man, and the notes below are simply illustrative of the kinds of things that keep the suspicions alive. It is important to note that SZULC's activities can be explained by the combination of his personality, ambition, and the demands on an investigative reporter for the NYT. He is an aggressive, insensitive, and persistent journalist with the family connections (Ambassador Wiley) and ability to develop the kinds of contacts appropriate to a successful correspondent for a paper like the NYT.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25005.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 SUBJECT: Discussion at the 460th Meeting of the National Security Council, Wednesday, September 21, 1960
 

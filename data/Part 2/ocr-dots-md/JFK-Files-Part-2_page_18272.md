@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18272.png
-
-Convert to Markdown# Memorandum for the Attorney General
+# Memorandum for the Attorney General
 
 In line with your suggestion this morning, I have already set up
 the procedure similar to requesting of authority for phone taps to be utilized

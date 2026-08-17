@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15448.png
-
-Convert to MarkdownSECRET
+SECRET
 
 For this reason it is recommended that either one of the two following courses of action may be taken, preferably the first.
 

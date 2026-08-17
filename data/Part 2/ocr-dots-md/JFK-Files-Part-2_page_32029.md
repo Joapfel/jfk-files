@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32029.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      Released under the John F. Kennedy

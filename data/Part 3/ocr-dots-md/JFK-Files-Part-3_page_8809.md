@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8809.png
-
-Convert to Markdown27 October 1958
+27 October 1958
 
 MEMORANDUM FOR: Director, Office of Security
 Department of State

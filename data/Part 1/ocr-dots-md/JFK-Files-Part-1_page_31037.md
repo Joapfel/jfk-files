@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31037.png
-
-Convert to MarkdownCERTIFICATION
+CERTIFICATION
 
 The undersigned hereby certifies that his previous employment by the U.S. Government terminated October 29, 1960, and that final salary payment for this employment covered the period October 16 through October 29, 1960.
 

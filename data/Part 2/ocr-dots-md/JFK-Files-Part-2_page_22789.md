@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22789.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Administration came in, at which time he moved over to the Defense Department.
 

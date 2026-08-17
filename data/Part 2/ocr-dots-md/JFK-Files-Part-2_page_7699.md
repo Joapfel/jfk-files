@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7699.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 This could lead to a symposium in which he would be invited to participate and respond to adversary views. His reaction to such a proposal is unknown. He has always resisted control in the sense of being an agent of any given country. Further, he does make demands for classified information and position papers including the nature of the sources before addressing himself to any particular problem. Nevertheless, his paper on your speeches were obtained from him using only unclassified information.
 

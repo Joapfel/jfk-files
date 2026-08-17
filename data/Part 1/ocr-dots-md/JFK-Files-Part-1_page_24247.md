@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24247.png
-
-Convert to MarkdownYet it was far enough away from the United Nations building to lessen
+Yet it was far enough away from the United Nations building to lessen
 the chance that FHOE himself and his putative diplomat target would
 be spotted by friends or acquaintances. His choice for the next meeting
 was at an increasingly dated new restaurant near the Lincoln Center

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14259.png
-
-Convert to MarkdownSECRET
+SECRET
 
 061284Z MAR 68 CITE MADRID 4358
 

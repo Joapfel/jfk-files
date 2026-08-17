@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5381.png
-
-Convert to Markdown13-00000
+13-00000
 
 **James thru 1985**
 Name: LONNQUIST Gary

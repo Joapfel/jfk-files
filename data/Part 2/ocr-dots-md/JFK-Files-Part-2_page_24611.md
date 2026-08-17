@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24611.png
-
-Convert to Markdown# SENSITIVE
+# SENSITIVE
 
 ## 5. Helms' Report to Rusk that CIA was not Involved with Amlash in a Castro Assassination Plot
 

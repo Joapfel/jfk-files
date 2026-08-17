@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9227.png
-
-Convert to MarkdownBiltmore recently / with ISt/. But your letter of November 8, 1950 had this footnote:
+Biltmore recently / with ISt/. But your letter of November 8, 1950 had this footnote:
 
 'Please be sure not to say anything at all to anyone about the mutual friend who was mentioned at lunch / Wilson/, very important; he'll explain why she is and if he sees you, perhaps within a week or two.' / This was just that Wilson was anxious about security for Swen/.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5845.png
-
-Convert to Markdownfrom two stations in its Final Compliance Statement. The
+from two stations in its Final Compliance Statement. The
 two stations in question are Mexico City for the period
 1963-1964, and Moscow for the period 1959-1962.
 

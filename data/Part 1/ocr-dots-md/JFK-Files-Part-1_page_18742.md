@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18742.png
-
-Convert to Markdown15 February 1957
+15 February 1957
 
 Bakin and Company, Real Estate
 724 - 9th Street, N. W.

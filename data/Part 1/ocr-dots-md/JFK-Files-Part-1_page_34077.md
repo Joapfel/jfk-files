@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34077.png
-
-Convert to MarkdownEconomic Research Bureau,
+Economic Research Bureau,
 Unidad Revolucionar',
 - 10 S.E. 9th Street.,
 Miami, Fla. U.S.A.

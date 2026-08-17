@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23307.png
-
-Convert to Markdown1 since the ultimate would still be disclosed if you gave this.
+1 since the ultimate would still be disclosed if you gave this.
 
 2 So what interpretation? I mean, this is rift here with
 3 assassination propositions, and the fact that you have "ultimate

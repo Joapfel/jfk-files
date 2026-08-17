@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13692.png
-
-Convert to MarkdownAirtel
+Airtel
 
 1 - Mr. W. R. Wannall
 1 - Mr. W. O. Cregar

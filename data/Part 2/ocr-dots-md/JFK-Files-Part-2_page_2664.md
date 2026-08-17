@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2664.png
-
-Convert to MarkdownSEC. 9. MOTHER-IN-LAW
+SEC. 9. MOTHER-IN-LAW
 
 FULL NAME Evelyn D. Dovey
 (First) (Middle) (Last)

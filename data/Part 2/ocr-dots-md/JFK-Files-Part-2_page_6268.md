@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6268.png
-
-Convert to MarkdownJohn Pereira
+John Pereira
 Page Two
 
 September 26, 1994

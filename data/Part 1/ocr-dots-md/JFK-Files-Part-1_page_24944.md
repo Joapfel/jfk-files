@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24944.png
-
-Convert to MarkdownSTATE,
+STATE,
 GENCY
 CENTER
 630 Ff., 1H AVENUE

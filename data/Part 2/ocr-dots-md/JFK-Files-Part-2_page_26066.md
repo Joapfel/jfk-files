@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26066.png
-
-Convert to Markdownname was Dap Chhnun, and I were in a conspiracy
+name was Dap Chhnun, and I were in a conspiracy
 to murder him and take over the government of
 Cambodia. And it didn't do any good that I had
 never met Dap Chhnun and never had any dealings

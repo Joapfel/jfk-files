@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3869.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 f. NOVEL's New Orleans attorney, Steve PLOTKIN, said he "served as an intermediary between the CIA and anti-Castro Cubans in New Orleans and Miami before the April, 1961, Bay of Pigs invasion. Plotkin maintained, though, that Novel had 'little or nothing to do with the Bay of Pigs invasion and certainly had absolutely nothing to do with the assassination of President Kennedy.'" (The Washington Post, 26 May 1967.)

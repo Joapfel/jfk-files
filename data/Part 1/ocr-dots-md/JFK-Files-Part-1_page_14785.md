@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14785.png
-
-Convert to Markdown**TO:** Director
+**TO:** Director
 Federal Bureau of Investigation
 Attention: Intelligence Division
 CI-1 Section

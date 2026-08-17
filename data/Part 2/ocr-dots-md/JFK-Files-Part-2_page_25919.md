@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25919.png
-
-Convert to MarkdownDan Rowan. Maheu said that he had been requested to place a tap for Giancana and that Giancana might "stop helping" on the assassination plot if this tap was not placed. O'Connell checked with Edwards and received the go-ahead. O'Connell indicates that Maheu was authorized to pay for DuBois out of the month given him on the assassination plan.
+Dan Rowan. Maheu said that he had been requested to place a tap for Giancana and that Giancana might "stop helping" on the assassination plot if this tap was not placed. O'Connell checked with Edwards and received the go-ahead. O'Connell indicates that Maheu was authorized to pay for DuBois out of the month given him on the assassination plan.
 
 O'Connell states that he recalls November 1960 as the time period of the delivery of the pills for Roselli through Trafficante?
 

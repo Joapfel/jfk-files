@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7233.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>ADVANCE COPY ISSUED/SLOTTED</td><td>BY AT Z</td></tr><tr><th>ACTION UNIT</th><th>RF. FILE</th><th>VR.</th><th></th></tr><tr><th>ACTION #</th><th colspan="2">INFO</th><th>STAFF</th></tr><tr><td></td><td></td><td></td><td>1 4</td></tr><tr><td></td><td></td><td></td><td>2 5</td></tr><tr><td></td><td></td><td></td><td>3 6</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16425.png
-
-Convert to Markdownd. Surveillance
+d. Surveillance
 
 q. Agent Acquisition
 

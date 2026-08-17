@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31649.png
-
-Convert to MarkdownJUN 30 1953
+JUN 30 1953
 
 MEMORANDUM FOR: CHIEF, INTERNATIONAL ORGANIZATIONS DIVISION
 SUBJECT: Funds for Balloon Operation

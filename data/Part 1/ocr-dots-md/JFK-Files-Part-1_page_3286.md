@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3286.png
-
-Convert to Markdown5. Many instances of periodic injury were observed immediately after the operation. This injury is similar to that observed in patients through the atricle.
+5. Many instances of periodic injury were observed immediately after the operation. This injury is similar to that observed in patients through the atricle.
 
 6. No were able to observe a fast deviation of the QRS axis towards the left, accompanied by signs of left ventricular hypertrophy, which shows severe mitral insufficiency.
 

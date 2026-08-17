@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3556.png
-
-Convert to Markdown11. A-1 promised to call this office again this afternoon.
+11. A-1 promised to call this office again this afternoon.
 
 Raul J. Hernandez
 

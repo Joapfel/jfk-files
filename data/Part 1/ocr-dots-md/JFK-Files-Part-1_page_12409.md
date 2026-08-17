@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12409.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td>HVCA-18872</td><td></td><td>9 June 1972</td></tr><tr><td>CLASSIFICATION</td><td>S E C R E T</td><td>HQS FILE NUMBER DEFER V201-285923</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td>HVCA-18872</td><td></td><td>9 June 1972</td></tr><tr><td>CLASSIFICATION</td><td>S E C R E T</td><td>HQS FILE NUMBER DEFER V201-285923</td></tr></tbody></table>
 
 CROSS REFERENCE TO
 

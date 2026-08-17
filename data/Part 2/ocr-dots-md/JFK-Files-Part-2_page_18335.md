@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18335.png
-
-Convert to MarkdownSullivan memo to Belmont, "Confidential Informant and Similar Types of Coverage," 30 September 1964
+Sullivan memo to Belmont, "Confidential Informant and Similar Types of Coverage," 30 September 1964
 
 Baumgardner memo to Sullivan, "Mail Covers," 2 October 1964
 

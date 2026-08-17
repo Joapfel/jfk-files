@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15929.png
-
-Convert to MarkdownSECRET
+SECRET
 
 | Case Name | Action Taken |
 |---|---|

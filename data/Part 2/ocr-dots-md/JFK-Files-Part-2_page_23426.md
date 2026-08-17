@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23426.png
-
-Convert to Markdown<table><tr><td colspan="4">DIRECTOR<br/>REOPROLOVILLE</td></tr><tr><td>C/AF<br/>DUS, S/C 2</td><td></td><td>(Oct 17 23 48'09)<br/>REC'D CABLE SEG.<br/>PRIORITY</td><td>IN 25936</td></tr></table>
+<table><tr><td colspan="4">DIRECTOR<br/>REOPROLOVILLE</td></tr><tr><td>C/AF<br/>DUS, S/C 2</td><td></td><td>(Oct 17 23 48'09)<br/>REC'D CABLE SEG.<br/>PRIORITY</td><td>IN 25936</td></tr></table>
 
 (11-10) GTE LEOP 8145
 

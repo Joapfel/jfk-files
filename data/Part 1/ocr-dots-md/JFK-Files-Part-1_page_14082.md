@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14082.png
-
-Convert to MarkdownRESUMEN
+RESUMEN
 
 miércoles 10 febrero 1965
 

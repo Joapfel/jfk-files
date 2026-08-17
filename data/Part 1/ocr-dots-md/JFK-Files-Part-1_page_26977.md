@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26977.png
-
-Convert to Markdownsuddenly grown bigger. And to be more specific about this, when I say that, I
+suddenly grown bigger. And to be more specific about this, when I say that, I
 can tell you that it is a fact that last Thursday night the new Ambassador from
 the Bahamas in Washington got Congressman Andrew Young, to one side at a reception
 and they discussed this matter with grave seriousness. OK, now, therefore I am

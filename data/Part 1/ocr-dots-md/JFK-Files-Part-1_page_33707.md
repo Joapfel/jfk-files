@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33707.png
-
-Convert to MarkdownDUE: R.E.:
+DUE: R.E.:
 
 Finally, it was agreed that if the Soviet Union's reorganization plan of the Hungarian National Council was ready, it would be presented at the next meeting.
 

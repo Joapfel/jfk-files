@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9274.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 The Party is making plans to send a bus to
 Jackson on November 4, 1972. The Party is also planning

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2094.png
-
-Convert to MarkdownJam L. Arthur NOEL
+Jam L. Arthur NOEL
 
 511, Alban Towers,
 3700 Mass. Ave., N.W.

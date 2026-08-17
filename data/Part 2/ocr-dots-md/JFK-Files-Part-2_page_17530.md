@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17530.png
-
-Convert to MarkdownAugust 3, 1969
+August 3, 1969
 
 # RUFUS WALLS
 

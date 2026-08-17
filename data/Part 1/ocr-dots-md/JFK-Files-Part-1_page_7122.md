@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7122.png
-
-Convert to MarkdownNECHIPORENKO (correct). Subject calls him "the Bull" and described him as being vulgar, crude, ill-mannered, short tempered and a tyrant. He is a person who thinks that he is some sort of a "big shot" and when he sits down he spreads his legs and arms and takes up a space big enough for two men. His Spanish is very bad and he smokes "Fiesta" cigarettes. At the fiesta LOGINOV told him that he was from the northern part of the Soviet Union, is married and has children. He claimed to have served in the Red Army.
+NECHIPORENKO (correct). Subject calls him "the Bull" and described him as being vulgar, crude, ill-mannered, short tempered and a tyrant. He is a person who thinks that he is some sort of a "big shot" and when he sits down he spreads his legs and arms and takes up a space big enough for two men. His Spanish is very bad and he smokes "Fiesta" cigarettes. At the fiesta LOGINOV told him that he was from the northern part of the Soviet Union, is married and has children. He claimed to have served in the Red Army.
 
 KORMUSHKIN: Subject likes KORMUSHKIN who is friendly, well mannered and outgoing. He speaks good Spanish and told Subject that his wife likes Mexico. Although KORMUSHKIN was wearing glasses in the photo shown to Subject, he commented that he often sees KORMUSHKIN without his glasses. He smokes "Record" cigarettes and Subject calls him "El Jovencito".
 

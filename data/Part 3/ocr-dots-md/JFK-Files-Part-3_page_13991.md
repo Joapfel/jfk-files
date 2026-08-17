@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13991.png
-
-Convert to Markdown# THE WHITE HOUSE
+# THE WHITE HOUSE
 WASHINGTON
 
 February 4, 1964

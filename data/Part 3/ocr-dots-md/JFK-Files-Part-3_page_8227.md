@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8227.png
-
-Convert to MarkdownJAMES O. EASTLAND, MIST., CHAIRMAN
+JAMES O. EASTLAND, MIST., CHAIRMAN
 
 JAMES CLELLAN, ARK.
 EVIL, JR., N.C.

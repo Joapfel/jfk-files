@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21552.png
-
-Convert to MarkdownSECRET
+SECRET
 
 D. Is the information furnished by NOSENKO to CIA concerning KGB operations, personalities, and organization reasonably commensurate with his claimed KGB career? The conclusion is that the information furnished by NOSENKO concerning KGB operations, personalities, and organization is more than reasonably commensurate with his claimed career in the KGB from mid-March 1953 to his defection in early February 1964.
 

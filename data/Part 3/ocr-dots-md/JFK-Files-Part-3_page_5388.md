@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5388.png
-
-Convert to Markdown# EMPLOYMENT AGREEMENT
+# EMPLOYMENT AGREEMENT
 
 As consideration for employment in the Federal Bureau of Investigation (FBI), United States Department of Justice, and as a condition for continued employment, I hereby declare that I intend to be governed by and I will comply with the following provisions:
 

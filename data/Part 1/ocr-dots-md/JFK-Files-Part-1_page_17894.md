@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17894.png
-
-Convert to Markdown<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO</td><td>Chief, V.P. Station</td></tr><tr><td>INFO</td><td>Chief</td></tr><tr><td>FROM</td><td>Chief of Station, Mexico City</td></tr><tr><td>SUBJECT</td><td>Cormac Unibath Six Minutes Photographic Developer</td></tr><tr><td>ACTION REQUIRED</td><td></td></tr><tr><td>REFERENCE(S)</td><td></td></tr></table>
+<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO</td><td>Chief, V.P. Station</td></tr><tr><td>INFO</td><td>Chief</td></tr><tr><td>FROM</td><td>Chief of Station, Mexico City</td></tr><tr><td>SUBJECT</td><td>Cormac Unibath Six Minutes Photographic Developer</td></tr><tr><td>ACTION REQUIRED</td><td></td></tr><tr><td>REFERENCE(S)</td><td></td></tr></table>
 
 1. Enclosed is a clipping advertising a UNIBATH developer, one step photo developing solution, that replaces the three separate solutions now used by the operational darkroom technician who processes the take from the LIMERICK basculebox.
 

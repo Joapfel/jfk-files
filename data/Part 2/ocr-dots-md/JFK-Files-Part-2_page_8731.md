@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8731.png
-
-Convert to Markdownlearned during a visit to San Juan, Puerto Rico in late March 1964 that Manuel RAY Rivero, leader of JURE (Cuban Revolutionary Junta), planned to infiltrate Cuba. Included in RAY's plans was a plot to kill Fidel CASTRO.
+learned during a visit to San Juan, Puerto Rico in late March 1964 that Manuel RAY Rivero, leader of JURE (Cuban Revolutionary Junta), planned to infiltrate Cuba. Included in RAY's plans was a plot to kill Fidel CASTRO.
 
 JUNTA REVOLUCIONARIA CUBANA (JURE)
 (Cuban Revolutionary Junta)

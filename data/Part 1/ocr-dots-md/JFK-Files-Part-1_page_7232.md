@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7232.png
-
-Convert to Markdown3.
+3.
 
 called Mexican Youth for Vietnam, whose purpose it was to publicize the truth about
 Vietnam and collect money to send to Vietnam via France. On weekends the group

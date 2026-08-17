@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_295.png
-
-Convert to Markdown1. REDWOOD
+1. REDWOOD
 
 2. KLJUMP
 

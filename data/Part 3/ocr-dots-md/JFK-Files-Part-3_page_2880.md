@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2880.png
-
-Convert to Markdown2466
+2466
 
 of the Constitution to have a neutral third party magistrate
 screen use of certain investigative techniques. And the

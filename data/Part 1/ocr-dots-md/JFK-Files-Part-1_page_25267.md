@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_25267.png
-
 , Employee of the Office of the Military Attache and a known Soviet Intelligence Officer, (see 4-10-61).
 
 ### IV. COMATIONS:

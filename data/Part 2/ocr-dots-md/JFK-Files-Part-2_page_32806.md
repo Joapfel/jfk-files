@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32806.png
-
-Convert to Markdownencircumstance and situation ranging from no action,
+encircumstance and situation ranging from no action,
 through action taken in self defense by a wounded
 sentry or those assisting him,
 

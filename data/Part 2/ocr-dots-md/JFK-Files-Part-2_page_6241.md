@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6241.png
-
-Convert to MarkdownMAR 18 '97 06:56PM
+MAR 18 '97 06:56PM
 
 ATTACHMENT TO
 HMMW V2 12454

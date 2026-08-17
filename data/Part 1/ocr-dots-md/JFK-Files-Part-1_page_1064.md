@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1064.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 0028 BUTLER, /CHIEF ENGINEER/
 OF THE SS MADAKET

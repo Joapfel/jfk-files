@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20506.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 housewives, professional, welfare and working women, young
 women, women from churches, political organizations, trade

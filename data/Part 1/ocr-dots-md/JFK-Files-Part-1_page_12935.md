@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12935.png
-
-Convert to Markdowninfo on a U.S. military uniform mentioned in a conversation related to the plan to overthrow Guatemala)
+info on a U.S. military uniform mentioned in a conversation related to the plan to overthrow Guatemala)
 
 2) fact that Subj in contact with the group planning a revolution in Guatemala; that Subject had/recruited to transport arms for the group from N.Y. (place of purchase) to Miami, that Subj had told no one of his connection with CIA; that he was not reporting to anyone other than CIA.
 

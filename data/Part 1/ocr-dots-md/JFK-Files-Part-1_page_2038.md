@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2038.png
-
-Convert to Markdownon former FBI personnel probably would enhance such suspicions, particularly in Latin America where "FBI" means "intelligence" since its WW II activities there.
+on former FBI personnel probably would enhance such suspicions, particularly in Latin America where "FBI" means "intelligence" since its WW II activities there.
 
 6. CCS/NC on occasion receives requests for advice to business organizations as to setting up security systems at overseas installations. We recently referred a request of this type, involving a major oil company, to the Physical Security element of the Security Office. Conceivably, the Agency might make some arrangement to advise Wackenhut of such requests, providing our own Security Office is satisfied as to Wackenhut's competence. [We could then place an Agency representative, if desired, in the team dispatched overseas by Wackenhut should his company successfully secure the contract.]
 

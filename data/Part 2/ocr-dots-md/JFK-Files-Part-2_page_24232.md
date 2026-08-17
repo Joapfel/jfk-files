@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24232.png
-
-Convert to Markdownof deposit.*
+of deposit.*
 
 LPDICTUM/LPSPICE was an investment company which was dissolved.
 

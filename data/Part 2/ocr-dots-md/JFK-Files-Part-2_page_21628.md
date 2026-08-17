@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21628.png
-
-Convert to MarkdownNow, I can't read that language any way other than
+Now, I can't read that language any way other than
 meaning that the Valenzuela group and the Viaux group were in
 close cooperation, that was part of the abduction plan, it
 was agreed between the two that Viaux would appear -- would

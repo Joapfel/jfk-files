@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6255.png
-
-Convert to MarkdownCIA JFK Collections
+CIA JFK Collections
 
 1) Oswald 201 file: 17 boxes (Aug 93/Jan 94 Release)
 

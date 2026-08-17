@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15256.png
-
-Convert to Markdown26 July 1959
+26 July 1959
 
 TO: Chief, Finance Division
 

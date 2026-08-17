@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_223.png
-
-Convert to Markdown1 March 1966
+1 March 1966
 
 MEMORANDUM FOR: CI Staff
 

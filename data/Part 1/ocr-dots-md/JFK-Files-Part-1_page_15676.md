@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15676.png
-
-Convert to Markdown5. The operational supplies passed to the Instructor by SAB were issued to WROGUE at the completion of the training.
+5. The operational supplies passed to the Instructor by SAB were issued to WROGUE at the completion of the training.
 
 CI/CE Reflections:
 

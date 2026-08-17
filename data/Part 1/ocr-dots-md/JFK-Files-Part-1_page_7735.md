@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7735.png
-
-Convert to Markdown9.01.15 When smoking, does he
+9.01.15 When smoking, does he
 
 (a) Allow a long ash to accumulate on his cigarette
 Flick off ashes in a normal manner

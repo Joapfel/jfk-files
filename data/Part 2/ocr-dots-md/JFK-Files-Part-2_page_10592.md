@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10592.png
-
-Convert to MarkdownNR 004 SF CODE
+NR 004 SF CODE
 
 1246 PM URGENT 7/14/75 MCC
 TO DIRECTOR

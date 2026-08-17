@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23034.png
-
-Convert to Markdown<table><thead><tr><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>MARRED FOR ENRYING</td></tr><tr><td>NO INDEXING REQUIRED</td></tr><tr><td>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>MICROFILM</td></tr></tbody></table>
+<table><thead><tr><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>MARRED FOR ENRYING</td></tr><tr><td>NO INDEXING REQUIRED</td></tr><tr><td>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>MICROFILM</td></tr></tbody></table>
 
 <table><tr><td>DISPATCH</td></tr><tr><td>SECRET</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8786.png
-
-Convert to Markdown- 108 -
+- 108 -
 
 MORENO produced information of considerable variance to that in the article. He admitting talking to SZULC but denied that article was based on information he provided. The article (not in files) created considerable furor in Washington, D.C. /COMMENT: If true, SZULC' article(s) could have been used as a channel for providing information to the Cuban Government, wittingly or unwittingly./
 

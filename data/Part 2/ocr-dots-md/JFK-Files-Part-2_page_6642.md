@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6642.png
-
-Convert to MarkdownLyndon Baines Johnson Library
+Lyndon Baines Johnson Library
 
 2313 Red River Street Austin, Texas 78705
 

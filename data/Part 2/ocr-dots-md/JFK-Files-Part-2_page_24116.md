@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24116.png
-
-Convert to MarkdownA foreign travel service company which operates in a Southeast Asia country and provides cover for an agent targeted against the local Communist Party. The company was established in 1973 with an initial investment of $5,900.
+A foreign travel service company which operates in a Southeast Asia country and provides cover for an agent targeted against the local Communist Party. The company was established in 1973 with an initial investment of $5,900.
 
 Operating proprietaries whose commercial purposes are in themselves essential to the CIA mission require much larger capitalization and investment. They are staffed by Agency personnel plus cleared commercial employees as required. Among the Agency's operating proprietaries of this type are four management companies which provide commercial assistance to other proprietaries and an audit firm which conducts commercial audits of operating companies and those non-operating proprietaries with substantial assets. The Agency's largest operating proprietaries are Air America, an insurance complex, and the aviation facility, Intermountain Aviation, Inc. The assets of Intermountain have been sold, with operations ceasing on 28 February 1975; and the corporation is in the process of being dissolved.
 

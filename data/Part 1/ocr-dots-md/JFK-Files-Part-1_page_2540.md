@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2540.png
-
-Convert to MarkdownDepartment. According to NOSENKO, the prepared report was never typed as a formal document.
+Department. According to NOSENKO, the prepared report was never typed as a formal document.
 
 The view has been set forth that NOSENKO took undue risk in carrying written notes with him out of the Soviet Union. An examination of this material suggests that NOSENKO was using extreme care in collecting material and was not attempting to obtain documents, the possession of which might be incriminating or which if he had brought out would have been immediately missed. Instead, he collected a considerable amount of valuable information which he could bring out with little or no fear that a search of his effects in the KGB after his departure for Geneva would disclose that certain material was missing. None of the material was registered and all could have previously been destroyed by NOSENKO.
 

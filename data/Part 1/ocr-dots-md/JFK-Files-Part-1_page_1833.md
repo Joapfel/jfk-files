@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1833.png
-
-Convert to Markdown**Agency Files reflect:**
+**Agency Files reflect:**
 
 * No record of Herbert Itkin in Office of Security records, other than newspaper clippings.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24268.png
-
-Convert to MarkdownB. Size of U.S. Financial Stakes
+B. Size of U.S. Financial Stakes
 
 The size and variety of U.S. Government financial stakes in CIA proprietaries has already been described in great detail. The attached Table I gives an overview of proprietary income and expenditures over the years. Some 450 proprietaries have been created over the years with 20 presently active (See Table II.) The largest sixteen proprietaries received about 80% of U.S. investment (i.e., subsidies). Accordingly, most proprietaries are shown to be small-scale operations. In many cases -- the so-called "notionals" -- the overseas proprietary actually conducts no business at all; it simply has a commercial charter, staff, and cover arrangements for Agency collection and action projects.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14246.png
-
-Convert to Markdown124-10271-10304
+124-10271-10304
 
 OPTIONAL FORM NO. 19
 MAY 1962 EDITION

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7851.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 dated 18 June 1968; Reuters, London, dated 21 June 1968; Reuters,
 London, undated; Reuters, London, dated 28 June 1968;

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6598.png
-
-Convert to Markdown(7) Reports of hunger strikes etc. at Isle of Pines prison to be played up by USIA. (Berne's cable 527).
+(7) Reports of hunger strikes etc. at Isle of Pines prison to be played up by USIA. (Berne's cable 527).
 
 (8) Copies of cartoon books and other publications were requested by Lt. Col. Patchell.
 

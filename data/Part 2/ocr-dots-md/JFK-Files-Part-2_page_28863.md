@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28863.png
-
-Convert to MarkdownDecember 20, 1976
+December 20, 1976
 
 Richard Sprague
 Select Committee on Assasinations

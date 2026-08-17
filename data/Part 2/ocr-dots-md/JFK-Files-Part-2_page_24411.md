@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24411.png
-
-Convert to Markdown1961, Maheu informed the FBI that the tap involved the CIA, and suggested that Sheffield Edwards be contacted (File R-505, Memo, 4/20/61). Edwards subsequently informed the Bureau that the CIA would object to Maheu's prosecution because it might reveal sensitive information relating to the abortive Bay of Pigs invasion* (R-505, Summary of FBI file). In a memo dated April 24, 1962, Herbett J. Miller, Assistant Attorney General, Criminal Division, advised the Attorney General that the "national interest" would preclude any prosecutions based upon the tap. Following a briefing of the Attorney General by the CIA, a decision was made not to prosecute.**
+1961, Maheu informed the FBI that the tap involved the CIA, and suggested that Sheffield Edwards be contacted (File R-505, Memo, 4/20/61). Edwards subsequently informed the Bureau that the CIA would object to Maheu's prosecution because it might reveal sensitive information relating to the abortive Bay of Pigs invasion* (R-505, Summary of FBI file). In a memo dated April 24, 1962, Herbett J. Miller, Assistant Attorney General, Criminal Division, advised the Attorney General that the "national interest" would preclude any prosecutions based upon the tap. Following a briefing of the Attorney General by the CIA, a decision was made not to prosecute.**
 
 * Details of the discussions between the CIA and FBI are described fully infra at pp.
 

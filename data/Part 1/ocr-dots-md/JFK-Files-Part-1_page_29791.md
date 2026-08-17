@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29791.png
-
-Convert to MarkdownNovember 15, 1974
+November 15, 1974
 
 The Honorable Henry A. Kissinger
 The Secretary of State

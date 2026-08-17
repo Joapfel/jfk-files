@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16768.png
-
-Convert to MarkdownQ18 Red plastic disc found on floor of rear bedroom
+Q18 Red plastic disc found on floor of rear bedroom
 
 Q19 Shot pellet removed from shot hole designated Number 2 in east wall of back bedroom
 

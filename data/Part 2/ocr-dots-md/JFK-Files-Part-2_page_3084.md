@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3084.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 businesses already there, and reducing American tour-
 ism.* <u>49</u>/<br>

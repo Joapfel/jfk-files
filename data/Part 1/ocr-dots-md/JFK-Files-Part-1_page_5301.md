@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5301.png
-
-Convert to Markdown14-0000
+14-0000
 
 SUBJECT: Clement Joseph CHAUVIN
 

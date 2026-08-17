@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5202.png
-
-Convert to Markdown14-00000
+14-00000
 
 a. Charles Duvalier, Secretary of Commerce & Industry, and a good friend.
 

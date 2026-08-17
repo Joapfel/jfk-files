@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_6930.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th></th><th>DATE</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td>10-4-58</td></tr><tr><td>CONTINUED</td><td></td><td>13-4-58</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th></th><th>DATE</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td>10-4-58</td></tr><tr><td>CONTINUED</td><td></td><td>13-4-58</td></tr></tbody></table>
 
 <table><thead><tr><th>DEPARTMENT</th><th></th><th></th></tr></thead><tbody><tr><td rowspan="2">U.S. ARMY BRIGADIER GENERAL OFFICER<br/>OFFICER AND S/M US ARMY<br/>CS SECRET</td><td>CLASSIFICATION</td><td>SECRET</td></tr><tr><td>DATE</td><td>10-4-58</td></tr><tr><td>CS COPY</td><td colspan="2"></td></tr><tr><td>US ARMY BRIGADIER GENERAL OFFICER<br/>OFFICER AND S/M US ARMY<br/>CS SECRET</td><td>CLASSIFICATION</td><td>SECRET</td></tr><tr><td>DATE</td><td>10-4-58</td></tr></tbody></table>

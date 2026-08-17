@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7111.png
-
-Convert to Markdown20. The directive for other documents establishing any mail inspection programs within the CIA or at its direction between 1953 and February, 1973; (p.
+20. The directive for other documents establishing any mail inspection programs within the CIA or at its direction between 1953 and February, 1973; (p.
 
 21. The directive or other document terminating mail inspection programs in
 February, 1973; (p.32)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19166.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filed In)
 
 B6G: 30 NOV 70

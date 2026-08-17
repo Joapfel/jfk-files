@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5781.png
-
-Convert to MarkdownChina . . .
+China . . .
 
 Cahill, Department of Art, University of California, Berkeley, (Fine Arts); Professor Jerome A. Cohen, Langdell Hall, Harvard Law School, (Law, Chinese Studies); Dr. Paul Doy, Department of Chemistry, Harvard University, (Physical Chemistry), and Dr. Alexander Eckstein, Department of Economics, University of Michigan, (Economics). Dr. Eckstein heads another group interested in scholarly exchanges, the National Committee on United States-China Relations, and is a well known authority on Chinese economics.
 

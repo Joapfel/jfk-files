@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6977.png
-
-Convert to MarkdownFederal News Service, JUNE 4, 1997
+Federal News Service, JUNE 4, 1997
 
 REP. HASTERT: I thank the gentleman.
 

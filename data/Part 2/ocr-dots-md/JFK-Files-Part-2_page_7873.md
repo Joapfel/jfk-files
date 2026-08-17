@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7873.png
-
-Convert to MarkdownSUBJECT: Investigation of Death of Martin Luther King, Junior
+SUBJECT: Investigation of Death of Martin Luther King, Junior
 
 1. Your Bureau representative in Mexico City provided our representative with composite photographs of the suspected killer of Martin Luther King, Jr, and asked for a check against visitors to the Soviet and Cuban Embassies in Mexico City during the recent months.
 

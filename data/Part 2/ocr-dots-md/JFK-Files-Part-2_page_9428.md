@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9428.png
-
-Convert to MarkdownREVOLUTIONARY PEOPLES
+REVOLUTIONARY PEOPLES
 CONSTITUTIONAL CONFERENCE
 
 1. Revolutionary Peoples Planning Session, August 8th and 9th, Washington D.C. The purpose of this session is to construct, and organize the plenary session and to pool resources for the event.

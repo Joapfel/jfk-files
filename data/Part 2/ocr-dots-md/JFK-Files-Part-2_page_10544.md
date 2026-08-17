@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10544.png
-
-Convert to MarkdownWe have concluded that the best solution is to have this officer attend a university in the Midwest for at least a year, working towards an advanced degree until there has been time for the situation to clarify itself. We plan to make no operational use of the CIA Officer whatsoever, during the period of time that he is attending the university. Upon completion of his year's study, we will review the situation and decide the next course of action at that time.
+We have concluded that the best solution is to have this officer attend a university in the Midwest for at least a year, working towards an advanced degree until there has been time for the situation to clarify itself. We plan to make no operational use of the CIA Officer whatsoever, during the period of time that he is attending the university. Upon completion of his year's study, we will review the situation and decide the next course of action at that time.
 
 Paragraph 1. c. is deleted because it contains sensitive Agency operational methods and techniques.
 

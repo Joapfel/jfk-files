@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23253.png
-
-Convert to MarkdownVIA: A-I R
+VIA: A-I R
 
 (SPEC) AIR OR SEA POUCH)
 

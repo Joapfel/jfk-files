@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30334.png
-
-Convert to MarkdownSeptember 19, 1958
+September 19, 1958
 
 Director
 Central Intelligence Agency

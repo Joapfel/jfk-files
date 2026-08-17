@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11838.png
-
-Convert to MarkdownDivision. While it is realized that logically these should be placed in the New Left or Extremist Intelligence Section, to balance work load, they could be considered for assignment to the Internal Security Section if proposal is approved. The Research and New Left Sections would each be decreased by one Special Agent Supervisor, the Extremist Intelligence Section by two. The Nationalities Intelligence Section, excluding the Front Office, would be increased by one Special Agent Supervisor.
+Division. While it is realized that logically these should be placed in the New Left or Extremist Intelligence Section, to balance work load, they could be considered for assignment to the Internal Security Section if proposal is approved. The Research and New Left Sections would each be decreased by one Special Agent Supervisor, the Extremist Intelligence Section by two. The Nationalities Intelligence Section, excluding the Front Office, would be increased by one Special Agent Supervisor.
 
 OBSERVATIONS:
 

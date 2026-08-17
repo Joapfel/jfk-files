@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28995.png
-
-Convert to MarkdownVIA AIR
+VIA AIR
 (Signature Air or Sea Pours)
 
 DISPATCH NO. FOB

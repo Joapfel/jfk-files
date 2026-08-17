@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11750.png
-
-Convert to MarkdownPART II
+PART II
 
 SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 

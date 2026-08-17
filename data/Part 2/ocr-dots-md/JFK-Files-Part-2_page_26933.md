@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26933.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q And this particular Station, then, was under the supervision of the group we have been discussing?
 

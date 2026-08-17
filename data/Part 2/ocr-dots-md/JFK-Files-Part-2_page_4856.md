@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4856.png
-
-Convert to MarkdownSECRET
+SECRET
 
 their identity. And I'm not so sure that's possible these
 days. Maybe it is. I hope it is. I knew it was possible in

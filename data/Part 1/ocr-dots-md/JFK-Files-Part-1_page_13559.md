@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13559.png
-
-Convert to Markdown13:05
+13:05
 
 Un individuo que dijo sobre la FCB, preguntó a ROCHILLO RODRIGUEZ DE LÓPEZ que si ya podía pasar por las puertas a la habana. Hablan al ladrillo, que es un muchacho de color, y se le piden los Diez Llamas. ROCHILLO les indica que tiene una carilla y el plato con el que va a deslice la canisculla se la traje luego para que lo haga encima. El individuo proyecta que al İlmo. rey recogería las dos pelotas que había quedado en su cama. El Señorito Meléndez y María de la Peña. ROCHILLO indica que tiene muerte al infantería y va a traer de conservación. El Señorito Meléndez. El individuo dice que habían anestesiado la dcha. pero que la que importa es fundamentalmente muerta al intronarla y que entonces a las 17:00 hs. pasará por la habana.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7460.png
-
-Convert to MarkdownFILE NO.
+FILE NO.
 
 SOURCE: D.W.
 DATE: S-4-32

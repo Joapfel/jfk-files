@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12708.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET T 1221582 JUN 74 STAFF
 CITE CARACAS 24700

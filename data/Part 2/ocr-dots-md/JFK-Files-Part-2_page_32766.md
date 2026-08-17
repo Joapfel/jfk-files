@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32766.png
-
-Convert to MarkdownI discovered additional evidence of unrealistic cost estimates in the Boeing proposal. In the judgment of the Evaluation Group, Boeing was overly optimistic in its estimate of production tooling and was dangerously low in estimating the manufacturing hours for both the development and production phases. It appeared to me that Boeing simply did not appreciate the complexities of developing the TFX. This is understandable because Boeing's past experience in aircraft development and production has been with bombers and transport aircraft -- experience which is largely inapplicable to TFX estimating.
+I discovered additional evidence of unrealistic cost estimates in the Boeing proposal. In the judgment of the Evaluation Group, Boeing was overly optimistic in its estimate of production tooling and was dangerously low in estimating the manufacturing hours for both the development and production phases. It appeared to me that Boeing simply did not appreciate the complexities of developing the TFX. This is understandable because Boeing's past experience in aircraft development and production has been with bombers and transport aircraft -- experience which is largely inapplicable to TFX estimating.
 
 I therefore concluded that as to the third cardinal condition --
 demonstrably credible understanding of costs -- Boeing's proposal was

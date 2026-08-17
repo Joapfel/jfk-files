@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21833.png
-
-Convert to MarkdownOctober 16, 1975
+October 16, 1975
 
 SENATE SELECT COMMITTEE - ASSASSINATION REPORT
 TABLE OF CONTENTS

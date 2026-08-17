@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28110.png
-
-Convert to MarkdownJuly 12, 1977
+July 12, 1977
 
 Professor G. Robert Blakey
 House Select Committee on Assassinations

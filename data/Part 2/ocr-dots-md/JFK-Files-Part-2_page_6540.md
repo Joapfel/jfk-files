@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6540.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Unless sufficient reform is made to satisfy the aspirations of the laborer; and unless sufficient evidence is presented to embryonic intellectuals that Castroism is the greater of the political/economic evils facing them, Castro will continue to find a fertile bed for his seeds.
 

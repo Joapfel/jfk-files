@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20895.png
-
-Convert to Markdown14-0000
+14-0000
 
 PHILLIPS DAVID A
 DD 9 (1) 88 88 88

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2969.png
-
-Convert to MarkdownSECRET
+SECRET
 
 were for all practical purposes conducted indepen-
 dently of WH Division and therefore are not covered

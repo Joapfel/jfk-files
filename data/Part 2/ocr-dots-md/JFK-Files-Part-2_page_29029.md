@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29029.png
-
-Convert to MarkdownNAME SAM & HYLLIS RUBY
+NAME SAM & HYLLIS RUBY
 ADDRESS
 322-12-7997
 

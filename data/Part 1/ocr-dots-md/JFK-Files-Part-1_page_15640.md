@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15640.png
-
-Convert to Markdown/6/
+/6/
 
 sequently being arrested and imprisoned. Therefore defeat appears to be
 the first factor in his life experience.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2025.png
-
-Convert to MarkdownJOB DESCRIPTION:
+JOB DESCRIPTION:
 
 SPECIAL QUALIFICATIONS
 

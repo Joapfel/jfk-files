@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8695.png
-
-Convert to MarkdownControl of Cuban Travelers 200-9-49
+Control of Cuban Travelers 200-9-49
 
 KNGS 0948 (IN 54974) dated 5 November 1963
 

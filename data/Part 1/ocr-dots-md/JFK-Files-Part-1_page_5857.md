@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5857.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OCG 66-0119
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18876.png
-
-Convert to MarkdownJ. J. McDermott to Mr. Jenkins Memo
+J. J. McDermott to Mr. Jenkins Memo
 
 RE: ASSASSINATION OF JOHN FITZGERALD KENNEDY
 

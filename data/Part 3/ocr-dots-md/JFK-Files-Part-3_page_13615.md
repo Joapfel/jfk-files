@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13615.png
-
-Convert to MarkdownSerial: N9022
+Serial: N9022
 
 Mr. Mark Allen
 P. O. Box 9032

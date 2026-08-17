@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12610.png
-
-Convert to Markdown(c) Education
+(c) Education
 
 (d) Marital status
 

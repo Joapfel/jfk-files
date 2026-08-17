@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1787.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td>SECTION E</td></tr></table>

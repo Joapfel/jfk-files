@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_4034.png
-
 office worker, and two serviceman-maintenance managers. Together their annual wages will an $ amount to US$ 8,400, and/annual amount of US$2,000 will be kept in reserve.
 
 Total administration expenses: US$ 10,400.

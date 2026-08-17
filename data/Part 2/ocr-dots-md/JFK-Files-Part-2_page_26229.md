@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26229.png
-
-Convert to MarkdownPHOTOCOPIED BY THE KENNEDY LIBRARY DUE TO THE DETERIORATION OF THE ORIGINAL.
+PHOTOCOPIED BY THE KENNEDY LIBRARY DUE TO THE DETERIORATION OF THE ORIGINAL.
 
 the night of the General's' revolt in Algeria, passengers by noted with amusement that: the top floor was abiese with lights. (I am informed that Ambassador Gavin was able to secure entrance that night to the CIA office as only with difficulty.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6830.png
-
-Convert to MarkdownThe Washington Post
+The Washington Post
 
 6 December 1958
 

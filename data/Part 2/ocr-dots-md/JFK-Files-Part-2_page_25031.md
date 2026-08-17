@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25031.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 notified by Mr. Merchant or Gordon Gray about what transpired
 at a Special Group meeting?

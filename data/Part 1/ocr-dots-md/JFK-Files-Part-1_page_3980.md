@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3980.png
-
-Convert to Markdownaid pro et seq. arrangement whereby:
+aid pro et seq. arrangement whereby:
 
 a. Artino would use his force to patrol the coast of these countries and prevent smuggling of arms and/or general contraband,
 

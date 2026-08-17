@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13880.png
-
-Convert to MarkdownEXCERPT
+EXCERPT
 
 IN 71483
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11084.png
-
-Convert to Markdown# TABLE OF CONTENTS
+# TABLE OF CONTENTS
 
 87D
 

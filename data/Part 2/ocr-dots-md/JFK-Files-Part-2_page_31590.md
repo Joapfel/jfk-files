@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31590.png
-
-Convert to MarkdownSF 100-54462
+SF 100-54462
 FSP:mb
 
 strike appeared to have failed and did not receive any backing from faculty members. After the rally some 200 persons remained in the area and broke up into "work shops" with the announced intention of studying what action would be taken by the VDC when UN Ambassador to the UN, ARTHUR GOLDBERG appeared at the UCB Campus activities on March 25, 1966, for the Charter Day exercises; what action would be taken in connection with the march on the Oakland Induction Center and a discussion of U.S. foreign policy in Vietnam.

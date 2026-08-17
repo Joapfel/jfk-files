@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24547.png
-
-Convert to Markdown"Mr. Helms: "...killing was not part of the CIA's policy. It was not part of the CIA's armory...but in this Castro operation...I have testified as best I could about the atmosphere of the time, what I understood was desired (and) that this was getting rid of Castro, if he had been gotten rid of by this means that this would have been acceptable to certain individuals...I was just doing my best to do what I thought I was supposed to do." (Helms, 6/13. pp.87-88).
+"Mr. Helms: "...killing was not part of the CIA's policy. It was not part of the CIA's armory...but in this Castro operation...I have testified as best I could about the atmosphere of the time, what I understood was desired (and) that this was getting rid of Castro, if he had been gotten rid of by this means that this would have been acceptable to certain individuals...I was just doing my best to do what I thought I was supposed to do." (Helms, 6/13. pp.87-88).
 
 When asked why he did not seek clarification from the Special Group, its members, or Robert Kennedy whether it was "in fact, the policy of the U.S. Government to actually kill Fidel Castro," Helms answered "I don't know..."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8419.png
-
-Convert to Markdown7. a list of all media persons contacted in relation to this COINTELPRO and their media affiliation;
+7. a list of all media persons contacted in relation to this COINTELPRO and their media affiliation;
 
 8. a list of all FBI personnel connected with this COINTELPRO, their specific connection, and their present location;
 

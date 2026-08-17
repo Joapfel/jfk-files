@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2265.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 OLC-78-3040
 22 September 1978

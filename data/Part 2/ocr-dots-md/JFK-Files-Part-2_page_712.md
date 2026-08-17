@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_712.png
-
-Convert to MarkdownJ. J. CUMMINGS
+J. J. CUMMINGS
 
 WYCOM
 1937

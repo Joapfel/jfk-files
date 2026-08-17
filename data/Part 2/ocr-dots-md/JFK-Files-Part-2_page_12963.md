@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12963.png
-
-Convert to Markdownquiet town. His independent authoritarianism rating was very high, just as you would expect from a juror whose values embraced authority, patriotism, conformity, government right or wrong, etc. The authoritarianism ratings can further be used as a reference point to make sense of the body language, costume and verbal ratings. These ratings become even more essential when faced with a limited voir dire.
+quiet town. His independent authoritarianism rating was very high, just as you would expect from a juror whose values embraced authority, patriotism, conformity, government right or wrong, etc. The authoritarianism ratings can further be used as a reference point to make sense of the body language, costume and verbal ratings. These ratings become even more essential when faced with a limited voir dire.
 
 Schulman stresses that voir dire ratings should be done collectively. Defendants and trial lawyers should participate, but past trials have shown them to have definite problems with objective judgments in this area.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25392.png
-
-Convert to Markdownposition, it should be possible to obtain information on the Ministry of Education and other aspects of the Mexican education system which, according to the last word received from Headquarters, is somewhat: of a priority requirement.
+position, it should be possible to obtain information on the Ministry of Education and other aspects of the Mexican education system which, according to the last word received from Headquarters, is somewhat: of a priority requirement.
 
 d. RMD. This project is responsive to Priority A3d and f of the Related Mission Directive for Station Mexico City (approved October 1963). This priority reads in part: "obtain Information on the stability of the Government ... through high-level penetrations and through surveillances and controlled assets of other powerful political groups such as the Frente Civico... and through continued development and influencing of high-level government contacts." As an ancillary measure, the project could contribute to MHSPAWN objectives of the RMD under certain circumstances where use of right-wing platforms and organizations is merited.
 

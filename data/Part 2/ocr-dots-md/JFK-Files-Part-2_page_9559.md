@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9559.png
-
-Convert to MarkdownNow comes the role of the Arab governments. Now comes the role of whoever grasps the future implications of the Palestinian Revolution, its needs, and demands within the Arab realm.
+Now comes the role of the Arab governments. Now comes the role of whoever grasps the future implications of the Palestinian Revolution, its needs, and demands within the Arab realm.
 
 The tremendous amount of Arab administrative, intellectual, and executive efforts required by the Palestinian Revolution are now clear............ It is also clear that at the present the duty of the Arab people is to direct their efforts within the Arab realm to serve the Revolution; solidify it; aid it; fulfill its moral, financial, and material needs.......... .
 

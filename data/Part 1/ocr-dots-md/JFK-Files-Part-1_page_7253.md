@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7253.png
-
-Convert to MarkdownEl Consul de Monaco Ofreció una Recepción
+El Consul de Monaco Ofreció una Recepción
 
 LUOMELA VASILIEVA, Galia Soloviena, Ksenia Riaven kina y Galina Sokolova, Valentina S. Loguinov y el señor Barrelet, consul de Monaco y su señora esposa. (Foto de Garza Noble)
 

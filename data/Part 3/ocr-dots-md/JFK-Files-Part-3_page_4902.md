@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4902.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 New Kensington, Pennsylvania, and that the front name for
 the concession was NORMAN ROTHMAN. SAM and GABRIEL

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24407.png
-
-Convert to MarkdownGiancana had been brought into the operation, but prior to
+Giancana had been brought into the operation, but prior to
 giving the poison pills to Roselli (O'Connell, pp. 30, 44).
 
 Maheu recalled that it was Giancana's job

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13495.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DCI/IC-75-0608
 

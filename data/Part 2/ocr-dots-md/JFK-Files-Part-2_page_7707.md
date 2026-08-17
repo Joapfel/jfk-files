@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7707.png
-
-Convert to MarkdownU.S.S.R.
+U.S.S.R.
 
 Subject: ANDROPOV, GRECHKO AND GROMYKO AS MEMBERS OF THE POLITBURO
 

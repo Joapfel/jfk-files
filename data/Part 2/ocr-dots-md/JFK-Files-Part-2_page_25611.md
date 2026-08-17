@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25611.png
-
-Convert to MarkdownADRIAN MARSHALL
+ADRIAN MARSHALL
 WADDEN, WALL & RUDY
 9601 Wilshire Blvd.
 Suite 400

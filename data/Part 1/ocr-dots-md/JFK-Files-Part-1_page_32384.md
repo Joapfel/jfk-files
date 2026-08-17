@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32384.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 HOW TO OUTGOING PCS TRAVELERS
 

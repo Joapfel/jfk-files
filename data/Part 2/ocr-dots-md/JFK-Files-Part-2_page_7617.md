@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7617.png
-
-Convert to Markdown104-10418-10439
+104-10418-10439
 
 SECRET
 FIELD DISTRIBUTION - BD #5847

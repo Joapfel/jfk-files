@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5281.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DISCUSSIONS ON IMAGERY ENHANCEMENT TECHNIQUES
 

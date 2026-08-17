@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18789.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 Columbia Broadcasting System, 485 Madison Ave., NYC, and from 1952 to 1954, he was employed by Time Inc., NYC. This report reflects that he has been a good tenant, has a good credit record and is well regarded by his employer.
 

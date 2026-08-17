@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12016.png
-
-Convert to Markdown<table><tr><td>SECRET</td></tr></table>
+<table><tr><td>SECRET</td></tr></table>
 
 T 510745
 

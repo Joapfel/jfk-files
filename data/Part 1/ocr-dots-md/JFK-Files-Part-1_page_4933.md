@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4933.png
-
-Convert to MarkdownFBI CABLE FROM DIRECTOR, FBI
+FBI CABLE FROM DIRECTOR, FBI
 
 DATE: 28 OCTOBER 1976
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_54.png
-
-Convert to MarkdownUNITED STATES C VERNMENT
+UNITED STATES C VERNMENT
 
 Memorandum
 

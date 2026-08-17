@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4610.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>Executive Registry</td></tr><tr><td>67-310</td></tr></table>
 

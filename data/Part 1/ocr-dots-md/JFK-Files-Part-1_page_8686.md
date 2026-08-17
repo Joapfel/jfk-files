@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8686.png
-
-Convert to MarkdownII. ANTECEDENTES
+II. ANTECEDENTES
 
 5. Generales
 ---

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13385.png
-
-Convert to Markdown22 January 1963
+22 January 1963
 
 MEMORANDUM FOR: Chief, ACO
 SUBJECT: Reinaldo PICO Ramon

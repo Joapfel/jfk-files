@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30565.png
-
-Convert to MarkdownSECRET HUNT
+SECRET HUNT
 
 couldn't find any
 record of operational

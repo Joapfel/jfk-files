@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2444.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SF 62-6887
 

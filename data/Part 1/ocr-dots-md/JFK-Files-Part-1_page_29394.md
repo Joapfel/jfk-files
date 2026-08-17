@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29394.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Date: 2 July 69
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33699.png
-
-Convert to MarkdownSince they were unable to get evidence against her, the Communist Secret Police brutally tortured an innocent man, forced him to sign a "confession" which would implicate Milada Horakova.
+Since they were unable to get evidence against her, the Communist Secret Police brutally tortured an innocent man, forced him to sign a "confession" which would implicate Milada Horakova.
 
 One afternoon, the Secret Police arrested Milada, brought her to their headquarters, queamed her increasingly for so hours. Though they returned her to her and waited, she would not tell them on her part of innocence but by the time was done, and went into a false confession of guilt.
 

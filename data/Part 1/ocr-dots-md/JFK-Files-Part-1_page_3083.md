@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3083.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES: 23</th><th colspan="5">ROUTING AND/OR INITIALS • SEEN BY:</th></tr></thead><tbody><tr><td rowspan="6">COMPO: GLENN HURT/gmsh<br>UNIT: SB/O/PT<br>DATI: 6587<br>BATH: 15 August 1968</td><td rowspan="6">No<br>SECRET</td><td>1</td><td></td><td></td><td></td><td></td></tr><tr><td>2</td><td></td><td></td><td></td><td></td></tr><tr><td>3</td><td></td><td></td><td></td><td></td></tr><tr><td>4</td><td></td><td></td><td></td><td></td></tr><tr><td>5</td><td></td><td></td><td></td><td></td></tr><tr><td>6</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13574.png
-
-Convert to Markdown12 de Marzo de 1962
+12 de Marzo de 1962
 
 INFORME #
 

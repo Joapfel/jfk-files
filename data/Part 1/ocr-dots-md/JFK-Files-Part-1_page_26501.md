@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26501.png
-
-Convert to MarkdownBut you also can imagine that, since you also know what they think. So there would be no sense to my trip here if its purpose were to tell you something that you may know perfectly well. What I have stated here has been on my own exclusive responsibility and as a result of my [word unintelligible] working alone.
+But you also can imagine that, since you also know what they think. So there would be no sense to my trip here if its purpose were to tell you something that you may know perfectly well. What I have stated here has been on my own exclusive responsibility and as a result of my [word unintelligible] working alone.
 
 I have told the Comandante that in my opinion there have arisen here a number of problems which have objective roots but which have become somewhat complicated and distorted to the extent of leading to a situation that may be dangerous in the future, that may convert the Troce de Noviembre into just another group, another sect, that may therefore isolate slightly from the masses in general or at least from a number of strata of the people whose support in the struggle is important.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7229.png
-
-Convert to Markdown14. Jul.66
+14. Jul.66
 
 El Ing. MANUEL ANAYA de la Secretaría de Recursos Hidráulicos lo solicita la visa, para asistir a un congreso.
 

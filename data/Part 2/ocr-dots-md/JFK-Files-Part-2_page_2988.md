@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2988.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA Internal Use Only
 Access Controlled by DDP

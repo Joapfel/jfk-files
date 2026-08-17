@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10691.png
-
-Convert to Markdowninfiltrate information that could be used in a campaign of anonymous telephone calls or notes to his family or employer.
+infiltrate information that could be used in a campaign of anonymous telephone calls or notes to his family or employer.
 
 During interviews of members, inferences or slight hints could be dropped indicating another specific member of the klavern as the source of information.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1763.png
-
-Convert to MarkdownThe Honorable Griffin B. Bell
+The Honorable Griffin B. Bell
 
 January 30, 1978
 Page 2

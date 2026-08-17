@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21565.png
-
-Convert to MarkdownThe case of Robert Lee JOHNSON and the relation of his
+The case of Robert Lee JOHNSON and the relation of his
 James Allen MINTKENBAUGH have been covered in the press.
 summary. It can be considered that both were exposed as a result
 of a lead from NOSENKO which led to suspicions of JOHNSON.

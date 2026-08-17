@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6527.png
-
-Convert to Markdown# AN ACTION PROGRAM
+# AN ACTION PROGRAM
 ## COMBATING COMMUNIST SUBVERSION IN LATIN AMERICA
 
 ### 1. Introduction

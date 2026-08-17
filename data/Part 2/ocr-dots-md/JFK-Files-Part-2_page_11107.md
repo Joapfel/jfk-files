@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11107.png
-
-Convert to Markdownattentive to the existence of a security index card for each individual. In all such instances, a specific recommendation must be made concerning the cancellation of the card. If a card may be destroyed upon receipt of Bureau authority to designate the subject as a security informant.
+attentive to the existence of a security index card for each individual. In all such instances, a specific recommendation must be made concerning the cancellation of the card. If a card may be destroyed upon receipt of Bureau authority to designate the subject as a security informant.
 
 (f) Subject no longer dangerous or potentially dangerous instructions set out below should be read in conjunction with 87D 6b (7) (c) herein relating to interviews with security index subjects.
 

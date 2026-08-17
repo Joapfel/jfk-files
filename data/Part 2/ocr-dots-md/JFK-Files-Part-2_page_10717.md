@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10717.png
-
-Convert to MarkdownTERRY E. BUCKALEW was arrested in the early morning of August 22, 1971, at 21 No. 4th Street, Camden, N.J., by Special Agents (SA's) RICHARD J. MARTIN and H. MARSHALL JUDS.
+TERRY E. BUCKALEW was arrested in the early morning of August 22, 1971, at 21 No. 4th Street, Camden, N.J., by Special Agents (SA's) RICHARD J. MARTIN and H. MARSHALL JUDS.
 
 At the time of arrest, BUCKALEW refused to identify himself. However, a screen of his person revealed a wallet containing; a Pennsylvania and a New Jersey driver's license, both bearing the name "TERRY E. BUCKALEW." When shown this identification he agreed this was his correct name. Immediately after submitting his identity he said he would not furnish any other information.
 

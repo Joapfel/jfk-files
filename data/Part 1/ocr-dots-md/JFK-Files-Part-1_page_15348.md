@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15348.png
-
-Convert to MarkdownPOLYCLINIQUE DU
+POLYCLINIQUE DU
 DOCTEUR L. ECHHOURY
 
 Avenue Vaudreuil

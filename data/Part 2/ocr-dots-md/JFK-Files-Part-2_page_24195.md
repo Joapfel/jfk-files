@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24195.png
-
-Convert to MarkdownSECRET - 85 -
+SECRET - 85 -
 
 several non-profit organizations under Agency
 control. An unwritten condition of the sale was

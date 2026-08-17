@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12155.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Jose FIGUERES has 200 machine guns and 600,000 rounds of ammunition as well as other arms stored on his Fincas La Lucha.
 

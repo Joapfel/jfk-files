@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5588.png
-
-Convert to Markdown27 October 1969
+27 October 1969
 
 MEMORANDUM FOR : Deputy Chief, WH/7
 REFERENCE : Your request this subject

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7591.png
-
-Convert to Markdowntwo
+two
 
 quia but mixed it with just as much mexican beer if you were not careful. The Brazilian ambassador was there, Guillermo Gimenez Ramirez the charge of Costa Rica, Gonzalo Almeida Urrutia, the ambassador from Ecuador, from the Foreign Office, Helioz Zapata and Flores Tejada. I do not remember seeing anybody from the US, but I arrived somewhat late, Kai Somerto the ambassador from Finland was present and so was the mayor general Natahn Aferi from Ghana, the ambassador was most friendly as well as Jan Hant the commercial counsellor and Jiri Sunastrom Svestka the second secretary in charge of the consulat.
 

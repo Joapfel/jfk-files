@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24487.png
-
-Convert to Markdown# EL TIEMPO
+# EL TIEMPO
 
 BOGOTA, COLOMBIA •
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3618.png
-
-Convert to MarkdownNOTES
+NOTES
 
 A. **India-USSR** The Indian military attache in Moscow feels that the Russians are dragging their feet in the matter of military assistance for India. Meanwhile, we have a report (not yet confirmed) from New Delhi that Defense Minister Chavan has decided to look to us hereafter for fighter aircraft.
 

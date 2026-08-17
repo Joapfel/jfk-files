@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32552.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ## 2. The Department of Defense:
 

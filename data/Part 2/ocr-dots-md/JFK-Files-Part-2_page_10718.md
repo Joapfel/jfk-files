@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_10718.png
-
 to the law clerk of the Third Circuit Court of Appeals but refused to furnish additional information in this regard.
 
 The following items were seized from the person of BUCKALEW:

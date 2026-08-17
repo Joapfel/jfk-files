@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24440.png
-
-Convert to Markdown"Officer: That's correct."
+"Officer: That's correct."
 
 Question: And would it be accurate to say that your recollections concerning what you now view as what Mr. Dulles' attitudes were ... are based on your general training about what had always been said ... [and] that after this incident, what you were told ... fortified that previous belief [in] that Dulles had nullified at least this particular cable?"
 

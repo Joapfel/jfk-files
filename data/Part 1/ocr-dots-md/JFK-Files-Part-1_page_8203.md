@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8203.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Post Office Box 6105
 Washington, D. C.

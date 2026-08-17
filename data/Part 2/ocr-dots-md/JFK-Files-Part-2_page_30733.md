@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30733.png
-
-Convert to Markdown11110854
+11110854
 
 Volume XV - June 1964
 

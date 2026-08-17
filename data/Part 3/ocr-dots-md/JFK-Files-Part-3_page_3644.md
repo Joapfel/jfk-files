@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3644.png
-
-Convert to MarkdownMr. Jenkins
+Mr. Jenkins
 
 J. Cochran, Jr.
 

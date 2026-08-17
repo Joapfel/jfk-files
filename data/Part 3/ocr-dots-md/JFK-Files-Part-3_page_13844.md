@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13844.png
-
-Convert to MarkdownNO FOREIGN DISSEM
+NO FOREIGN DISSEM
 
 - 3 -
 

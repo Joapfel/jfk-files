@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4500.png
-
-Convert to MarkdownCont'd. 9--- The Japanese Ambassador said he informed his Gov't. about these difficulties as a protest against the behavior of the Cuban Gov'! This he told at the Diplomatic meeting.
+Cont'd. 9--- The Japanese Ambassador said he informed his Gov't. about these difficulties as a protest against the behavior of the Cuban Gov'! This he told at the Diplomatic meeting.
 
 About a week ago, there was a hunger strike at the Brazilian Emb by the exiles there. However, they gave up as a gesture to only obedience to the Ambassador. They protested against not receiving salvo conductos and other things.
 

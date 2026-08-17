@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20231.png
-
-Convert to Markdown# SECTION C Continued
+# SECTION C Continued
 
 ## Hidalgo, Balmes N.
 

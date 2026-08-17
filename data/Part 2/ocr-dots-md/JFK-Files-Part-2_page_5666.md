@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_5666.png
-
 .
 
 2. CIA concurs with the release of the following name in the specific documents cited:

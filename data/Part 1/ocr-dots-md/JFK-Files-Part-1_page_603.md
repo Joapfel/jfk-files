@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_603.png
-
-Convert to Markdown78: 0763280
+78: 0763280
 
 PAGE 002
 TOT: 270110Z MAY 78

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22971.png
-
-Convert to MarkdownCI/OPS/WB does not concur with the CI/R & A recommendations as set forth for
+CI/OPS/WB does not concur with the CI/R & A recommendations as set forth for
 the following reasons:
 
 1. The security compromise would only stem from the two ERAC officers identifying the VAIVADA affiliation and training on behalf of this agency. This appears extremely remote as the desk advised there is no indication that the ERAC officers know VAIVADA either by name or sight.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17674.png
-
-Convert to Markdownfollowing factors:
+following factors:
 
 a. The LIQUIDATING group; motivated by high salaries and promotion, himself, by proper P.E. feelings. One of the songs is at present studying there. They are further controlled by fear of police action.
 

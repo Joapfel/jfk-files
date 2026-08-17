@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31148.png
-
-Convert to MarkdownSECUND
+SECUND
 
 00029:疑問 of a foreign conspiracy?
 

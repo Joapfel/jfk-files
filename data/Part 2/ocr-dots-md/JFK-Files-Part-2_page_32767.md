@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32767.png
-
-Convert to Markdownof appreciation of the complexity of a problem, the adjusted figures are
+of appreciation of the complexity of a problem, the adjusted figures are
 subject to substantial errors.
 
 Expressed another way, the cost estimators of the Evaluation Group

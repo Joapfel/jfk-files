@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13550.png
-
-Convert to Markdown2339
+2339
 
 1 the period we are talking about in the D.R. it was Farland
 2 followed by Dearborn.

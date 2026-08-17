@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3312.png
-
-Convert to Markdown13-00000
+13-00000
 
 lasting damage may occur to the United States' already weakened position of leadership in Latin America.
 

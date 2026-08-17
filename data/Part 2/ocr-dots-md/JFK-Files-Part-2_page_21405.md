@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21405.png
-
-Convert to MarkdownLetter to SAC, Boston
+Letter to SAC, Boston
 
 RE: RICHARD THOMAS GIBSON
 105-93072

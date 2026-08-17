@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15884.png
-
-Convert to MarkdownS. Personal Qualities Considered Operationally Disadvantageous
+S. Personal Qualities Considered Operationally Disadvantageous
 
 A. Natually intelligent but headstrong
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5739.png
-
-Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+C-O-N-F-I-D-E-N-T-I-A-L
 W649398 Filled In
 SECRET
 

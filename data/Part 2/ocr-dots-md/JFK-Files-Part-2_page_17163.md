@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17163.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 # BLACK PANTHER PARTY, Also Known As Black Panther Party for Self-Defense
 

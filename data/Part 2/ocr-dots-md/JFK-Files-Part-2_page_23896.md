@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23896.png
-
-Convert to Markdown1. Mr. Miller. Mr. Baker.
+1. Mr. Miller. Mr. Baker.
 2. Senator Baker. Aye.
 3. Mr. Miller. Mr. Goldwater.
 4. Senator Tower. No by proxy.

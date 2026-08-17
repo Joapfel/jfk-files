@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32506.png
-
-Convert to Markdownuntil such time as the Soviets develop their own refueling facilities at Conakry.
+until such time as the Soviets develop their own refueling facilities at Conakry.
 
 b. Instructed Embassy Rio to approach Brazilian authorities to express our deep concern at the growing frequency of Cuban non-scheduled flights to Brazil and request their cooperation in curbing them. Also instructed our Embassies in several Latin American countries to work with CIA station chiefs in furnishing the names of nationals of those countries travelling on these flights to local authorities and urging them: (1) to institute tighter controls on their own citizens travelling to Cuba, and (2) to express their concern to the
 

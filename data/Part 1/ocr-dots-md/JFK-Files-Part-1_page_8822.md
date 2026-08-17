@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8822.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CLASS: L. MESTRES/mvb</td>
     <td></td>

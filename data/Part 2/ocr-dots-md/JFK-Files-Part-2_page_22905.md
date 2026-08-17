@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22905.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 23
 the fall. Obviously, we cannot have them until fall.

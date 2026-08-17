@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26896.png
-
-Convert to Markdown activities conducted by the Special Activities Staff during your -- and subsequently the Cuban Operations Group during your 9-year tenure with those groups.
+activities conducted by the Special Activities Staff during your -- and subsequently the Cuban Operations Group during your 9-year tenure with those groups.
 
 A Well, there was -- it was an across-the-board intelligence operation consisting of collection of foreign positive intelligence, counterintelligence, paramilitary activities, covert action, economic activities. That is about the breadth of the thing.
 

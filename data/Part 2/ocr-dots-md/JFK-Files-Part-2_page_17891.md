@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17891.png
-
-Convert to MarkdownPAGE TWO
+PAGE TWO
 
 KX 100-00
 

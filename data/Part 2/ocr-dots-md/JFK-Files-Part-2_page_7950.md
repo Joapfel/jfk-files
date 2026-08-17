@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7950.png
-
-Convert to MarkdownGarrison and Shaw, it has not been validated for historical research. Even though familiar with the machine believe it can be used in this way, my project first attempt to do so.
+Garrison and Shaw, it has not been validated for historical research. Even though familiar with the machine believe it can be used in this way, my project first attempt to do so.
 
 It was easier to demonstrate with the PSE speaker is telling the truth than to lie. Stress can be caused by other than deception; but the absence of stress is an extremely reliable sign of truthfulness. Of course, the ease of stress does not prove that a person is true, only that the speaker is trying to be true.
 

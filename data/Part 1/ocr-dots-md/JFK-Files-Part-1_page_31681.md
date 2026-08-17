@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31681.png
-
-Convert to Markdown14 May 1953
+14 May 1953
 
 MEMORANDUM FOR: Chief, PP
 SUBJECT: Letter from G. M. Dimitrov

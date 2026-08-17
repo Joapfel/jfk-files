@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25754.png
-
-Convert to MarkdownSECRET/KAPOK
+SECRET/KAPOK
 
 IDENTITIES TO HMMA-15981, KAPOK-1843 dated 23 November 1960
 

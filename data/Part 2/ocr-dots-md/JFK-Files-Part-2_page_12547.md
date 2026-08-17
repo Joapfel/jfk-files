@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12547.png
-
-Convert to Markdown(3) Dangerous characteristics of subject, e.g., notation if subject carries firearms.
+(3) Dangerous characteristics of subject, e.g., notation if subject carries firearms.
 
 (4) Any special information needed to locate subject.
 

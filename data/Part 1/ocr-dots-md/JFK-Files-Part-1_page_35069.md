@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35069.png
-
-Convert to MarkdownHoja No. 2
+Hoja No. 2
 
 Emilio Hernández $ 6.00
 Abelardo Silva P. y ocho hombres 27.00

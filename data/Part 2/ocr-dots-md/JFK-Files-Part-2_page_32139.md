@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32139.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">FOR OFFICIAL USE ONLY</td>
    </tr>

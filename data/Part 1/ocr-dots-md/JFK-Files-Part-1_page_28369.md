@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28369.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM</td></tr><tr><td>SECRET</td></tr></table>
+<table><tr><td>MESSAGE FORM</td></tr><tr><td>SECRET</td></tr></table>
 
 ORIG:
 UNIT:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27338.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OFFICE OF PERSONNEL
 APR 14 11:44 AM '55

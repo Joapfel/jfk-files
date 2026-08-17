@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10648.png
-
-Convert to Markdown13. Extremist Informant - Development of sources to provide intelligence and evidentiary information concerning extremist individuals and organizations.
+13. Extremist Informant - Development of sources to provide intelligence and evidentiary information concerning extremist individuals and organizations.
 
 14. Ghetto Informant - Development of individuals living or working in Ghetto areas who can furnish information with particular emphasis on situations which may create civil unrest.
 

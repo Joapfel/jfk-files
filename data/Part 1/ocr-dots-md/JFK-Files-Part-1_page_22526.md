@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22526.png
-
-Convert to MarkdownSECRET-ENGLISH
+SECRET-ENGLISH
 
 no one who could succeed him, and that to protect his family and
 to preserve his image as El Benefactor, he should step down and

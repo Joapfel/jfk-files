@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18050.png
-
-Convert to MarkdownSEP 1 1
+SEP 1 1
 
 TELETYPING
 

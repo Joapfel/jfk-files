@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25404.png
-
-Convert to MarkdownDATE 20 August 1969
+DATE 20 August 1969
 
 RECIPIENT FOR : Chief, LOS ANGELES FIELD OFFICE
 ATTN:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26078.png
-
-Convert to MarkdownSECRET
+SECRET
 
 UPDATED BIOGRAPHIC DATA
 

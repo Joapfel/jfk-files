@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34471.png
-
-Convert to MarkdownNOSIENKO
+NOSIENKO
 
 Question #1 - Conditions under which Nosenko was held while at
 Clinton? Locked in? Let outside for entertainment?

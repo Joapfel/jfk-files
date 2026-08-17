@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7174.png
-
-Convert to Markdown# Calendar No. 2
+# Calendar No. 2
 
 94TH CONGRESS
 1ST SESSION

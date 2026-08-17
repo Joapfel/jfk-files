@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15956.png
-
-Convert to Markdownvisited upon the Blacks and to build a powerful Black society, which can deal effectively with the white beast.
+visited upon the Blacks and to build a powerful Black society, which can deal effectively with the white beast.
 
 All Blacks should have guns so that when the man comes to your door you could blow him away. Whites have been committing genocide for 400 years and now the Blackman is beginning to fight back. White education is meant only to use, control and corrupt Black youth and foil their minds. After Black youths are under control, then the whiteman will move on Black adults.
 

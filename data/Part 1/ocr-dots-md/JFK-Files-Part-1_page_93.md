@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_93.png
-
-Convert to Markdown# ANNEX B
+# ANNEX B
 THE 201 SYSTEM
 
 Rescission: Annex B of Chapter III, CSHB 70-1-1, 27 October 1966

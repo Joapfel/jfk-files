@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30374.png
-
-Convert to MarkdownThe Chairman. You are excused.
+The Chairman. You are excused.
 
 At this time, there being no further business to come
 before the Committee, the meeting is adjourned subject to the

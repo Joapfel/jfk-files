@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7469.png
-
-Convert to Markdown**RETURN TO:** Tainor
+**RETURN TO:** Tainor
 10/14/65 naw
 FILE #151-1423
 PC

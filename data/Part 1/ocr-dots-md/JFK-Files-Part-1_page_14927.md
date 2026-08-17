@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14927.png
-
-Convert to MarkdownIf it is given in Paris there will be a less favorable climate, some risk will be taken that we might have difficulties with the French, and we might face several operational problems in getting a secure house, etc.
+If it is given in Paris there will be a less favorable climate, some risk will be taken that we might have difficulties with the French, and we might face several operational problems in getting a secure house, etc.
 
 If the test is given in Frankfurt, Subject would necessarily need to travel here on a phoney German Reisenweis (which we consider he could use properly from the language point of view). The principal risk in bringing Subject to Frankfurt is that Subject might have an accident or he might manufacture some reason not to return. In either case we might have an awkward disposal problem on our hands and we might be embarrassed vis-a-vis the Germans.
 

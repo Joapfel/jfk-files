@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31426.png
-
-Convert to Markdownthe alien apply at an American Consulate in Canada, await the issuance of a visa number, and then having the alien personally pick up the visa at the appropriate consulate. This procedure usually took from a year to 18 months. But this mode of regularization will CONGO under the new law, since aliens will not be admitted into the United States from Canada without having first completed certain residential requirements there.
+the alien apply at an American Consulate in Canada, await the issuance of a visa number, and then having the alien personally pick up the visa at the appropriate consulate. This procedure usually took from a year to 18 months. But this mode of regularization will CONGO under the new law, since aliens will not be admitted into the United States from Canada without having first completed certain residential requirements there.
 
 The only manner of safeguarding the residence of an alien visitor in the United States at present is to attempt to get unlimited extensions of his visitor's visa. This is of course impossible. The alien finds himself, therefore, in the position of being deportable to the country from which he came, and in most cases after having stayed in the United States for over a year, the respective governments will refuse him permission to return. In the end the alien finds himself in a position worse than the one which he enjoyed while residing in a Displaced Persons camp in Germany.
 

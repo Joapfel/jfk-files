@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20019.png
-
-Convert to MarkdownPD 100-10983
+PD 100-10983
 
 Enclosed for the Bureau are twelve copies, for San Francisco two copies and WFO two copies of a Letterhead Memorandum (LIM) suitable for dissemination concerning proposed anti-war demonstration Monday, 1/15/68, Portland, Oregon, in support of Demonstration Protesting U.S. Policy in Vietnam, Washington, D.C. 1/15/58. Sources utilized in this LIM, who have furnished reliable information in the past, are as follows:
 

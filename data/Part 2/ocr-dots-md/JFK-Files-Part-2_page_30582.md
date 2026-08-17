@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30582.png
-
-Convert to MarkdownSECRET
+SECRET
 
 002368 Christ - 11
 9/23/60 Credit Achk report + blocks placed

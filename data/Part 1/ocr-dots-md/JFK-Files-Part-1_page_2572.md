@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2572.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (KADERA, Fred) - IV, E, 45
 

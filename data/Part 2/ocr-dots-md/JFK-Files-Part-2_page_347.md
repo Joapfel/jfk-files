@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_347.png
-
-Convert to Markdown<table><tr><td>CRIG: Jack Stewart/nao</td><td></td><td>[x] FILE REDO.</td></tr><tr><td>UNIT: WH/2</td><td>[ ] INDEX</td><td>SECRET</td></tr><tr><td>EXT: 2654</td><td>[x] NO INDEX</td><td></td></tr><tr><td colspan="2">DATE: 1 December 1966 [x] FILE IN CS FILE NO. 201-798301</td><td></td></tr></table>
+<table><tr><td>CRIG: Jack Stewart/nao</td><td></td><td>[x] FILE REDO.</td></tr><tr><td>UNIT: WH/2</td><td>[ ] INDEX</td><td>SECRET</td></tr><tr><td>EXT: 2654</td><td>[x] NO INDEX</td><td></td></tr><tr><td colspan="2">DATE: 1 December 1966 [x] FILE IN CS FILE NO. 201-798301</td><td></td></tr></table>
 
 <table><tr><td>1</td><td>[ ]</td><td>5</td></tr><tr><td>2</td><td></td><td>6</td></tr><tr><td>3</td><td></td><td>7</td></tr><tr><td>4</td><td></td><td>8</td></tr></table>
 

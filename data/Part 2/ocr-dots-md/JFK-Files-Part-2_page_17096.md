@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17096.png
-
-Convert to MarkdownTHE
+THE
 
 CONSPIRACY
 

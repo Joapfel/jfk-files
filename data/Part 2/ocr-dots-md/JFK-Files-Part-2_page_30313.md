@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30313.png
-
-Convert to MarkdownMr. Blakey. Shall I inform the witness?
+Mr. Blakey. Shall I inform the witness?
 
 The Chairman. In light of the time situation and our original intention of trying to wind up by 10:00 p.m., the Chair thinks perhaps we ought to try and invoke a five minute rule so that everybody gets a fair opportunity rather than to proceed informally and extend this matter over a long period of time.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31406.png
-
-Convert to MarkdownSECRET
+SECRET
 
 25 November 1952
 

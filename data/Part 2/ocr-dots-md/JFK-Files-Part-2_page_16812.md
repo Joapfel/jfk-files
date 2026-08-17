@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16812.png
-
-Convert to MarkdownREPORT
+REPORT
 of the
 
 FEDERAL BUREAU OF INVESTIGATION

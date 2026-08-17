@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2603.png
-
-Convert to MarkdownAHW/smn1
+AHW/smn1
 
 2447
 

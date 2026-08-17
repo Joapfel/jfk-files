@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26211.png
-
-Convert to Markdownminister and some of the others, and invited me to look at their defense system in Israel. I was quite enthusiastic about going and had everything arranged and was to leave on a Saturday, when about on a Wednesday or Thursday, I was asked to go to Vietnam with the other mission and stuff, and unfortunately, I had to cancel out everything and never got into see what he wanted to see there.
+minister and some of the others, and invited me to look at their defense system in Israel. I was quite enthusiastic about going and had everything arranged and was to leave on a Saturday, when about on a Wednesday or Thursday, I was asked to go to Vietnam with the other mission and stuff, and unfortunately, I had to cancel out everything and never got into see what he wanted to see there.
 
 O'BRIEN: Well, you end up working on border --actually, sealing the border, then, don't you, on that Taylor-Rostow thing?
 

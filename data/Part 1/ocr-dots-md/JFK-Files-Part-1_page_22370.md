@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22370.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The choice thus seems to lie between the first two explanations for GOLITSYN's misidentification of NOSENKO, one an understandable error of assumption drawn from their few chance encounters, the other a misguided attempt that had no sinister goals. In either case, GOLITSYN's testimony does not contribute to a determination of the status of NOSENKO within the KGB as of the years prior to 1960.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3674.png
-
-Convert to MarkdownE. Indonesia-Philippines A Philippine foreign office man states that everything was set, as we noted yesterday, for Sukarno to visit Manila today. This official says, however, that the visit was postponed as a result of Macapagal's decision to attend President Kennedy's funeral.
+E. Indonesia-Philippines A Philippine foreign office man states that everything was set, as we noted yesterday, for Sukarno to visit Manila today. This official says, however, that the visit was postponed as a result of Macapagal's decision to attend President Kennedy's funeral.
 
 F. Indonesia Djakarta is giving every indication that it will hold up final action on the long-pending oil contracts with US companies in an attempt to smoke us out on the question of US aid policy toward Indonesia.
 

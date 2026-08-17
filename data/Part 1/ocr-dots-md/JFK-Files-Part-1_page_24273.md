@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24273.png
-
-Convert to Markdown17 July 1972
+17 July 1972
 
 MEMORANDUM FOR: Chief, Covert Action Staff
 ATTENTION: Mr. Jim Anthony

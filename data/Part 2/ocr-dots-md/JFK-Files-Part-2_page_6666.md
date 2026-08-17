@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6666.png
-
-Convert to Markdowndenied, you say postponed. I am curious as to how long the postponement will be. Will it be until the national security or privacy are no longer threatened? Do we want to require a mandatory review every two years?
+denied, you say postponed. I am curious as to how long the postponement will be. Will it be until the national security or privacy are no longer threatened? Do we want to require a mandatory review every two years?
 
 Going along, some of the language is fairly broad. We had the exchange here a few moments ago about an intelligence agent. Then there is another section that gives us an exception—"an intelligence method which is currently utilized, or reasonably expected to be utilized."
 

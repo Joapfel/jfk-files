@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23386.png
-
-Convert to Markdownunusually adept at investigative technique, has the ability
+unusually adept at investigative technique, has the ability
 to balance risks involved against value of information to-
 be obtained, and is thoroughly familiar with the geography
 and political trends in Costa Rica. To date, subject has

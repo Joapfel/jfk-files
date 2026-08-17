@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15925.png
-
-Convert to Markdown# HARVARD
+# HARVARD
 ## SUMMARY OF RESETTLEMENT ACTIVITY
 
 1 - 31 May 1963

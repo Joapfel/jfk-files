@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23343.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 a number of them, because he wanted to remain familiar with
 2 them.

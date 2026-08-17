@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19392.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 16 December 1948
 

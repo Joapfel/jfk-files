@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2565.png
-
-Convert to MarkdownJuly 1, 1975
+July 1, 1975
 
 ## Documents
 

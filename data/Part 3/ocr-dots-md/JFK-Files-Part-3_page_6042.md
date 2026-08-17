@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6042.png
-
-Convert to MarkdownGeneral and the President. Prior to that time, again based upon talks between the Attorney General and Mr. Evans at which I was present, it had been decided that it was not in the best interest of the United States to inform Dr.King that we had any firm information that Levison was under Communist control. I had, however, on a previous occasion, warned Dr. King about any association with Levison, basing the warning upon doubts about Levison's loyalty to the United States.
+General and the President. Prior to that time, again based upon talks between the Attorney General and Mr. Evans at which I was present, it had been decided that it was not in the best interest of the United States to inform Dr.King that we had any firm information that Levison was under Communist control. I had, however, on a previous occasion, warned Dr. King about any association with Levison, basing the warning upon doubts about Levison's loyalty to the United States.
 
 I thought you should have this additional information for your file.
 

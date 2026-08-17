@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34544.png
-
-Convert to Markdown10. You stated previously that nobody from the KGB had an interest in Oswald, but Oswald admitted that he had been interviewed by officials of the MVD (or KGB) at least twice on his arrival in the USSR and again before his departure. What was said about these interviews in the Oswald file or in the summary (sprayka) of Oswald's file? Do you know the names of the people who talked to Oswald? Was it the KGB, MVD, or both?
+10. You stated previously that nobody from the KGB had an interest in Oswald, but Oswald admitted that he had been interviewed by officials of the MVD (or KGB) at least twice on his arrival in the USSR and again before his departure. What was said about these interviews in the Oswald file or in the summary (sprayka) of Oswald's file? Do you know the names of the people who talked to Oswald? Was it the KGB, MVD, or both?
 
 7. What do you know about the "Intourist guide" Rosa Agafonova who visited Oswald in his hotel room shortly after his arrival in Moscow?
 

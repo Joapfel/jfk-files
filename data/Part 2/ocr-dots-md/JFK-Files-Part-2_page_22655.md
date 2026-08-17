@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22655.png
-
-Convert to Markdownon two or three points. And I said, I am exercising my rights under the CIA, and so on.
+on two or three points. And I said, I am exercising my rights under the CIA, and so on.
 
 But he said, I have got to run, and it was about five past five. And I asked him if he understood in effect what he was doing, the implications.
 

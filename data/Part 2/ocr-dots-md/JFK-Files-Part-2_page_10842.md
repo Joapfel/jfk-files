@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10842.png
-
-Convert to MarkdownNK 89-56
+NK 89-56
 
 On August 27, 1971, Assistant United States Attorney D. WILLIAM SUBIN, Camden, New Jersey, authorized the issuance of a complaint, charging DALE S. CUNNINGHAM with violation of Title 18, United States Code, Sections 111 and 1505, in that he did forcibly assault, resist, oppose, impede and interfere with Special Agent ROBERT H. WALLER of the Federal Bureau of Investigation (FBI), a person designated in Title 18, Section 1114, while the said Special Agent was engaged in the performance of his official duties. Mr. SUBIN recommended $50,000 bail.
 

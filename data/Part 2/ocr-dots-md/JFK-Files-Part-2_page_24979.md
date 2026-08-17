@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24979.png
-
-Convert to Markdownrevision for circulation to the NSC members for approval.
+revision for circulation to the NSC members for approval.
 
 6. If extremely sensitive matters were discussed at an NSC meeting, it was sometimes the practice that the official NSC minutes would record only the general subject discussed without identifying the specially sensitive subject or the discussion.
 In highly sensitive cases, no reference to the subject would be made in the NSC minutes.

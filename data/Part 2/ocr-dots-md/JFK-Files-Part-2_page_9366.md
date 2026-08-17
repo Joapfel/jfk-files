@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9366.png
-
-Convert to MarkdownDE T-2
+DE T-2
 
 March 11, 1971
 

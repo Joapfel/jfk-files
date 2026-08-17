@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12517.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: Chief, WH/3
 ATTN: Mike Burger

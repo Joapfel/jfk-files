@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6461.png
-
-Convert to Markdownofficials have no way of determining whether an escapee is or is not a member of TROPS. However, if CAS desires to furnish USEP with a list of TROPS membership, OPC will request the USEP Division in each country to confer eligibility on the individuals listed and to pay particular attention that such individuals may receive personal attention in the future.
+officials have no way of determining whether an escapee is or is not a member of TROPS. However, if CAS desires to furnish USEP with a list of TROPS membership, OPC will request the USEP Division in each country to confer eligibility on the individuals listed and to pay particular attention that such individuals may receive personal attention in the future.
 
 7. **Question:** Is there any possibility of eliminating Tolstoy and AFRF altogether and doing this job through another agency or agencies?
 

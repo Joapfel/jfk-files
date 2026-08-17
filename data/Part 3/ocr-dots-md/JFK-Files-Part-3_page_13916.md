@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13916.png
-
-Convert to Markdownpersonnel overseas in order that they may have adequate awareness of the nature of the Soviet penetration threat.
+personnel overseas in order that they may have adequate awareness of the nature of the Soviet penetration threat.
 
 In answer to Mr. Coyne's question, Mr. Rocca said that although there is no evidence of over-all penetration of U. S. Government agencies, we must assume that such penetrations are being effected, and we should recognize that the size and complexity of our Governmental organization and the members of departments and agencies which are targets for Soviet bloc penetration efforts make us "a sitting duck."
 

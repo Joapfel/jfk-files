@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18970.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 of whom have been identified by informants as being connected with KGB or GRU. Characterizations of these Soviets have been included in the LHM; however, no attribution to sources was included in order to protect those sources who have not been surfaced. Although sources such as [redacted] and [redacted] and [redacted], who furnished information regarding Soviet Intelligence Service connections of some of JAFFE's contacts, have been surfaced, other sources, such as [redacted] and [redacted], have furnished information regarding many of JAFFE's contacts. To attribute characterizations by [redacted] of being connected with KGB of numerous Soviets and characterizations by [redacted] of being connected with GRU of many other Soviet contacts of JAFFE, would clearly suggest that the FBI [redacted] those establishments in the United States.
 

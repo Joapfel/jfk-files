@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23568.png
-
-Convert to Markdownenforced by directives, by State Department chairmanship of working groups, and by the infiltration of State Department personnel into the Intelligence agency.
+enforced by directives, by State Department chairmanship of working groups, and by the infiltration of State Department personnel into the Intelligence agency.
 
 Obviously this out-of-the-way would not succeed, however, unless the State Department itself were prepared to overcome its labored habits of diffusion, negligence and delay and to take a firm and purposeful grip on the situation.
 

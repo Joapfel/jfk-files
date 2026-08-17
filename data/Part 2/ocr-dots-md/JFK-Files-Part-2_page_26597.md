@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26597.png
-
-Convert to MarkdownKachins, whose demands for greater autonomy have been rejected in Rangoon.
+Kachins, whose demands for greater autonomy have been rejected in Rangoon.
 
 e. US officials on the spot doubt that the army, hobbled by poor leadership and its many political responsibilities, will be any more effective in dealing with the problem this time than in past anti-insurgency campaigns.
 

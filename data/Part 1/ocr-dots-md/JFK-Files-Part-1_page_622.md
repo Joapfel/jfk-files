@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_622.png
-
-Convert to MarkdownMIM-096-72
+MIM-096-72
 
 4. Cooper has recently been instrumental in the establishment of a casino in Istanbul, Turkey, and he is currently assisting in the negotiations for the establishment of additional casinos in Ankara and Izmir. CMI now operates a casino in Yugoslavia and is bidding on the establishment of an additional one in a Yugoslav location which Cooper cannot recall. In conjunction with CMI, Cooper is working on the establishment of a travel club which would, in addition to offering tour packages to various parts of the world, offer junkets to gambling casinos. CMI would fund the travel expenses of those individuals who could be counted upon to gamble heavily at CMI casinos. As on aside, Cooper cautioned that CMI has "fantastic" files on individuals in all parts of the world who are known to be habitual gamblers. These files include their spending habits, income and outgo and general financial situation.
 

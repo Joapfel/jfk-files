@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9783.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 March 20, 1973
 

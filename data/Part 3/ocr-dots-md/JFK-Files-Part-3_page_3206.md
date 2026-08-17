@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3206.png
-
-Convert to Markdown1818
+1818
 
 Senator Tower. It is my understanding now that 83 percent of all cases involve some use of informants, so that means that the use is pretty widespread and apparently very essential.
 

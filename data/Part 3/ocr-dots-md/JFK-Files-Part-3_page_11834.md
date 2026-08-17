@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11834.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 INSPECTOR E. S. MILLER: During the course of instant inspection an in-depth (ESM:wmj 9/3/71) survey was made relative to the adequacy of personnel, both Agent and clerical, within the DID. The primary purpose of this survey was to determine the best possible allocation of manpower bearing in mind the desirability to reallocate manpower to top priority assignments.
 

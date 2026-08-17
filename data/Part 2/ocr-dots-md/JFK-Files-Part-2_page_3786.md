@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3786.png
-
-Convert to MarkdownSUBJECT: Gordon NOVEL
+SUBJECT: Gordon NOVEL
 SFN 526113
 
 No further action believed necessary:

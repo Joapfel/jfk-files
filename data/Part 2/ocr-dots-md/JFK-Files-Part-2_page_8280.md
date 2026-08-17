@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8280.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td rowspan="2">DISPATCH</td><td>CLASSIFICATION<br/>S-E-C-R-E-T</td><td colspan="2">PROCESSING ACTION</td></tr><tr><td>X</td><td>MARKED FOR INDEXING</td></tr><tr><td>TO<br/>Chief, NE</td><td></td><td colspan="2">NO INDEXING REQUIRED</td></tr><tr><td>INFO.<br/>Chief of Station, Madrid;<br/>Chief, European Division</td><td></td><td colspan="2">ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>FROM<br/>Chief of Station, Athens</td><td></td><td colspan="2">MICROFILM</td></tr><tr><td>SUBJECT<br/>PBRAMPART<br/>Dimitrios DIMITROF</td><td></td><td colspan="2"></td></tr><tr><td colspan="4">ACTION REQUIRED - REFERENCES<br/>ACTION: FYI and Direct Traces</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4374.png
-
-Convert to MarkdownWEDNESD
+WEDNESD
 
 5
 APRIL

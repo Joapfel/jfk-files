@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5509.png
-
-Convert to MarkdownSUBJECT: Foreign Government Information
+SUBJECT: Foreign Government Information
 Australia
 
 President to agree to the unilateral declassification of foreign government information, CIA proposes that the release of the Australian documents be either postponed for a short time or that a substitution be made.

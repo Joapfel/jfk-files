@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_861.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>NAME</th><th>ADDRESS</th></tr></thead><tbody><tr><td>JOHN H. BROWN</td><td>2855 WESTERN AVE, SUITE 300, LAS VEGAS, NV 89157<br/>(702) 661-3000</td></tr><tr><td>LORNA M. DAVIS</td><td>BLOOMBERG CENTER, SUITE 200, SAN DIEGO, CA 92110<br/>(819) 766-1111</td></tr><tr><td>FARRI S. HARRIS</td><td>1101 EAST CARVER AVENUE, SUITE 110, BOISE, ID 83702<br/>(307) 884-5555</td></tr><tr><td>CATHY L. SMITH</td><td>MILLER HALL OFFICE, 1001 LINCOLN AVE, SUITE 1001, HOUSTON, TX 77002<br/>(281) 852-1200</td></tr><tr><td>DANIEL J. SMITH</td><td>300 N. LOUIS AVE, SUITE 1200, NEW YORK, NY 10017<br/>(212) 888-4366</td></tr><tr><td>RICHARD P. WEBB</td><td>600 N. LINCOLN AVE., SUITE 1001, CHICAGO, IL 60601<br/>(312) 265-2022</td></tr><tr><td>KAREN L. WOODS</td><td>SOUTHERN PERIODICALS, INC., P.O. BOX 371, SEATTLE, WA 98114<br/>(206) 662-2488</td></tr><tr><td>ROBERT E. YOUNG</td><td>1200 S. FIFTH AVENUE, SUITE 1300, MINNEAPOLIS, MN 55401<br/>(612) 829-7777</td></tr></tbody></table>
 

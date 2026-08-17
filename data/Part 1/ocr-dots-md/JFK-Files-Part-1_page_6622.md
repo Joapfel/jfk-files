@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6622.png
-
-Convert to Markdown6 July 1953
+6 July 1953
 
 Chief, Foreign Documents Division.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_269.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2 SEP 65 IN 44044
 

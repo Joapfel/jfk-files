@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10797.png
-
-Convert to MarkdownDate: 8/22/71
+Date: 8/22/71
 
 At 7:48 a.m., ROSEMARY B. RELI LY was furnished with a form entitled "Interrogation; Advice on Rights", which she and refused to sign. RELI LY added that she would not be forced to conform to the letter at the Cambridge Draft Box until 20:00, concerning her visit with an attorney. She did furnish the following descriptive data:
 

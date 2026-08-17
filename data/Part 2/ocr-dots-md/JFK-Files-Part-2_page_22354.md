@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22354.png
-
-Convert to MarkdownMr. Osborn seems to recall that the Office of Security had similar arrangements with the Washington, D. C. Metropolitan Police Department, and he thinks that there were instances in which such cover was actually used, but he does not recall specific cases. He also states that it is possible that CIA field offices would have used similar cover of local police departments, but he has no knowledge of such instances.
+Mr. Osborn seems to recall that the Office of Security had similar arrangements with the Washington, D. C. Metropolitan Police Department, and he thinks that there were instances in which such cover was actually used, but he does not recall specific cases. He also states that it is possible that CIA field offices would have used similar cover of local police departments, but he has no knowledge of such instances.
 
 ## Wire Taps
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10024.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 as well as in evaluating requests for investigations of individuals received from other agencies and departments pursuant to Section 8(d) of EO 10450. Guidelines were requested for the use of the FBI in initiating investigations of individuals pursuant to EO 10450 and specifically criteria to be utilized in determining whether available information is sufficient basis for investigation under EO 10450.
 

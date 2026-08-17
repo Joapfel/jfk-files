@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24224.png
-
-Convert to Markdownfor cover reasons, cannot be refused. Over the past few years,
+for cover reasons, cannot be refused. Over the past few years,
 this has involved badging operations for private companies, i.e.
 airlines, schools, etc. The company has never made a true profit.
 To maintain its image among its competitors, however, its books

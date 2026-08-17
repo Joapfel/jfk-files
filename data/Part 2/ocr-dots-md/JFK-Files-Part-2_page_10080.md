@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10080.png
-
-Convert to MarkdownTHE ATTORNEY GENERAL
+THE ATTORNEY GENERAL
 WASHINGTON
 
 November 6, 1969

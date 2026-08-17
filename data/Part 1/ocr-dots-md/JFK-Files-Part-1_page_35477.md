@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35477.png
-
-Convert to Markdown14-00000
+14-00000
 
 7. To the left is a copy of the letter of recommendation from Charles to General Lee, dated March 8, 1863, in which he requests that the latter will take care of him while in the army. This request was granted, and Charles was sent to camp with his company to be mustered into the army.
 

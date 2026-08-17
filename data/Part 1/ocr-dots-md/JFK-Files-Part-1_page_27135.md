@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27135.png
-
-Convert to Markdownrestored by the liberating army and unify the Cuban anti-communist forces. The article borrows the signature of Commander FELIPE VIDAL SANTIAGO on behalf of the "Democratic Recovery of Cuba."
+restored by the liberating army and unify the Cuban anti-communist forces. The article borrows the signature of Commander FELIPE VIDAL SANTIAGO on behalf of the "Democratic Recovery of Cuba."
 
 The April 27, 1962, issue of the "Miami Herald," a daily newspaper published in Miami, carried an article pertaining to the training of exiles in the Miami area. Subject, on behalf of the United Liberation Front, was listed as one of the participants in this training.
 

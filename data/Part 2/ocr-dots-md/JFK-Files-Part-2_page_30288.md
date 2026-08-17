@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30288.png
-
-Convert to Markdownnot telling them about the physical surveillance, was that the
+not telling them about the physical surveillance, was that the
 truth you told them?
 
 Mr. Nosenko. Well, I told them that there was done the work against Oswald; it was ordered, passive type of work , it's called passive. Whenever it's ordered not to make an approachment, not to make a contact, not to make a recruit- ment, this is passive.

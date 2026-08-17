@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6779.png
-
-Convert to Markdownamount of information is released while still protecting the identity of an agent or the privacy of an individual.
+amount of information is released while still protecting the identity of an agent or the privacy of an individual.
 
 If legislation is not passed by Congress and signed by the President regarding the JFK papers, to enhance public confidence and to provide reassurance that CIA has not held back any information relevant to the assassination, I would appoint a panel of distinguished Americans from outside of government, perhaps including distinguished former jurists, to examine whatever documents we have redacted or kept classified. They would then issue an unclassified public report on their findings.
 

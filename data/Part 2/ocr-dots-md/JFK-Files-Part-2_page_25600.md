@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25600.png
-
-Convert to MarkdownAllen Smiley - gambler, bookmaker, racketeer;
+Allen Smiley - gambler, bookmaker, racketeer;
 
 Tony Accardo - ranking Cosa Nostra figure;
 

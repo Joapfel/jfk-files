@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8888.png
-
-Convert to MarkdownCLASSIFIED MESSAGE TOTAL COPIES 24
+CLASSIFIED MESSAGE TOTAL COPIES 24
 
 <table><tr><td colspan="5">SECRET</td></tr><tr><td colspan="3">PERSON/UNIT NOTIFIED</td><td colspan="2"></td></tr><tr><td>FROM</td><td>MEXICO CITY</td><td></td><td>ADVANCE COPY</td><td>UNIT TIME BY</td></tr><tr><td>ACTION</td><td>WH 8</td><td>[BOXED] ISSUED [BOXED] SLOTTED [BOXED] TYPED</td><td></td><td></td><td></td></tr><tr><td>INFO</td><td colspan="4">VR. FILE, CA 2, CA/04, OP2, OF3</td></tr></table>
 

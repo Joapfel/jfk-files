@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8625.png
-
-Convert to MarkdownPRODUCT SALES REPORT
+PRODUCT SALES REPORT
 
 THIS DATE OF REPORT: 23-IX-59
 

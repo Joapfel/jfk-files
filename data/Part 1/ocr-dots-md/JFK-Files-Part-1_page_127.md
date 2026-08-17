@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_127.png
-
-Convert to Markdown6. Samuel WISE, "Counsel in the American Embassy in Moscow" who is referred to above, may well be Samuel Griffin WISE Jr., #74574, SD & SSD, who apparently was once a contract employee on AEACTIVE. The State Department reviewed WISE's file on 2 June 1954; and as of September 1962 a Samuel G. WISE was Second Secretary of the American Embassy in Moscow. At that time WISE advised in a cable to the State Department
+6. Samuel WISE, "Counsel in the American Embassy in Moscow" who is referred to above, may well be Samuel Griffin WISE Jr., #74574, SD & SSD, who apparently was once a contract employee on AEACTIVE. The State Department reviewed WISE's file on 2 June 1954; and as of September 1962 a Samuel G. WISE was Second Secretary of the American Embassy in Moscow. At that time WISE advised in a cable to the State Department
 
 > DAVIS' case is very similar to that of OSWALD; and he, like OSWALD, lived in the Soviet Union for two years after his defection and prior to making application for return to the United States.
 

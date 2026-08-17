@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27906.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">Continuation of part II-language elements</td>
    </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5563.png
-
-Convert to Markdown# Intelligence Information Cable
+# Intelligence Information Cable
 
 *   ROUTINE
 *   EN 289539

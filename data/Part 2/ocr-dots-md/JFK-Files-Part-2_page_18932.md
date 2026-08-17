@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18932.png
-
-Convert to MarkdownSam Jaffe
+Sam Jaffe
 
 SECRET
 

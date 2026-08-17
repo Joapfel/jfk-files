@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24951.png
-
-Convert to Markdown# GUTIERREZ's Report on HARBIN and ITKIN
+# GUTIERREZ's Report on HARBIN and ITKIN
 
 14-0000
 

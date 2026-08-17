@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20241.png
-
-Convert to MarkdownLA 100-70701
+LA 100-70701
 
 INFORMANT has revealed in the past that members of both the Women Strike for Peace (WSP) and the Women for Legislative Action (WLA) were very active in the political campaigning for her which resulted in her election.
 

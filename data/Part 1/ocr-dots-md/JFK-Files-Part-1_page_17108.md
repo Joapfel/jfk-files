@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17108.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief of Operations, DD/P
 SUBJECT : Project LIEMPTY (Renewal)

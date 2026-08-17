@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5255.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CSI-0042/95
 

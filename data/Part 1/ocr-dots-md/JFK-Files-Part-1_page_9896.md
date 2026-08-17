@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9896.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, MOACRE
 Chief, VI Division

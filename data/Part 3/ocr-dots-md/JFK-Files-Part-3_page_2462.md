@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2462.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 Memorandum
 
 TO : SAC, WFO (65-8300)

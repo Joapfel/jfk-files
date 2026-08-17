@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8740.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>For internal purposes only</td></tr><tr><td>This document is confidential and should not be photocopied or distributed</td></tr></table>
 

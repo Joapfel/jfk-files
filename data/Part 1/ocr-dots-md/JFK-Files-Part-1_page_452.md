@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_452.png
-
-Convert to Markdownquestion so that we could respond only with respect to the particular companies or individuals in which he was interested. As a concession, he cut down the period from the last ten years to "since 1971" and I said we would note his request.
+question so that we could respond only with respect to the particular companies or individuals in which he was interested. As a concession, he cut down the period from the last ten years to "since 1971" and I said we would note his request.
 
 b. Thompson asked about CIA relationships with the Mormon church, the Summa Corporation, or the Hughes Tool Company. (Thompson said he had specific information that we had something with the Mormon church.) I suggested that if he is interested in whether the Agency had any relationship with these three institutions in connection with CIA's relationship with the Mullen Company; he rephrase the question. Thompson refused to do this and I said we would note his request.
 

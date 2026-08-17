@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26489.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. There have been an estimated 60 incidents, ranging from the almost daily explosion of homemade bombs in some periods to the assassination of the judicial police chief, dynamiting of a water reservoir, and sabotage of a gasoline storage tank. The government has attributed almost all such acts to "Castro-Communists." Cuban trainees were very probably involved, but there is no good evidence of identity.
 

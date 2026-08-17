@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4774.png
-
-Convert to MarkdownSECRET
+SECRET
 
 what the hell they were doing.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31107.png
-
-Convert to MarkdownMarch 7
+March 7
 
 Mr. Lewis
 Wiggen

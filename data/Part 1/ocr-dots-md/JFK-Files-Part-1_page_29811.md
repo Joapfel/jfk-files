@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29811.png
-
-Convert to Markdown-2-
+-2-
 
 30 Aug 53 G3-14, Intelligence Officer, Chief, DDP/SS, SR-3,
 West Branch, Office of the Chief, Headquarters

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15967.png
-
-Convert to MarkdownFRED HAMPTON, BOBBY LEE RUSH, and RUFUS WALLS, all Chicago BPP leaders, are main BPP speakers on college campuses as well as at other public appearances in the Chicago area.
+FRED HAMPTON, BOBBY LEE RUSH, and RUFUS WALLS, all Chicago BPP leaders, are main BPP speakers on college campuses as well as at other public appearances in the Chicago area.
 
 2/28/69)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31260.png
-
-Convert to Markdown3 December 1959
+3 December 1959
 
 MEMORANDUM FOR: Chief, SR
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14224.png
-
-Convert to MarkdownDuring the past year there has been a gratifying improvement on both counts. These programs will continue to have high priority and be the subject of intensive efforts.
+During the past year there has been a gratifying improvement on both counts. These programs will continue to have high priority and be the subject of intensive efforts.
 
 As evidence of our concentration on this important subject we have recently established in the Clandestine Services of CIA a new component, the Domestic Operations Division and Station (DODS), which will be responsible for the management of relations between the Agency and private enterprise in the United States. In this component has been placed responsibility for the maximum utilization of the facilities offered by business, education, foundations, etc. in furthering and supporting the activities of the Agency. We expect that the effort of this component will lead to improved nonofficial cover and more extensive assistance by the nonofficial resources of the U. S. in many aspects of the Agency's activity.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21522.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. counterespionage for a brief period against the Japanese and the Italians and the Russians in '41. Then during most of the War, against the Germans, and then beginning in early '45 until the middle of '47 against the Soviet service again.
 

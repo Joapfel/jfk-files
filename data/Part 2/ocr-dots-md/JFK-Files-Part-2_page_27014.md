@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27014.png
-
-Convert to Markdown4. Success in Ceylon, 1965, 1960-1965 (TS) (061) (but note that the time period covered by this history begins in the Eisenhower Administration)
+4. Success in Ceylon, 1965, 1960-1965 (TS) (061) (but note that the time period covered by this history begins in the Eisenhower Administration)
 
 5. Funding Covert Operations, 1960-1964 (TS) (015) (but note that the time period covered by this history begins in the Eisenhower Administration)
 

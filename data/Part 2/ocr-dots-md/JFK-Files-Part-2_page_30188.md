@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30188.png
-
-Convert to Markdown# USHOROOZ A
+# USHOROOZ A
 US HOUSE OF REP
 WASH. DC
 

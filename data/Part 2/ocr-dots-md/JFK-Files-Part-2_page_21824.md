@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21824.png
-
-Convert to Markdown1 I'm not trying to twist your testimony, I know you referred
+1 I'm not trying to twist your testimony, I know you referred
 2 to the basic purpose being to keep tabs on what was going on
 3 so you would be aware of what Alpha-66 and groups like that
 4 were planning, but in general, they were the eyes and ears of

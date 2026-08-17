@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14682.png
-
-Convert to Markdown# Intelligence Information Cable
+# Intelligence Information Cable
 
 IN-079701
 

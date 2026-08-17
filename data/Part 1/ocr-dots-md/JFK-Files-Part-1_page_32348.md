@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32348.png
-
-Convert to Markdown# Certification of Handgun Qualification
+# Certification of Handgun Qualification
 
 9 August 1971
 Date

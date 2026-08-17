@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12585.png
-
-Convert to Markdownd. Cases referred by military
+d. Cases referred by military
 
 Military intelligence agencies often refer cases for security investigations under Delimitations Agreement in which security-type fraud violations are involved. If subversive information does not warrant full security investigation but does indicate possible fraud violation, advise interested agency that FBI's investigation will be directed toward proving possible violation of law and that any background investigation contemplated by it pursuant to its administrative responsibilities will not interfere with FBI investigation. Advise agency pertinent information developed will be furnished and request agency to do likewise. Immediately initiate security matter - fraud against the Government investigation. If subversive information warrants full security investigation and also indicates fraud violation, advise interested agency that Bureau is initiating full security investigation in conjunction with investigation of possible violation of law and results will be furnished. Conduct expedite investigation to determine subject's dangerousness and whether a fraud violation is involved.
 

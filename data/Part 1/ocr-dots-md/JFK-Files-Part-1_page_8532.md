@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8532.png
-
-Convert to Markdown14-00050
+14-00050
 
 <table><tr><td>GROUP I</td></tr><tr><td>Excluded from automatic downgrading and declassification</td></tr></table>
 

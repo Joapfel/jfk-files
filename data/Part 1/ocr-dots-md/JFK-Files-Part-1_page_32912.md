@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32912.png
-
-Convert to MarkdownSECRRT
+SECRRT
 
 Earls:
 

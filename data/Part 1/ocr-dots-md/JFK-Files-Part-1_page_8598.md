@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8598.png
-
-Convert to Markdown5. S asked F should he ring up A from the restaurant to ask for a
+5. S asked F should he ring up A from the restaurant to ask for a
 meet with him. F told S that A had left or was about to take off the
 afternoon. Instead of commenting on the fact tha A left without even
 indicating to S that he might leave, S stated that this situation was

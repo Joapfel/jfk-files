@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_838.png
-
-Convert to Markdown4. Options for Future Policy:
+4. Options for Future Policy:
 
 The missions of law enforcement, internal security, and counterintelligence are separate, distinct and distinguishable functions, even though each partakes a little of each other. Law enforcement is investigation after a crime has been committed to identify suspects and build a case for prosecution; counter-intelligence is the identification, penetration and neutralization of foreign intelligence activity in the U. S.; and internal security is identification and thwarting of home-grown plots to subvert the government and activities within the U. S. in illegal support of foreign causes, whether by U. S. citizens of foreigners.
 

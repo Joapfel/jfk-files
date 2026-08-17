@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29632.png
-
-Convert to MarkdownHe mentioned that Mr. Blake, at the direction of the DCI,
+He mentioned that Mr. Blake, at the direction of the DCI,
 (1975 Alumni Day) was to explore and advise him (Maksymiec) of the
 possibility of striking and issuing a medal to about 200 Agency
 personnel (of whom he is one) for their participation in certain

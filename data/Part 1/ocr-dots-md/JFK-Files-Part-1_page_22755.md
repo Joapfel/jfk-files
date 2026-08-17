@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22755.png
-
-Convert to MarkdownOFFICIAL-DISPATCH
+OFFICIAL-DISPATCH
 
 VIA: ____________ SPECIFIED OR SEA POUCH ____________
 

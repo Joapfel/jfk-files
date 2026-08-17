@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31922.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">FORM 5961-341, TYPE A<br/>HA850000-7081<br/>(has been entered)</td>

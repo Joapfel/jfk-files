@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_777.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>STANDARD FORM 52<br/>NAME: JAMES Q. M/T, Chief, D/T</td>
         <td>21 JUN 1956<br/>VOUCHERED</td>

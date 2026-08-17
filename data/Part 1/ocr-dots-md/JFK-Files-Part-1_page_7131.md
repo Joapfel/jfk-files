@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7131.png
-
-Convert to MarkdownFBI. DOCUMENT
+FBI. DOCUMENT
 
 DATE: 20 SEPTEMBER 1966
 

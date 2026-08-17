@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33255.png
-
-Convert to MarkdownU. S. DEPARTMENT Under Separation, Classification of: HABW-1.
+U. S. DEPARTMENT Under Separation, Classification of: HABW-1.
 
 IMMIGRATION
 

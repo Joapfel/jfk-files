@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31593.png
-
-Convert to MarkdownJuly 21, 1953
+July 21, 1953
 
 # " PROSPERO "
 

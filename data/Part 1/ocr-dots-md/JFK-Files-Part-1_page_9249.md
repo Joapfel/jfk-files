@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9249.png
-
-Convert to MarkdownPlease give all these details in writing, so we can make a decision. You could leave your carbon with NY/CO for safe-keeping, and arrange with them to consult it when and if necessary.
+Please give all these details in writing, so we can make a decision. You could leave your carbon with NY/CO for safe-keeping, and arrange with them to consult it when and if necessary.
 
 Fully sterilized letters, about details of work-in-progress, we can exchange direct.
 

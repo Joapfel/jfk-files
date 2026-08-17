@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32037.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 # OPERATIONS COURSE NO. 17
 9 March 1934 - 10 July 1934

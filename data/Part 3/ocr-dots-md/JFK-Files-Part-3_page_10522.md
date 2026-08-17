@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10522.png
-
-Convert to MarkdownTELETYPE UNIT
+TELETYPE UNIT
 REVISED
 MAR 26 1975 3:47 PM '75
 

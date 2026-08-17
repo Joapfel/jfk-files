@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32809.png
-
-Convert to Markdownthan risk direct confrontation with the United States. In
+than risk direct confrontation with the United States. In
 the long run, such action is more dangerous and difficult
 to combat, and in the short run is less likely to provoke
 immediate and effective United States retaliation. Such

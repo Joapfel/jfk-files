@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13630.png
-
-Convert to MarkdownLa Helena, Aug 18 1961
+La Helena, Aug 18 1961
 
 Casi de la Educación
 

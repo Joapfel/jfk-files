@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10827.png
-
-Convert to MarkdownCada domingo a la una de la tarde en punto se reunimos los órganos y muchos que no lo sabíamos pero tenemos una fuerte presencia en San Diego, con unosal en la diestra. Ayudemos. Frenase con nosotros. Lugar: Flagler 2000. Teléfono: 467-2155.
+Cada domingo a la una de la tarde en punto se reunimos los órganos y muchos que no lo sabíamos pero tenemos una fuerte presencia en San Diego, con unosal en la diestra. Ayudemos. Frenase con nosotros. Lugar: Flagler 2000. Teléfono: 467-2155.
 
 Habiba Roberto Fernandez Melena, ex-presidenta del ex-presidente Fulgencio Batista: "Yo he sufrido muchas ingratitudes en el distrito. Se me acuerda de que soy uno de los hombres más ricos de la emigración. Pero comparado con "La" Arroyo, soy un pobrete. Cuando Alberto Azama me turnó medio millon, me dejó en corte."
 

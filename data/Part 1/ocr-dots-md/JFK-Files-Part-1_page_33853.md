@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33853.png
-
-Convert to MarkdownIn reply refer to: W-1970
+In reply refer to: W-1970
 
 15 April 1952
 

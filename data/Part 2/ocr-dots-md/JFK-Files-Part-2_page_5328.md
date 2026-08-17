@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5328.png
-
-Convert to Markdown# Secret
+# Secret
 
 26 February 1997
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4659.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 Miami, and the car was observed at such residence on October 29 through November 2, 1962.
 

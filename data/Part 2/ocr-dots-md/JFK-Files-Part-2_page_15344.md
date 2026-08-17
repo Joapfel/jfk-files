@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15344.png
-
-Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+# Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : Mr. A. H. Belmont
 FROM : Mr. R. R. Roach

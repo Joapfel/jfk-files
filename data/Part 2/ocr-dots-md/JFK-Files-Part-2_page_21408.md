@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21408.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 TO : DIRECTOR, FBI (105-93072)
 

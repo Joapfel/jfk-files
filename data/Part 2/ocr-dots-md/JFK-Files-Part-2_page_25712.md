@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25712.png
-
-Convert to MarkdownHonorable J. Lee Rankin
+Honorable J. Lee Rankin
 
 The personal description of Ruby as obtained by Special Agent Flynn on March 11, 1959, did not in itself contain the remark "known Dallas criminal." This remark was added to the description by Special Agent Louis M. Kelley at the time when he was assisting in the preparation of the report of Special Agent Manning C. Clements at Dallas dated November 30, 1963.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31644.png
-
-Convert to Markdown7 July 1953
+7 July 1953
 
 Memorandum for the Record
 

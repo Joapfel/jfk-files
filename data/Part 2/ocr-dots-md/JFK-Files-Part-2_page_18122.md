@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_18122.png
-
-Convert to MarkdownADDENDUM: Legal Counsel Division PVD:lad 9/9/75
+ADDENDUM: Legal Counsel Division PVD:lad 9/9/75
 
 MacDougall was advised of his Fifth Amendment rights by SA Paul V. Daly of this Division, upon returning from the Senate Select Committee. MacDougall advised that he would prefer contacting private counsel before submitting to an interview concerning mail openings. He indicated that he was attempting to make arrangements to consult with the attorney in person. SA MacDougall advised that he would telephonically contact the Legal Counsel Division subsequent to his conference with the attorney and advise whether he desires to submit to an interview concerning mail openings. His decision in this matter will be brought to the attention of the Senate Select Committee.

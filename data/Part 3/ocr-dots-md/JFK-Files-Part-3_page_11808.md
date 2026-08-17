@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11808.png
-
-Convert to Markdown# ADEQUACY OF PERSONNEL
+# ADEQUACY OF PERSONNEL
 NEW LEFT SECTION 6-E
 
 SECTION CHIEF R. L. SHACKELFORD. There is set forth below a tabulation of the actual and authorized personnel in the New Left Section as of close of business, August 17, 1971.

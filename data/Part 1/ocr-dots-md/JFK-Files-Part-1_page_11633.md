@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11633.png
-
-Convert to Markdown26 August 1950
+26 August 1950
 
 Chief of Foreign Division T
 Chief, of Station, Santiago

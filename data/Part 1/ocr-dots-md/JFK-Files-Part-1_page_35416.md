@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35416.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>104-10234-10050</td>
     <td>2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992</td>

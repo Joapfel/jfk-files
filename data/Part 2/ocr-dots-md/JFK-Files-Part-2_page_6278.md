@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6278.png
-
-Convert to MarkdownARRB OPEN MEETING
+ARRB OPEN MEETING
 
 6 August 1996
 

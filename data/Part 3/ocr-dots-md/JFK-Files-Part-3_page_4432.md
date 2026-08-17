@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4432.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the [Consulate of Israel, New York City], to assist this Bureau
 in its future investigation of Israeli intelligence activities.

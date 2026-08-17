@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7305.png
-
-Convert to MarkdownSECRET
+SECRET
 
 21 JUL 1975
 

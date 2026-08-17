@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16181.png
-
-Convert to MarkdownDDO/WH/7/CAR/Ruth Lehman:ar:7493/1956 (9 August 1974)
+DDO/WH/7/CAR/Ruth Lehman:ar:7493/1956 (9 August 1974)
 
 Distribution:
 

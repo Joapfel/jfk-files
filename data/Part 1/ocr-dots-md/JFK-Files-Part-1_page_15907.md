@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15907.png
-
-Convert to MarkdownDear Dan,
+Dear Dan,
 
 If you can see I am back to town and in the same time
 to my job in the Air Force. I have crossed the river from

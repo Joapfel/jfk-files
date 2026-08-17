@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18047.png
-
-Convert to Markdown14-0000
+14-0000
 
 CHBOUNDS
 WH/1/R

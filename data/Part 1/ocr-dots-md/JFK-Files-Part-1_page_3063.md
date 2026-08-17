@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3063.png
-
-Convert to MarkdownCARRETE CH 026
+CARRETE CH 026
 
 SIGUE) - Es - Para confirmando / me da el efecto de las vacaciones -
 - EJ - Para oeste norte va estar Requirements - Esupera el mes que viene

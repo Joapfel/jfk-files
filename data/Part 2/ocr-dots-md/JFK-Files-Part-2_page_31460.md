@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31460.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/lr
 
 SAUL LANDAU is editor and publisher of Studies on the Left (See Appendix Page).

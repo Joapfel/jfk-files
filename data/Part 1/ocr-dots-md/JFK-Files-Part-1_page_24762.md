@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24762.png
-
-Convert to MarkdownComments on Dispatch HPLW-5390
+Comments on Dispatch HPLW-5390
 Prepared by WH/SAO
 
 SUBJECT: The LEONOV Matter (Nikolay Sergeyevich LEONOV, (201-132138)

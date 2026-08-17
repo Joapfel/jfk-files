@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20514.png
-
-Convert to MarkdownWFO files show WELCH attended SWP National Convention, August, 1971.
+WFO files show WELCH attended SWP National Convention, August, 1971.
 
 Secret Service and AUSA have been notified. Other interested agencies also cognizant.
 

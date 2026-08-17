@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_964.png
-
-Convert to MarkdownSố 1744-ND/RP/VP.
+Số 1744-ND/RP/VP.
 
 Chiaunchi
 

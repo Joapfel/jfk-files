@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11520.png
-
-Convert to Markdown3.
+3.
 
 a few business transactions with him, including the sale of a number of
 his paintings, but insisted with some annoyance that this had not bearing

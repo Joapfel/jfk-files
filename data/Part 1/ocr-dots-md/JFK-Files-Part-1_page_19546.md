@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19546.png
-
-Convert to Markdown# SECRET
+# SECRET
 Security Information
 
 ## SEC. II. WORK EXPERIENCE

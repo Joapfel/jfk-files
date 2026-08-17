@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8750.png
-
-Convert to MarkdownUFGA 15107 dated 8 April 1964
+UFGA 15107 dated 8 April 1964
 
 Transmitted to Headquarters Target Personality
 Study on Aldo Pedro MARGOLLES Duenas (201-315161).

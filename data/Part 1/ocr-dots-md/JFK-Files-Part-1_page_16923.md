@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16923.png
-
-Convert to Markdown<html><body><table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION ON<br/>SECRET</td><td>U. S. AIR FORCE<br/>SECRET SYMBOL AND NUMBER<br/>FMMA - 52721</td></tr></table></body></html>
+<html><body><table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION ON<br/>SECRET</td><td>U. S. AIR FORCE<br/>SECRET SYMBOL AND NUMBER<br/>FMMA - 52721</td></tr></table></body></html>
 
 3. All assets involved in the LIEMPTY Project performed in a satisfactory manner during this period. Effective 1 July 1967 LIEMPTY-4 and LIEMPTY-11 were given slight salary increases, because of their increased activity.
 

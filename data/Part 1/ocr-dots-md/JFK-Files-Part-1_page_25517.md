@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25517.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">SE CER WILL CHECK CLASSIFICATION TOP AN OTTOM</td>
         <td>CONFIDENTIAL</td>

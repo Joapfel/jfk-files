@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3817.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td rowspan="2">FORM 8-63</td><td>610</td></tr><tr><td>USE PREVIOUS EDITIONS</td></tr></table>
 

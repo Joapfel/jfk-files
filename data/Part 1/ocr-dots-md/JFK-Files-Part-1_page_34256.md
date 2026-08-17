@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34256.png
-
-Convert to Markdownboletín informativo
+boletín informativo
 
 UN SERVICIO DE PRENSA DEL
 MOVIMIENTO UNIDAD REVOLUCIONARIA (U.R.)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6514.png
-
-Convert to Markdown13-00000
+13-00000
 
 this entirety, in order that the People's Government of Cuba have the options.
 

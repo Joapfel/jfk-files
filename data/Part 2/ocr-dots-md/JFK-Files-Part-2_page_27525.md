@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27525.png
-
-Convert to MarkdownISRAEL, Sonny
+ISRAEL, Sonny
 
 Name of Employee
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33668.png
-
-Convert to MarkdownSECRET
+SECRET
 
 To the foregoing he received the following reply:
 

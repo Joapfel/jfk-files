@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22729.png
-
-Convert to Markdown19
+19
 
 in the Soviet intelligence, five people, Philby being one.
 

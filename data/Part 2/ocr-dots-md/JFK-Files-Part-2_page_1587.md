@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1587.png
-
-Convert to Markdown<table><thead><tr><th>DISPATCH</th></tr></thead><tbody><tr><td>To Chief, Finance Division<br/>Chief, P</td><td>A20328</td></tr><tr><td>FROM Chief of Station, Leopolandille</td><td>DATED 27 JULY 1961</td></tr><tr><td>REF. VIROQUE<br/>Finance/VIROQUE<br/>Reference of Accountability to Dept. 8, Kayseri</td><td>MARRED FOR INCOING<br/>NO INCOING RECEIVED<br/>DROPPING CAN BE ADDED BY QUALIFIED NO. DECK ONLY</td></tr><tr><td colspan="2">ACTION DUE<br/>Credit Account Amount</td></tr><tr><td>LIE-1573<br/>LIE-163<br/>LIE-4927</td><td>NIB-4928<br/>LIEP-1599<br/>NIB-00712</td></tr></tbody></table>
+<table><thead><tr><th>DISPATCH</th></tr></thead><tbody><tr><td>To Chief, Finance Division<br/>Chief, P</td><td>A20328</td></tr><tr><td>FROM Chief of Station, Leopolandille</td><td>DATED 27 JULY 1961</td></tr><tr><td>REF. VIROQUE<br/>Finance/VIROQUE<br/>Reference of Accountability to Dept. 8, Kayseri</td><td>MARRED FOR INCOING<br/>NO INCOING RECEIVED<br/>DROPPING CAN BE ADDED BY QUALIFIED NO. DECK ONLY</td></tr><tr><td colspan="2">ACTION DUE<br/>Credit Account Amount</td></tr><tr><td>LIE-1573<br/>LIE-163<br/>LIE-4927</td><td>NIB-4928<br/>LIEP-1599<br/>NIB-00712</td></tr></tbody></table>
 
 1. On 7 July 1961 VIRGUNT was advanced the sum of U. S. $1,100.00 for living expenses in Greenville while auditing current transportation to PHILIP. (NIB-4928 requested VIRGUNT return to PHILIP). This is his only outstanding advance with Greenville station. Receipt attached hereto.
 

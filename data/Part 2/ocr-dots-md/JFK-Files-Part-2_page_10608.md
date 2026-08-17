@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10608.png
-
-Convert to MarkdownDate of Mail 6/16/75
+Date of Mail 6/16/75
 
 Has been removed and placed in the Special File Room of Records Section.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15038.png
-
-Convert to MarkdownMemo for the record
+Memo for the record
 
 --- WIROGUE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19810.png
-
-Convert to MarkdownNR '010 WF CODED
+NR '010 WF CODED
 
 5:49 PM NITEL 2-7-72 ASW
 

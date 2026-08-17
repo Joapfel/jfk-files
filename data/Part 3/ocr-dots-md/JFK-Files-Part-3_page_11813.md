@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11813.png
-
-Convert to Markdown# ADEQUACY OF PERSONNEL
+# ADEQUACY OF PERSONNEL
 
 seven Special Agents. The greatest majority of our double agent cases are assigned in these Units and these are among the most complex investigations. The operation of a double agent requires minute supervision to insure that the objectives of the investigation are achieved. The Soviet Unit - Washington also supervises two illegal agent cases, and the Soviet Unit - New York has the overall supervision of the Ironclad source.
 

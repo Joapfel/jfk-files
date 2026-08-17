@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2391.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 (SDS) during the Columbia University riots, the turmoil at San Francisco State College, and participation in the student unrest at the University of California at Berkeley California.
 

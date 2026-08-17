@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19448.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 SPECIAL FUNDS BRANCH
 
 1946 OCT 24 11 14

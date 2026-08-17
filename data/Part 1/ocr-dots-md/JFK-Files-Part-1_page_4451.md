@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4451.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 CONTROLLABLE DISK
 
 Cuba

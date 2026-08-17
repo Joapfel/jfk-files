@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24216.png
-
-Convert to Markdownwere all rejected because merger with another supplemental was
+were all rejected because merger with another supplemental was
 not an acceptable solution and the apparent conflict of interest
 was too great.
 

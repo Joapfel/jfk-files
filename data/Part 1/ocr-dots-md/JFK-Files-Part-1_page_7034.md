@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7034.png
-
-Convert to MarkdownSECRET
+SECRET
 
 J. GOLITZYN (AELADLE). Note that Mr. Osborne and Dr. Charles Bohrer both agreed that AELADLE be added to the watch list (memos attached). Both Mr. Friedlander and I sharply disagreed with this viewpoint. Mr. [Shaffer] requested that I check it out with Mr. Angleton. Mr. Angleton later emphatically concurred with withholding AELADLE's name from the list. I passed this to Mr. [Shaffer] later in the day.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13833.png
-
-Convert to MarkdownSECRET
+SECRET
 
 them by making away their food, but then all the members of the group went on a hunger strike in protest. Discipline then appears generally to have broken down, the trainees got their way but were no longer motivated to study. The source and most other members of his group left Cuba and arrived in Prague on 23 December. At his first opportunity, he left Czechoslovakia and reported his experiences to officials in a West European country.
 

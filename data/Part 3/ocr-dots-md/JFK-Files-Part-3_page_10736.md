@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10736.png
-
-Convert to MarkdownROBERT LEE DAVIDSON, JR., is a racial informant of the Atlanta Office. He was formerly Imperial Wizard of first U. S. Klans. Nights of the Ku Klux Klan, Inc., and later of United Klans. He is presently not a member of any Klan group; however, he has considerable influence and contacts among many of the members of United Klans.
+ROBERT LEE DAVIDSON, JR., is a racial informant of the Atlanta Office. He was formerly Imperial Wizard of first U. S. Klans. Nights of the Ku Klux Klan, Inc., and later of United Klans. He is presently not a member of any Klan group; however, he has considerable influence and contacts among many of the members of United Klans.
 
 This situation appears to offer an opportunity to capitalize upon the personal conflict of two Klan leaders. We propose the following action:
 

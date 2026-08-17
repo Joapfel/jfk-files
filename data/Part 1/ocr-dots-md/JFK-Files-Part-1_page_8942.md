@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8942.png
-
-Convert to MarkdownACTION: C/WH 5
+ACTION: C/WH 5
 
 INFO : ADDP, C/CA 2, C/C1, S/C 2
 

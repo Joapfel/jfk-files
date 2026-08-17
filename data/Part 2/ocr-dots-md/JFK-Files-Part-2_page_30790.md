@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30790.png
-
-Convert to Markdown180-10145-10239
+180-10145-10239
 
 THIS COPY IS NOT
 FOR RELEASE,

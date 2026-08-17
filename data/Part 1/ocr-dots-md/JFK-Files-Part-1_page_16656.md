@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16656.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Field Distribution:
 (1 copy each)

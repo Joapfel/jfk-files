@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4710.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: Yes.
 

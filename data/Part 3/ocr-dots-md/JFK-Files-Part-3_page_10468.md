@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10468.png
-
-Convert to MarkdownNFW 88608
+NFW 88608
 
 A111 3.5.. 4.. P.R. J. F. H. D.
 

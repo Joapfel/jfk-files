@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14205.png
-
-Convert to Markdown(3) In what way, if any, do the Presidential directives discussed in Parts I and II provide a legal basis for the FBI's continuing counterintelligence efforts against hostile foreign intelligence services?
+(3) In what way, if any, do the Presidential directives discussed in Parts I and II provide a legal basis for the FBI's continuing counterintelligence efforts against hostile foreign intelligence services?
 
 4. Appendix S includes excerpts from the appropriations testimony of former Director Hoover. The testimony in 1939 and 1941 makes reference to President Roosevelt's Proclamation of National Emergency, September 8, 1939. The following exchange took place at the hearing on February 19, 1941:
 

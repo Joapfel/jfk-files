@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35170.png
-
-Convert to Markdown# STATEMENT OF EXPENSES
+# STATEMENT OF EXPENSES
 
 (Continues page No.4)
 

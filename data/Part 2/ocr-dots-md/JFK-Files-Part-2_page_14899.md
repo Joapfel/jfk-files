@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14899.png
-
-Convert to Markdowncharged by information with the interstate transportaion of Taylor's automobile. Spears waived indictment and entered a plea of guilty. His bond was continued at $35,000, and February 15, 1960, was set as the date for sentencing.
+charged by information with the interstate transportaion of Taylor's automobile. Spears waived indictment and entered a plea of guilty. His bond was continued at $35,000, and February 15, 1960, was set as the date for sentencing.
 
 Physical evidence from the crash is extremely sparse. Since the examination of the limited physical material found did not indicate an explosion or the reason for the crash, it was hoped that the plane could be located in the Gulf. If the plane could be found and examined, it might reveal some definite physical evidence of the cause of the crash, particularly if a bomb was involved. On January 28, 1960, salvage operations were begun by the Navy in the Gulf of Mexico after sonar contact had located an object which was thought to be the plane. On February 5, 1960, however, the Navy discontinued salvage operations without locating the downed aircraft.
 

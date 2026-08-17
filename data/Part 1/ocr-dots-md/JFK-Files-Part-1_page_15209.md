@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15209.png
-
-Convert to Markdown(brother Achille)
+(brother Achille)
 Mr. A. De Panash ket Architecte
 I bis, Avenue Bellevue (Lablache ) GAP
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23486.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>VICE PRESIDENT NIXON, DOUGLAS DILLON, H. SHELTON (CIA), MR. LAY</td><td>April 14, 1960</td><td>TRUJILLO</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>VICE PRESIDENT NIXON, DOUGLAS DILLON, H. SHELTON (CIA), MR. LAY</td><td>April 14, 1960</td><td>TRUJILLO</td></tr></tbody></table>
 
 <table><thead><tr><th>OCCURRENCE:</th><th colspan="2">On April 14, 1960 at a National Security Council meeting Mr. Dulles reported that a SR. Betancourt /no relation to Venezuelan leader/ had defected from Cuba and predicted three outcomes with respect to Castro: (1) an assassination that would make Castro a martyr, (2) Castro's suicide as a result of the failure of the Cuban experiment and (3) a trend to a socialist dictatorship and a Batista terror regime.</th></tr></thead><tbody><tr><td>SOURCE: Presidential Papers of Dwight Eisenhower (Whiteman File) (NSC meeting series, 441 st meeting, April 14, 1960)</td><td colspan="2">STAFF: Kelley<br/>DATE: July 6, 1975</td></tr><tr><td>FILE: - Abilene</td><td colspan="2"></td></tr></tbody></table>
 

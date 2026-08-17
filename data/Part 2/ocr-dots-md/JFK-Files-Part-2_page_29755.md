@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29755.png
-
-Convert to MarkdownClassification: IUP SECRET
+Classification: IUP SECRET
 
 (This form is to be used for material extracted from CIA-controlled documents.)
 

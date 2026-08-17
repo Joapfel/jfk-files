@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_196.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CONFIRMATION OF DISPATCH -2-
 

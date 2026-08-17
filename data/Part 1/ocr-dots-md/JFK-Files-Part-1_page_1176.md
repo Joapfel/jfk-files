@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1176.png
-
-Convert to MarkdownReinaldo PICO Ramon - formerly AMICE-31 (201-284658)
+Reinaldo PICO Ramon - formerly AMICE-31 (201-284658)
 
 POA granted 14 October 1960 as PM asset. Member
 2506 Brigade, captured Bay of Pigs. Member of Prisoners

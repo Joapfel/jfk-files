@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22532.png
-
-Convert to MarkdownSECRET-ENES ONLY
+SECRET-ENES ONLY
 
 refused to abidicate, consideration should be given to other covert or overt actions designed to effect his removal from the scene." A deadline of 1 July was proposed for completing arrangements.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7204.png
-
-Convert to Markdown1945 phone book lists
+1945 phone book lists
 
 Federico VERELLAN
 Vialezzio 520

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5559.png
-
-Convert to MarkdownUNITED-STATES GOVERNMENT
+UNITED-STATES GOVERNMENT
 Memorandum
 
 TO : Director, FBI (65-67003)

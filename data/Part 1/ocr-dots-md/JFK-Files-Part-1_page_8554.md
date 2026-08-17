@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8554.png
-
-Convert to Markdownusually influential. & agreed with LOG and expected LOG to tell him that he would pay for the visiting of Chinese restaurants, but LOG kept quiet.
+usually influential. & agreed with LOG and expected LOG to tell him that he would pay for the visiting of Chinese restaurants, but LOG kept quiet.
 
 9. S had no intention to skip the talk about money and he told him that the publishing of the article about Kat China may end in a blind alley if TANG does not supply at least a half a page of advertising. LOG did not want that to happen and he told S that he (LOG) would give him MN 1,000.- if the printing of the article should be held because of lack of advertising. S brought to LOG's attention that half of page of advertising brings to Pierre (RUDIAN) 1,500.- pesos. LOG felt that he would pay that money as a price of keeping the door open to the Chinese Emb for S. To put some coating on the pill S added that he would try to obtain an add or two from Chinese restaurants, but he doubted that the owners would be interested in advertising in a magazine which is far from being well known. Just the idea that S contemplated going to Chinese restaurants pleased LOG's ear.
 

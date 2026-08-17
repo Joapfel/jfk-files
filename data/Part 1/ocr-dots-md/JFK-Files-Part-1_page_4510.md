@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4510.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO : Deputy Assistant Secretary for Security
 Department of State

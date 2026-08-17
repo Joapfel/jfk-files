@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2470.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 PROCESS SHEET FOR DOMESTIC CONTACT SERVICE COLLECTIONS

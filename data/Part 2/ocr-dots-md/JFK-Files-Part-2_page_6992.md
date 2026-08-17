@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6992.png
-
-Convert to Markdownentrenched interests, and especially Hoover's FBI was sort of a wonder to
+entrenched interests, and especially Hoover's FBI was sort of a wonder to
 behold. You dealt with it very gingerly. So it's a great -- and the FBI had
 not been second-guessed since Hoover became director. This was the first time.
 And you can't underestimate what that meant in terms of the difficulties it

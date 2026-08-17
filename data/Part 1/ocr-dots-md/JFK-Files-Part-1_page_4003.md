@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4003.png
-
-Convert to MarkdownW/C 65-238
+W/C 65-238
 
 8 June 1965
 

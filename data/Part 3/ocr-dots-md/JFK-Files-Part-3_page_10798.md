@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10798.png
-
-Convert to MarkdownIntelligence is designated as Chairman of this Board and in this capacity is distinguished from the Director of the Central Intelligence Agency. A more complete discussion with regard to the Bureau's role in this over-all setup is set forth hereinafter under the caption "FBI Relations With the United States Intelligence Board."
+Intelligence is designated as Chairman of this Board and in this capacity is distinguished from the Director of the Central Intelligence Agency. A more complete discussion with regard to the Bureau's role in this over-all setup is set forth hereinafter under the caption "FBI Relations With the United States Intelligence Board."
 
 National Security Council Intelligence Directive No. 1, originally issued 12/12/47, defines the various types of intelligence in Section 4.
 

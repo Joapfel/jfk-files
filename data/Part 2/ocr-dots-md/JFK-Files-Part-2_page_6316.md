@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6316.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 1400.4 Types of materials included in scope of assassination record and additional records and information.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8550.png
-
-Convert to Markdownother to appear so his (S) own fear from the mere possibility that something
+other to appear so his (S) own fear from the mere possibility that something
 might go wrong and he would have nowhere to turn to. F told him that
 going to TANG ONLY in connection with the matter of publishing the article
 could do him no harm; denying having contact with LOG recently is not

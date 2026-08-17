@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11297.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE UNIT
 
 21:05 PM

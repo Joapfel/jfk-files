@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32824.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">FAIRBRINI/G. HUNT/-bo</td>
    </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14021.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td> CABLE SECRETARIAT DISSEMINATION </td>
     <td> LAMED MESSAGE </td>

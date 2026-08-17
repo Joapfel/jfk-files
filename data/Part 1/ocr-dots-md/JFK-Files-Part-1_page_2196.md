@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2196.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>20381</td>
     <td>4/15/97</td>

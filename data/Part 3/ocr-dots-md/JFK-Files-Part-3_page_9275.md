@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9275.png
-
-Convert to Markdown(Additions, questions)
+(Additions, questions)
 
 ITEM I.
 

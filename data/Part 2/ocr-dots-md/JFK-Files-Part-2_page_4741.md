@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4741.png
-
-Convert to MarkdownSECRET
+SECRET
 
 President's approval, Eisenhower's approval, and all the things that we did through the then 5412 Committee, and the papers on that were clear, and all the cable traffic was clear, that they figured there was no way they were going to pin that on CIA as a CIA operation because that was again, State, CIA and Defense all working as a team. We were carrying the main load at that level, but everybody was involved. No question. And all the record was there, so I guess they couldn't use that as a Rogue Elephant operation. The reason they hit the MONGODB one, I think, was because, Cuba being Cuba, the assassination efforts and that kind of stuff, they had to keep it back.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10296.png
-
-Convert to MarkdownSubject: ITRING/3 to contact with LIRING Office.
+Subject: ITRING/3 to contact with LIRING Office.
 
 1. Durin the period 4-15 November, 1968, Rowton met with LIRING/3 on four occasions to debrief him on his activities. LIRING/3 agreed with Rowton that there were several phases to his renewed operational activity that needed careful planning and co-ordination. He commented on these as follows:
 

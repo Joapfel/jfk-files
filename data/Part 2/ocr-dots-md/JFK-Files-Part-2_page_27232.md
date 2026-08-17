@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27232.png
-
-Convert to MarkdownB-G-G (II-N)
+B-G-G (II-N)
 
 A - Ltr from Belin to Mark Lane - 30 Apr 75 w/attachments
 

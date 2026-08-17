@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14536.png
-
-Convert to MarkdownMrs. Concepción CAMACHO de MATOS calls RUIZ. NILDA asks if she is the same person who called the other day and said she was the widow of... (MATOS). The woman says 'yes' and NILDA tells her: "Look Miss, you're playing a very dangerous game."
+Mrs. Concepción CAMACHO de MATOS calls RUIZ. NILDA asks if she is the same person who called the other day and said she was the widow of... (MATOS). The woman says 'yes' and NILDA tells her: "Look Miss, you're playing a very dangerous game."
 
 MATOS: I don't know what you mean, miss.
 

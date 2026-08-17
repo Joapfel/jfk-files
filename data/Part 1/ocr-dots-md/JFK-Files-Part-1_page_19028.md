@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19028.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The participation by national figures reflected a feeling in Bonn that this state election, the last before the 1969 federal election, might influence national politics. The analogy to the federal scene was pointed up by the existence in Baden-Wuerttemberg of a coalition of Christian Democrats and Social Democrats, similar to that in Bonn.
 

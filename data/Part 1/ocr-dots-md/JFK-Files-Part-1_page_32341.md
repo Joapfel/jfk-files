@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32341.png
-
-Convert to MarkdownSECTION C continued.....
+SECTION C continued.....
 
 A comment must be made on Subject's great ability to adjust rapidly to one-time and target of opportunity assignments. His performance in meeting with two high level agents of other stations who had to be met during stays in Peru, and his on-site assistance in an audio operation against a priority target have been of the highest order. No doubt his fluent Spanish greatly assisted him in those tasks, but his experience and good judgment were major factors in his excellent performance in the role of utility operations officer.
 

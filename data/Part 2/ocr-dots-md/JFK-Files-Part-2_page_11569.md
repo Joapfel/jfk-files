@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11569.png
-
-Convert to Markdown(c) Subjects tabbed for detcom
+(c) Subjects tabbed for detcom
 
 Security index card shall continue to be tabbed for prior-
 ity apprehension in new office of origin until such time

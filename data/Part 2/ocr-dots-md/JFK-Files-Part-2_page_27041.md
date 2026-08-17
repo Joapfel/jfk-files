@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27041.png
-
-Convert to Markdown# 9. AFRICAN DIVISION
+# 9. AFRICAN DIVISION
 
 Principal liaison officer with CI/SOG (1967-1973)
 

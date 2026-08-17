@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6227.png
-
-Convert to MarkdownSince 25 May 1956 Mr. Hunter Leake had seen SHAW casually, by chance, in various downtown New Orleans restaurants, and greetings were exchanged. The last such casual encounter was just before SHAW's retirement in 1955.
+Since 25 May 1956 Mr. Hunter Leake had seen SHAW casually, by chance, in various downtown New Orleans restaurants, and greetings were exchanged. The last such casual encounter was just before SHAW's retirement in 1955.
 
 9. On 7 March 1967 Pravda published an article called "Clay Shaw of the CIA" datalined Rome, 6 March 1967, written by V. YERMAKOV. The article charged that CIA made use of the services of Clay SHAW for CIA's own interests in Italy. The Pravda piece notes that the DA in New Orleans is accusing SHAW of participation in the assassination conspiracy. It says SHAW spent "some years" in Rome as a World Trade Center leader. It claims that the Center was a cover for financing anti-Communist activity. CIA gave directives to SHAW. The World Trade Center was a branch of "Permidax" (sic), "which the newspapers in Switzerland openly accused of 'criminal operations'...." (Comments: It appears that all of the Pravda charges are untrue, except that there was a CIA-SHAW relationship. So far as is known, SHAW was never asked to use his relationship with the World Trade Center for clandestine purposes and, in fact, he has not been in Italy.)
 

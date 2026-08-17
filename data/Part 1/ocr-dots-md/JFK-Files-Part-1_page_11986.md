@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11986.png
-
-Convert to Markdown"Pack!" he yells. In half a second he is all the way across the room. "Pack!" Branch sits up straight in bed and in the most plaintive voice Rothchild has ever heard him use, a mixture of recognition, terror, disappointment, confusion and pleading, says just one word: "Ricardo?"
+"Pack!" he yells. In half a second he is all the way across the room. "Pack!" Branch sits up straight in bed and in the most plaintive voice Rothchild has ever heard him use, a mixture of recognition, terror, disappointment, confusion and pleading, says just one word: "Ricardo?"
 
 It is Morales all right. Branch watches him snatch back the curtains to check the balcony, then dart around the chairs. "Pack!" There is a rhythm to his order. He is moving like a cat, frenzied but in total control. Rothchild feels the energy coming off him in waves. He slips into the bathroom to piss just to get away from Morales, but he is so scared that nothing comes.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20092.png
-
-Convert to MarkdownTHE JETANNETTE RANKIN BRIGADE
+THE JETANNETTE RANKIN BRIGADE
 520 North Michigan Avenue
 Chicago, Illinois 60611
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22120.png
-
-Convert to Markdownd. The Bulgaria TDY and the LUNT Case
+d. The Bulgaria TDY and the LUNT Case
 
 In the spring of 1961, four months after returning from
 Cuba, NOSENKO was sent on temporary assignment for about a

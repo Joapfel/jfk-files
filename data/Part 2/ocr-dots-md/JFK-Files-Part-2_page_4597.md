@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4597.png
-
-Convert to MarkdownC. Maintaining pertinent file information on FRD personnel;
+C. Maintaining pertinent file information on FRD personnel;
 
 D. Maintaining physical security of FRD installations;
 

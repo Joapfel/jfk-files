@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20529.png
-
-Convert to MarkdownWFO 100-54927
+WFO 100-54927
 
 In box:
 File No. CHICAGO

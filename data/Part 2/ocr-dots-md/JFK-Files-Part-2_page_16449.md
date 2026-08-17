@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16449.png
-
-Convert to Markdownb. three main rules of discipline (Red Book)
+b. three main rules of discipline (Red Book)
 c. eight points of attention
 
 2. Chain of Command

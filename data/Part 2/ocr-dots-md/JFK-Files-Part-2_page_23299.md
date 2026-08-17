@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23299.png
-
-Convert to Markdown10/30/78 9:45PM
+10/30/78 9:45PM
 
 1
 2

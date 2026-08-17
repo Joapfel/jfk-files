@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5932.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>SECRET</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO:</td><td colspan="2">Chief of Station, JMBAVE</td><td>X NO ORDER REQUIRED</td></tr><tr><td>INFO.</td><td colspan="3"></td></tr><tr><td>FROM:</td><td colspan="3">Chief, WHD</td></tr><tr><td>SUBJECT:</td><td colspan="3">TYPIC/OPERATIONAL<br>D Headquarters traces</td></tr><tr><td>ACTION REQUIRED · REFERENCES</td><td colspan="3"></td></tr><tr><td>ACTION REQUIRED:</td><td colspan="3">FYI</td></tr><tr><td>REFERENCE:</td><td colspan="3">UFGA-24799</td></tr></tbody></table>
 

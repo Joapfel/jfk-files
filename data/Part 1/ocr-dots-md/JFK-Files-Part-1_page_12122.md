@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12122.png
-
-Convert to MarkdownSubject, along with other Soviets who were known GRU officers, met GANIN on his visit to Mexico.
+Subject, along with other Soviets who were known GRU officers, met GANIN on his visit to Mexico.
 
 4. Sergey Semenovich KUKHARENKO (201-260831), chief of the Soviet information Bulletin in Mexico from October 1962 to August 1964, suspect KGB. Subject and KUKHARENKO were the best of friends for a time, but then KUKHARENKO began drinking too much and getting into various scrapes. Subject frequently commiserated with KUKHARENKO's wife over her husband's drinking, automobile accidents, money problems. Subject occasionally used KUKHARENKO's car.
 

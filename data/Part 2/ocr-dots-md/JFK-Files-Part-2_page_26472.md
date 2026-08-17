@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26472.png
-
-Convert to MarkdownSECRET
+SECRET
 
 been unable to establish any Cuban connection, as in
 the case of the 139 guerrillas tried in Venezuela

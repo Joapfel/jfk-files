@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2929.png
-
-Convert to Markdown1 lives, there might be something that is relevant. I would say
+1 lives, there might be something that is relevant. I would say
 2 ordinarily it's not. And so far as political views, yes, I
 3 think that this could be, if he is espousing some cause or
 4 some view that advocates violence or the overthrow of the

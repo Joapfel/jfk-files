@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27238.png
-
-Convert to MarkdownB-G-G (II-T)
+B-G-G (II-T)
 
 A - Memo from Buchen to Belin - 24 Mar 75 w/attachment.
 

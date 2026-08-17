@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_960.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG:</td><td>A. SHATTON: jg</td></tr><tr><td>UNIT:</td><td>SAS/DOB</td></tr><tr><td>EXT:</td><td>6153</td></tr><tr><td>DATE:</td><td>14 DEC. 63</td></tr></table>
 

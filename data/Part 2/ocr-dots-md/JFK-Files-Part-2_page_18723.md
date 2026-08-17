@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18723.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FD-36 (Rev. 12-13-56)</td>
     <td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7369.png
-
-Convert to MarkdownQ: Who else was assigned to this squad? Was there a man named Harding?
+Q: Who else was assigned to this squad? Was there a man named Harding?
 
 A: Yes.
 

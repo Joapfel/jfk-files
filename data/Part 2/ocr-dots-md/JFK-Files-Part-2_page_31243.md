@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31243.png
-
-Convert to MarkdownSECRET
+SECRET
 
 23 June 1965 Headquarters sent code
 Kenney contact, 'impy proof put endine

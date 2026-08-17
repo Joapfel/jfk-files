@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7970.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16. Speech by Norman Mailer. This was beyond a doubt, the most striking presentation during the Friday morning session. Mailer spoke briefly and left the conference shortly after the speech.
 

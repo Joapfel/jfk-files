@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20312.png
-
-Convert to MarkdownRIOGRAPHIC INFORMATION
+RIOGRAPHIC INFORMATION
 
 Name: Balboa N. MIDALGO, Jr.
 Grade: GS-11

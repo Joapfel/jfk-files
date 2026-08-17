@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26431.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>SECRET</td><td>ROUTING</td></tr><tr><td>1</td><td>Mexico</td><td>4</td></tr><tr><td>2</td><td>Louisville</td><td>3</td></tr><tr><td>3</td><td>Fresno</td><td>6</td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>SECRET</td><td>ROUTING</td></tr><tr><td>1</td><td>Mexico</td><td>4</td></tr><tr><td>2</td><td>Louisville</td><td>3</td></tr><tr><td>3</td><td>Fresno</td><td>6</td></tr></table>
 
 TO: DIRECTOR
 

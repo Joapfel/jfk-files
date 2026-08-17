@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7243.png
-
-Convert to Markdown(D) To review current procedures for intercommunity coordination and cooperation and to recommend steps to improve these procedures.
+(D) To review current procedures for intercommunity coordination and cooperation and to recommend steps to improve these procedures.
 
 (E) To evaluate the timeliness of current intelligence data and to recommend procedures to increase both its timeliness and usefulness.
 

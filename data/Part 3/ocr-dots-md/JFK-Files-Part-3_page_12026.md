@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12026.png
-
-Convert to Markdown# Communist Influence of Racial Groups
+# Communist Influence of Racial Groups
 
 100-442529
 

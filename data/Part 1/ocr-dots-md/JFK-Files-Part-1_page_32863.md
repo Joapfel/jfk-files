@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32863.png
-
-Convert to MarkdownGuillermo - Cuando creas mas debiles, cuando estaban tan aislados, no podían sentir, en cambio el que lolo abora tenGO una fe absoluta (?). Es una situacion dificil y que perspectivamente, no se, qulza tu entre en analisis perspectivo de lo que tu hagas.
+Guillermo - Cuando creas mas debiles, cuando estaban tan aislados, no podían sentir, en cambio el que lolo abora tenGO una fe absoluta (?). Es una situacion dificil y que perspectivamente, no se, qulza tu entre en analisis perspectivo de lo que tu hagas.
 
 Eugel - Hay una cosa que es la siguiente, estaba anallanando la situacion. Desde el punto de vista de los, esta bien; ahora el punto de vista mio es el siguiente: yo no soy comunista, por lo tanto .... en Cuba.... las ideas..
 

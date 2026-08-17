@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5654.png
-
-Convert to Markdown10/8/1996
+10/8/1996
 
 America Online: Dick Kovar
 

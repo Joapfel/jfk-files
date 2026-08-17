@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29817.png
-
-Convert to MarkdownS - you must have had some guess or something
+S - you must have had some guess or something
 
 D - no, it was just you know, I thought it was very odd that he would never give me his phone number or things like that and well impression of other things, everything seemed very odd to me
 

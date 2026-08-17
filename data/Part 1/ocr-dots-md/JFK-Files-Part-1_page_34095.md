@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34095.png
-
-Convert to MarkdownAtt. #3 UFGA-26348
+Att. #3 UFGA-26348
 
 economic intelligence service
 

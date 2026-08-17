@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14522.png
-
-Convert to MarkdownThis material contains information affecting the National Defense of the United States including the mapping of the Pacific Ocean. Its primary purpose is to contain all information that may be useful to an unauthorized person to be prepared by law.
+This material contains information affecting the National Defense of the United States including the mapping of the Pacific Ocean. Its primary purpose is to contain all information that may be useful to an unauthorized person to be prepared by law.
 
 NO FOREIGN DISSEM/CONTROLLED DISSEM
 

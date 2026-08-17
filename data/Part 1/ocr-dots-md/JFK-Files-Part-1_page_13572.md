@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13572.png
-
-Convert to MarkdownMemorandum for the Record
+Memorandum for the Record
 
 Subject: Rogelio RODRIGUEZ Lopez
 

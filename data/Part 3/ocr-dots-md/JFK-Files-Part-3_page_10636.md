@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10636.png
-
-Convert to MarkdownNATIONAL STATES RIGHTS PARTY (NSRP)
+NATIONAL STATES RIGHTS PARTY (NSRP)
 00:21
 
 The NSRP in NYC is operated by WILLIAM HOFFER, 277 N.assa St., Brooklyn, NY, self-identified as the NY State Director of the NSRP. This is a one man organization in NYC with no membership other than HOFF who utilizes P.O. Box 1243, CPB, Brooklyn 1, NY, as his NSRP mailing address. Because of this there are no meetings of this organization in NYC.

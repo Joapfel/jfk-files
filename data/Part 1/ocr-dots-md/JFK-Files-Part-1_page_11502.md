@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11502.png
-
-Convert to MarkdownGuatemala, 28 April, 1969
+Guatemala, 28 April, 1969
 
 Dear LIRING-1:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_360.png
-
-Convert to MarkdownDistribution:
+Distribution:
 
 Orig & I - Adsc
 

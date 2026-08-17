@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10213.png
-
-Convert to Markdown10 December, 1968
+10 December, 1968
 
 Subject: LIRING/3 Report of Contact with Humberto González Vega.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3056.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the project and the office of the DDP
 ... In point of fact, such restrictive

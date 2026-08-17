@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31944.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 <table><tr><td colspan="2">EMP. SERIAL NO.</td><td>NAME</td></tr><tr><td>525658</td><td colspan="2">PICCOLO JOSEPH S</td></tr><tr><td colspan="2">OLD SALARY RATE</td><td>NEW SALARY RATE</td></tr><tr><td>GRADE</td><td>STEP</td><td>SALARY</td><td>LAST EFFECTIVE DATE</td><td>GRADE</td><td>STEP</td><td>SALARY</td><td>EFFECTIVE DATE</td></tr><tr><td>4</td><td>1</td><td>$3,415</td><td>02</td><td>04</td><td>57</td><td>4</td><td>2</td><td>$3,500</td><td>02</td><td>09</td><td>58</td></tr></table>

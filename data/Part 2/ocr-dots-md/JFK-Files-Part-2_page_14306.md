@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14306.png
-
-Convert to MarkdownNR002 AX CODED
+NR002 AX CODED
 
 10:10PM NITEL 5/21/75 VAN
 

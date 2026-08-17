@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13116.png
-
-Convert to MarkdownCG 100-44963
+CG 100-44963
 
 As the Bureau is aware, Chicago is in receipt of information from confidential sources indicating a potential for demonstration arising out of the "New Left" calling for direct confrontation with the Chicago Police Department as a diversionary tactic for a "crash-in" at the convention site. Sources have also reported independent action on the part of individuals to cause some form of "sabotage" activity inside the convention itself. Information received from confidential informants in other divisions indicates attempts on the part of dissident young people not organizationally affiliated with the "New Left", to hire 50 buses out of New York to bring demonstrators to Chicago and a caravan of militant Latin Americans to come from the Miami, Florida area to Chicago for the specific purpose of disrupting the Democratic National Convention.
 

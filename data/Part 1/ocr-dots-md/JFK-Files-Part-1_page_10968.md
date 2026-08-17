@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10968.png
-
-Convert to MarkdownTranslation of a post card from Kira KOSOVSKA to LITAMIL-9. Kira is the wife of Anguel KOSOVSKI, who was a Second Secretary in the Bulgarian Embassy in Havana as of October 1965. They are now back in Sofia, Bulgaria. The card was mailed from Bulgaria to Cuba.
+Translation of a post card from Kira KOSOVSKA to LITAMIL-9. Kira is the wife of Anguel KOSOVSKI, who was a Second Secretary in the Bulgarian Embassy in Havana as of October 1965. They are now back in Sofia, Bulgaria. The card was mailed from Bulgaria to Cuba.
 
 Good morning, Luis! How are you? We are well. We frequently think of Havana and of our friends (I - of a "bored" man too). After the Black Sea we spent one week in Sofia, and the following week we relaxed at the Radio Sofia tourist house (before leaving for Cuba I worked for Radio Sofia), located on the Vitusha, near Sofia. The Bulgarians call this mountain "lungs of the capital". It's a very lovely place. Living in cities, we frequently forget simple pleasures lying deep in the grass and looking at the sky, listening to the silence. Isn't that true? On Vitosha (sic) we remembered all that. We are now in Sofia, preparing to continue our tour through the mountains. I like to walk a lot, and now I have the opportunity. We plan to climb the highest peak in Bulgaria -- Musala (2925 meters). It isn't difficult -- it's not very high. What a good country Bulgaria is, but in my opinion she lacks contemplative men. Yes, yes, that's true. They are all too practical. Until later, Luis!
 

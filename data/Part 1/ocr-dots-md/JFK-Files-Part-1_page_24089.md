@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24089.png
-
-Convert to Markdown1050
+1050
 
 NEGRO PRESS INTERNATIONAL INC.
 

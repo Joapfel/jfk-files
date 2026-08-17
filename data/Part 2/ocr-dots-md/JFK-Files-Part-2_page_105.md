@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_105.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td>MARKED FOR INDEXING</td></tr><tr><td>TO<br/>Chief, Domestic Operations</td><td>XXX NO INDEXING REQUIRED</td></tr><tr><td>INFO</td><td>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>FROM<br/>Chief of Base, New York</td><td>MICROFILM</td></tr></tbody></table>
 

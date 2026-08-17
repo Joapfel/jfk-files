@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30210.png
-
-Convert to MarkdownR.W. White
+R.W. White
 
 23 September 1954
 

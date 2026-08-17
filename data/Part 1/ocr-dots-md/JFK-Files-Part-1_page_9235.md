@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9235.png
-
-Convert to MarkdownDec. 10, 1953
+Dec. 10, 1953
 
 Dear Boris,
 

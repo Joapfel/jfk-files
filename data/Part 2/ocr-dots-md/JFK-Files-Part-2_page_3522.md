@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3522.png
-
-Convert to MarkdownTOP SECRET DINAR
+TOP SECRET DINAR
 
 SOVIET BLOC RELATIONS - cont'd
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21837.png
-
-Convert to MarkdownC. Evaluation of Sourcing 675
+C. Evaluation of Sourcing 675
 
 1. Introduction 675
 

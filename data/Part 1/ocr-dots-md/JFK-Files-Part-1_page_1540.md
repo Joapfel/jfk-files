@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1540.png
-
-Convert to MarkdownSECRET
+SECRET
 
 usual. On the other hand, his prior association with the Agency
 could jeopardize PDLADLE if drafting the Deed of Trust exposes

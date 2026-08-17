@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10834.png
-
-Convert to Markdown# Paris y que ahora perdida a los once cuarenta años, y la informe que hicieron a Caliaco Gorda en la zona de Santiago".
+# Paris y que ahora perdida a los once cuarenta años, y la informe que hicieron a Caliaco Gorda en la zona de Santiago".
 
 ## ELECCIONES. Para el día 23 de Marzo los Contadores Públicos y Privados (le) efectuaron comicios para elegir nuevos Directivos. En su local social del 1542 Vient Flagler St. Votación de 9 a.m. a 4 p.m. Comité Electoral Integrado como Presidente Francisco Roaldez, Secretario, Francisco Torrez.
 

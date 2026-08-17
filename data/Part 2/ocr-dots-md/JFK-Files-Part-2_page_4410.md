@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4410.png
-
-Convert to Markdown13-0000
+13-0000
 
 TUESDA
 3

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10315.png
-
-Convert to Markdown2.
+2.
 
 trying to locate LIRING/3. The child then informed that L/3, her father, was at that very moment upstair in her home. Rowton asked her to ask her father to come to the shore as soon as possible. After a few minutes delay, L/3 came to the phone and talked directly to Rowton.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8592.png
-
-Convert to MarkdownTab D
+Tab D
 
 ITEMS REFERRED TO OTHER COMPONENTS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14349.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16 JUL 1975
 

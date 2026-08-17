@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17586.png
-
-Convert to Markdown<table><thead><tr><th>REFERENCE(S)</th></tr></thead><tbody><tr><td>REF: HDM-W-6820, 24 Sept. 1959</td></tr></tbody></table>
+<table><thead><tr><th>REFERENCE(S)</th></tr></thead><tbody><tr><td>REF: HDM-W-6820, 24 Sept. 1959</td></tr></tbody></table>
 
 1. There is attached a Review of Project LIFEAR for the period 1 July 1958 to 30 June 1959.
 

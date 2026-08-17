@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1787.png
-
-Convert to Markdown<table><tr><td></td><td></td></tr></table>
+<table><tr><td></td><td></td></tr></table>
 
 PERMIT AN INTERVIEW BETWEEN MEMBERS OF THE STAFF OF THE SELECT COMMITTEE AND APPROPRIATE OFFICIALS WHO PARTICIPATED IN THE INVESTIGATION MENTIONED IN BLAKEY'S LETTER AND ADVISE US. DO NOT VOLUME
 

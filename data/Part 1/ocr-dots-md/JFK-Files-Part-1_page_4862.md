@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4862.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="4"> 17/17222 FEB 76 INTEL </td>
     <td> CITE CARACAS 29118 </td>

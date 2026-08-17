@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1873.png
-
-Convert to Markdown8 May 1963
+8 May 1963
 
 MEMORANDUM FOR: Chief, Technical Services Division
 

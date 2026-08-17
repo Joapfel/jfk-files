@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18579.png
-
-Convert to MarkdownCompartmented
+Compartmented
 Clearance
 
 | Name | Designated Briefed (SI, TK, B) | Date and Place of Birth | Social Security No. |

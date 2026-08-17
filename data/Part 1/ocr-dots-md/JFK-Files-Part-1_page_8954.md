@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8954.png
-
-Convert to Markdown1750
+1750
 
 John H. Whitten:Jz
 UNIT : CHU/3/Mexico

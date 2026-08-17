@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7261.png
-
-Convert to Markdownto Subj's being inside the Soviet Union. Subj said that personally he had no great desire to go to the Soviet Union, on three counts: 1) the climate; 2) "he is pleasant and beautiful" (as is also buying that if he was out of race with the Soviets they wouldn't put out the red carpet for him as they did previously); and 3) he was plain afraid.
+to Subj's being inside the Soviet Union. Subj said that personally he had no great desire to go to the Soviet Union, on three counts: 1) the climate; 2) "he is pleasant and beautiful" (as is also buying that if he was out of race with the Soviets they wouldn't put out the red carpet for him as they did previously); and 3) he was plain afraid.
 
 The latter was immediately touched some hidden spring in Subj. Heretofore Subj had limited access to calling the Soviets "bentards" etc., and anti-semitic. Now, Subj chided himself for doing so little to alleviate the lot of the Jews in the Soviet Union. He declared that the Soviet Union was the worst offender against the Jews, because they were eliminating the race, not through physical extermination, but through forcing assimilation. His own view was that the Soviets were more dangerous to the Jews and Israel than were the Arabs, for instance Lebanon or Jordan, who if it weren't for fear of Nasser would make their peace with Israel.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12783.png
-
-Convert to Markdown(c) Other security index subjects
+(c) Other security index subjects
 
 I. Closed
 

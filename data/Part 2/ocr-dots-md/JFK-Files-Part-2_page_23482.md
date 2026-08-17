@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23482.png
-
-Convert to Markdownwas done and a comprehensive program of suggested action was drawn up, it should be submitted to the Special Group, and if the Group recommended approval it should probably then be discussed with him. It was stipulated that in any case no action should take place until his return from the trip on which he is about to embark.
+was done and a comprehensive program of suggested action was drawn up, it should be submitted to the Special Group, and if the Group recommended approval it should probably then be discussed with him. It was stipulated that in any case no action should take place until his return from the trip on which he is about to embark.
 
 Mr. Scott also reported later that Mr. Herter had made exactly the same point as outlined in b. above.)
 

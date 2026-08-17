@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13648.png
-
-Convert to Markdown14-09000
+14-09000
 
 il distingue di te la madre
 che ne le sote che son

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34253.png
-
-Convert to Markdown2-8 THE MIAMI HERALD
+2-8 THE MIAMI HERALD
 
 Friday, Dec. 31, 1965
 

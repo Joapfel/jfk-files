@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7288.png
-
-Convert to MarkdownVII. AN ORIENTATION BRIEFING WILL BE PROVIDED ALL MEMBERS AND STAFF, PRIOR TO DEPARTURE.
+VII. AN ORIENTATION BRIEFING WILL BE PROVIDED ALL MEMBERS AND STAFF, PRIOR TO DEPARTURE.
 
 This briefing will be conducted by the DCI and other representatives of the Intelligence Community (CIA, NSA, DIA, State, etc.), as appropriate. The purpose of this briefing is to familiarize the visitor with the types of activities conducted at each location, the restraints which are imposed upon U.S. activities in each case and the considerations which preclude the discussion of operational details, names and terms in an overseas environment.
 

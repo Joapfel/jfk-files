@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9596.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 Las Vegas, Nevada
 where the "Captains" will be JACK DOYLE and

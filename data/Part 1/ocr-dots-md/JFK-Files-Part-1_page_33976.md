@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33976.png
-
-Convert to MarkdownDIOS
+DIOS
 PATRIA
 LIBERTAD
 

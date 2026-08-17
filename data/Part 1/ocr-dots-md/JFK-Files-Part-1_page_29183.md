@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29183.png
-
-Convert to Markdown<table><tr><td colspan="2">Give this card to the APPOINTMENT CLERK at the PHYS OUTPATIENT CLINIC 4th and C Streets SW. EL 8100 Ext B228 (in Codes 1/6)</td></tr><tr><td>1.</td><td>Charlotte L. Zehrung</td></tr><tr><td>2.</td><td>Statistical Draftsman</td></tr></table>
+<table><tr><td colspan="2">Give this card to the APPOINTMENT CLERK at the PHYS OUTPATIENT CLINIC 4th and C Streets SW. EL 8100 Ext B228 (in Codes 1/6)</td></tr><tr><td>1.</td><td>Charlotte L. Zehrung</td></tr><tr><td>2.</td><td>Statistical Draftsman</td></tr></table>
 
 3. DATE OF BIRTH 1/29/29 HAS AN APPOINTMENT ON __________ AT ______ A.M.<br/>AT THE SERVICE CHECKED BELOW. (Date) __________ P.M.<br/>(Time)
 

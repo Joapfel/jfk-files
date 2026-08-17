@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5936.png
-
-Convert to Markdownw. Incoming cable #36017 from Mexico City dated
+w. Incoming cable #36017 from Mexico City dated
 9 October 1963
 
 x. Outgoing cable #74830 to Mexico City dated

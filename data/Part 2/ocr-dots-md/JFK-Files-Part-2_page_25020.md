@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25020.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 record of the meeting that I attended that I referred to earlier. The dates that were given in this affidavit were supplied to me on the basis that it was shortly after his visit. So they looked up when his visit was, and that is why they put this in. All I recall of the place and date is that when I saw him off at the airport it was very hot. So it must have been the summer, July or August.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11820.png
-
-Convert to MarkdownChinese Unit consists of three Special Agents, one Secretary (Stenography), and three Clerks (GS-4).
+Chinese Unit consists of three Special Agents, one Secretary (Stenography), and three Clerks (GS-4).
 
 Middle and South American Unit consists of three Special Agents, one Secretary (Stenography), and three Clerks (GS-4).
 

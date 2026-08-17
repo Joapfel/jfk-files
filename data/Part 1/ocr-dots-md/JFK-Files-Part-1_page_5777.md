@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_5777.png
-
 in a physician's office if she persists in trying.
 
 # M. ACTIONS PLANNED OR REQUIRED - RECOMMENDATIONS:

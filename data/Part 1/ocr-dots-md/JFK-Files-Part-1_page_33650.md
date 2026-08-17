@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_33650.png
-
 Herr Dr. Whippersnapper finally said he had
 turned full responsibility over to a Foreign Office
 official, a Win. Ir. Strohm whom Frits knows. Frits then

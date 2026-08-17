@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17037.png
-
-Convert to MarkdownChicago on 3/1/70 enroute to Canada. CALVIN met them at O'Hare International Airport, stayed with them about one hour and they departed Chicago for Toronto on United Airline Flight number 649 at about 8:30 a.m. on 3/1/70 after a one hour lay over. CALVIN related that during the hour conversation nothing specific was discussed as one female with him was not a Panther. CLAVIN stated that they did not leave the airport or make any contact with anyone else.
+Chicago on 3/1/70 enroute to Canada. CALVIN met them at O'Hare International Airport, stayed with them about one hour and they departed Chicago for Toronto on United Airline Flight number 649 at about 8:30 a.m. on 3/1/70 after a one hour lay over. CALVIN related that during the hour conversation nothing specific was discussed as one female with him was not a Panther. CLAVIN stated that they did not leave the airport or make any contact with anyone else.
 
 3/2/70 ROBERT CAMPBELL, ROGER MOODY, RALPH BOSTICK
 

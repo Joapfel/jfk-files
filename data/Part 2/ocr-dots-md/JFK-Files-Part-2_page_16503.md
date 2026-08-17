@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16503.png
-
-Convert to MarkdownRULE NO. 5. "No party member will USE, POINT, or FIRE a weapon of any kind unnecessarily or accidently at anyone. (Violation of this rule will result in EXPULSION)
+RULE NO. 5. "No party member will USE, POINT, or FIRE a weapon of any kind unnecessarily or accidently at anyone. (Violation of this rule will result in EXPULSION)
 
 RULE NO. 8. "No party member will commit any crimes against other party members or BLACK people at all, and cannot steal or take from the people, not even a needle or a piece of thread. (Violation of this rule will result in EXPULSION)
 

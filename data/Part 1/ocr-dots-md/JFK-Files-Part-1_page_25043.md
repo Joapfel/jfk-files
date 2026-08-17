@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25043.png
-
-Convert to Markdown<table><tr><td>UNIT:<br/>EXT:<br/>DATE:</td><td>WH/1 3E04<br/>6954/9041<br/>15 October 1969</td></tr></table>
+<table><tr><td>UNIT:<br/>EXT:<br/>DATE:</td><td>WH/1 3E04<br/>6954/9041<br/>15 October 1969</td></tr></table>
 
 <table><tbody><tr><td rowspan="4">[SECRET]</td><td>[2]</td><td>[6]</td></tr><tr><td>[3]</td><td>[7]</td></tr><tr><td>[4]</td><td>[8]</td></tr></tbody></table>
 

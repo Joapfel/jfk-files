@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10341.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="2">SECRETariat Dissemination</th>

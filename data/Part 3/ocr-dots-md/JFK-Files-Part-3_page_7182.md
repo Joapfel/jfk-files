@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_7182.png
-
 s
 
 7. designated by it or its chairman or the ranking minority

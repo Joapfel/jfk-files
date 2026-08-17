@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3046.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 was in it, to what extent he was not in
 it. Therefore, from time to time, he

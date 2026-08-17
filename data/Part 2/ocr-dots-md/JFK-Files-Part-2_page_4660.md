@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4660.png
-
-Convert to MarkdownSECRET
+SECRET
 
 who later became the Washington Post guy. Pincus and Paul (I am trying to
 remember what the first name of Paul was) but we always regarded them Pincus

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24069.png
-
-Convert to Markdown-22-
+-22-
 
 strongly opposed the regimes of Castro and Trujillo, the accession to power of Allende, and the potential influence of Patrice Lumumba. Orders concerning action against those foreign leaders were given in vigorous language. For example, President Nixon's orders to prevent Allende from assuming power left Helms feeling that "if I ever carried a marshall's baton in my knapsack out of the oval office, it was that day." Similarly, General Lansdale described the Mongoose effort against Cuba as "a combat situation", and Attorney General Kennedy emphasized that "a solution to the Cuban problem today carries top priority". Helms testified that the pressure to "get rid of [Castro and the Castro regime]" was intense, and Bissell testified that he had been ordered to "get off your ass about Cuba".
 

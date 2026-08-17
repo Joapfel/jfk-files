@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5088.png
-
-Convert to Markdown# "The bus has left with the dogs": How they blew up the Cuban plane
+# "The bus has left with the dogs": How they blew up the Cuban plane
 
 The following account of the bombing of the Cubana Airline jet is based on secret Venezuelan court documents. Most of the information comes from the confessions, since repudiated, of the men charged with the crime.
 

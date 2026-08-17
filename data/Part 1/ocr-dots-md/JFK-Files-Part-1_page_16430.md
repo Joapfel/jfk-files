@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16430.png
-
-Convert to MarkdownSTREET
+STREET
 
 j) Clarification can be made for the Jones - (3)
 ① Plant name

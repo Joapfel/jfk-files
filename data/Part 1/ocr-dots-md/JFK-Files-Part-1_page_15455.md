@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15455.png
-
-Convert to MarkdownG: R. Bouchard
+G: R. Bouchard
 NIT : AF/N/1
 T : 4559
 DATE : 20-Dec-61

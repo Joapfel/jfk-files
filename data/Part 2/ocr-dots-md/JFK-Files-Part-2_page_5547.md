@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5547.png
-
-Convert to Markdown6 October 1997
+6 October 1997
 
 Note To: DO
 

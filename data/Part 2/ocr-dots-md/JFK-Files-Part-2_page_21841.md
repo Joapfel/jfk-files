@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21841.png
-
-Convert to MarkdownThe next day, Allen Dulles personally signed a cable* to the Leopoldville [Chief of] Station which stressed the urgency of "removing" Lumumba:
+The next day, Allen Dulles personally signed a cable* to the Leopoldville [Chief of] Station which stressed the urgency of "removing" Lumumba:
 
 IN HIGH QUARTERS** HERE IT IS THE CLEAR-
 CUT CONCLUSION THAT IF LLL [LUMUMBA] CON-

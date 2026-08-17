@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35281.png
-
-Convert to Markdown# ANALYSIS OF DEPOSITS FOR EXPENSES OUT OF THE $81,500.00 Budget for the Month of JULY, 1962
+# ANALYSIS OF DEPOSITS FOR EXPENSES OUT OF THE $81,500.00 Budget for the Month of JULY, 1962
 
 Annex "I" : Delegations (Special) $ 5,400.00
 Annex "II" : Propaganda 20,000.00

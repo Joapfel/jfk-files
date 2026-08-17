@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8710.png
-
-Convert to Markdownknow that he wanted to be naturalized, but the man hasn't confessed.
+know that he wanted to be naturalized, but the man hasn't confessed.
 
 **CALLER**: Says the reason may be they are trying to find out something about the man, because...
 

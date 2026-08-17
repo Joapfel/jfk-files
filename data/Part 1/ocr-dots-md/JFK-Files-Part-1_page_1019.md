@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1019.png
-
-Convert to Markdown14-00000 MC WILLIE, Lewis J
+14-00000 MC WILLIE, Lewis J
 
 1. HSCA REQUEST, 9 NOV 77 (OLC #77-4894)
 

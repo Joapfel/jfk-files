@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13658.png
-
-Convert to Markdown2 - Mr. S. F. Phillips
+2 - Mr. S. F. Phillips
 
 June 12, 1975
 

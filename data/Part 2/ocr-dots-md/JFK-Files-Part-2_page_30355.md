@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30355.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 during the time of his stay?
 

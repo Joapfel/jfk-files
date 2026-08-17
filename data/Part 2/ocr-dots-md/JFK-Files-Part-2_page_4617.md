@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4617.png
-
-Convert to MarkdownHe gave two examples of this. One was the fact that the Mexican Government security liaison contact on the case was the current President of Mexico. He said, and Mr. Wallach agreed, this was obviously a matter which had to be protected. The second case was the Mexican Government penetration of the Cuban Embassy. Again Mr. Wallach agreed.
+He gave two examples of this. One was the fact that the Mexican Government security liaison contact on the case was the current President of Mexico. He said, and Mr. Wallach agreed, this was obviously a matter which had to be protected. The second case was the Mexican Government penetration of the Cuban Embassy. Again Mr. Wallach agreed.
 
 Chief, CI - Mr. Kalaris then suggested that the answer might very well be for the Senate Committee review officers to work with the original file with the exception of those particularly sensitive items which would either be sterilized or summarized. Mr. Kalaris added that to establish the sensitivity of these items he would be willing for the sterilizations/summarizations to be spot checked against the originals by the Senate reviewers.
 

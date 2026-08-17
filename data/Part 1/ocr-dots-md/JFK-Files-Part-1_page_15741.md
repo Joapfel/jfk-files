@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15741.png
-
-Convert to Markdown4. Experience in Forged Documents:
+4. Experience in Forged Documents:
 
 May 1942 Achen, - Berlin - Falsified his own travel documents by use of pen to change effective dates.
 

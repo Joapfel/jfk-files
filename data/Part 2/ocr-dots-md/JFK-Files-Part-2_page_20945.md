@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20945.png
-
-Convert to MarkdownBS 100-44951
+BS 100-44951
 
 Boston file 100-38735 entitled "EVAN PATCHEN DELLINGER, aka PATCH DELLINGER; SM - ANARCHIST (BUFILE 100-450988)" reflected that DELLINGER was subject of Boston investigation based on his participation in a "Teach-In" and Rededication Service on 1/29/68 at the Arlington St. Church, Boston. During the above activity, DELLINGER made a statement in support of the "Resistance Group" and turned in what was reported to be Selective Service cards.
 

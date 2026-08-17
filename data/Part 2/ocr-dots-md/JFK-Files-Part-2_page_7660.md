@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7660.png
-
-Convert to Markdownference in the Department files to the alleged letter from any Department of Justice official to Chief Curry nor any reference that an FBI official was asked to request the Dallas police not to arrest Oswald or Ruby. A letter is being sent to the Commission today setting forth this information.
+ference in the Department files to the alleged letter from any Department of Justice official to Chief Curry nor any reference that an FBI official was asked to request the Dallas police not to arrest Oswald or Ruby. A letter is being sent to the Commission today setting forth this information.
 
 Representative FORD. The point that I think ought to be made is that despite the magnitude of the effort that has been made by the FBI and by other agencies, and despite the tremendous effort that has been made, I believe, by the Commission to help and assist and to consolidate all of the evidence that we possibly could, that there is always the possibility at some future date that some evidence might come to the surface.
 

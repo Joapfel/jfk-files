@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30896.png
-
-Convert to MarkdownMEMORANDUM FOR: Chairman, Clandestine Service Agent Panel
+MEMORANDUM FOR: Chairman, Clandestine Service Agent Panel
 
 SUBJECT : Promotion Review of Career Agents
 

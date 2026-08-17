@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5305.png
-
-Convert to Markdown## WARNING !
+## WARNING !
 NOT FOR RELEASE
 
 This photograph may be protected by Copyright and related laws and is therefore limited to OFFICIAL USE ONLY. Its use or release in unauthorised documents may require a copyright owner be quenched only by the Co-Vir-tron which can be quenched by the user to permit examination. Owners are warned that unauthorized use of this photograph can compromise the source of this document.

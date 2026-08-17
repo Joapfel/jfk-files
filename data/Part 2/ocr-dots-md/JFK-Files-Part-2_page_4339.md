@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4339.png
-
-Convert to MarkdownTHURSDAY
+THURSDAY
 
 <table>
    <thead>

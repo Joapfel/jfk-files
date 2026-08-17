@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25845.png
-
-Convert to MarkdownRocca said that additional research in CI was conducted by David Murphy and Bagley, Chief and Deputy Chief of CI/SB. Rocca said that Lee Wigren and Virginia Valpi were also involved in Soviet R&A.
+Rocca said that additional research in CI was conducted by David Murphy and Bagley, Chief and Deputy Chief of CI/SB. Rocca said that Lee Wigren and Virginia Valpi were also involved in Soviet R&A.
 
 10. Rockefeller Commission Inquiry
 

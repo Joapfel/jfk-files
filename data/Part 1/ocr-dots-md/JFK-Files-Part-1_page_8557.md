@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8557.png
-
-Convert to Markdown#7 continued
+#7 continued
 
 Subject believes that NECHIPORENKO is very intelligent. He speaks the best Spanish of any of the Soviets known to Subject and due to this facility as well as his looks, can pass for a Mexican. Subject believes that NECHIPORENKO was given the task of cultivating and attempting to re-recruit him after LOGINOV failed. Subject had some interesting comments about LOGINOV (P-11,712) which seem to jive with other comments which have been made about him. LOGINOV had apparently originally been given the task of re-recruiting Subject. When he failed, he felt rebuffed and has since been very cool towards Subject. Subject believes that LOGINOV either has or thinks he has been given bad marks by his superiors for having failed with Subject. LOGINOV is probably jealous or NECHIPORENKO who has at least managed to retain Subject's friendship. Subject says that LOGINOV is not dumb and that he uses his good looks to great advantage particularly with women.
 

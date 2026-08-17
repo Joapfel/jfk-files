@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3911.png
-
-Convert to MarkdownEXTRACT
+EXTRACT
 
 U.S. DEFECTOR MACHINE LISTING - JULY 1973
 

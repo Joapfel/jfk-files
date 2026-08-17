@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13798.png
-
-Convert to MarkdownSECRET
+SECRET
 
 USIA RADIO BROADCASTING TO LATIN AMERICA
 

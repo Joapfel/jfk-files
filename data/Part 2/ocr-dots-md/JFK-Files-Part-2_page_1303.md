@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1303.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td colspan="2"> (Give complete current address, including street and number ) </td>

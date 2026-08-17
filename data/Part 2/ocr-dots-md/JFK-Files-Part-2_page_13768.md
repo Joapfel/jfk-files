@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13768.png
-
-Convert to MarkdownMemorandum for Mr. Adams
+Memorandum for Mr. Adams
 
 RE: SENSTUDY 75
 

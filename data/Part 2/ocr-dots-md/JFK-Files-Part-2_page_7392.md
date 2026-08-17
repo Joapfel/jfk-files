@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7392.png
-
-Convert to MarkdownCOMMITTEE ON APPROPRIATIONS
+COMMITTEE ON APPROPRIATIONS
 
 House of Representatives
 (95th Congress, 1st Session)

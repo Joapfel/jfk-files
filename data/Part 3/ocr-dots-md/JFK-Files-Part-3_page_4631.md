@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4631.png
-
-Convert to Markdown4-22a (Ref. 8-23-57)
+4-22a (Ref. 8-23-57)
 
 NUMEROUS REFERENC
 

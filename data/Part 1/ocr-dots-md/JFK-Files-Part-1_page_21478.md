@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21478.png
-
-Convert to MarkdownСОША. ДОМНА Н. А. ОСТРОВСКОГО
+СОША. ДОМНА Н. А. ОСТРОВСКОГО
 
 Ку導 France / Франция
 Paris XII

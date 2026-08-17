@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15368.png
-
-Convert to MarkdownDispatch No. UAFA-0099
+Dispatch No. UAFA-0099
 
 Date:
 

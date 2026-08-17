@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6681.png
-
-Convert to Markdown# Issues
+# Issues
 
 The following issues are among those which are raised by the FBI mail opening programs and the FBI's cooperation in CIA's New York intercept project:
 

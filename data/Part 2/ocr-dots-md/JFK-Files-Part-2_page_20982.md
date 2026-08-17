@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20982.png
-
-Convert to Markdown**Memorandum to Mr. W. R. Wannall**
+**Memorandum to Mr. W. R. Wannall**
 
 Re: Senstudy 75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5968.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OUTING AND RECORD SHEET
 

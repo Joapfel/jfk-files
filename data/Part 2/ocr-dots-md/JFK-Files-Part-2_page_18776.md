@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18776.png
-
-Convert to MarkdownMemorandum for Mr. Belmont
+Memorandum for Mr. Belmont
 RE: SAMUEL ADASON JAFFE, aka.
 105-28333
 

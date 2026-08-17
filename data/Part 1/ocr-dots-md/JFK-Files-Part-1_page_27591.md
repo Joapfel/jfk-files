@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27591.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 PERSONNEL QUALIFICATION QUESTIONNAIRE

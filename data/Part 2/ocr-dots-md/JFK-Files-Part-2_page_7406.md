@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7406.png
-
-Convert to Markdownwide) which have been specifically established to deal with the collection vs. analysis problem. Impacts and changes brought about or anticipated within DO as a result of these groups' actions should be covered.
+wide) which have been specifically established to deal with the collection vs. analysis problem. Impacts and changes brought about or anticipated within DO as a result of these groups' actions should be covered.
 
 5. Management Policies and Practices of Each DO Staff and Division, (a separate briefing by each) including but not limited to:
 

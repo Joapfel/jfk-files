@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21670.png
-
-Convert to Markdowncase officer. In this way, according to NOSENKO, no one below the rank of Deputy Chief was aware of the total microphone "take" from the United States Embassy as received by the section.
+case officer. In this way, according to NOSENKO, no one below the rank of Deputy Chief was aware of the total microphone "take" from the United States Embassy as received by the section.
 
 As regards political type information, and according to NOSENKO this was considered the most important by the KGB and OTU, NOSENKO had no responsibility for review or ultimate dissemination of the information to the Chief, SCD, the Chairman, KCI, or the Central Committee since this was the responsibility of a unit in the office of the Chief, SCD.
 

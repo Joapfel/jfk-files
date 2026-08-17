@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23549.png
-
-Convert to MarkdownDRAFT RECORD OF ACTIONS
+DRAFT RECORD OF ACTIONS
 
 483rd NSC Meeting
 (5/5/61)

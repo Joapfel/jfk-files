@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25656.png
-
-Convert to MarkdownBraden was then commuting between New Orleans and Beverly Hills, with the approval of his Parole Board. Braden was working as a representative of his Mafia friend Roger Bauman, the oil speculator. Braden worked out of Room 1701, which was the office of his associate, Victor Main, Jr., an oil geologist. This was just a short way down the hall from David Ferrie in Room 1707.
+Braden was then commuting between New Orleans and Beverly Hills, with the approval of his Parole Board. Braden was working as a representative of his Mafia friend Roger Bauman, the oil speculator. Braden worked out of Room 1701, which was the office of his associate, Victor Main, Jr., an oil geologist. This was just a short way down the hall from David Ferrie in Room 1707.
 
 Interestingly, in one visit to his Parole Office, Braden "mistakenly" told his Parole Officer that he was working out of Room 1706 - which would have been the room next door to Ferrie - instead of Room 1701.
 

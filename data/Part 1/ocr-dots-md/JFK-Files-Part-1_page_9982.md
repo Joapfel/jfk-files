@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9982.png
-
-Convert to Markdown3.
+3.
 
 commercial cover plans and activities and his past connections with FAR. L/3 promised to meet with Jacobo the following morning and press him for contact with the FAR. In the meantime Acuña continued to foreign ignorance of the arrest of Crozco (which took place about 10:00 on 1 August, 1967).
 

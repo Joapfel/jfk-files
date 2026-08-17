@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26664.png
-
-Convert to Markdown10 JUN 65 M 87724
+10 JUN 65 M 87724
 
 SECRET 102237Z
 DIR CITE NEXI 3762

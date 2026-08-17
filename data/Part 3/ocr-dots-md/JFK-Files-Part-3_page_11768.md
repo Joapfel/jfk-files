@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11768.png
-
-Convert to MarkdownMemorandum to Mr. Tolson
+Memorandum to Mr. Tolson
 
 Re: Proposed Transfer of Supervisory Responsibility
 For Certain Cases From General Investigative Division

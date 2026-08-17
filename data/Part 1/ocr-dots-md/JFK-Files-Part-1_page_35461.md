@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35461.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (2) Commando action as outlined in plan presented
 to me on 6 October.

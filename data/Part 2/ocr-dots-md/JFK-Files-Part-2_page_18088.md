@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18088.png
-
-Convert to MarkdownHonorable Hubert H. Humphrey
+Honorable Hubert H. Humphrey
 
 NOTE:
 

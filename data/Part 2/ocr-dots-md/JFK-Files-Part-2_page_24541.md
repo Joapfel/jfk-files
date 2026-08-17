@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24541.png
-
-Convert to Markdownb. Helms' Testimony That He Had No Direct Order to Assassinate Castro and Did Not Inform the President or the Special Group of the Assassination Activity
+b. Helms' Testimony That He Had No Direct Order to Assassinate Castro and Did Not Inform the President or the Special Group of the Assassination Activity
 
 Helms testified that there was no direct order to assassinate Castro.
 

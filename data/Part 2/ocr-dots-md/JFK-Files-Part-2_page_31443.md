@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31443.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/rev
 
 The Subject attended a PW bazaar through the period

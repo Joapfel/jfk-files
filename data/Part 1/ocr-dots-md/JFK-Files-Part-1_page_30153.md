@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30153.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>BRANCH</th><th></th><th>FROM—<br>YEAR</th><th>MONTH</th><th>DAY</th><th>TO—<br>YEAR</th><th>MONTH</th><th>DAY</th><th>DISCHARGE<br>( hyp or dshon?)</th></tr></thead><tbody><tr><td>Army</td><td></td><td>1941</td><td>May</td><td>1941</td><td>Mar</td><td>1942</td><td>May</td><td>Hon.</td></tr><tr><td>Army</td><td></td><td>1946</td><td>Nov</td><td>1946</td><td>Oct</td><td>1947</td><td>Nov</td><td>Hon.</td></tr><tr><td>Army</td><td></td><td>1958</td><td>Jan</td><td>1958</td><td>Sep</td><td>1958</td><td>Mar</td><td>Hon.</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9208.png
-
-Convert to MarkdownDE T-6 is DAVID COHEN, Partner in the C.C.C. Management Company.
+DE T-6 is DAVID COHEN, Partner in the C.C.C. Management Company.
 
 DE T-7 is Lieutenant JOHN VAN HAAREN, Tactical Reconnaissance Unit, Detroit Police Department.
 

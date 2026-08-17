@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23963.png
-
-Convert to Markdowntheir opposition, to the revolutionary progressive labor group and
+their opposition, to the revolutionary progressive labor group and
 to the POC, Provisional Organizing Committee for a new Marxist-
 Leninist party which was an old pro-Albanian group. Progressive
 Labor is of course a split-off/the Communist party and split off because

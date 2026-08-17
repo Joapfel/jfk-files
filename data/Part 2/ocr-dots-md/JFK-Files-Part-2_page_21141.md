@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21141.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 contact. She was also an interpreter for the [Forrestal] group.
 

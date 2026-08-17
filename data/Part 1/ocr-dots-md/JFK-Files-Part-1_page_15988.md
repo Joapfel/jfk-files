@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15988.png
-
-Convert to MarkdownGarden of Eve!
+Garden of Eve!
 
 Eve Arden Offers A Toast - To Life! To Life! at Polynesian Gardens
 

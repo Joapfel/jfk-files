@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25663.png
-
-Convert to MarkdownRICHARD L. THORNBURGH
+RICHARD L. THORNBURGH
 RE: JKF ASSASSINATION
 
 January 21, 1977

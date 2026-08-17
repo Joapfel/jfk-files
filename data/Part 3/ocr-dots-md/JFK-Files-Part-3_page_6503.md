@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6503.png
-
-Convert to Markdown4:07 PM
+4:07 PM
 
 March 1, 1965
 

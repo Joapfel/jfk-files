@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26790.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th></th><th>MESSAGE FORM 79</th><th>ROUTING</th></tr></thead><tbody><tr><td>ORIG:</td><td>E HALLIWELL</td><td></td></tr><tr><td>UNIT:</td><td>WIL/1</td><td></td></tr><tr><td>EXT:</td><td>4523</td><td></td></tr><tr><td>DATE:</td><td>2 APRIL 1965</td><td></td></tr><tr><td colspan="3"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>☐ INDEX</td><td>27 SECRET</td></tr><tr><td>☐ NO INDEX</td><td>201-336474</td></tr><tr><td>☑ FILE IN CS FILE NO.</td><td>201-356372</td></tr></tbody></table></td></tr></tbody></table>
 

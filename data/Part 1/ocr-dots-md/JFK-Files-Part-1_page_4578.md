@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4578.png
-
-Convert to MarkdownFrancisco A. Bartes
+Francisco A. Bartes
 
 September 14,1920
 

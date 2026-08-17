@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19120.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>Fair value in the Insurance Business of $250,000 and about $7,000, and are classified as follows:</td>
     <td></td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25310.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 WALBRO, Enrique
 22-34-14

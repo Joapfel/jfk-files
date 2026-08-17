@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4366.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FROM: DD-1820
 ACENT: 31 March 1966

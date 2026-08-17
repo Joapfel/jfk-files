@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11938.png
-
-Convert to Markdownthe Student Government President and local police are
+the Student Government President and local police are
 prosecuting the student who burned the flag.
 
 A New York informant furnished the identities of black extremists who were scheduled to depart the U.S. for Al Fatah camp in the Middle East for possible guerrilla training.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24132.png
-
-Convert to Markdown# IV. A DESCRIPTION OF THE VARIOUS PROPRIETARIES
+# IV. A DESCRIPTION OF THE VARIOUS PROPRIETARIES
 
 The operational needs of the Agency have required it to venture forth into many areas where proprietaries were a perceived necessary vehicle. These areas have included air support, media publications, proprietary management (accounting and management), insurance (personal insurance coverage, annuity coverages, and escrow account maintenance for agent personnel), covert procurement (general merchandise, arms, ammunition and police related equipment), cover support (commercial cover, such as management consultant firms, importing companies, travel agencies, energy research organizations, behavior psychology companies), personnel services (tape transcription, personnel investigations for security clearances and approvals, public accounting firms, electoral and political analysis firm keyed into foreign elections), operational support (purchase of condominiums in foreign countries, sporting goods business in United States with sales in Latin America, various overseas foundations to provide grants, export/import firms, a company which holds a note for certain U.S. Government funds borrowed by a consortium of aluminum companies for the extraction of bauxite in Guinea to insure U.S. control of bauxite extraction activities in Guinea), and various other miscellaneous categories.
 

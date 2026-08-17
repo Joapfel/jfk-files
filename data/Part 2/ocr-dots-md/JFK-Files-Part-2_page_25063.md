@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25063.png
-
-Convert to Markdown✓4. Cuba
+✓4. Cuba
 
 The DCI summarized the progress we have made in establishing contact with certain dissident groups within Cuba. In this connection he also noted the apparent fulfillment of a sabotage requirement which had been levied on one of these groups as a test of its capabilities (after this action had been cleared with the Special Group).
 

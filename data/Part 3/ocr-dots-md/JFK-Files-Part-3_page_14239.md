@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14239.png
-
-Convert to Markdownbusiness, and he would join the Board meeting later in the day to report on that assessment. Also, Mr. Clifford noted, the Board meeting would later be joined by Dr. Tordella of NSA, Mr. Bannerman of CIA who chairs the USIB Security Committee, and Mr. Gentile who serves as Director of Security in the State Department.
+business, and he would join the Board meeting later in the day to report on that assessment. Also, Mr. Clifford noted, the Board meeting would later be joined by Dr. Tordella of NSA, Mr. Bannerman of CIA who chairs the USIB Security Committee, and Mr. Gentile who serves as Director of Security in the State Department.
 
 Mr. Coyne summarized for Board members the highlights of the discovery of the technical penetration of the Embassy in Moscow, with indications that the 41 microphones, the 3 coaxial cables, the wiring, and the fixed antenna in the wall, have all been in place since 1952 when the Soviet Union completed construction on the Embassy building in preparation for U. S. occupancy which took place in 1953.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7168.png
-
-Convert to MarkdownMemo Hauer to LaPrade
+Memo Hauer to LaPrade
 Re: Destruction of Files and Records
 
 Files and Communications Division

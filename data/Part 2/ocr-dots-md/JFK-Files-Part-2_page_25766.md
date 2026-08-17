@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25766.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 These recent developments have provided the upward political and psychological thrust Castro's regime badly needed. He now has a firmer base for his repeated claims that Cuba has survived the full brunt of a major United States effort-to destroy the Cuban revolution, claims likely to impress many Latin Americans as well as Cubans. In addition, Castro now has the possibility of producing some tangible evidence that his regime can restore forward momentum in the economy. Consequently, the general position of the Castro regime is much improved over that of three or four months ago.
 

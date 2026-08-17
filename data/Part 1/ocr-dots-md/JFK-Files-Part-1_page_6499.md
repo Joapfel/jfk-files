@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6499.png
-
-Convert to MarkdownSEC 624
+SEC 624
 
 NYOR CITE WA 37624
 

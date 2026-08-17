@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14566.png
-
-Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+# Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : A. H. Belmont
 FROM : S. B. Donahoe

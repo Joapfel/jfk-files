@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10541.png
-
-Convert to MarkdownD82 LEADING OF D35
+D82 LEADING OF D35
 MAR 25 7 12 PM '75
 
 TELETYPE UNIT LU

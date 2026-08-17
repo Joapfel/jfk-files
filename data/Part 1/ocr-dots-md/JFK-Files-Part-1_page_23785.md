@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23785.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief KURSK
 

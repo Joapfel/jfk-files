@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13143.png
-
-Convert to Markdown(continued 109-584-3949)
+(continued 109-584-3949)
 
 REFERENCE
 

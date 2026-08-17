@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8324.png
-
-Convert to Markdownb. On one occasion Nasmith personally gave Kelly $300 in dollars for an option on his books. Kelly signed a receipt for this. Kelly showed a signed copy of the receipt to the true author, stating that he could not divide the money with the author since, although he had signed the receipt, he had not received any money -- that Mr. Nasmith had forced him to sign the receipt so that Nasmith could steal the $300 for himself.
+b. On one occasion Nasmith personally gave Kelly $300 in dollars for an option on his books. Kelly signed a receipt for this. Kelly showed a signed copy of the receipt to the true author, stating that he could not divide the money with the author since, although he had signed the receipt, he had not received any money -- that Mr. Nasmith had forced him to sign the receipt so that Nasmith could steal the $300 for himself.
 
 c. Money given to Kelly specifically for the purpose of paying salaries to the members of his Committee was not turned over to the Committee in its entirety. Kelly stated on several occasions definitely that he no longer had any connections with Greek authorities. At the time he was making these statements he was observed by our people to be going into the Aliens Directorate, Radio Athens, and other official Greek residences. (Note: We were pleased to have Kelly maintain contact with Greek officials; we dislike only his lying about it.)
 

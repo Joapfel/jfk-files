@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21589.png
-
-Convert to Markdownalso mentioned in another section pertaining to the 1960-1961 career
+also mentioned in another section pertaining to the 1960-1961 career
 of NOSENKO. GOLITSYN stated that KOSOLAPOV came to Helsinki
 to accompany an American Embassy code clerk on the train to
 Moscow and that KOSOLAPOV planned to strike up an acquaintance

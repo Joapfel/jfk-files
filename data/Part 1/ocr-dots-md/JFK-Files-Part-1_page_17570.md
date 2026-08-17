@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17570.png
-
-Convert to Markdown-14-
+-14-
 
 3. LIFEUD-3, OA granted 14 December 1953, (201-117971) C-7952
 4. LIFEUD-4, OA granted 1 October 1953, (201-117743) C-6970.

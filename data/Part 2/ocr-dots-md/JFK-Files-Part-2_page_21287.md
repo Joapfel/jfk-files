@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21287.png
-
-Convert to MarkdownNY 65-22427
+NY 65-22427
 
 WILLIAM K. HARVEY
 

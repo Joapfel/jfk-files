@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30397.png
-
-Convert to Markdownenlighten you on it.
+enlighten you on it.
 
 Mr. Goldsmith. Does the CIA have any affiliation with organizations in the United States who might be responsible for debriefing someone?
 

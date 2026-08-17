@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3468.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 7. Also in the afternoon, the Deputy Director (Plans) read to the Panel a paper on Operation Mongoose which the Director had used earlier in the day for briefing the President. This paper was used on the instruction of the Director. The Panel asked questions about Agency activity involving Cuba, all of which were answered with the exception of one having to do with the role of the Attorney General. This query was raised by Mr. Gray who recognized and gracefully accepted the fact that he was not answered directly.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23173.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 and their point of contact frequently was Dave Phillips, but
 2 most of those fellows were dealing with propaganda distribution,

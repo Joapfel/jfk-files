@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20883.png
-
-Convert to MarkdownNR Ø05 WF PLAIN
+NR Ø05 WF PLAIN
 
 7:11PM NITEL 4-10-71 GEA
 

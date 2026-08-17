@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23713.png
-
-Convert to Markdownin the positive intelligence field.
+in the positive intelligence field.
 
 In fact, the resolution of the bona fides problem is a much smaller aspect of those two problems but the existence of the committee with some knowledge of the problem of counter-intelligence makes it possible to have a forum at the National Security Council level to address it.
 

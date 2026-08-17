@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9388.png
-
-Convert to Markdown12 July 1950
+12 July 1950
 
 NEW YORK FOR: Mural, Burtystad, Stribling, and Ragedale
 FROM : Charles Olmstead

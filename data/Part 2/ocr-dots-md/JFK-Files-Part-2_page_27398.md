@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27398.png
-
-Convert to MarkdownY - Project Cryptonym or Subj: HILINGUAL - 7 Nov 55-SECRET
+Y - Project Cryptonym or Subj: HILINGUAL - 7 Nov 55-SECRET
 
 Z - Budget Data - SECRET
 

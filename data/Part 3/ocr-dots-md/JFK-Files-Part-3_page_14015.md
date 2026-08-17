@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14015.png
-
-Convert to MarkdownNovember 22, 1963
+November 22, 1963
 
 The Board re-convened at 8:45 a.m. in executive session. Chairman Clifford announced that General Carroll had called to emphasize that during his remarks yesterday he did not intend to be critical of corrective measures taken by General Blake (Director of NSA) after the Dunlap case, rather, his criticisms were directed at the situation existing prior thereto.
 

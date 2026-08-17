@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16177.png
-
-Convert to Markdown3. The files of this Agency reflect that Robert ARMSTRONG and Chester ZOCHOWSKI are known to your Bureau and their involvement in this matter has been reported in previous correspondence to this Agency. Although the Bahamian Service reported ZOCHOWSKI's alias as "Chester GARY," it is believed that this refers to "Chester GRAY."
+3. The files of this Agency reflect that Robert ARMSTRONG and Chester ZOCHOWSKI are known to your Bureau and their involvement in this matter has been reported in previous correspondence to this Agency. Although the Bahamian Service reported ZOCHOWSKI's alias as "Chester GARY," it is believed that this refers to "Chester GRAY."
 
 4. The above information is being furnished to your Bureau for whatever action and further dissemi-nation you deem appropriate. The information, however, may not be discussed with any foreign nationals, including the British and the Bahamians.
 

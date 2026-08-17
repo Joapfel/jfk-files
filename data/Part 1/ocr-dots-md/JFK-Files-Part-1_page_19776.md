@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19776.png
-
-Convert to Markdown<table><tr><td colspan="5">O'CONNELL, James P.</td></tr><tr><td>CLASS NO.</td><td>S</td><td>M</td><td>JULY 21</td></tr><tr><td>DATE OF BIRTH</td><td>SECRET</td></tr></table>
+<table><tr><td colspan="5">O'CONNELL, James P.</td></tr><tr><td>CLASS NO.</td><td>S</td><td>M</td><td>JULY 21</td></tr><tr><td>DATE OF BIRTH</td><td>SECRET</td></tr></table>
 
 <table><thead><tr><th>COURSE</th><th>DATE ENTERED</th><th>DATE COMPLETED</th><th>REMARKS</th></tr></thead><tbody><tr><td>INTELLIGENCE ORIENTATION<br>(or equivalent)</td><td>19 Mar.</td><td>30 Mar. 1962</td><td>(1st two weeks only)</td></tr><tr><td>OPERATIONS SUPPORT<br>(or equivalent)</td><td>27 Apr.</td><td>20 Apr. 1952</td><td></td></tr><tr><td>DEPARTMENT FAMILIARIZATION<br>(or equivalent)</td><td></td><td></td><td></td></tr><tr><td>OPERATIONS</td><td></td><td></td><td></td></tr><tr><td>ADMINISTRATIVE PROCEDURES</td><td></td><td></td><td></td></tr><tr><td>MANAGEMENT</td><td>1 May</td><td>15 May 1955</td><td></td></tr><tr><td>SUPERVISION</td><td></td><td></td><td></td></tr><tr><td>ST. THULE UNIT</td><td>18 Nov.</td><td>21 Nov. 1952</td><td></td></tr></tbody></table>
 

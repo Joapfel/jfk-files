@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26467.png
-
-Convert to MarkdownF. COLE
+F. COLE
 AUC/WH/1
 6619
 

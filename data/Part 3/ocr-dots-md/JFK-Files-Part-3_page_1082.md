@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1082.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 On August 29, 1969, FBIHQ authorized the Milwaukee Division to anonymously mail copies of articles, furnished that office previously, from issues of the Black Panther Party's (BPP) newspaper, showing hatred of the white man by the black community as advocated by the BPP, to various churches and main offices of grocery stores which were involved or might become involved in contributing to the BPP's Breakfast For Children Program.
 

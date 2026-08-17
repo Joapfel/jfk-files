@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5656.png
-
-Convert to MarkdownSUBJECT: (U) Identity of Human Sources
+SUBJECT: (U) Identity of Human Sources
 
 assets to one-time contacts. It is our understanding that additional source names appear throughout the JFK Collection and will be reviewed in the future. It is important, therefore, that the Review Board and CIA agree on a consistent method of dealing with source names appearing in the JFK Collection at this time so as not to impede the future review of documents.
 

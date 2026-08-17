@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3419.png
-
-Convert to MarkdownORGANIZATION
+ORGANIZATION
 
 HR 1-11a
 

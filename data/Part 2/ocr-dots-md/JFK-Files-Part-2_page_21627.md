@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21627.png
-
-Convert to MarkdownIUP SECRET
+IUP SECRET
 
 carried out on October 19.
 

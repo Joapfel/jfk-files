@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6724.png
-
-Convert to MarkdownROUTE IN ENVELOPE
+ROUTE IN ENVELOPE
 
 MR. J. B. ADAMS
 MR. W. R. WANNALL

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11639.png
-
-Convert to MarkdownBy teletype to all offices dated 4/17/70, the field was advised of specific areas of investigations to be made against New Left terrorist groups and standards were set for investigations of communes. The field was also instructed to develop necessary informant coverage of these communes and groups so that advanced knowledge of planned violence could be obtained, preventive action initiated, and prosecution undertaken where possible.
+By teletype to all offices dated 4/17/70, the field was advised of specific areas of investigations to be made against New Left terrorist groups and standards were set for investigations of communes. The field was also instructed to develop necessary informant coverage of these communes and groups so that advanced knowledge of planned violence could be obtained, preventive action initiated, and prosecution undertaken where possible.
 
 By Bureau airtel to all offices dated 5/13/70,
 instructions were given concerning implementation of investi-

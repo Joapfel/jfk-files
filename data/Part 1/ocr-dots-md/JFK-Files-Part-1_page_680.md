@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_680.png
-
-Convert to Markdown20 January 98
+20 January 98
 
 Washington
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2961.png
-
-Convert to MarkdownThe United States Senate
+The United States Senate
 
 Report of Proceedings
 ---

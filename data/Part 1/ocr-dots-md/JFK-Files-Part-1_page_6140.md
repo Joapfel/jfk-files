@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6140.png
-
-Convert to Markdownc. I recommend that portions of ten additional documents located during the appeals review be released. Exceptions (b)(1), (b)(3) and (b)(6) should be cited, as applicable, to the denied portions. Specific recommendations on each of these documents is reflected in the attached Appeals Review Forms. (Tabs 5-14).
+c. I recommend that portions of ten additional documents located during the appeals review be released. Exceptions (b)(1), (b)(3) and (b)(6) should be cited, as applicable, to the denied portions. Specific recommendations on each of these documents is reflected in the attached Appeals Review Forms. (Tabs 5-14).
 
 d. One additional document located during the appeals review should be denied in toto, since it was received from a foreign liaison service. (Tab 15).
 

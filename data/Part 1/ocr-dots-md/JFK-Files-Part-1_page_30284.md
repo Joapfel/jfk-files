@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30284.png
-
-Convert to MarkdownSECRET/
+SECRET/
 
 officers with whom I have had the pleasure to be associated. During this period he has been assigned responsibility for supervision of the Military Personnel Branch. This consolidation has given the Security Branch greater flexibility and has increased the utilization of available personnel. Subject has also instituted off-duty security training courses for those interested military personnel.
 

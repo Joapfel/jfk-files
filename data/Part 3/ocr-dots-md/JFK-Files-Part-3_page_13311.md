@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13311.png
-
-Convert to MarkdownSECRET / SENSITIVE
+SECRET / SENSITIVE
 
 P. 17
 

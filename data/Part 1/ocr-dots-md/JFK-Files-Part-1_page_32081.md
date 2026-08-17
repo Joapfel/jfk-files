@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32081.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 SUBJECT: Mr. Joseph S. Piccolo - Completion of Senior Operations Course #2/76
 

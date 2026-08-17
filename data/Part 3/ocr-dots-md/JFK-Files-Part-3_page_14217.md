@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14217.png
-
-Convert to MarkdownJanuary 21, 1963
+January 21, 1963
 
 MEMORANDUM FOR: Director of Central Intelligence
 SUBJECT Interim Report to the President by the President's Foreign Intelligence Advisory Board, dated December 28, 1962

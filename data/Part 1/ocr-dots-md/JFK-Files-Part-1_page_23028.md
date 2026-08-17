@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23028.png
-
-Convert to Markdown14-0000
+14-0000
 
 TO : Chief, Special Affairs Staff
 FROM : Chief of Station, JEWELL

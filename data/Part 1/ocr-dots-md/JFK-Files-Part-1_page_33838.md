@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33838.png
-
-Convert to Markdown17 March
+17 March
 
 Mr. Braden:
 

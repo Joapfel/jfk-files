@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9441.png
-
-Convert to Markdown"Kuno" - Bericht Nr.14./Fortsetzung
+"Kuno" - Bericht Nr.14./Fortsetzung
 Ausstellur "Sowjetarmee", Blatt 2.
 
 angelegten, für die Sowjetarmee siegreichen Schlachten.

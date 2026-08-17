@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11748.png
-
-Convert to MarkdownSECTION CHIEF W. R. WANNALL
+SECTION CHIEF W. R. WANNALL
 NATIONALITIES INTELLIGENCE SECTION
 
 In connection with our objective of being prepared to counteract and/or neutralize the Chinese communist (Chicom) intelligence and subversion effort we expect will be mounted against this country, it is proposed that the following action be recommended for implementation immediately. In each case, a separate memorandum containing appropriate recommendation will be submitted within the next ten days.

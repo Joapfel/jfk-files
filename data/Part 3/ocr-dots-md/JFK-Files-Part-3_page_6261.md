@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6261.png
-
-Convert to MarkdownHARRY WACHTEL
+HARRY WACHTEL
 
 HARRY WACHTEL is the Executive Vice President of the Gandhi Society for Human Rights, 15 East 40th Street, New York, New York. He resides at 29 Split Rock Drive, King Point, Long Island, New York.
 

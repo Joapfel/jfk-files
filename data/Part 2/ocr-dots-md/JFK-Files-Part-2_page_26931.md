@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26931.png
-
-Convert to Markdowncouple hundred staffers there, full-time employees of the Agency, plus I don't know how many contract employees, independent contractors, probably another 200 minimum. It was obviously the largest installation we had. I think at its height it had over 500 people in it.
+couple hundred staffers there, full-time employees of the Agency, plus I don't know how many contract employees, independent contractors, probably another 200 minimum. It was obviously the largest installation we had. I think at its height it had over 500 people in it.
 
 Q Full-time Agency people?
 

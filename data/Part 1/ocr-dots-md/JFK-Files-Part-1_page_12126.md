@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12126.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DISPATCH</td>
     <td>CARRY CARRY</td>

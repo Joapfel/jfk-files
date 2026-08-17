@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9524.png
-
-Convert to MarkdownSTANDARD FORM NO. 69
+STANDARD FORM NO. 69
 
 Office Memorandum • UNITED STATES GOVERNMENT
 

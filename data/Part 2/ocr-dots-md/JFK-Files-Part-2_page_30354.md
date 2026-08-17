@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30354.png
-
-Convert to Markdown1968
+1968
 IUP SECRET
 
 119

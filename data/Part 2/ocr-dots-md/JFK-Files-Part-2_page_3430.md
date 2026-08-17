@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3430.png
-
-Convert to MarkdownORGANIZATION RECOND BY HR-1-He (HIS 16/7) HR 1-11e
+ORGANIZATION RECOND BY HR-1-He (HIS 16/7) HR 1-11e
 
 DATE 5 OCT 83
 

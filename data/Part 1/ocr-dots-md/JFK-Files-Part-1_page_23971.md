@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23971.png
-
-Convert to MarkdownEditorial signs
+Editorial signs
 
 (( )) query or comment by interviewer
 

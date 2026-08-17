@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20734.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>STANDARD FORM: 50 (8 PART)<br/>REV. APRIL 1954<br/>PROMulgATED BY:<br/>U.S. CIVIL SERVICE COMMISSION<br/>CHAPTER OF FEDERAL PERSONNEL MANUAL</td>
    </tr>

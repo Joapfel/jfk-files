@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21695.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 sense of that term?
 

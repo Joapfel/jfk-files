@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26805.png
-
-Convert to Markdown23 February 1965
+23 February 1965
 
 VICTOR RICO GALAN (P01-33647)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28019.png
-
-Convert to Markdown<table><thead><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr></thead><tbody><tr><td>Patricia M. Orr</td><td>October 21, 1976</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>215-66-2714</td><td><input type="checkbox" checked disabled/> Appointment</td></tr><tr><td>Employing Office or Committee</td><td><input type="checkbox" disabled/> Salary Adjustment</td></tr><tr><td>Select Committee on Assassinations</td><td><input type="checkbox" disabled/> Termination (At close of business on effective date)</td></tr></tbody></table>
+<table><thead><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr></thead><tbody><tr><td>Patricia M. Orr</td><td>October 21, 1976</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>215-66-2714</td><td><input type="checkbox" checked disabled/> Appointment</td></tr><tr><td>Employing Office or Committee</td><td><input type="checkbox" disabled/> Salary Adjustment</td></tr><tr><td>Select Committee on Assassinations</td><td><input type="checkbox" disabled/> Termination (At close of business on effective date)</td></tr></tbody></table>
 
 (If type of action is an Appointment or Salary Adjustment, complete the following information.)
 

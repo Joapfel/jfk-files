@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9218.png
-
-Convert to MarkdownSECRET
+SECRET
 
 file "STALIN" PHOTO-BOOK
 

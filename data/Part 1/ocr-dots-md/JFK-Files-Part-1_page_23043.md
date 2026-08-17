@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_23043.png
-
 s was Subject's patient and informed Subject of events occurring within the Presidential Palace. Subject then consulted with Raul Castro and denounced Dr. Urrutia as anti-Communist.
 
 d. Subject is very intelligent, very competent, and an extraordinarily hard worker. He is Professor of Psychology at the Havana University Medical School, and Director of the Higher Nervous Activity Research Institute. During the decade 1950-60, he held a high post within the Cuban Medical College and was President of the World Medical Group; during this decade he made many visits to the USA on matters related to his professional activities.

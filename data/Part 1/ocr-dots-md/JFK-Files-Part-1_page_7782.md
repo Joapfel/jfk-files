@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7782.png
-
-Convert to Markdownsuch a busy and hectic life that I would get very little out of him. Prior to his marriage, he was keeping such a hectic schedule between his Institute and private classes that he wasn't sleeping or eating properly and was having increasing problems with his health. If anything, his pace and health problems increased after his marriage and his taking of the job with the American School (although he gave up most of his private classes).
+such a busy and hectic life that I would get very little out of him. Prior to his marriage, he was keeping such a hectic schedule between his Institute and private classes that he wasn't sleeping or eating properly and was having increasing problems with his health. If anything, his pace and health problems increased after his marriage and his taking of the job with the American School (although he gave up most of his private classes).
 
 8. Since the GAZIYEV-LOGINOV conversation made Subject's relations with the Soviets look much more interesting, I attempted to find out what I could about them from Subject. For a number of reasons, however—including my going to the States in June—we were not able to get together until 11 July. On that date I took Subject to a belated "bachelor's lunch" at a little Spanish restaurant downtown.
 

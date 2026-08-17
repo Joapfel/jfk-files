@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16505.png
-
-Convert to Markdown Authority
+Authority
 
 9. SECURITY
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25502.png
-
-Convert to MarkdownML: Selia Sanchez, Haiti Santa Maria, Paco and Fidel and several of his armed guards.
+ML: Selia Sanchez, Haiti Santa Maria, Paco and Fidel and several of his armed guards.
 
 FS: Okay now, what happened
 

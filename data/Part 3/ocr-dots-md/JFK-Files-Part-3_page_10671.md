@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10671.png
-
-Convert to Markdownthat by firmly increasing the financial burden of this
+that by firmly increasing the financial burden of this
 group the following results are certain:
 
 1. American Nazi Party public activity will be held to the barest minimum due to fear of possible arrest resulting in further economic hardship.

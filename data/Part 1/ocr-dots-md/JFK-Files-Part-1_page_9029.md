@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9029.png
-
-Convert to Markdown12 August 1968
+12 August 1968
 
 **MEMORANDUM FOR:** Chief, Contract Personnel Division
 

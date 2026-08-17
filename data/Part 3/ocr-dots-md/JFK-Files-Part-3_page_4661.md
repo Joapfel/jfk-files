@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4661.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 They had arrived to investigate a business for someone in the United States. They are believed to have made several trips to Guatemala. While in Guatemala, they stayed at the Hotel Maya Excelsior and also at the Pension Suiza and in both places cashed "No Fund" checks. As a result, they were arrested. Nothing ever came of the business which they had invested in, and they are not known to have any contacts in Guatemala at the present time.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4569.png
-
-Convert to MarkdownIN CONSIDERATION of my employment on the terms hereinafter set forth, I, Francisco Bartee hereinafter called employee, hereby agree to the following conditions of employment:
+IN CONSIDERATION of my employment on the terms hereinafter set forth, I, Francisco Bartee hereinafter called employee, hereby agree to the following conditions of employment:
 
 1. That the term "employer" as used in this agreement shall be the Government of the Republic of the Congo, or any designated Department or Agency of said Government, or any Company or Agency that the said Government may designate.
 

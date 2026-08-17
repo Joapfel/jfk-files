@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6916.png
-
-Convert to MarkdownThe bill now under consideration would open records so that the public can be reassured that these theories are fantasies. The stated aim is to "contribute to the trust of the people in their government."
+The bill now under consideration would open records so that the public can be reassured that these theories are fantasies. The stated aim is to "contribute to the trust of the people in their government."
 
 To achieve this, the bill proposes to create a five-person Review Board. As reassurance against a cover-up in behalf of the President or Congress, the District of Columbia Circuit of the U.S. Court of Appeals would appoint the Board. (The Supreme Court presumably is thought too partisan; besides, it might bring to mind Chief Justice Warren.)
 

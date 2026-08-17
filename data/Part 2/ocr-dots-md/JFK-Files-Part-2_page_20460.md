@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20460.png
-
-Convert to Markdown5. Q: Will you work for revision of the punitive and reactionary welfare measures which were included in the Social Security Act passed in the first session of the 90th Congress?
+5. Q: Will you work for revision of the punitive and reactionary welfare measures which were included in the Social Security Act passed in the first session of the 90th Congress?
 
 A:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7626.png
-
-Convert to MarkdownCOPIES MADE
+COPIES MADE
 
 straight home." She admittedly enjoyed his company. She considered herself "an intelligent person," and wouldn't go out with just anybody. He too had to be intelligent and had to be an enjoyable companion. LOGINOV fit this bill. He was "extremely intelligent," very considerate, an interesting conversationalist, completely unlike the usual ill-mannered, boorish Soviet. But that's all there was to their relationship. That's absolutely all there was to it. They never discussed politics, and even if LOGINOV wanted to do so, she'd refuse, because she had absolutely no interest in politics. She had her own life to lead, and what one side said made no more dent in her than what the other side said. Reflecting for a moment on the above, Subject then added almost disgustedly that when she began seeing LOGINOV she had more or lessed expected that her name would wind up in the American Embassy's files.
 

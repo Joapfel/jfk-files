@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17127.png
-
-Convert to MarkdownTravel:
+Travel:
 
 300 PCS TDY to Headquarters for training (including 648 948 14,368 $12 per day)
 

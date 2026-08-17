@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5204.png
-
-Convert to Markdown5. Total Agent days spent on organized crime and gambling program in last six months was 2,370 days, 3 hours. The total for the prior six months was 2,356 days, 4 hours.
+5. Total Agent days spent on organized crime and gambling program in last six months was 2,370 days, 3 hours. The total for the prior six months was 2,356 days, 4 hours.
 
 There are 19 Agents working full-time on the CIP, 14 in Headquarters City and 5 in RA's.
 

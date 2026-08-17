@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8362.png
-
-Convert to MarkdownSOURCE: LIEMBRACE
+SOURCE: LIEMBRACE
 
 DATE: Viernes 10 de enero de 1969.
 

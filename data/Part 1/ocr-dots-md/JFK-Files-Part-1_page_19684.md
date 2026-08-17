@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19684.png
-
-Convert to Markdown<table><thead><tr><th>EMP. SER. NO.</th><th>NAME</th><th>ASSIGNED CHG.</th><th>4. P.O'S</th><th>5. AGENCY</th></tr></thead><tbody><tr><td>10978A</td><td>OCONNELL, J.P., JR.</td><td>V</td><td></td><td>R</td></tr></tbody></table>
+<table><thead><tr><th>EMP. SER. NO.</th><th>NAME</th><th>ASSIGNED CHG.</th><th>4. P.O'S</th><th>5. AGENCY</th></tr></thead><tbody><tr><td>10978A</td><td>OCONNELL, J.P., JR.</td><td>V</td><td></td><td>R</td></tr></tbody></table>
 
 <table><caption>6. OLD SALARY RATE</caption><thead><tr><th rowspan="2">GRADE</th><th rowspan="2">STEP</th><th rowspan="2">SALARY</th><th colspan="3">LAST EFFECTIVE DATE</th><th rowspan="2">GRADE</th><th rowspan="2">STEP</th><th rowspan="2">SALARY</th><th colspan="3">EFFECTIVE DATE</th></tr><tr><th>NO.</th><th>DA.</th><th>YR.</th><th>MO.</th><th>DA.</th><th>YR.</th></tr></thead><tbody><tr><td>C5</td><td>I*</td><td>$11,071</td><td>06</td><td>29</td><td>47</td><td>F5</td><td>2</td><td>$14,995</td><td>1</td><td>25</td><td>5</td></tr></tbody></table>
 

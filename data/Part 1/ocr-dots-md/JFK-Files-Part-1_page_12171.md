@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12171.png
-
-Convert to Markdown(Continuación del Informe)
+(Continuación del Informe)
 
 ### OBSERVACIÓN DE CARACTERES GÉNERALES
 

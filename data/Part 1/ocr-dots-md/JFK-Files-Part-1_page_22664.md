@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22664.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG : C. ZERNUNG<br/>UNIT : WHD<br/>EXT : 2555<br/>DATE : 29 APRIL 1959</td></tr><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td></td><td><table><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr><tr><td>TO : MEXICO CITY<br/>FROM : DIRECTOR<br/>CONF : WH 5<br/>INFO : OP 2, S/C 2</td><td><table border><tbody><tr><td rowspan="3" style="vertical-align: middle;">DEFERRED</td><td>APR 29 22 17 z59</td></tr><tr><td>REC'D CABLE SECT.</td></tr><tr><td></td></tr><tr><td>Routine</td><td><table border><tbody><tr><td>INITIALS</td></tr><tr><td>OPERATIONAL IMMEDIATE</td></tr><tr><td></td></tr><tr><td>PRIOR TO</td><td>INITIALS</td></tr></tbody></table></td></tr></table></td></tr><tr><td>CITE DIR</td><td>24246</td></tr></table>
 

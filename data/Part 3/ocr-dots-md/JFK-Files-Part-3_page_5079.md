@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5079.png
-
-Convert to Markdown24 NOV 1975
+24 NOV 1975
 
 | Name | Compartmented Clearance Designated | Date and Place of Birth | Social Security No. |
 |---|---|---|---|

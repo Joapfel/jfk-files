@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8638.png
-
-Convert to MarkdownPROD'T SALES REPORT
+PROD'T SALES REPORT
 
 COPIES MADE
 

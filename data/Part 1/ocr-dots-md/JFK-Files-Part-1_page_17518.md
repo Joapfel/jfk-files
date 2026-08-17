@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17518.png
-
-Convert to Markdown## 13. Control and Motivation
+## 13. Control and Motivation
 
 Control and motivation are primarily based on two factors: ideology and financial gain. A secondary factor is the fear of reprisal from the local police should discovery occur.
 

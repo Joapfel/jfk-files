@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13066.png
-
-Convert to MarkdownPeirucho PICO Ramon
+Peirucho PICO Ramon
 
 1934
 Cuba

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2459.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 UNITED STATES GOVERNMENT
 

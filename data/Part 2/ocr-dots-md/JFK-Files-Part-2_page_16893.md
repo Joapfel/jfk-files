@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16893.png
-
-Convert to MarkdownCommissioner's Docket No.
+Commissioner's Docket No.
 
 UNITED STATES OF AMERICA
 

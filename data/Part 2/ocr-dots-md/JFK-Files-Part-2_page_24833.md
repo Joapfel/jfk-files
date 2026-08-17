@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24833.png
-
-Convert to MarkdownThe False Flaggers were compartmented from each other and reported separately on their contacts to a "deep cover" CIA officer in Santiago who in turn reported to the Station. According to the testimony of the Chief of Station, they received their instructions from Washington and not from him. (Chief of Station testimony (Felix), August 1, 1975, p. 27)
+The False Flaggers were compartmented from each other and reported separately on their contacts to a "deep cover" CIA officer in Santiago who in turn reported to the Station. According to the testimony of the Chief of Station, they received their instructions from Washington and not from him. (Chief of Station testimony (Felix), August 1, 1975, p. 27)
 
 ## E. Chief of Station
 

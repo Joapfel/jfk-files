@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24823.png
-
-Convert to Markdown23 November 1966
+23 November 1966
 
 MEMORANDUM FOR THE FILES
 

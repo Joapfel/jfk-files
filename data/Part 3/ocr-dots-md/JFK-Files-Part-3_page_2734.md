@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2734.png
-
-Convert to Markdown1930
+1930
 
 someone in the commission of the crime as further proof,
 rather than relying on one informant and some circumstantial

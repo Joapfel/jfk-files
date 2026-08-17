@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17789.png
-
-Convert to Markdownconsultation is not available, and an indication of immediate danger exists, the USSS may take such action as is necessary with respect to carrying out its protective responsibilities. Any information obtained by the USSS during such action will be furnished to the FBI as expeditiously as possible.
+consultation is not available, and an indication of immediate danger exists, the USSS may take such action as is necessary with respect to carrying out its protective responsibilities. Any information obtained by the USSS during such action will be furnished to the FBI as expeditiously as possible.
 
 "The FBI will not conduct investigation of individuals or groups solely for the purpose of establishing whether they constitute a threat to the safety of the President and certain other persons unless there is an indication of a violation of Title 18, U. S. Code, Section 1751, or other statute over which the FBI has jurisdiction.
 

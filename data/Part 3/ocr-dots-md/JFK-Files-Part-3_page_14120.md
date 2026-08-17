@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14120.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 regarding Cuba. He added that the Board's responsibilities go to
 the effectiveness of the institution and framework within which

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3895.png
-
-Convert to Markdown14-00000
+14-00000
 
 RIFO - 21693/14
 

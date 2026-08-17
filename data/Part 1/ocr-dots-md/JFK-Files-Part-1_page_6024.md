@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6024.png
-
-Convert to MarkdownA.M.T-2, S.A. BEATLES
+A.M.T-2, S.A. BEATLES
 
 27 September 1963
 

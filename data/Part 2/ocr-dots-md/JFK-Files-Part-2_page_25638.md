@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25638.png
-
-Convert to Markdown# My Turn
+# My Turn
 
 Donald E. Schulz
 

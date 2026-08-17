@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17271.png
-
-Convert to MarkdownRE: BPP
+RE: BPP
 
 As you are aware the charges were dismissed against Brothers Raymond Howitt and Dexter Woods. While here they showed us the need and importance of the political education classes as well as proper study of the various materials. Brother Howitt taught a political education class and later at "Chaka's" crib we had a run session and went a little deeper into the ideology.
 

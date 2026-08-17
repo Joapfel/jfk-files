@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6066.png
-
-Convert to MarkdownPALAVRAS INICIAIS
+PALAVRAS INICIAIS
 
 Na primeira publicação feita por esta delegação do "Diretorio Revolucionario Estudiantil de Cuba" no Rio de Janeiro, G. B. CRASES PARA UMA REVOLUÇÃO LATINOAMERICA- NA, oREVOLUCÃO E A LIBERTAD E A RIGOROSA IMPLICAÇÃO EM UMA SÉCORA DE ESTUDIOSO.
 

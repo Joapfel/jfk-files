@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27377.png
-
-Convert to Markdown**REFERENCE:** Chief, FE
+**REFERENCE:** Chief, FE
 
 **SUBJECT:** Receipt of Gifts from Foreign Official
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13297.png
-
-Convert to MarkdownSECRET / SENSITIVE
+SECRET / SENSITIVE
 
 Who had substantial knowledge of matters pertaining to Oswald
 in the CIA Station in Mexico City at the time of Oswald's

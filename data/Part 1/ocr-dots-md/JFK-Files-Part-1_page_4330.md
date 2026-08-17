@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4330.png
-
-Convert to Markdown10 May 1966
+10 May 1966
 
 MEMORANDUM FOR THE RECORD
 SUBJECT: AMBIDDY/1

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33881.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Subject: Categories of personnel from John H. Corbis) to the effect that all existing personnel of CIA proprietary organizations must have a contract relationship with CIA. The underlying reason for this requirement are (1) general control, (2) security control, and (3) to provide a basis for establishing a legal liability to such personnel in the event of a claim of any kind. It is the view of the 10 Division that the above three requirements could be better and more cleanly met by two agreements between CIA and MIE, rather than by several separate agreements between writing iniviuals and CIA.
 

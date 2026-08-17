@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4773.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Breckinridge and, I guess, Walt Elder were involved, too.
 

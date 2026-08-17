@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8687.png
-
-Convert to Markdown5.03.¿ En su opinión, comparado con la mayoría de sus congéneres culturales,
+5.03.¿ En su opinión, comparado con la mayoría de sus congéneres culturales,
 
 Tiene igual instrucción
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12350.png
-
-Convert to Markdownd. Have any Special Service Staff files ever been transferred to IGRS? If so, please specify the name of the individual, group, or organization upon which the file was maintained and the date it was transferred to IGRS.
+d. Have any Special Service Staff files ever been transferred to IGRS? If so, please specify the name of the individual, group, or organization upon which the file was maintained and the date it was transferred to IGRS.
 
 19. With regard to the recent suspension of IGRS activities on January 22, 1975, pending an internal review of its operations, please answer the following:
 

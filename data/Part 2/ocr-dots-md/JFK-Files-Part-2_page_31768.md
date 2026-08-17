@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31768.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH/dp
 
 The PW issue of December 10, 1966, and December 24,

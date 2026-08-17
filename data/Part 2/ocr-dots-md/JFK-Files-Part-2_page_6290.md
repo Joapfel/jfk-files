@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6290.png
-
-Convert to Markdownhis file covers his subsequent career in a European country, where CIA monitored him closely. This portion of his career - by far the largest part of his file - has no bearing on Oswald or the JFK assassination.
+his file covers his subsequent career in a European country, where CIA monitored him closely. This portion of his career - by far the largest part of his file - has no bearing on Oswald or the JFK assassination.
 
 ### C. CIA officials
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3152.png
-
-Convert to MarkdownLe titulaire du présent, citoyen... de L'UNION
+Le titulaire du présent, citoyen... de L'UNION
 DES RÉPUBLIQUES SOVIÉTIQUES SOCIALISTES
 
 Traduction.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10125.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPENUMIT
 
 62-116393-56

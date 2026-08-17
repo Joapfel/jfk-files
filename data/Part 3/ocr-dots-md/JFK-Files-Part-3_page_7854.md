@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7854.png
-
-Convert to MarkdownQ: You were assigned to Mr. BELTER's squad?
+Q: You were assigned to Mr. BELTER's squad?
 
 A: I have been assigned to several security squads at WFO and have been moved back and forth from Mr. BELTER'S squad to other squads on several occasions.
 

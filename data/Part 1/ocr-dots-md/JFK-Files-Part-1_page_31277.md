@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31277.png
-
-Convert to MarkdownSEC. XIV. MILITARY STATUS
+SEC. XIV. MILITARY STATUS
 
 <table>
   <tr>

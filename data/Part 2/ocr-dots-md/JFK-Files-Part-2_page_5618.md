@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5618.png
-
-Convert to MarkdownINTERNATIONAL FEDERATION OF PETROLEUM AND CHEMICAL WORKERS (IFPCW). The: set up originally by the CIA through the US Oil Workers International Union.
+INTERNATIONAL FEDERATION OF PETROLEUM AND CHEMICAL WORKERS (IFPCW). The: set up originally by the CIA through the US Oil Workers International Union.
 
 INTERNATIONAL FEDERATION OF PLANTATION, AGRICULTURAL
 AND ALLIED WORKERS (IITA&W). The international trade secret-

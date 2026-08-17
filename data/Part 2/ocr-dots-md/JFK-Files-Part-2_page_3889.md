@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3889.png
-
 Barney Kilbride served a subpena direct- ing Gov. John J. McKeithen to appear at 2 p.m. Thursday on William V. Redmann's executive counsel to the governor in Baton Rouge.
 
 Previously Jefferson Parish racket figure Carlos Marcello and two of his brothers, Samuel and Peter, were also subpoenaed to appear Thursday.

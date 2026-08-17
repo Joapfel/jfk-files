@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23625.png
-
-Convert to MarkdownHW 50955 DocId:32423505 Page 103
+HW 50955 DocId:32423505 Page 103
 
 <table><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23542.png
-
-Convert to Markdown9 December 1953
+9 December 1953
 
 MEMORANDUM FOR: STAFF C
 ATTENTION: Mr. Thomas Ogden

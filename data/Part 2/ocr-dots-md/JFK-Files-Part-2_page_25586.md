@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25586.png
-
-Convert to Markdownthat file
+that file
 
 One final note - Nissen said/the Rosehi/in the Justice Department contains many references to Maheu. He never, however, saw or heard about a file kept on Maheu himself.
 

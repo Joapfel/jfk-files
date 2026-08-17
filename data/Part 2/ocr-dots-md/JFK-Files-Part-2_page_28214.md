@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28214.png
-
-Convert to MarkdownDUCB 146
+DUCB 146
 Rev. 8/71
 
 DISTRICT UNEMPLOYMENT COMPENSATION BOARD

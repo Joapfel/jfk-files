@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4122.png
-
-Convert to Markdown13-00000
+13-00000
 
 Mr. Francis X. Plant
 Special Assistant to the Under Secretary

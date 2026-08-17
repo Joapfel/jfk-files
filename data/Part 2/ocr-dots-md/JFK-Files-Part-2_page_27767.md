@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27767.png
-
-Convert to MarkdownTERRY W. LAZIN
+TERRY W. LAZIN
 
 The Plaza
 18th and The Parkway

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23772.png
-
-Convert to MarkdownSECRET/KAFIX
+SECRET/KAFIX
 
 OFLA 2530
 

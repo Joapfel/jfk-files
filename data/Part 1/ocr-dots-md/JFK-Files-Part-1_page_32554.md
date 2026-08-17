@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32554.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEMORANDUM FOR: Chief, Records & Services Division
 Office of Personnel

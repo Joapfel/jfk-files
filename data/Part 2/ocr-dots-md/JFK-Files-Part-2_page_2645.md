@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2645.png
-
-Convert to Markdown# Section D (continued)
+# Section D (continued)
 
 healthy skepticism enables him to contribute materially to the smooth, still on-going, transition from the old to the new way. In this context he has made invaluable suggestions on how we shall proceed in order to improve the operational efficacy of a NOC officer, as well as to ease the burdens imposed on the private life of a NOC officer.
 

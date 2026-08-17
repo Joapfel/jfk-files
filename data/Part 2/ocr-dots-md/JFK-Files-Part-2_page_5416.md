@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5416.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of course, information on the public record via the media.
 

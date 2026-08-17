@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12850.png
-
-Convert to MarkdownFBI DOCUMENT
+FBI DOCUMENT
 
 CABLE FROM DIRECTOR, FBI
 

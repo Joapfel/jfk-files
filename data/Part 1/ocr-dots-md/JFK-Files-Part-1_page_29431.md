@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29431.png
-
-Convert to Markdown14-00830
+14-00830
 
 ORIG: JON L. MATTSON:JB
 SUB: FE/PERS/TEL

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8198.png
-
-Convert to MarkdownMondragón - Dept. of foreign languages.
+Mondragón - Dept. of foreign languages.
 
 ILLINOIS STATE UNIVERSITY
 NORMAL, ILLINOIS 61761

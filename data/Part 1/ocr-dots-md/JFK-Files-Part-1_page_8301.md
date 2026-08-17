@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8301.png
-
-Convert to Markdown- 7 -
+- 7 -
 
 deeply concerned over the danger Red China represents to the world; he advocates that the U.S and SoV Union Shoulddesign a mutual defense pact and liquidate the China until there is still time; he believes that SoV Union and the E.S. are entitled to act in defense of their own interests and "so hell with that the rest of the world says"; he desires the determination and dynamism of Americans.
 

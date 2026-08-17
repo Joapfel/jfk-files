@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21145.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 proposition a young male for homosexual activities.
 

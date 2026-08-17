@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13531.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Cuban Mission to the United Nations
 6 East 67th Street

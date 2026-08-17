@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12669.png
-
-Convert to Markdownd. Cases referred by military
+d. Cases referred by military
 
 Military intelligence agencies often refer cases for security investigations under Delimitations Agreement in which security-type fraud violations are involved. If subversive information does not warrant full security investigation but does indicate possible fraud violation, advise interested agency that FBI's investigation will be directed toward proving possible violation of law and that any background investigation contemplated by it pursuant to its administrative responsibilities will not interfere with FBI investigation. Advise agency pertinent information developed will be furnished and request agency to do likewise.
 

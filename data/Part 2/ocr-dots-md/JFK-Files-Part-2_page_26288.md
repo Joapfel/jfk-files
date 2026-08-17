@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26288.png
-
-Convert to Markdown<table><tr><td>CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>CONFIDENTIAL<br/>(When Filled In)</td></tr><tr><td>NO FOREIGN DISSEM</td></tr><tr><td>TDCS -3/522,229</td></tr></table>
+<table><tr><td>CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>CONFIDENTIAL<br/>(When Filled In)</td></tr><tr><td>NO FOREIGN DISSEM</td></tr><tr><td>TDCS -3/522,229</td></tr></table>
 
 IN 21488
 

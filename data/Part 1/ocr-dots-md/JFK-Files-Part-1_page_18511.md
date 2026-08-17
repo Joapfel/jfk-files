@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18511.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="2">VERIFIED RECORD OF OVERSEAS SERVICE</td>
         <td colspan="6"></td>

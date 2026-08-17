@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15880.png
-
-Convert to Markdown9 October 1964.
+9 October 1964.
 
 MEMORANDUM FOR: J. Albright, AF/S
 

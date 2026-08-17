@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15778.png
-
-Convert to Markdownimplying the existence of a large British run net of which he was a part. In 1945 he was liberated by the U. S. Army and returned to Paris. Subject lived there in relative quiet until he, together with a wartime friend, robbed a Paris bank of a sizeable amount of money.
+implying the existence of a large British run net of which he was a part. In 1945 he was liberated by the U. S. Army and returned to Paris. Subject lived there in relative quiet until he, together with a wartime friend, robbed a Paris bank of a sizeable amount of money.
 
 Subject and accomplice were apprehended by the Surete on 11 July 1950, sentenced to prison, but released some five years later for good behavior and on the basis of their war record. It is interesting to note that while in prison, Subject invented a machine for making cardboard boxes. This machine was actually built for one of the prison administrations and put into operation at the prison factory.
 

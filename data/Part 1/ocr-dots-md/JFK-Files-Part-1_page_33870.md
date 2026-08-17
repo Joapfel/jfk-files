@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33870.png
-
-Convert to Markdown28 April 1952
+28 April 1952
 
 MEMORANDUM FOR: CHIEF, RE-2
 SUBJECT: Future Balloon Operation

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2644.png
-
-Convert to MarkdownDo. you object to that definition?
+Do. you object to that definition?
 
 Mr. Kelley. I think that life has become much more sophisticated and we have added to the so-called policeman's area of concern some matters which were probably not as important at that time. I think that the fact that the FBI has been in touch with the security investigations and the gathering of intelligence is something which has proved to be at times troublesome and given us great concern, but it is a viable, productive procedure.
 

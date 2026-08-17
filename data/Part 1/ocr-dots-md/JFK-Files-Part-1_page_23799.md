@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23799.png
-
-Convert to Markdown10 Jun 65 M 87361
+10 Jun 65 M 87361
 
 S E C R E T 1015312
 

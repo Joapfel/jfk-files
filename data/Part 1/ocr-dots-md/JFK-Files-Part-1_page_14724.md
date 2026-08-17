@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14724.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 4. The rayon OVDs (ROVDs) fall under the Minsk City Internal Affairs Directorate (Gorodskoye upravleniye vnutrennikh del, GUVD) of the Executive Committee of the Minsk City Soviet. (fnu) PISKAREV, who holds the rank of general-mayor of internal affairs, is chief of the Minsk GUVD. The GUVD, which is on Dobromyshlenskiy pereulok, houses the pretrial detention cell (kamera predvaritel'nogo zaklyucheniya, KPZ and OVIR). Even though the Minsk city OVIR falls under the Belorussian Republic OVIR, there is no republic-level OVIR office in Minsk, although there are some republic-level OVIR officials who sit in the MVD headquarters building on prospekt Lenina.
 

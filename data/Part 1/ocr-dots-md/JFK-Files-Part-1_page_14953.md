@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14953.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG Francis McNulty
 UNIT SR/DOB 534

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6420.png
-
-Convert to MarkdownConfidential
+Confidential
 
 18 July 1997
 

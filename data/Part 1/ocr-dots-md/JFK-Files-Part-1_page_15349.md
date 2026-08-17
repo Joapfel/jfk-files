@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15349.png
-
-Convert to MarkdownJun 10th 1965
+Jun 10th 1965
 
 Col. J. oh Anderson
 Chief, Air Operations

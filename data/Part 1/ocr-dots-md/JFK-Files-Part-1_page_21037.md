@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21037.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="3">TOM ROSERTS<br/>E/F/X<br/>RJRS<br/>05 MAY L972</td></tr><tr><td>SECRET</td><td colspan="2"></td></tr><tr><td colspan="3"><table><tr><td>E/C/EUR</td><td>RELEASING OFFICER</td></tr></table></td></tr><tr><td colspan="2">CCORD MATINS OFFICERS</td></tr><tr><td>SECRET</td><td></td></tr></table>
 

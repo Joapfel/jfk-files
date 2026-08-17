@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12784.png
-
-Convert to MarkdownThe above is not all-inclusive. Facts developed in each case will produce information which will be indicative of the necessity for conducting further investigation along lines which will necessitate the use of various investigative techniques to develop the case fully. The successful investigation of an individual will depend upon the resourcefulness of the investigating Agents in developing techniques which will further establish the subversive activity of, a subject.
+The above is not all-inclusive. Facts developed in each case will produce information which will be indicative of the necessity for conducting further investigation along lines which will necessitate the use of various investigative techniques to develop the case fully. The successful investigation of an individual will depend upon the resourcefulness of the investigating Agents in developing techniques which will further establish the subversive activity of, a subject.
 
 Discretion must be used in those instances in which contact with persons known to the subject is believed desirable. Where such contact is contemplated, the Agent should assure himself of the character, loyalty, and reliability of the person to be contacted concerning the subject by reviewing the office indices and in some instances conducting preliminary inquiry, possibly under pretext, with others to ascertain the character, reliability, and loyalty of the person of whom inquiry concerning the subject is intended.
 

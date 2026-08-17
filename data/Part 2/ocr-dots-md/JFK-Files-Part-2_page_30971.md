@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30971.png
-
-Convert to MarkdownSECRET
+SECRET
 
 William Alexander Morgan
 

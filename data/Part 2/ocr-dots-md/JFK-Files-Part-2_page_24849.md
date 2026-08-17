@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24849.png
-
-Convert to Markdown# V. CIA/White House Communication During Track II
+# V. CIA/White House Communication During Track II
 
 The testimony given to the Committee by Henry Kissinger and General Haig conflicts with that given by CIA officials.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17405.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIG: J. R. RESVES</td>
     <td rowspan="4">1638</td>

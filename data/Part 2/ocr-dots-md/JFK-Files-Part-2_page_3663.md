@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3663.png
-
-Convert to Markdown1. Venezuela
+1. Venezuela
 
 a. The country's six presidential candidates have swung into the home stretch of their campaigns. So have the terrorists, who are still trying hard to sabotage next Sunday's vote.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31381.png
-
-Convert to MarkdownJuly 2, '95
+July 2, '95
 
 MEMORANDUM
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26876.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>MESSAGE FORM</td></tr><tr><td>☑ SECRET</td></tr><tr><td>☐ NO IMAGE</td></tr><tr><td>☐ FILE IN CHAIN NO.</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23879.png
-
-Convert to Markdown1 people behind the Iron Curtain, to convince them as people that
+1 people behind the Iron Curtain, to convince them as people that
 2 we are nice folks, that they ought to influence their government
 3 to be a little bit more friendly toward us? It doesn't have
 4 any impact at all in a totalitarian state, none.

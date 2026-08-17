@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4069.png
-
-Convert to MarkdownSe varía los trabajos de calzado y el esterar el tabaco en general. Le sigo, les primeras capas de plomería de protecida.
+Se varía los trabajos de calzado y el esterar el tabaco en general. Le sigo, les primeras capas de plomería de protecida.
 
 Electra tecto, los trabajos encargados de mecánica se están eficazmente en el interior. Al darse las fluidas capas de plomería al fango, se efectúa la inmersión final, y al sacar la fluida caja con el agua. La parcial completa no cura así de dos, tres días en una dique moderno, y cuello los trabajos coordinados de dos expertos, u mecanico, y dos asistentes de patio, así como tenderón el vitro MUSTO de pieza de reparación y reforzado.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_153.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26 MAY 1957
 

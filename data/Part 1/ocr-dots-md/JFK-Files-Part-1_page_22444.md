@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22444.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DOHIB 70-1-1
 CHAPTER III

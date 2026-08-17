@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7139.png
-
-Convert to MarkdownEmployees should also feel free to bring any such matters directly to the attention of the Commission or the Commission Staff outside of Agency channels if they so desire. In doing so, however, employees should bear in mind that the Commission's field of interest is CIA activities within this country.
+Employees should also feel free to bring any such matters directly to the attention of the Commission or the Commission Staff outside of Agency channels if they so desire. In doing so, however, employees should bear in mind that the Commission's field of interest is CIA activities within this country.
 
 To contact the Commission, employees can call the Executive Director, Mr. David Belin on 456-7010 or the Counsel, Mr. Marvin Gray, Jr., on 456-7014. The mail address is:
 

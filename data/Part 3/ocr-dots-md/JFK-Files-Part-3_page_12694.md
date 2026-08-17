@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12694.png
-
-Convert to Markdown(Mount Clipping in Snort, Related
+(Mount Clipping in Snort, Related
 
 Boulder Housewife sure she talked to Riha
 

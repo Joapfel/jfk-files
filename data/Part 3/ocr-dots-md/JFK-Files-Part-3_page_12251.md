@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12251.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td rowspan="2">All information contained herein is unclassified. Date 01/19/86 by SP-0001</td>

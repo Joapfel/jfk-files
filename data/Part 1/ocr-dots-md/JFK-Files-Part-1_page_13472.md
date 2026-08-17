@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13472.png
-
-Convert to MarkdownLa Hacienda, 23 de Febrero de 1960
+La Hacienda, 23 de Febrero de 1960
 
 A quien pueda interesarse
 

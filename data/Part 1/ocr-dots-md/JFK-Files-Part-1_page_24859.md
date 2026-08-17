@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24859.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BIOGRAPHIC DATA SHEET - EDWARD G. TICHBORN
 

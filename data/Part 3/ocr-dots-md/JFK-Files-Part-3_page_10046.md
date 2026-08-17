@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10046.png
-
-Convert to Markdown# NW88608 DocId:32989628 Page 323
+# NW88608 DocId:32989628 Page 323
 
 T. L. MATTIS, COL, USAF
 Maj Gen, Retired

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9557.png
-
-Convert to MarkdownAm. Express.
+Am. Express.
 
 Interview under name of Martin E. Williams, of Kingston, Pa., with Mr. Gilmore, Asst. Passenger Traffic Manager of Trav. Dept.
 

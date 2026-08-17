@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4875.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On April 3, 1967, MM T-3 advised that SAM MANNARINO attended the wedding of RONNIE ROTHMAN, NORMAN ROTHMAN's son, on March 21, 1967.
 

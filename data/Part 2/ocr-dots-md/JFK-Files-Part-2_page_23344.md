@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23344.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 further than that. I cannot say, for example, that Bissell said I think as an Agency we should consider assassination on this or that this had been discussed with the policy levels of government. I do not know, and it was never made clear to me nor does this cable make clear, but it was perfectly clear that Mr. Dulles felt quite quiet in his mind about discussing any of these aspects with the State Department or the Ambassador.
 

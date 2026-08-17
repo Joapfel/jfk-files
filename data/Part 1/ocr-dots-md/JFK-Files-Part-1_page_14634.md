@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14634.png
-
-Convert to MarkdownCHILE
+CHILE
 
 Sept. 14, 1955
 

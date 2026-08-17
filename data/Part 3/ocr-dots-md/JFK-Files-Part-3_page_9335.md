@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9335.png
-
-Convert to MarkdownRequest Pertaining to Electronic
+Request Pertaining to Electronic
 Surveillance
 
 a memorandum copy of a GTR issued 11/21/64 by Whitson

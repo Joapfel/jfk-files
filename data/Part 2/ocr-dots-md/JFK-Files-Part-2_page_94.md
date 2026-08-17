@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_94.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>VIA:</td><td>AIR</td></tr><tr><td colspan="2">(SPECIFIED AIR OR SEA POUCH)</td></tr></table>
 

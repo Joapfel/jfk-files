@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8243.png
-
-Convert to MarkdownSeptember 1944
+September 1944
 
 After emerging briefly from hiding in September 1944, DIMITROV again went underground engaging in anti-Communist activities, touring various towns and cities (including sections of Yugoslavia and Macedonia) and urging members of the Agrarian Party to take positive action against the Communists.
 

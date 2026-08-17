@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_41.png
-
-Convert to MarkdownSee 201-234750 on Tamara S.KUNGIROVA.
+See 201-234750 on Tamara S.KUNGIROVA.
 
 On his second trip to the USSR in January 1959, Philip Robert NIELSON, REDSKIN agent, was given an INTURIST interpreter/guide named Tamara Stepanovna KUNGIROVA. A romance developed between them and NIELSON became determined to marry her, which he finally did in the spring of 1962. His family did everything in their power to discourage this romance and John Haines of the State Department received letter from NIELSON's father re affair.Not seeking help but advice on what to do.
 

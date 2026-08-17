@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15498.png
-
-Convert to MarkdownSECRET
+SECRET
 
 This document consists of pages.
 Number

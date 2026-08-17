@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16978.png
-
-Convert to MarkdownThe release also stated that gunshots had not been fired by BPP personnel and that all of the shots fired by the police were in the bedrooms.
+The release also stated that gunshots had not been fired by BPP personnel and that all of the shots fired by the police were in the bedrooms.
 
 The release concluded the next course of action by the BPP will be to intensify information to the people because another revolutionary brother had been slain in the streets by the fascist "pigs" of this country and the people have to seize the time and take power.
 

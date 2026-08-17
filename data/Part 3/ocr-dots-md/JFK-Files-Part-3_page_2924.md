@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2924.png
-
-Convert to Markdown2511
+2511
 
 to do something to the waterworks, poison it or something, and
 he is on the way down there with the poison in his car.

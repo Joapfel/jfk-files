@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14420.png
-
-Convert to Markdown5 May 1970
+5 May 1970
 
 Report No. 314
 

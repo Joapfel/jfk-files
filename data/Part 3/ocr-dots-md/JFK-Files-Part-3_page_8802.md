@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8802.png
-
-Convert to Markdown0-106
+0-106
 
 UNITED STATES GOVERNMENT
 Memorandum

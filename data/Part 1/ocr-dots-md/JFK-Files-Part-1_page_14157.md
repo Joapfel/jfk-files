@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14157.png
-
-Convert to MarkdownPresent Situation:
+Present Situation:
 
 9. In early February, 1966, Hunkeler met with a Cracas Station Officer of the Caracas Station who reviewed Hunkelers existing business activities in Venezuela and who told Hunkeler that the Caracas Station desired to use a Hunkeler company for non-official cover purposes in Venezuela. The success of Hunkelers commercial activities in the Dominican Republic (and the corresponding move by Hunkeler to open an office in Santo Domingo) is a recent development and there has not yet been time to query Station Santo Domingo as to whether or not they have a requirement to use Hunkelers facilities. (Hunkeler is presently phasing out of much organizational work in the WAVE area in order to devote more time to the chore of setting up his operations in Santo Domingo and Venezuela where both of his companies are currently doing business.)
 

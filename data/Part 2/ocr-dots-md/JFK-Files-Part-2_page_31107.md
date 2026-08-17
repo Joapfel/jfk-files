@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31107.png
-
-Convert to Markdown① Personality File Action Request - 23 Dec. 1961
+① Personality File Action Request - 23 Dec. 1961
 Rodriguez a member of FRD in 1961
 #201-293114 . DPOB 1935, Cuba
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19633.png
-
-Convert to MarkdownSECRET
+SECRET
 (All are United States)
 
 <table>

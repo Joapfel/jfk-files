@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27717.png
-
-Convert to MarkdownAge: 26
+Age: 26
 
 Married; no children
 

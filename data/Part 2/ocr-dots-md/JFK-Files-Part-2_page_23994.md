@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23994.png
-
-Convert to Markdowntestified that he recalled working for Generals Bennett and Philpott on
+testified that he recalled working for Generals Bennett and Philpott on
 "a priority requirement to identify Chilean personalities who might be
 helpful in preventing the election of Allende as President of Chile."
 (Roth, Vol. I, p. 6) Though Roth recalls no mention of Track II as such,

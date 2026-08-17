@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_79.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26 NOV 1968
 

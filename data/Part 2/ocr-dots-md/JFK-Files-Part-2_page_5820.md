@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5820.png
-
-Convert to Markdownbeen associated with countries, key installations,
+been associated with countries, key installations,
 organizations, or operations that fell within the period
 deemed relevant to the history of the assassination.
 

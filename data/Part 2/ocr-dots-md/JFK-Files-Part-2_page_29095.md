@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29095.png
-
-Convert to Markdown# Sales or Exchanges of Property
+# Sales or Exchanges of Property
 
 ## SCHEDULE D
 (Form 1040)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18754.png
-
-Convert to MarkdownNY 05-15026
+NY 05-15026
 
 officer at the Soviet Embassy, Washington, D.C. When JAROVSKY asked JANKOEVSKY for the name of the press officer, he told JAPPE that he did not know. JAPPE agreed with Jankovskiy too he was kidding when he said so did a man known the name of the press officer, but JARKOVSKY insisted that he did not know the name of the press officer...
 

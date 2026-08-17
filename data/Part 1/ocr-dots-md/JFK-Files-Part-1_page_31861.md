@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31861.png
-
-Convert to Markdown19 November 1958
+19 November 1958
 
 Mr. Joseph S. Piccolo
 2210 - 20th Street, N. W.

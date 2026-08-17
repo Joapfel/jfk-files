@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2438.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WILLIAM F. MC LAUGHLIN
 FRED ELLEDGE

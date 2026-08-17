@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29071.png
-
-Convert to Markdown# Computation of Social Security Self-Employment Tax
+# Computation of Social Security Self-Employment Tax
 
 SCHEDULE SE
 (Form 1040)

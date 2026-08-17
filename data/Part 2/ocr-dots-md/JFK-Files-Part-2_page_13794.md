@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13794.png
-
-Convert to Markdown## D. Other Specific Techniques
+## D. Other Specific Techniques
 
 As to the following techniques, the Committee's inquiry will initially be confined to the General Questions. As the inquiry proceeds, areas of potential abuse and thus of specific inquiry beyond the General Questions may develop:
 

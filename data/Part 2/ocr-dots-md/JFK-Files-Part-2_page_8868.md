@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8868.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">CAB.:</td>
     <td><input type="checkbox"/> INDEX</td>

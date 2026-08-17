@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20168.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 change was not being used for that purpose, but rather
 to sustain members of the SWP-YSA.

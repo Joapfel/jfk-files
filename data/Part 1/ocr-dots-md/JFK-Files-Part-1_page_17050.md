@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17050.png
-
-Convert to MarkdownMPS/BC/FI/ALKatein/sw
+MPS/BC/FI/ALKatein/sw
 
 Distribution:
 

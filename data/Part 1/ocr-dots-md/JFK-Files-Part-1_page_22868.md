@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22868.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Daniel M. O'Connell, a member of the American youth group which toured Communist China after attending the Moscow Youth Festival, arrived in Hong Kong on 6 October 1957. O'Connell provided the Consulate General, Hong Kong, with information on some of the other members of the group. He had the following to say about Larry Moyer:
 

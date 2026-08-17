@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13922.png
-
-Convert to Markdown2 - Mr. Mintz
+2 - Mr. Mintz
 (1 Mr. J. B. Hotis)
 
 1 - Mr. W. R. Wannall

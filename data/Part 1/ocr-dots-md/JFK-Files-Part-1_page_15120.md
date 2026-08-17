@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15120.png
-
-Convert to MarkdownB. GEGENWARTIGE STAATSBURGERSCHAFT: Staatenlos
+B. GEGENWARTIGE STAATSBURGERSCHAFT: Staatenlos
 
 4. RELIGION: Orthodox ( uawoslawni ). Da ich in einer gottlosen Gesellschaftsordnung aufwuchs habe ich meine Religion in meiner Jugend nur sehr begrenzt ausgeübt und habe später als Erwachsener vollkommen aufgehört in eine Kirche zu gehen wegen der bestehenden Bedingungen in den USSR.
 

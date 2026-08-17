@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3165.png
-
-Convert to MarkdownFrom HABA-21382, 18 May 1970, Source: BIOGENESIS
+From HABA-21382, 18 May 1970, Source: BIOGENESIS
 
 o) AMBUSH CONTROL (1º Secretario + Secunda Cultural - K.G.B.) Acomp
 ronta con conclusión con el Embajador y a roundo conversan con

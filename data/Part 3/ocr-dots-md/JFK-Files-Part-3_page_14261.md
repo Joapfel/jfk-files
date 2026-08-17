@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14261.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 This document was created using a computer program.
 

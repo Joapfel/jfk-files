@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34930.png
-
-Convert to MarkdownTell Mr. Paulbath that if there is anything I can resolve call me at telephone number 99-2187 or send me a night letter since regular mail takes up to one and one half months to arrive.
+Tell Mr. Paulbath that if there is anything I can resolve call me at telephone number 99-2187 or send me a night letter since regular mail takes up to one and one half months to arrive.
 
 Attentively,
 

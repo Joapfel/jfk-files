@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22182.png
-
-Convert to MarkdownI. Confirmation from Other Sources
+I. Confirmation from Other Sources
 
 1. Introduction
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30339.png
-
-Convert to Markdown1. Mr. Edgar. Have you ever been in a conversation with any
+1. Mr. Edgar. Have you ever been in a conversation with any
 2. of the agents of the CIA about who might have been responsible
 3. for having you detained on April 4th, -9645
 4. Mr. Nosenko. No.

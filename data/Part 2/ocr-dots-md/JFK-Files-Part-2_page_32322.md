@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32322.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 11/13/63
 

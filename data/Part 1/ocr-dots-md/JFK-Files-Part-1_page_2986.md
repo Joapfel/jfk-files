@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2986.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 DANKO, Yevgeniya "Jane" 109
 DAY, Frank 201, 202

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9976.png
-
-Convert to MarkdownSibley and Young
+Sibley and Young
 Chicago
 U.S.vs. United States
 Custody of 25,000.

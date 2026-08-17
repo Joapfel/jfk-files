@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25177.png
-
-Convert to Markdown<table><tr><td colspan="2">PERSONS/ENTITIES:</td></tr><tr><td>GENERAL MINH</td><td>DATES:</td></tr><tr><td>KHIEM</td><td>September 1963</td></tr><tr><td>LODGE, HEAR! CABOT</td><td>CATEGORIES:</td></tr><tr><td>DON, GENERAL</td><td>DIEM ✓</td></tr><tr><td>CONEIN</td><td></td></tr></table>
+<table><tr><td colspan="2">PERSONS/ENTITIES:</td></tr><tr><td>GENERAL MINH</td><td>DATES:</td></tr><tr><td>KHIEM</td><td>September 1963</td></tr><tr><td>LODGE, HEAR! CABOT</td><td>CATEGORIES:</td></tr><tr><td>DON, GENERAL</td><td>DIEM ✓</td></tr><tr><td>CONEIN</td><td></td></tr></table>
 
 **OCCURRENCE:** "During the month of September, there was still more talk of coups, and at that time, the month of September, I had been told by Ambassador LODGE that I was to monitor coup planning only....That I was to convey any messages. I had conveyed messages to BIG MINH on two occasions, GENERAL KHIEM on one occasion. I had met with GENERAL KHIEM and BIG MINH on another occasion. On several occasions, I had met with GENERAL DON and other military leaders." p. 23
 

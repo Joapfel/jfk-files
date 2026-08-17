@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9776.png
-
-Convert to Markdown24 April, 1968
+24 April, 1968
 
 Subject: LIKING/4 report of Telephone Conversation with Yolanda Diaz.
 

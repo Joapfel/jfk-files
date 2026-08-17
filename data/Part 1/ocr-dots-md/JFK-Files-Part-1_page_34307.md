@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34307.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET #61800Z
 DIR INFO TOKY CITE WAVE 7715

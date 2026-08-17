@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19610.png
-
-Convert to MarkdownHGT2/-2/?&2/?&,/6
+HGT2/-2/?&2/?&,/6
 
 NR12 NY CODE
 

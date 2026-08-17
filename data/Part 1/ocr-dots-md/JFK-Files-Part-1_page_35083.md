@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35083.png
-
-Convert to MarkdownHoja No. 2
+Hoja No. 2
 
 Manutención y Albergue (Cont.)
 (Occasional support to cuban refugees)

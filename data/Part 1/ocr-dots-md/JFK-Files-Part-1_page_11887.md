@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11887.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>ACTION</td><td>Wtlc 8</td><td>RID COPY</td></tr></thead><tbody><tr><td>INFO</td><td>FILE, YR, Cilm</td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18806.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 5. Time, Inc., 9 Rockefeller Plaza, NYC; started on 6/16/52, as an editorial trainee for "Life" magazine and on 10/14/52, became a researcher for "Life" magazine.
 

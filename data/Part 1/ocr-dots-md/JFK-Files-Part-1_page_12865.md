@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12865.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and Control Officer of a weapons platoon in a Ranger
 battalion... In the latter function, POSADA would very

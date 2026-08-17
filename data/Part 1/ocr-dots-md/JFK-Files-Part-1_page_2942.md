@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2942.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 ## (PSYCHOLOGICAL AND PSYCHIATRIC ASSESSMENT)
 

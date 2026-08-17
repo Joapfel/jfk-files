@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9103.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>11.</td>
         <td>Juan Antonio Fernandez, Melchizedek Insignia, S.A.,</td>

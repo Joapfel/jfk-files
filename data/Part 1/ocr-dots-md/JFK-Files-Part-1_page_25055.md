@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25055.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RID/CE: JKS/SC/nke
 

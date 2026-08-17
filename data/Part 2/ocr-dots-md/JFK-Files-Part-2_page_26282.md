@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26282.png
-
-Convert to Markdown**b.** If the proposal under **a** above is not adequate to obtain GVN agreement, we would offer an additional $4.85 million in piasters. This is estimated to be sufficient to cover local currency costs in 1961 of the call-up of the additional 20,000 men.
+**b.** If the proposal under **a** above is not adequate to obtain GVN agreement, we would offer an additional $4.85 million in piasters. This is estimated to be sufficient to cover local currency costs in 1961 of the call-up of the additional 20,000 men.
 
 **c.** If neither of the above proposals proves acceptable, the U. S. would offer an additional $4.55 million in assistance in 1961 which, if the GVN would accept a dollar/piaster rate of 73, would be sufficient to meet the piaster cost for 1961.
 

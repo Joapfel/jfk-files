@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20636.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Appointment of Mr. David A. Phillips as Chief of Station, Rio de Janeiro, Brazil
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_25667.png
-
 director Cartha
 DeLoach with the message that "the
 President had instructed that the FBI

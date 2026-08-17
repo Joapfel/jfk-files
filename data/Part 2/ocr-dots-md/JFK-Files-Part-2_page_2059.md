@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_2059.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="18">SECTION V</th></tr></thead><tbody><tr><td colspan="18">A. WHAT ARE HIS OUTSTANDING STRENGTHS?</td></tr><tr><td colspan="16">Serious approach and dedication to duties. General level of professional competence in FI and CI fields.</td></tr><tr><td colspan="18">B. WHAT ARE HIS OUTSTANDING WEAKNESSES?</td></tr><tr><td colspan="16">His extent of comprehension of SS activities is a weakness only in the sense that his field duties have not offered sufficient opportunity to develop his presumed capability in this field to the point it would compare favorably with his FI ability.</td></tr></tbody></table>

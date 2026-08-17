@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24189.png
-
-Convert to Markdown14-0000
+14-0000
 
 TO: Chief, KUDOS
 FROM: Chief of Station, London

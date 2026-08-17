@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32710.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>SECTION I</td>
         <td colspan="3">BIOGRAPHICALLY ACCURATE DATA</td>

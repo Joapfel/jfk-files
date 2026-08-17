@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13361.png
-
-Convert to MarkdownOLSEN: Now let's move on to what the relationship is between
+OLSEN: Now let's move on to what the relationship is between
 the Cuban crime syndicate and its relation to the American crime syndicate, the
 anti-Castro movement in south Florida, and the assassination of the Presi-
 dent. What is the connection? Do I understand from you, Frank, that after

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3378.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 B. Forging the Tool
 

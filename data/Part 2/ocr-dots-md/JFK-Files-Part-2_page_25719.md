@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25719.png
-
-Convert to MarkdownJack Anderson and Les Whitten
+Jack Anderson and Les Whitten
 
 # CIA Withheld Data in JFK Probe
 

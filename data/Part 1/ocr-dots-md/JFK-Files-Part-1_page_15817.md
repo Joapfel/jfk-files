@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15817.png
-
-Convert to Markdownothers do it.
+others do it.
 
 The Robert Honsattane are almost next door to us, exactly in the building across the street from the metro Glaciere. They found an apartment; but, hold on to yourself 1,600,000 francs deposit. It's crazy. It's their great-uncle who loaned them the money which they are paying back at the rate of 10,000 francs per month. They have received many gifts and are completely furnished. We see them frequently. Nelly went to a beautiful school which lasted three months. She liked it very much, but after going out, she didn't find a job. Through one of my friends I found her a job as a beginning sales clerk while waiting, but perhaps at the end she'll like being a sales clerk better. She's been working since Monday. Nina is still in the same job. She's waiting impatiently for Bernard to make enough money so she won't have to work.
 

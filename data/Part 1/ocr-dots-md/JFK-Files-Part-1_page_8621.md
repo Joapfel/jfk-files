@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8621.png
-
-Convert to MarkdownOUTGOING
+OUTGOING
 
 C/VIS-2
 

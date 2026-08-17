@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18845.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 Albania, Bulgaria, China, Czechoslovakia, Hungary, Poland, Rumania, or the USSR unless specifically endorsed by the Department of State as being valid for such travel. It was also valid for only two months, to expire 10/1/52.
 

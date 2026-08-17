@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24348.png
-
-Convert to MarkdownVisas
+Visas
 
 IT IS THE RESPONSIBILITY OF THE PASSPORT OFFICER TO OUTAIN NECESSARY VISAS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4872.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. FILE: 201-6-495; 75-2-28/3. E2 IMPDET
 

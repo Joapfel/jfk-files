@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28554.png
-
-Convert to MarkdownB. The physical divisions within the official component of the Station have separated personnel and files in a manner which makes close teamwork against the target difficult. These divisions could and should have been corrected.
+B. The physical divisions within the official component of the Station have separated personnel and files in a manner which makes close teamwork against the target difficult. These divisions could and should have been corrected.
 
 C. Mr. Bagley has not always seen eye-to-eye with Headquarters on matters of method and emphasis, a phenomenon which has impaired operational progress. We accept that each Station Chief has the right -- indeed, the duty -- to hold independent views and to express them with integrity (as Mr. Bagley has done), but believe that differing views could have been resolved more easily had Station reporting to Headquarters been less parsimonious.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12013.png
-
-Convert to Markdown<table><tr><td>FOR RELEASE BY: ____________________ TOTAL COPY: 1</td></tr><tr><td>PURCHASE ORDER NO.: ____________________ SECRET</td></tr><tr><td>REPRODUCTION BY OTHER OFFICE IS PROHIBITED.</td></tr></table>
+<table><tr><td>FOR RELEASE BY: ____________________ TOTAL COPY: 1</td></tr><tr><td>PURCHASE ORDER NO.: ____________________ SECRET</td></tr><tr><td>REPRODUCTION BY OTHER OFFICE IS PROHIBITED.</td></tr></table>
 
 ADVANCE COPY ASSEMBLED SLOTTED
 

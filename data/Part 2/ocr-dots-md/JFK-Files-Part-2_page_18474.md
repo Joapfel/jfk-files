@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18474.png
-
-Convert to MarkdownI. The "Huston Plan"
+I. The "Huston Plan"
 
 The Committee is examining the FBI's role in the disposition of the report of the Interagency Committee on Intelligence (Ad Hoc) in 1970. This report as submitted to the President included certain options which were specifically identified as "illegal". It purported to represent the joint recommendations of all members of the U. S. intelligence community, but FBI Director J. Edgar Hoover disagreed in a series of footnotes.
 

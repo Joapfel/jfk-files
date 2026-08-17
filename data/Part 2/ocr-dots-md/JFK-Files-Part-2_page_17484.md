@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17484.png
-
-Convert to Markdown11/24,'69
+11/24,'69
 
 CODE
 

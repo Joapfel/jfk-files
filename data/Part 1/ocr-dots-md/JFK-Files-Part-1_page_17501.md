@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17501.png
-
-Convert to MarkdownDESENSITIZED
+DESENSITIZED
 per order 43-43
 
 PROJECT REVIEW AND PROJECT OUTLINE (PARTS I AND II)

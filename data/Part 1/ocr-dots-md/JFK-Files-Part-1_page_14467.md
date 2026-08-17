@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14467.png
-
-Convert to MarkdownOrestes Guillermo · RUIZ Perez
+Orestes Guillermo · RUIZ Perez
 
 U.S. 5 April 1957, overstayed
 his time, and on 11 February 1958

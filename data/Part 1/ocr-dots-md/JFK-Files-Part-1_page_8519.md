@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8519.png
-
-Convert to MarkdownCONTRACT REPORT
+CONTRACT REPORT
 
 SUBJECT: BEsABER P-87.77
 DATES OF MEETINGS: 11 and 19 January 1968

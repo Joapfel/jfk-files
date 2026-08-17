@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24997.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 for Political Affairs, the implication being that he would be
 the Under Secretary for Political Affairs if the Under

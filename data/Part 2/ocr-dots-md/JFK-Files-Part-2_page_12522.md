@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12522.png
-
-Convert to Markdown(2) If necessary, set out lead for WFO to check records of Passport Office, Department of State.
+(2) If necessary, set out lead for WFO to check records of Passport Office, Department of State.
 
 (3) Pertinent information is furnished Department of State, Central Intelligence Agency (CIA), and interested Legal Attaches. Furnish FBIHQ with six copies of LHM (2-Department, 1-Secret Service, 1-State, 1-CIA) plus an additional four copies for each Legal Attache Office which covers area in subject's itinerary (1-Legat, 3-Legat's sources). Also, furnish one copy of subject's photograph, if available, for each Legat Office involved. If stop should be placed with security services abroad, so indicate in cover letter. Set out requests for investigation abroad on separate numbered page captioned "Leads" at end of LHM. Request should not refer to Legal Attache or request investigation by any particular service.
 

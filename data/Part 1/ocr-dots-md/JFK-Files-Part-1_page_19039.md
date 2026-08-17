@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19039.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NPD Representation in West German States
 

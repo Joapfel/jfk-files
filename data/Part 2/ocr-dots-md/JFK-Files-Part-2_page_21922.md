@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21922.png
-
-Convert to Markdowndiscussion of executive action with Bissell, which, he said,
+discussion of executive action with Bissell, which, he said,
 might have transpired in "early January" (Harvey, 6/25/75, p.
 52). When Bissell was shown these notes, he agreed with Harvey
 about the timing of their initial discussion (Bissell, 7/17/75,

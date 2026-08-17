@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9084.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 UNITED STATES GOVERNMENT
 

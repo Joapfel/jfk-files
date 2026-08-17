@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27005.png
-
-Convert to MarkdownAPPROVED FOR RELEASE 1994
+APPROVED FOR RELEASE 1994
 CIA HISTORICAL REVIEW PROGRAM
 
 <table><tr><td>EXH 1</td></tr><tr><td>Exh.1 of the exhibit</td></tr><tr><td> közepi szám: 10187/1</td></tr></table>

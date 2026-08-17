@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28209.png
-
-Convert to Markdown12 JUL 1955
+12 JUL 1955
 
 CONFIDENTIAL
 

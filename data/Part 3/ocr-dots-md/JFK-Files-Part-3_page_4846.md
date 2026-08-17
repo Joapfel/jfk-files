@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4846.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in obtaining explosives for him and that he wished
 to have no further dealings with him. After hearing

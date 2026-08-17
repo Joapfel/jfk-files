@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1195.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REPORT OF SW and 7 1/2 S TRAINING
 

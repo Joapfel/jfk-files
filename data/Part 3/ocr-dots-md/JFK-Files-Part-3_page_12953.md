@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12953.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 7. Subject was described by a reliable source, who knows him from group social gatherings at Harvard, as mature and socially vivacious with a warm personality. Subject is a clever and humorous conversationalist who likes to be surrounded by people, make new acquaintances, and develop friendships. Subject's patriotic motivation was not known to our source, but the latter felt that Subject was completely "Americanized" in manners and interests. Our source would guess that Subject has courage.
 

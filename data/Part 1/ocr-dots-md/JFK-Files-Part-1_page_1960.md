@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1960.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 !! subsequently given several briefings by FE personnel, both in New York City and California. All under aliases. P. O. boxes and sterile phones were set up for communications.
 

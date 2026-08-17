@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19889.png
-
-Convert to Markdown# Letter of Tax Instruction for FEINGLASS/CAZAZZUS
+# Letter of Tax Instruction for FEINGLASS/CAZAZZUS
 
 1. Based on discussions held with tax representatives of the Organization, an assessment of your Organizational income has been approved to satisfy your Federal tax obligation.
 

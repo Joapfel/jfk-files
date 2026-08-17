@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8688.png
-
-Convert to MarkdownJENNE (no traces) with the firm F.A. Johnson, Inc., Fort Lauderdale, Fla. CAMERON was reported as allegedly belonging to the Mafia.
+JENNE (no traces) with the firm F.A. Johnson, Inc., Fort Lauderdale, Fla. CAMERON was reported as allegedly belonging to the Mafia.
 
 UFGA 15954 dated 11 May 1964
 

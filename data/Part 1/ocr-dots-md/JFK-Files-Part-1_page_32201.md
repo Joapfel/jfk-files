@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32201.png
-
-Convert to MarkdownCTR/ALT
+CTR/ALT
 
 Staff
 

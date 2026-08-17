@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21233.png
-
-Convert to Markdown**COMMENT:**
+**COMMENT:**
 
 This was also one of the cases furnished NOSENKO by EVGENI NOSKOV as noted above. (~~X~~) (u)
 

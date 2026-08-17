@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3278.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONTINUATION OF DISPATCH</td>
     <td>CLASSIFICAION<br/>CONFIDENTIAL</td>

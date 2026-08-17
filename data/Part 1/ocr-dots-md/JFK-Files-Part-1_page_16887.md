@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16887.png
-
-Convert to Markdownthem out, the father contracts the obligation of absolutely abstaining from calling on the mother's address, so that she may carry on her life freely without neglecting her children.
+them out, the father contracts the obligation of absolutely abstaining from calling on the mother's address, so that she may carry on her life freely without neglecting her children.
 
 10. While the voluntary divorce is being processed, the mother and children will live at and, as above stated, to satisfy their needs, the father will make the first monthly payment of $10,000,
 

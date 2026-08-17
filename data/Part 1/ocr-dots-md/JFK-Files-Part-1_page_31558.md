@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31558.png
-
-Convert to Markdown15 October 1953
+15 October 1953
 
 MEMORANDUM FOR: INSPECTOR GENERAL
 SUBJECT: Salary Information on NCFE People

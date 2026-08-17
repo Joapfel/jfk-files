@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7750.png
-
-Convert to MarkdownSome might say, "this is all very well and good where
+Some might say, "this is all very well and good where
 prosecutive action is used or intended, but what of the cases
 where the only purpose of the investigation is to produce
 intelligence information, with no hope or intent of prosecutive

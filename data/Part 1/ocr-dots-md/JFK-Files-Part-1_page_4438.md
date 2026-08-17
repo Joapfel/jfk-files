@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4438.png
-
-Convert to MarkdownIn response to your letter of March 10, we wish to advise
+In response to your letter of March 10, we wish to advise
 we are unable to provide you with any information concerning
 ~~Mr.~~ employment of Mr. Bernard L. Barker.
 

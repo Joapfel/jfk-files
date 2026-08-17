@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7370.png
-
-Convert to MarkdownA: The investigation of SCLC was not a racial matter. It was concerned with
+A: The investigation of SCLC was not a racial matter. It was concerned with
 possible communist influence of the organization. The Ku Klux Klan was a
 racial matter because it involved pressures between white and black persons.
 

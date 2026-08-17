@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23160.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. would have a meeting with him to review broad trends, either in Key West or in Miami. I never asked him with this type of thing. I don't recall anybody else in the station tasking him to conduct an investigation of Cuban groups relative to the President's assassination. But as we were putting together mood cables -- you showed me an example of one there -- it is conceivable that he is the kind of person that we would have talked to to find out what was going on in the Cuban community at that time.
 

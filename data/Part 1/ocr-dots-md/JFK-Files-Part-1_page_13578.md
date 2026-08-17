@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13578.png
-
-Convert to MarkdownRESUMEN
+RESUMEN
 
 martes 6 marzo 1962
 

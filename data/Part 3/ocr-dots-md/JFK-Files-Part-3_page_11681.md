@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11681.png
-
-Convert to MarkdownREPUBLIC OF NEW AFRICA
+REPUBLIC OF NEW AFRICA
 
 Budfile 157-9079
 

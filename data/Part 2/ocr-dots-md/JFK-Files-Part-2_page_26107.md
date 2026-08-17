@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26107.png
-
-Convert to Markdowndon't know. I gathered that he felt it would succeed.
+don't know. I gathered that he felt it would succeed.
 
 O'BRIEN: Well, then, you are pretty much out of touch from the point that you battle it with it until it actually comes off. You're right to O'Brien: didn't get into any of the changes in the plans there at all?
 

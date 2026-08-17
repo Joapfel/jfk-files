@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14890.png
-
-Convert to Markdownhe is "mouthy" and he will eat you up if you are not careful or if you get too close. Incorporation is the epitomy of control. Consequently, if you allow him to incorporate you he's got control, not you. Be wary and detached in this regard. He has already eaten up the case officer.
+he is "mouthy" and he will eat you up if you are not careful or if you get too close. Incorporation is the epitomy of control. Consequently, if you allow him to incorporate you he's got control, not you. Be wary and detached in this regard. He has already eaten up the case officer.
 
 The Subject is currently involved in his avocation of inventions and is the owner and exploiter of several patents. He has engaged the financial and technical interests of several others in his inventions. He currently presents the problem of being divided between the invention business and continuing in the preliminary phases with us. He claims that if he were to join us he would have to relinquish everything to his business partners. This is probably true, and it is also probably true that he would relinquish his invention interest but at the same time, he presents this item in the fashion of a con man. It would be wise to ignore this gambit.
 

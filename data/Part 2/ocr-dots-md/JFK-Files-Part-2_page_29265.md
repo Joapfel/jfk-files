@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29265.png
-
-Convert to MarkdownGary Edward Taylor Interview
+Gary Edward Taylor Interview
 Page 7.
 
 three people in the company, a man by the name of Ken Brown,

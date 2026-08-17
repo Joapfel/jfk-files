@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2562.png
-
-Convert to MarkdownBruce A. BERTOTALLY (P)
+Bruce A. BERTOTALLY (P)
 
 Dear Mr. BERTOTALLY,
 

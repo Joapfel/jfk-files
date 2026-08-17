@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5601.png
-
-Convert to MarkdownFINANCIAL RECORD OF UNIT
+FINANCIAL RECORD OF UNIT
 
 Balance as per bank statement for last month or each end of month
 

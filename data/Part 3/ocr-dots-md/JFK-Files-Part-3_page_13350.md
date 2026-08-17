@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13350.png
-
-Convert to MarkdownPresident had been shot?
+President had been shot?
 
 STURGIS: No, sir, I couldn't. All I know is that I was home at that --
 OLSEN: What kind of a job did you have at that time?

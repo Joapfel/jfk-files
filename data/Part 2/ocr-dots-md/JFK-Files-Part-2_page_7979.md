@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7979.png
-
-Convert to MarkdownTHE PURSUIT OF IMPORTANT TRUTH
+THE PURSUIT OF IMPORTANT TRUTH
 
 The magazine Computers and Automation has for more
 than three years followed an unusual publication policy:

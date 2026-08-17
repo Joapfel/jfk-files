@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1057.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 During January, 1965, Communist Party (CP) informants of the FBI in Seattle, Washington, area were instructed to contact Henry Huff, an influential CP member and former Smith Act subject, to express dissatisfaction with Fred Sandborg, a member of the CP in Seattle. Sandborg was known to criticize his CP club leadership and to be disliked by Huff. Sandborg was a strong financial supporter of the CP and it was hoped to oust him from the CP.
 

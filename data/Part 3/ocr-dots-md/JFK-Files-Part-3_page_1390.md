@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1390.png
-
-Convert to Markdown# House Select Committee on Assassinations
+# House Select Committee on Assassinations
 
 ## Dates of Surveillance
 

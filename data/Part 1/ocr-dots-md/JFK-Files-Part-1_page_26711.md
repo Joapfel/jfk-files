@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26711.png
-
-Convert to MarkdownMedi 72-x1CO-23
+Medi 72-x1CO-23
 
 29 April 1965
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6257.png
-
-Convert to MarkdownNotes:
+Notes:
 
 I did not address the financial records of the CRC that we are replacing with a summary (need to review again); we will probably have to wait until we meet with the full board to get their thinking on summaries.
 

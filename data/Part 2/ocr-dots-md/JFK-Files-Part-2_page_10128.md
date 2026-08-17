@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10128.png
-
-Convert to MarkdownDN 47-3190.
+DN 47-3190.
 
 Mrs. STEIN stated she did not believe the representations made by TANNENBAUM that she was connected with the United States Immigration Service, or with Military Intelligence, and that she obtained nothing of value from her.
 

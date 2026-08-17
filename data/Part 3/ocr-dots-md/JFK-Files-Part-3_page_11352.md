@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11352.png
-
-Convert to MarkdownMAR 25 95 43PM
+MAR 25 95 43PM
 
 TELEPHONE UNIT:
 

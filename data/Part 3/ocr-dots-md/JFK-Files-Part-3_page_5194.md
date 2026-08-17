@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5194.png
-
-Convert to MarkdownSA CARLTON H. WOLFARTH: I am extremely aware of the need to develop CIs and have had a total of nine PCIs in San Francisco during the time I have been in San Francisco.
+SA CARLTON H. WOLFARTH: I am extremely aware of the need to develop CIs and have had a total of nine PCIs in San Francisco during the time I have been in San Francisco.
 
 10/28/70
 CHW:ekk

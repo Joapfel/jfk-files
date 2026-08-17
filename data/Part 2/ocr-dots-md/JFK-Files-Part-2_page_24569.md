@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24569.png
-
-Convert to Markdownh. Testimony of Sorensen
+h. Testimony of Sorensen
 
 Sorensen served as a Special Assistant to President Kennedy during the entire Kennedy Administration. Sorensen was a member of the National Security Council Executive Committee that dealt with the Missile Crisis, although he was not involved with Mongoose.
 

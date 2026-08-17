@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_921.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
   <caption>FITNESS REPORT (Part II) POTENTIAL</caption>

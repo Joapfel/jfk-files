@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2064.png
-
-Convert to MarkdownINCOMING TELEGRAM
+INCOMING TELEGRAM
 
 ACTION/
 

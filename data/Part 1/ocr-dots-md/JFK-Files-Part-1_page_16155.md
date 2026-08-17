@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16155.png
-
-Convert to MarkdownThose who pay the yearly premiums will be known as 'participants' and they'll be entitled to the service. The government provides: those who don't, won't be. Whatever services private business can provide competitively will be left to private enterprise."
+Those who pay the yearly premiums will be known as 'participants' and they'll be entitled to the service. The government provides: those who don't, won't be. Whatever services private business can provide competitively will be left to private enterprise."
 
 "Like the police?" the lawyer smiles.
 

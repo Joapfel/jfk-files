@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6100.png
-
-Convert to MarkdownSECRET
+SECRET
 
 If they remained classified, the Agency was requested to cite the applicable exemption category from Section 5(B) of the E.O. and a date when automatic declassification may be accomplished. They requested that the copies of the documents be returned with the Agency's response.
 

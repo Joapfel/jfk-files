@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33370.png
-
-Convert to MarkdownBETRACADO — In Amerikaanse gestoorde Edward Kennedy, die van derdags pleind op een persoonlijke aanklaf, is geraadpleegd. By hem is de Zuidafrikaanse headstand Bel- grada, de vloedzettingen van de NAVO verordende die onlangs in het noorden van de Adriatische Zee zijn gebonden.
+BETRACADO — In Amerikaanse gestoorde Edward Kennedy, die van derdags pleind op een persoonlijke aanklaf, is geraadpleegd. By hem is de Zuidafrikaanse headstand Bel- grada, de vloedzettingen van de NAVO verordende die onlangs in het noorden van de Adriatische Zee zijn gebonden.
 
 Deze oefeningen hebben het geschill tussen Italia en Zuidafrika te zorg van de zogenaamde „zone B" ten zuiden van Titiëst verantwoordelijkheid. Kennedy heeft gegeven afdoende reden dat de afdeling niet kon worden afgesteld aan- dat ze al verschedene maanden te- voren in voorbereiding waren zet- telen. De Amerikaanse senator is duidelijk dag en nachtens het wekelijk hij bespre- kingen voerde met elder meerdor- pendent Titus, naar de Sovjet-Like doordagland. Hij zal "over onder de indruk" te zijn van zijn gesprekken met het Zuidafrikaanse staatshoofd.
 

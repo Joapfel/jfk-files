@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35003.png
-
-Convert to MarkdownPAYROLL
+PAYROLL
 
 ANNEX "I-F"
 

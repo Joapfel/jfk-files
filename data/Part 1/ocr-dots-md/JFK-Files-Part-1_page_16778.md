@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16778.png
-
-Convert to MarkdownOR3:
+OR3:
 UNIT:
 EXT:
 DATE:

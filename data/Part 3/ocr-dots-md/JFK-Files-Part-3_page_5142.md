@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5142.png
-
-Convert to Markdown9. All memoranda and any other materials reflecting correspondence, communications and/or contacts between FBI headquarters personnel and FBI field office personnel with respect to feasibility, installation, initiation, continuation, authorization, re-authorization, and termination of and disposition of tapes with respect to each of the electronic surveillances identified in the FBI's July 24, 1975, memorandum attached to your letter of August 11, 1975, which responded to Item III. G. of my July 28, 1975, request.
+9. All memoranda and any other materials reflecting correspondence, communications and/or contacts between FBI headquarters personnel and FBI field office personnel with respect to feasibility, installation, initiation, continuation, authorization, re-authorization, and termination of and disposition of tapes with respect to each of the electronic surveillances identified in the FBI's July 24, 1975, memorandum attached to your letter of August 11, 1975, which responded to Item III. G. of my July 28, 1975, request.
 
 10. All memoranda and any other materials reflecting authorization or articulation of the procedure identified in the last paragraph of page 6 of the FBI memorandum referred to in item 9 above, to wit, "authorization for utilizing a misur was made by the FBI Director or his designees".
 

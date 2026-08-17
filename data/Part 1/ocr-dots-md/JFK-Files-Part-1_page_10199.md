@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10199.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="7">SECTION IX</th></tr><tr><td colspan="3"></td><th colspan="5">MARITAL STATUS</th></tr><tr><td>1.</td><td>CHECK ONE</td><td>X</td><td>SINGLE</td><td>MARRIED</td><td>DIVORCED</td><td>SEPARATED</td><td>DECEASED</td><td>ANNUITY</td></tr></thead><tbody><tr><td colspan="9">2. STATE DATE, PLACE AND REASON FOR ALL SEPARATIONS, DIVORCES OR ANNULMENTS</td></tr><tr><td colspan="9">WIFE OR HUSBAND: IF YOU HAVE BEEN MARRIED MORE THAN ONCE, INCLUDING ANNUITIES, USE SHEET FOR FORMER WIFE OR HUSBAND GIVING DATA REQUIRED BELOW FOR ALL PREVIOUS MARRIAGES.</td></tr><tr><td>3.</td><td>NAME OF SPOUSE (First)</td><td>(Middle)</td><td colspan="6">(Last)</td></tr><tr><td>4.</td><td>DATE OF MARRIAGE</td><td colspan="7">5. PLACE OF MARRIAGE</td></tr><tr><td>6.</td><td>DATE OF BIRTH</td><td colspan="7">7. PLACE OF BIRTH</td></tr><tr><td>8.</td><td>NATIONALITY AT BIRTH</td><td colspan="7">9. SUBSEQUENT CITIZENSHIPS</td></tr><tr><td colspan="9">10. PRESENT RESIDENCE (Last residence, if deceased)</td></tr></tbody></table>
 

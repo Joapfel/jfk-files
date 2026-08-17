@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6955.png
-
-Convert to Markdownassassination records is properly identified, reviewed, and made public in the JFK Collection at the National Archives.
+assassination records is properly identified, reviewed, and made public in the JFK Collection at the National Archives.
 
 The fruits of our labor from the first three years would be realized in our last year, one in which we would be reviewing some of the most difficult records, and potentially most important records, but with the benefit of our invaluable experience. I am happy to report that we have received assurances from the FBI and CIA that they will work with us in a final year to make sure that the necessary resources are applied so that our task can be completed.
 

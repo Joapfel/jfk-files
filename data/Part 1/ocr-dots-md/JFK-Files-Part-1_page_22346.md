@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22346.png
-
-Convert to Markdown# e. Willingness to Meet CIA
+# e. Willingness to Meet CIA
 
 Although in 1962 NOSENKO claimed that he wanted to sell only two specific items for the money he had lost, and then disappear, there were indications from the outset that he expected and planned to come back for further meetings with CIA. At this first meeting he called attention to certain information in his possession about POPOV, hinting that he would tell it later; even as he protested his unwillingness to continue meeting with CIA, he was giving ample details about himself which would inevitably have compromised him to CIA and forced his future collaboration. Before he finally agreed to return for more meetings, he said: "Mayte I'll meet you again Monday" (two days after the first meeting). NOSENKO refused, despite repeated inducements, to meet on the intervening Sunday. In fact, when he did return on Monday, he said that he had spent Sunday with friends, drinking and "discussing recent USSR foreign policy moves and speeches by KRUSTCHEV."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14375.png
-
-Convert to MarkdownSECRET 18 JUN 70 HN
+SECRET 18 JUN 70 HN
 
 HRS
 

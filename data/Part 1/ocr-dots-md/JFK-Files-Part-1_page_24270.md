@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24270.png
-
-Convert to MarkdownDirect Psychological Assessment
+Direct Psychological Assessment
 of
 ORPHONE/1
 

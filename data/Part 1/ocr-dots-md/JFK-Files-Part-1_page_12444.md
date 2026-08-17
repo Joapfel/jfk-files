@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12444.png
-
-Convert to MarkdownSi se adoptan valores de referencia tales que permitan gravar el importo en la forma siguiente:
+Si se adoptan valores de referencia tales que permitan gravar el importo en la forma siguiente:
 
 Talla      5   8s/qt.
 Industrial  1   8s/qt.

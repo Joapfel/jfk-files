@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13709.png
-
-Convert to Markdown76 Annual Report
+76 Annual Report
 
 WARD & PAUL
 

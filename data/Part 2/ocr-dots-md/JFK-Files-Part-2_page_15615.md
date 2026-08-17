@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15615.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 apartment, located at 2337 West Monroe Street, Chicago,
 which calls for an appearance before the UN to formally

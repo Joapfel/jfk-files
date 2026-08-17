@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33171.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>AGE FORM<br>TOTAL COPY</td>

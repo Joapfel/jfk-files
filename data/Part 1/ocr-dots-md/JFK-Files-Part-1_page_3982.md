@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3982.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, VI Division
 SUBJECT : Proposed Meeting Between Chief, VI and AMBIDDY-1

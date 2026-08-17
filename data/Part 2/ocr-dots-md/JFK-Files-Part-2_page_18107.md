@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18107.png
-
-Convert to MarkdownDr. Leland J. Haworth
+Dr. Leland J. Haworth
 
 NOTE:
 

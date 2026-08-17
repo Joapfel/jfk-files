@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7004.png
-
-Convert to Markdown# Efforts of the Board to identify additional records, including in other countries
+# Efforts of the Board to identify additional records, including in other countries
 
 Susan said that she may have enough information for now, but she would let me know if more would be needed. I invited her to visit us if she wanted more details or to look at the records.
 

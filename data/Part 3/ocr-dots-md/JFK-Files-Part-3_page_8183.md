@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8183.png
-
-Convert to MarkdownLegal Counsel to Mr. Adams Memo
+Legal Counsel to Mr. Adams Memo
 RE: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES HOUSE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
 
 This matter was discussed with Congressman Nedzi on 4-9-75, and he stated he would promptly contact Mr. Harding to work out the necessary arrangements for security checks needed by his Committee and its Members. Harding has promised to let us know when the checks of the House Select Committee Members have been completed.

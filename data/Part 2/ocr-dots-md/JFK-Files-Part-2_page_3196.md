@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3196.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 in the Dominican Republic, even suggesting that an overt operation against Trujillo be mounted concurrently with the Cuban operation. The members of the Special Group, however, were unwilling to buy this particular plan of action; but they did support Mr. Bissell's proposals for some limited covert action operations aimed at the Trujillo regime.
 

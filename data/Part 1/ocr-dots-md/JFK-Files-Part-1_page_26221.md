@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26221.png
-
-Convert to MarkdownMéxico D. F., 7 de marzo de 1967.
+México D. F., 7 de marzo de 1967.
 
 Sobera
 Flora Carro de Paz

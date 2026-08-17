@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6183.png
-
-Convert to MarkdownChief, Office of Collection & Dissemination
+Chief, Office of Collection & Dissemination
 
 10 September 1963
 

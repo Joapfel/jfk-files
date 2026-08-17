@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10647.png
-
-Convert to MarkdownPROGRAMS, PROJECTS, SURVEYS, and PROCEDURES
+PROGRAMS, PROJECTS, SURVEYS, and PROCEDURES
 
 1. Administrative Index (Adex) - List of individuals who posed a realistic direct, and current danger to the national security of the United States.
 

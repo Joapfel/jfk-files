@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22524.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WORLD YOUTH FESTIVAL, ALGIERS - 1965
 

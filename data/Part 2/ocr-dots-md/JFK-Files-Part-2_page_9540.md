@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9540.png
-
-Convert to Markdown"The racist dog policeman must withdraw immediately from our communities, cease their wanton murder and brutality and torture of Black people, or face the wrath of the armed people."
+"The racist dog policeman must withdraw immediately from our communities, cease their wanton murder and brutality and torture of Black people, or face the wrath of the armed people."
 
 On Saturday, October 24, the Second Precinct Police Station led an assault on the new headquarters of the Detroit chapter of the National Committee to Combat Fascism, (NCCF).
 

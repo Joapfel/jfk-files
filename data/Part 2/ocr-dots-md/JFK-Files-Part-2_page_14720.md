@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14720.png
-
-Convert to Markdown# MARTIN EDWARD UNDERWOOD
+# MARTIN EDWARD UNDERWOOD
 
 Underwood, aged 54, was employed for a number of years as a salesman in Illinois and Maryland. Since 1961 he has been employed by the United States Government, for the greater period by the Department of Commerce, and the Small Business Administration. He was detailed to the White House in 1966 as an advance man in connection with the travels of former President Johnson.
 

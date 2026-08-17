@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_9548.png
-
 in connection with approved operations requiring immediate activation. Project G-58-JEDICT (8 November 1949)
 
 Has been assigned by 7E-II to FB-III for this special, temporary duty.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4645.png
-
-Convert to MarkdownSECRET
+SECRET
 
 or the other - and literally stick him in a room and
 say, "Here, everything, and tell me what it's like."

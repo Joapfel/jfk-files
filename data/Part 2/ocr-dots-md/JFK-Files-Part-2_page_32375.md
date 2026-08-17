@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32375.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Cuba for training and indoctrination." In addition to regular commercial transportation, charter flights to service these persons are being run thrice monthly throughout South America. In order to avoid Cuban visas and entry-exit stamps in their passports, these persons are given visas on a separate sheet of paper. In Cuba all arrangements are made for them by the Instituto Cubano de Amistad con los Pueblos (ICAP).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22367.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Information not available to GOLITSYN.
 

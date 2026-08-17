@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9923.png
-
-Convert to Markdown11 August, 1957
+11 August, 1957
 
 Subject: LURING/3 Meeting with Mercader Pereira.
 

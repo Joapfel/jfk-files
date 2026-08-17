@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24742.png
-
-Convert to Markdown-9-
+-9-
 
 appearances, was that there was no White House urging for the creation of the executive action project, although tacit approval for the "research" project was probably given by Bundy after it was established.
 

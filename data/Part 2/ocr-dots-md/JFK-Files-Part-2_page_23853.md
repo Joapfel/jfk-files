@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23853.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 Senator Huddleston. But if they keep coming to the
 2 embassy to check with him, they blow their cover, unless they do

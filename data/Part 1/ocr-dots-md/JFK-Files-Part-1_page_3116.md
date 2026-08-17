@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3116.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, Buenos Aires
 

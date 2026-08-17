@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_703.png
-
-Convert to Markdownstandardize their oversight responsibilities and make regular inquiries of the Director and other officials of the FBI as to our activities. He was informed that there should be either a joint oversight committee between the House and Senate or if the Congress decided on two oversight Committees in both the House and Senate, these committees should be the entities through which all information relative to the activities of the FBI should flow.
+standardize their oversight responsibilities and make regular inquiries of the Director and other officials of the FBI as to our activities. He was informed that there should be either a joint oversight committee between the House and Senate or if the Congress decided on two oversight Committees in both the House and Senate, these committees should be the entities through which all information relative to the activities of the FBI should flow.
 
 It was emphasized however, that there should be regular consultation between these representatives and the FBI.
 

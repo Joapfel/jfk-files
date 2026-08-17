@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19472.png
-
-Convert to Markdown# THE FOREIGN AFFAIRS EXECUTIVE SEMINAR
+# THE FOREIGN AFFAIRS EXECUTIVE SEMINAR
 
 This is to certify that
 J. Walton Moore

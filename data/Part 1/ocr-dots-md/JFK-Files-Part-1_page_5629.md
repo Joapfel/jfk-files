@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5629.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MESSAGE FORM<br>TOTAL COPIES:</td><td></td></tr><tr><td colspan="2"><table border="1" style="border-collapse: collapse; width: auto; font-family: monospace;"><tr><td>ROUTING AND/OR ATTAINS - BEEN BY</td></tr><tr><td>1</td><td>8</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table></td></tr><tr><td colspan="2">SECRET</td></tr></table></td></tr></table>
 

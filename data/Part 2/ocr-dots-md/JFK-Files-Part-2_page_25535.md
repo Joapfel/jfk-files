@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25535.png
-
-Convert to Markdown medicine and I just didn't want anything to go wrong.
+medicine and I just didn't want anything to go wrong.
 
 FS: But your husband continued to work with the agency, right?
 

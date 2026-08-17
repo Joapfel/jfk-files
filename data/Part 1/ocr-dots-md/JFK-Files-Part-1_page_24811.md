@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24811.png
-
-Convert to MarkdownWH/6-509
+WH/6-509
 
 15 February 1967
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10507.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EDMOND W. HARRIS (UNITED STATES)
 

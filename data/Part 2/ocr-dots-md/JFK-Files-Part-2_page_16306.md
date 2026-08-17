@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16306.png
-
-Convert to MarkdownThe BPP held classes on October 23, 1969, in Oakland for BOBBY MC GUINNESS and WILLIAM FESPERMAN of the YP in Chicago. These classes were to instruct the YP in the organizational structure of the BPP.
+The BPP held classes on October 23, 1969, in Oakland for BOBBY MC GUINNESS and WILLIAM FESPERMAN of the YP in Chicago. These classes were to instruct the YP in the organizational structure of the BPP.
 
 , 10/23/69)
 

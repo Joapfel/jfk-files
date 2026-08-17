@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31836.png
-
-Convert to MarkdownSGCT Joseph J. Piccolo AP22928914
+SGCT Joseph J. Piccolo AP22928914
 121st Tactical Fighter Squadron
 Andrews Air Force Base
 Washington 25, D. C.

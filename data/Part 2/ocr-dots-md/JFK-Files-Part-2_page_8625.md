@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8625.png
-
-Convert to MarkdownTranscript of the President's News Con
+Transcript of the President's News Con
 
 Following is a transcript of Presi-
 dent Carter's news conference in

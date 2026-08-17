@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13023.png
-
-Convert to Markdown24 NOV 1975
+24 NOV 1975
 
 Compartmented
 Clearance

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11152.png
-
-Convert to Markdown(f) The object of verifying addresses of security index subjects (other than top functionaries and key figures) shall be handled by reopening and assigning the cases for verification and closing the cases administratively upon accomplishment of verifications. Top functionary and key figure cases are to be handled as provided in section 87D 7f [(6).] Verifications should also be made at the time of submission of all annual investigative reports and should be reported therein.
+(f) The object of verifying addresses of security index subjects (other than top functionaries and key figures) shall be handled by reopening and assigning the cases for verification and closing the cases administratively upon accomplishment of verifications. Top functionary and key figure cases are to be handled as provided in section 87D 7f [(6).] Verifications should also be made at the time of submission of all annual investigative reports and should be reported therein.
 
 (8) Changes, additions, and deletions of data appearing on security index cards
 

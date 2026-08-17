@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16775.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG: N JUDKINS dd
 UNIT: WE/3/MEXICO

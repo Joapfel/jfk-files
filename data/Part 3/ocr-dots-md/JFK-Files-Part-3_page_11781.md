@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11781.png
-
-Convert to MarkdownCaseload figures
+Caseload figures
 
 7/31/71   8/20/71   Change
 

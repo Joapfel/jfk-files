@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4502.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="3">CLASSIFIED M/SSAGE</td>
         <td rowspan="2">ORIGINAL</td>

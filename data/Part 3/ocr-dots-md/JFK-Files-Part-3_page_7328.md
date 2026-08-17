@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7328.png
-
-Convert to MarkdownFile #:
+File #:
 Serial Scope:
 
 Released under the John F. Kennedy

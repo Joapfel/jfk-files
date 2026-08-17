@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23763.png
-
-Convert to Markdownconcern that it not indicate that we had found some evidence
+concern that it not indicate that we had found some evidence
 that we had just not revealed.
 
 Mr. Bader. Perhaps it would be helpful. Senator, but

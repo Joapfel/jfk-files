@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2342.png
-
-Convert to Markdownsupporting or refuting information, has necessarily been based to a
+supporting or refuting information, has necessarily been based to a
 considerable degree on the logic of the statements made by NOSENKO.
 
 Admittedly this is not the most satisfactory way of resolving the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15311.png
-
-Convert to Markdown32. Then they were stopped by the French gendarmes who thought that they were Germans. David quickly inverted the story of their flight from the occupied zone for joining the Free French Legion. The gendarmes took them to a village where David could buy a pair of shoes, but alas, canvas shoe only, and of too large size. When they were directed to a company of that Legion, to LOUIS. The chief of this company gave them a horse cart to go to the regimental base in Marseille, Camp de Sainte-Marthe.
+32. Then they were stopped by the French gendarmes who thought that they were Germans. David quickly inverted the story of their flight from the occupied zone for joining the Free French Legion. The gendarmes took them to a village where David could buy a pair of shoes, but alas, canvas shoe only, and of too large size. When they were directed to a company of that Legion, to LOUIS. The chief of this company gave them a horse cart to go to the regimental base in Marseille, Camp de Sainte-Marthe.
 
 33. There arrived, David advised Pascal to go to the registrar first, so they both could see whether he, as a Frenchman, will be accepted without showing his German passport. David, being a Georgian, did not want to go the first. Pascal went. His story was not believed. To prove his being a Frenchman and not a German as suspected, he showed his German passport for foreigners. This made the situation worse, and Pascal was happy to get out without being arrested.
 

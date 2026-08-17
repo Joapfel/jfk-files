@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24542.png
-
-Convert to Markdownto assassinate Castro:
+to assassinate Castro:
 
 "The Chairman. 'Since he was on the phone to you repeatedly did he ever tell you to kill Castro?'
 

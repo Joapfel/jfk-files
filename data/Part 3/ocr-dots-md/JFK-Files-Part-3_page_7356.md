@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7356.png
-
-Convert to MarkdownSEATE SELECT COMMITTEE (SSC) ON INTELLIGENCE ACTIVITIES
+SEATE SELECT COMMITTEE (SSC) ON INTELLIGENCE ACTIVITIES
 RE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (BA)
 
 Writer stated he was interested in obtaining such assistance. Accordingly during the morning of 5/12/75 Mr. Seymour Phillips contacted the writer.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5843.png
-
-Convert to MarkdownLetter to PAC, Los Angeles
+Letter to PAC, Los Angeles
 
 RE: JANE FONDA
 

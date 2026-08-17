@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5114.png
-
-Convert to MarkdownH/,. Attachment to
+H/,. Attachment to
 
 TM 180212, 16 Dec 76
 

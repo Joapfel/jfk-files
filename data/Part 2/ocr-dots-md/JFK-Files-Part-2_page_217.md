@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_217.png
-
-Convert to Markdown# Fiesta de María José Chopitea
+# Fiesta de María José Chopitea
 
 CONCEPCION de López Belloso, María Jose Chopitea, María Asúnsulo de Colín y June Cobb
 

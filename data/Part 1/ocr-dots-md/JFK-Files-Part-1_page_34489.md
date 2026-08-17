@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34489.png
-
-Convert to MarkdownSECRET
+SECRET
 
 there is certainly no country in the free world on which we
 could conceivably have unloaded Nosenko without first inform-

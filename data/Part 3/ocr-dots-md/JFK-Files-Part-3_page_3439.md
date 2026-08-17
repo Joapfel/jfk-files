@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3439.png
-
-Convert to MarkdownREC-88
+REC-88
 
 July 18, 1975
 

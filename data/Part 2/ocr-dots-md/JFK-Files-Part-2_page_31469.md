@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31469.png
-
-Convert to Markdown# NORTHERN CALIFORNIA COMMITTEE FOR PROTECTION OF FOREIGN BORN
+# NORTHERN CALIFORNIA COMMITTEE FOR PROTECTION OF FOREIGN BORN
 
 The "Daily People's World," now known as the "People's World," a West Coast Communist newspaper, of November 2, 1950, page 10, columns 1 and 2, contained an article entitled, "Northern California Committee for Foreign Born Planned." This article stated that plans for the organization of a Northern California Committee for Protection of Foreign Born would be made at a meeting on November 6, 1950, at 150 Golden Gate Avenue, San Francisco, California.
 

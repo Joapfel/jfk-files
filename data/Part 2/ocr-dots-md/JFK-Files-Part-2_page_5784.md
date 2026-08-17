@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5784.png
-
-Convert to Markdown13-00000
+13-00000
 
 25 August 1998
 

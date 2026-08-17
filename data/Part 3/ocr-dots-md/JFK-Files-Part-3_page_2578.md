@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2578.png
-
-Convert to Markdown## Partial Response
+## Partial Response
 
 c. A list of all electronic surveillances, identified by subject and target, of the so-called "Kissinger 17". (D.4.)
 

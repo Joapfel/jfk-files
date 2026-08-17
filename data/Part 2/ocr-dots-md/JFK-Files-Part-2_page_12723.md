@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12723.png
-
-Convert to Markdownshould be completely filled out just as if a first recommendation is being made, and submitted with a current report. If not, the Bureau should be advised of the reasons for not reactivating his security index card. In either case, cancel the inactive card.
+should be completely filled out just as if a first recommendation is being made, and submitted with a current report. If not, the Bureau should be advised of the reasons for not reactivating his security index card. In either case, cancel the inactive card.
 
 (7) Periodic verification of addresses
 

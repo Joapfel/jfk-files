@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24519.png
-
-Convert to MarkdownGilpatric of Defense, McCone of CIA, and Gen. Lemnitzer of the Joint
+Gilpatric of Defense, McCone of CIA, and Gen. Lemnitzer of the Joint
 Chiefs) plus Robert Kennedy and General Taylor. Also, Secretaries
 Rusk and McNamara more frequently attended its meetings than they did
 those of the Special Group itself.

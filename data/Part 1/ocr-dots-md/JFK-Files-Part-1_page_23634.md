@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23634.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>FOR NO. 35-82</td></tr><tr><td>DATE 21 OCT 52</td></tr></table>
 

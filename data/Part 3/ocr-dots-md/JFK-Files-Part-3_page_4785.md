@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4785.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 The following observations were noted concerning the activities of NORMAN ROTHMAN:
 

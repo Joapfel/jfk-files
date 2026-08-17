@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26056.png
-
-Convert to Markdownsince they had had this former affiliation
+since they had had this former affiliation
 and had taken their basic military training
 with the enemy, so to speak, they never quite
 had the same stature among their fellow

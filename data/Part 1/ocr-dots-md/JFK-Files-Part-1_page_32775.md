@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32775.png
-
-Convert to MarkdownPRQ PART I (EQUIVALENT)
+PRQ PART I (EQUIVALENT)
 
 NAME: Miguel Angel DIAZ Isalgus (801-307337)
 DPOB: 14 February 1937, Matanzas City, Cuba

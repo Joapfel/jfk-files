@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5937.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (U) The Security Research Staff (SRS) was the component responsible for collecting, developing, and evaluating information of a counterintelligence nature to
 

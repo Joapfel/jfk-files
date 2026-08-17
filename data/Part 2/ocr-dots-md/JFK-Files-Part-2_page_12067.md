@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12067.png
-
-Convert to Markdownd. All such material should be transmitted in the same manner as statements furnished by informant.
+d. All such material should be transmitted in the same manner as statements furnished by informant.
 
 e. Receipt of such material should be recorded on form FD-306 or on a channelizing memorandum containing all applicable items set forth on form FD-306. See section 107M for filing instructions.
 

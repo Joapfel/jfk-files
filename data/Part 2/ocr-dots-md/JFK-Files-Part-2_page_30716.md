@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30716.png
-
-Convert to Markdown11110837
+11110837
 
 Manolo Ray
 Volume VII continued

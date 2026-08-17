@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11399.png
-
-Convert to Markdown#m0216
+#m0216
 
 ALL INFORMATION CONTAINED ON THIS IS UNCLASSIFIED ENVELOPE
 

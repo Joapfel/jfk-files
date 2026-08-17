@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28215.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>NAME OF EMPLOYEE (Last-First-Middle)</th><th>NAME AND RELATIONSHIP OF DEPENDENT</th><th>CLAIM NUMBER</th></tr></thead><tbody><tr><td>Fandell, Frederick C.</td><td>Barbara J. - daughter</td><td>65-819</td></tr></tbody></table>
 

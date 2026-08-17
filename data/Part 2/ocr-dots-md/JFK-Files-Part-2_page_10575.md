@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10575.png
-
-Convert to MarkdownThe charge-out record is temporary in nature and
+The charge-out record is temporary in nature and
 is destroyed five days after the file has been returned to
 the Files and Communications Division.
 

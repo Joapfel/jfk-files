@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12056.png
-
-Convert to Markdownbe considered by offices having a Soviet establishment or
+be considered by offices having a Soviet establishment or
 particular investigative situation. This information is immediately
 furnished to interested offices by Supervisor having responsibility
 for coordination of the SPIA-SATPIA matters or by the substantive

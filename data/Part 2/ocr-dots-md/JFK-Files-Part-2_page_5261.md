@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5261.png
-
-Convert to MarkdownSECRET
+SECRET
 CSI - Internal Use Only
 
 3 January 1996

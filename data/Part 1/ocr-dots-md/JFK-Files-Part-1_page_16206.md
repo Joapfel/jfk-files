@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16206.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Memorandum for the Record
 

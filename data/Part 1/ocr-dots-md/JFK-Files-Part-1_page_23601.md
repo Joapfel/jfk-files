@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23601.png
-
-Convert to MarkdownFC#R'P'NO. 35-83
+FC#R'P'NO. 35-83
 NOV 1981
 
 CLASSIFIED MESSAGE

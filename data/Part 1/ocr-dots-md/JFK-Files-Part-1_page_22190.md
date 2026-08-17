@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22190.png
-
-Convert to Markdown8.
+8.
 
 Directorate Agent, told U.S. authorities that she did not think NOSENKO was a KGB officer. At the same time, however, said she knew that NOSENKO had told the Americans about the microphones in the U.S. Embassy in Moscow. The following is from the transcript of her remarks:
 

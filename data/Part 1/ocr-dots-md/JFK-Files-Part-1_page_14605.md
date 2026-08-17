@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14605.png
-
-Convert to Markdown5. Subject was and is still a Communist.
+5. Subject was and is still a Communist.
 6. Subject Joined the party in 1967, In that year he became a member of the Party. He will be a full member of the Party when he turns 25 years old.
 7. Subject was born before the present regime. To presently holds a position which he presumably would not hold had there been no revolution.
 8. Source does not know if Subject is the sort of person who would be capable of doing something against the present Cuban regime if he were ordered to do so, although, according to Subject's background and activities during the dictatorial regime, he is the sort of man who eigenes.

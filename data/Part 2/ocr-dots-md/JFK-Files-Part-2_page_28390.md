@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28390.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Tom Howarth and Becky Martin
 

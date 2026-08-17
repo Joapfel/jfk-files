@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8574.png
-
-Convert to MarkdownJuly 23, 1960.
+July 23, 1960.
 
 CAPTAIN
 

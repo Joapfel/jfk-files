@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16430.png
-
-Convert to MarkdownOCTOBER 1966
+OCTOBER 1966
 
 BLACK PANTHER PARTY
 PLATFORM and PROGRAM

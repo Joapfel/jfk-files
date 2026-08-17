@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18519.png
-
-Convert to MarkdownSEC-R-E-T
+SEC-R-E-T
 (When filled in)
 
 TUTORIAL TRAINING REPORT

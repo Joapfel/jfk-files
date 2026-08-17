@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23488.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="3"><b>PERSONS/ENTITIES:</b><br>PRESIDENT EISENHOWER, GORDON GRAY</td>

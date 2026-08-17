@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_883.png
-
-Convert to Markdown104-10074-10355
+104-10074-10355
 
 <table><tr><td>UNCLASSIFIED</td></tr><tr><td>INTERNAL USE ONLY</td></tr><tr><td>CONFIDENTIAL</td></tr><tr><td>SECRET</td></tr></table>
 

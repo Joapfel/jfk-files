@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6946.png
-
-Convert to Markdown13-00000
+13-00000
 
 CIA HAS NO OBJECTION TO
 DECLASSIFICATION AND/OR

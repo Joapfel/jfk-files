@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20365.png
-
-Convert to Markdown# DECLARATION OF APPOINTEE
+# DECLARATION OF APPOINTEE
 
 This form, if required, is to be completed before entrance on duty. Every question must be answered. Any false statement in this declaration will be grounds for non-issuance of a passport or demotion after appointment. Taking伪paper as a criminal offense and will be prosecuted accordingly.
 

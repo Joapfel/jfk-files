@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5731.png
-
-Convert to MarkdownOUTGOING TELEPOUCH
+OUTGOING TELEPOUCH
 
 E 2 IMPDET
 CL BY: 019522

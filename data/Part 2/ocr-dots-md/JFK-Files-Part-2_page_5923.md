@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5923.png
-
-Convert to Markdown1 June 1985
+1 June 1985
 
 MEMORANDUM FOR: Gloria Boyd, HRG/CSI
 

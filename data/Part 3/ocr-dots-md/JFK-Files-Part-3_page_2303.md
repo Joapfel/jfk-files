@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2303.png
-
-Convert to MarkdownHonorable Frank Church
+Honorable Frank Church
 
 I do hope that you are able to express concurrence in the proposals herein since the file destruction moratorium has produced substantial administrative burdens for us. Please also accept my assurance of our continued full cooperation with you and your Committee.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22479.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">SENDER WILL CHECK CLASSIFIED</td>
     <td colspan="2">OFFICE TOP AND BOTTOM</td>

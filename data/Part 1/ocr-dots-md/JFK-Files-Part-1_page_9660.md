@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9660.png
-
-Convert to Markdown2. Regarding Lyle STUART, Dr. Baul OSEGUDA, Bartolome COSTA Amic, and Mario MONTEFORTE Toledo:
+2. Regarding Lyle STUART, Dr. Baul OSEGUDA, Bartolome COSTA Amic, and Mario MONTEFORTE Toledo:
 
 Dr. OSEGUDA apparently has had a secret logging to get something of his own printed in English. He seized upon the opportunity of commenting SKALS' introduction to Antikommunismo in order to write to STUART this spring.
 

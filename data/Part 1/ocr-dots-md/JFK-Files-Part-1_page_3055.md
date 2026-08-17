@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3055.png
-
-Convert to MarkdownAmericans then become the topic of conversation. A. says,
+Americans then become the topic of conversation. A. says,
 "They work with anyone, with the good and the bad (a khoroshimi
 i plokhimi.)" B. states, "It in my impression and opinion that,
 nevertheless, the Americans somehow understand us better, so to

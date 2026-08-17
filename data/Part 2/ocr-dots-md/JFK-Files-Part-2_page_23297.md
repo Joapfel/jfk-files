@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23297.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The Chairman. Now you saw this telegram and approved it before it was sent by State?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15475.png
-
-Convert to Markdown# Iraq
+# Iraq
 
 Embassy, Washington, D. C. WF 1446-S* 2,329
 

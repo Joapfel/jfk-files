@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6041.png
-
-Convert to MarkdownAnna Kasten Nelson
+Anna Kasten Nelson
 
 3121 Quebec Pl. N.W.
 Washington, D.C. 20008

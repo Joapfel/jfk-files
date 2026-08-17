@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9119.png
-
-Convert to MarkdownS.A., Cie
+S.A., Cie
 
 Jose Maria Valle Subarnor
 Inmovilizado Ato 5,149,817,000 pts

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16262.png
-
-Convert to MarkdownSource advised BPP members attended an SDS protest held at the University of Illinois, Chicago Circle Campus on May 27, 1969. SDS was protesting against a Major Cities Police Department Command Officers Conference, then in progress.
+Source advised BPP members attended an SDS protest held at the University of Illinois, Chicago Circle Campus on May 27, 1969. SDS was protesting against a Major Cities Police Department Command Officers Conference, then in progress.
 
 5/27/69)
 

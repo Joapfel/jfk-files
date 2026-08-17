@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10670.png
-
-Convert to MarkdownSECRET
+SECRET
 
 sumed it to be Francisco V. Portella (201-281963). It would
 be helpful if we could obtain additional details on both

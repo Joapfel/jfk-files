@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8546.png
-
-Convert to MarkdownX-REF. SHEET S-E-C-R-E-T
+X-REF. SHEET S-E-C-R-E-T
 
 DATE 21/03/78
 

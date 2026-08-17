@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22287.png
-
-Convert to Markdown694.
+694.
 
 - NOSENKO was unable to say when or how the KGB first learned that BURGI was a homosexual, nor could he remember who first proposed an operation against him.
 

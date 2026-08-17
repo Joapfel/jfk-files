@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26636.png
-
-Convert to Markdown**TOP SECRET**
+**TOP SECRET**
 
 SPECIAL REPORTS are supplements to the Current Intelligence Weeklies issued by the Office of Current Intelligence. The Special Reports are published separately to permit more comprehensive treatment of a subject. They are prepared by the Office of Current Intelligence, the Office of Economic Research, the Office of Strategic Research, and the Directorate of Science and Technology. Special Reports are coordinated as appropriate among the Directorates of CIA but, except for the normal substantive exchange with other agencies at the working level, have not been coordinated outside CIA unless specifically indicated.
 

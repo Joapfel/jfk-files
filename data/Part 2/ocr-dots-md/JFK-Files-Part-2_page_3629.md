@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3629.png
-
-Convert to MarkdownNOTES
+NOTES
 
 A. Oswald Press stories to the effect that Lee Harvey Oswald recently visited Mexico City are true, according to our information. Oswald visited both the Cuban and the Soviet embassies on 28 September. He was trying, we are told, to arrange for visas so that he could travel to the USSR via Havana. He returned to the US on 3 October.
 

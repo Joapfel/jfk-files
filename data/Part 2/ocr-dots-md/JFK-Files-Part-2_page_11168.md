@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11168.png
-
-Convert to Markdownc. Aims and purposes
+c. Aims and purposes
 [Particular emphasis should be placed on determining whether the organization advocates violence, resistance, and unlawful activity.]
 
 d. Location of headquarters

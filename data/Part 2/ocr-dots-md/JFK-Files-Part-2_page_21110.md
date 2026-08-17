@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21110.png
-
-Convert to MarkdownMM 105-2234
+MM 105-2234
 
 This report is classified confidential since data reported from MM T-1, who is MM 726-S should reasonably result in the identification of a confidential informant of continuing value and compromise the future effectiveness thereof. (u)
 

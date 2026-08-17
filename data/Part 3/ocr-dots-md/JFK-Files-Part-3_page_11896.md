@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11896.png
-
-Convert to MarkdownEast Coast Conspiracy
+East Coast Conspiracy
 
 **Eqbal Ahmad:**
 

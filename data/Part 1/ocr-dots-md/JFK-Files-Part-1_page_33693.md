@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33693.png
-
-Convert to MarkdownThe common man in Prague had a festive air. Jammed with spectators — rare in Communist Czech society — he was more like a celebration than a monster trial of 15 of Czechoslovak freedom-loving patriots. Chief defendant in this mock trial was Milada Horakova, the founder of Czech democratic leaders by the Communist regime.
+The common man in Prague had a festive air. Jammed with spectators — rare in Communist Czech society — he was more like a celebration than a monster trial of 15 of Czechoslovak freedom-loving patriots. Chief defendant in this mock trial was Milada Horakova, the founder of Czech democratic leaders by the Communist regime.
 
 Doctor of Law, former worker for the municipal administration of Prague. Member of Parliament . . . the 48-year old Czech patriot stood firm against the verbal lashings of the Red prosecutor. "Milada Horakova you are a traitor to the People's Democracy of Czechoslovakia. What is your defense?"
 

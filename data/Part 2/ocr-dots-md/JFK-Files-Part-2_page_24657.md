@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24657.png
-
-Convert to Markdown(f) Testimony of Bissell and Tweedy About the Degree of Support for and Perpetration of the Assassination Plot
+(f) Testimony of Bissell and Tweedy About the Degree of Support for and Perpetration of the Assassination Plot
 
 There is a great variance between the testimony of Richard Bissell and Bronson Tweedy and the picture of the assassination plot presented by the Chief of Station and the cable traffic from the period. While the weight of the evidence demonstrates that the assassination effort was the "highest priority" at CIA headquarters among operations in the Congo, Bissell has no direct recollection of Gottlieb's mission to the Congo and Tweedy can recall nothing more than consideration of the feasibility of an assassination attempt.
 

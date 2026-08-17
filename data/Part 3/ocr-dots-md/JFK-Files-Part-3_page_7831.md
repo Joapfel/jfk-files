@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7831.png
-
-Convert to MarkdownEpstein asked if I kept a card at the office showing my location. I responded that it was the normal practice to place a card in file when one was away from the office. In this case, if I placed a card in file I probably would place a notation like "Special - See Supervisor Belter for contact."
+Epstein asked if I kept a card at the office showing my location. I responded that it was the normal practice to place a card in file when one was away from the office. In this case, if I placed a card in file I probably would place a notation like "Special - See Supervisor Belter for contact."
 
 I had never seen any paper, memos, etc. (other than logs) dealing with this case.
 

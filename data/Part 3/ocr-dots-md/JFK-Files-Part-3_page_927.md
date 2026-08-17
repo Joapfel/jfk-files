@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_927.png
-
-Convert to Markdownentire criminal justice system. Because of the multiple and varied responsibilities of the FBI, the Attorney General-Director relationship and the counterpart division relationships should insure a smooth and coordinated effort which will enable the accomplishment of major objectives, while at the same time providing necessary FBI services to other elements of the criminal justice system.
+entire criminal justice system. Because of the multiple and varied responsibilities of the FBI, the Attorney General-Director relationship and the counterpart division relationships should insure a smooth and coordinated effort which will enable the accomplishment of major objectives, while at the same time providing necessary FBI services to other elements of the criminal justice system.
 
 That we are well aware of our role and responsibilities in this regard, and to cite only one of several examples, is evidenced by the operation of the Computerized Criminal History Program which provides much needed data to all branches of the system. Thus, to the extent possible, these relationships should be such that both objective achievement and mutual assistance between components of the systems are enhanced.
 

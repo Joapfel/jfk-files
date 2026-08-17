@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9827.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 # Memorandum
 
 TO: DIRECTOR, FBI (157-9304) DATE: 2/25/71

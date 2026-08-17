@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1271.png
-
-Convert to MarkdownThe Deputy Attorney General
+The Deputy Attorney General
 
 Item (6)(b) should be reconsidered with the following language:
 

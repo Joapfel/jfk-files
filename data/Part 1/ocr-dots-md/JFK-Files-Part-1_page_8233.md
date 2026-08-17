@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8233.png
-
-Convert to Markdown# PROFESSIONAL ASSOCIATES
+# PROFESSIONAL ASSOCIATES
 
 Lambert Ralph, Representative in Mexico
 President, Minos Huruapa, S. A.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25599.png
-
-Convert to MarkdownNevada Gaming Control Board refused to allow the Tropicana to open as long as Sacco was associated with its operation, whereupon the hotel owners were forced to buy back the gift shop lease at a cost of $180,000, reportedly about thirty times the amount paid for the lease.
+Nevada Gaming Control Board refused to allow the Tropicana to open as long as Sacco was associated with its operation, whereupon the hotel owners were forced to buy back the gift shop lease at a cost of $180,000, reportedly about thirty times the amount paid for the lease.
 
 During the above period, Sacco also involved himself in the production of shows for the Tropicana, but again the Gaming Control Board refused to allow him to participate in any capacity and he sold his interest. Following his ouster from the Tropicana, Sacco sold ice machines to most of the Las Vegas hotels at prices far in excess of prices on the open market. Sacco has also received numerous "finders fees" from various Las Vegas hotels and casinos for which few if any services were performed.
 

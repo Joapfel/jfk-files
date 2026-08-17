@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16617.png
-
-Convert to MarkdownFiles are attached with pertinent items clipped....
+Files are attached with pertinent items clipped....
 
 **Lamberto BESTA**
 

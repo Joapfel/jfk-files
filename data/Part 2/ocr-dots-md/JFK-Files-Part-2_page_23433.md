@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23433.png
-
-Convert to MarkdownROCKEFELLER COMMISSION TESTIMONY
+ROCKEFELLER COMMISSION TESTIMONY
 
 | Page | Subject |
 |---|---|

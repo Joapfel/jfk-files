@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11888.png
-
-Convert to MarkdownTable of Contents (Continued)
+Table of Contents (Continued)
 
 Page
 

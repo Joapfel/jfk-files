@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4865.png
-
-Convert to MarkdownJK 92-879
+JK 92-879
 MED/mhw
 
 2

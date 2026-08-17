@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6334.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Attachment to: UFGA-3936 dated 2 May 1967
 

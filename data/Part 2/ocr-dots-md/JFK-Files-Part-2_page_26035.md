@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26035.png
-
-Convert to Markdowna guy like me, I'm sure you're doing a lot
+a guy like me, I'm sure you're doing a lot
 more for someone else you really suspect
 and
 

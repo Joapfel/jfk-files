@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8866.png
-
-Convert to Markdown14-0000
+14-0000
 
 <html><body><table><tr><td>INDEX</td></tr><tr><td>NO INDEX</td></tr><tr><td>FILE IN CS FILE NO.</td></tr></table></body></html>
 

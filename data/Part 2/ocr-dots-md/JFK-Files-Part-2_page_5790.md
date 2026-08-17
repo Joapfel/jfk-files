@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5790.png
-
-Convert to MarkdownMr. Ronald G. Haron, Esq.
+Mr. Ronald G. Haron, Esq.
 
 DCI/OGC/LD/RJEatinger, Jr. 76123 (31 Aug 1998)
 

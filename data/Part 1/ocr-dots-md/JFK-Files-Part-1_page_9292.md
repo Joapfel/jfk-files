@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9292.png
-
-Convert to Markdown223..Painting of Stalin & Red Army General Staff, in Red Army Hall,
+223..Painting of Stalin & Red Army General Staff, in Red Army Hall,
 Pyongyang, Korea (1)
 
 226..East German People's Police march in Red-sponsored torchlight parade

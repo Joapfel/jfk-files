@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15301.png
-
-Convert to Markdown3. Extent and Nature of Current Supervision
+3. Extent and Nature of Current Supervision
 
 The program as it relates to all friendly foreign countries (except West Germany) is coordinated by the Number One Man of the Nationalities Intelligence Section working through the separate supervisors assigned to the individual country's desk within the Section.
 

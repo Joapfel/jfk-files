@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34249.png
-
-Convert to Markdownposition to Castro's brand of Communism among the old-line Parties in
+position to Castro's brand of Communism among the old-line Parties in
 this Continent. While Castro has invested millions in subversion, Corva-
 lan has patiently waited to capitalize on such investments and on Fidel's
 own activities. Today more than ever, the old-line Communist Parties

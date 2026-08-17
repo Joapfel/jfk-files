@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9386.png
-
-Convert to MarkdownDE T-8
+DE T-8
 November 4, 1971
 
 KENNETH HORSTON advised the Chicago BPP that LONNIE DARDEN and several Detroit BPP members would be sent to Chicago in connection with Survival Week activities in Chicago.

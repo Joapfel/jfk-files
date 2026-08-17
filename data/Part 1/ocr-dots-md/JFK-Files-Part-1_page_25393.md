@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25393.png
-
-Convert to Markdown-4-
+-4-
 
 relationship of one degree or another with this Station
 ever since then. This relationship developed from "contact"

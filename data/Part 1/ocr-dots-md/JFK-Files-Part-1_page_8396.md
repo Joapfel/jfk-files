@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8396.png
-
-Convert to MarkdownGloria is a very attractive and vivacious woman of 40 or 45 years. She is the center of gravity of a group of tennis enthusiasts, rancing in age from Reche, Gloria's daughter of 19 or 20 to Licerciado Prociado (a deputy from PAN) of perhaps 65 years or more. It is doubtful that Gloria would encourage an affair with Valentin. Her interest in Val is probably that of everyone else's, as a Soviet, he is a novelty. He is also probably attractive to women who like brutish men. Gloria, if however, is married to a very soft-spoken and considerate person.
+Gloria is a very attractive and vivacious woman of 40 or 45 years. She is the center of gravity of a group of tennis enthusiasts, rancing in age from Reche, Gloria's daughter of 19 or 20 to Licerciado Prociado (a deputy from PAN) of perhaps 65 years or more. It is doubtful that Gloria would encourage an affair with Valentin. Her interest in Val is probably that of everyone else's, as a Soviet, he is a novelty. He is also probably attractive to women who like brutish men. Gloria, if however, is married to a very soft-spoken and considerate person.
 
 EXTENT OF SOCIAL CONCOURSE. It seems likely that Val and Gloria and their families have come together socially at intervals. It is doubtful that they are intimate friends, but likely that they (the Pintos) are the closest friends that Val has among the Mexicans.
 

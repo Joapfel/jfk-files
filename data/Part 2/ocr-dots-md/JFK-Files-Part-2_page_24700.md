@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24700.png
-
-Convert to MarkdownCouncil, Allen Dulles stated that Lumumba "would remain a grave danger as long as he was not yet disposed of" (Memorandum, 460th NSC Meeting, 9/21/60). Five days after this meeting, a CIA scientist arrived in Leopoldville and provided the Chief of Station with lethal biological substances, instructed him to assassinate Lumumba, and informed him that the President had authorized this operation.
+Council, Allen Dulles stated that Lumumba "would remain a grave danger as long as he was not yet disposed of" (Memorandum, 460th NSC Meeting, 9/21/60). Five days after this meeting, a CIA scientist arrived in Leopoldville and provided the Chief of Station with lethal biological substances, instructed him to assassinate Lumumba, and informed him that the President had authorized this operation.
 
 Two mitigating factors weaken this chain just enough so that it will not support an absolute finding of Presidential authorization for the assassination effort against Lumumba.
 

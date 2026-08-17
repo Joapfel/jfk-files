@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6523.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 UNITED STATES GOVERNMENT
 Memorandum

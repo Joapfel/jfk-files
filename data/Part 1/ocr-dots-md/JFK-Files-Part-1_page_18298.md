@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18298.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled In)
 
 <table><thead><tr><th colspan="14">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td colspan="6">PAS: 26 AUGUST 1960</td><th colspan="3">3. Date Of Birth</th><th colspan="2">4. Vet. Preal</th><th>5. See</th><th>6. CS EOD</th></tr><tr><td>1. Serial No.</td><td colspan="3"></td><td>2. Noma (Last-First-Middle)</td><td></td><td>Mo.</td><td>Da.</td><td>Yr.</td><td>Nono-0<br/>5 Pt-1<br/>10 Pt-2</td><td>Code</td><td>M</td><td>1</td><td>Mo.</td><td>Da.</td><td>Yr.</td></tr></thead><tbody><tr><td>101775</td><td colspan="3"></td><td>BURKE WILLIAM P JR</td><td></td><td>10</td><td>22</td><td>00</td><td></td><td>1</td><td>1</td><td>09</td><td>18</td><td>47</td></tr><tr><td rowspan="2">7. SCD</td><td colspan="3"></td><td rowspan="2">8. CSC Retmt.</td><td rowspan="2">9. CSC Or Other Legal Authority</td><td rowspan="2">10. Apt. Allgnbr</td><td rowspan="2">11. FEGNL</td><td rowspan="2">12. LCD</td><td rowspan="2">13. Mkt. Grv'ty Trt</td><td colspan="3"></td></tr><tr><td>Mo.</td><td>Da.</td><td>Yr.</td><td>Yes-1<br/>No-2</td><td>Code</td><td>Mo</td><td>Da.</td><td>'Yr</td></tr><tr><td>07</td><td>15</td><td>44</td><td></td><td>Yes-1<br/>No-2</td><td>1</td><td>Codo</td><td></td><td></td><td></td><td>09</td><td>18</td><td>47</td><td></td><td>Yes-1<br/>No-2</td><td>2</td></tr></tbody></table>

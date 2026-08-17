@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26034.png
-
-Convert to Markdown1.AMCLEVE-15 Luis POSADA Carriles (201-300985) OA 18 Oct. 65
+1.AMCLEVE-15 Luis POSADA Carriles (201-300985) OA 18 Oct. 65
 2.CIHURON-1 Lorenzo Camera MALDONADO (201-791576) OA 6 Sept. 67 ✓
 3.CITRUST-13 Gabor GAZSO Klingspor (201-773329) OA ~~22 May 68~~ * 21 Jun '66, Amended 22 Nov 1968.
 4.CIVISTA-7 Jose GUTTMAN Klein (201-773827) OA ~~31 Sep 68~~ -POA posted on 4 Feb 1969 (Clearances were due 30 May 1969 - still pending)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10871.png
-
-Convert to MarkdownThis would permit CIA to levy requirements on us. For example, if we recruited the Third Secretary of the French Embassy, CIA might wish to ask any number of questions dealing with the French political situation. If we felt that the request was reasonable, we could handle this through our source.
+This would permit CIA to levy requirements on us. For example, if we recruited the Third Secretary of the French Embassy, CIA might wish to ask any number of questions dealing with the French political situation. If we felt that the request was reasonable, we could handle this through our source.
 
 It will be noted that the program does not preclude CIA from development of foreign intelligence sources in the U. S. for fulfillment of CIA responsibilities. CIA will continue to operate under existing ground rules which are designed to protect Bureau interests.
 

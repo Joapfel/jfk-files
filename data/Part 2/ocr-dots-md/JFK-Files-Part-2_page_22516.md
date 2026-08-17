@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22516.png
-
-Convert to Markdowncovered with mud and he learned later from one of the guards in the reception room that both of these men had come from Sierra Maestre where they had been visiting.
+covered with mud and he learned later from one of the guards in the reception room that both of these men had come from Sierra Maestre where they had been visiting.
 
 Wiley said he talked to Rosen and there could be no question of his identity. (NOTE: In discussing the identity of these individuals with Wiley, it was agreed that a possible examination of both cases would be in order since a possibility exists that Rosen and the other Communist were illegally in Cuba.)
 

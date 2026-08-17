@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16474.png
-
-Convert to MarkdownCONF: C/LA-8
+CONF: C/LA-8
 QDPD-D. (15/P)
 
 INFO: FILE, RF, C/C1-2, C/IP/DMS, C/LSN/ID, G/PCS,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24721.png
-
-Convert to MarkdownSECRET
+SECRET
 TO BE DELIVERED DISSON
 
 14 May 1963

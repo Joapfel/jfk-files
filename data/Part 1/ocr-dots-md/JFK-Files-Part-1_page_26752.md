@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26752.png
-
-Convert to MarkdownKool 72-KICO-29
+Kool 72-KICO-29
 
 3 May 1965
 

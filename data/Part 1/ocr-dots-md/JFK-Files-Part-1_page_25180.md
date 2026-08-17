@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25180.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Source: AEMIGNAG/2
 Date acquired: September 1966

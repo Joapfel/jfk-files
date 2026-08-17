@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4056.png
-
-Convert to Markdown# II. ANÁLISIS DEL MARKETINGS
+# II. ANÁLISIS DEL MARKETINGS
 
 La función principal del estillero es la construcción de embalaciones de estero y almacén, de 20 a 200 toneladas. Esta incluye camarones, images- toros, faltas, encargos ligeros y mercancías de pasajeros y de patrulla.
 

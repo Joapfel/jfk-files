@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25559.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 (3) Over 20 years service, three months salary plus one month's pay for each full year of service.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31453.png
-
-Convert to Markdown11 August 1952
+11 August 1952
 
 MIMORANDUM FOR: DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27244.png
-
-Convert to MarkdownB-G-G (II-AA)
+B-G-G (II-AA)
 
 T - Memo to Baker and Weidner from Belin - 27 Feb 75
 

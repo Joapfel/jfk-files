@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20853.png
-
-Convert to MarkdownSUBJECT: Credit Reference
+SUBJECT: Credit Reference
 
 1. You are advised that the position for which you have been hired is of a sensitive nature and that YOU ARE NOT TO IDENTIFY YOURSELF WITH THIS AGENCY in credit matters or for any other purpose.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17803.png
-
-Convert to Markdowncont.)
+cont.)
 
 pue... al, y ya la retachan a lo siete.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6326.png
-
-Convert to MarkdownCalendar No. 552
+Calendar No. 552
 
 <table>
    <tr>

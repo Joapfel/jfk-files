@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7022.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: Richard E. Schroeder
 FROM: Linda C. Cipriani

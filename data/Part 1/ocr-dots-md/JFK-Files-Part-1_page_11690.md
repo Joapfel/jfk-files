@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11690.png
-
-Convert to Markdown10. April 1951
+10. April 1951
 
 Finance Division
 R. George

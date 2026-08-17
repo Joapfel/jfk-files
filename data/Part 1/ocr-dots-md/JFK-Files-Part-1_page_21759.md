@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21759.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Attached are the following pages of the Top Secret study entitled, The Examination of the Bona Fides of a KGB Defector - Yuriy I. NOSENKO, dated February 1968 (copy 10). Copy 10 of this study had been forwarded to you earlier for your review.
 

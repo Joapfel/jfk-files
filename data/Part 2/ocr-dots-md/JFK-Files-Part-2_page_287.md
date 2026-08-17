@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_287.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
 
 TOTAL COPIES
 

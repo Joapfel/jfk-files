@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25738.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td rowspan="2">ROUTING</td><td rowspan="2">INITIAL</td></tr><tr></tr></thead><tbody><tr><td>RVAM</td><td>D.K.</td></tr><tr><td>RVF</td><td></td></tr><tr><td>RVET</td><td></td></tr><tr><td>RVCT</td><td></td></tr></tbody></table>
 

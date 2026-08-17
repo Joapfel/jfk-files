@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2319.png
-
-Convert to MarkdownSECRET
+SECRET
 
 little or no value in assessing the bona fides or non-bona fides of
 NOSENKO. An expose of his youthful indiscretions, of which he has

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6583.png
-
-Convert to MarkdownChief, Contact Division
+Chief, Contact Division
 
 25 January 1957
 

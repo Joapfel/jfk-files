@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11757.png
-
-Convert to MarkdownCurrent Intelligence Reporting Unit
+Current Intelligence Reporting Unit
 
 Steno Pool
 

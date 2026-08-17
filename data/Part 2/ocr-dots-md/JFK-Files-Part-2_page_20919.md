@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20919.png
-
-Convert to MarkdownNY 100-172487
+NY 100-172487
 
 Sources utilized in this LHM are as follows:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14475.png
-
-Convert to Markdown3. In the beginning of 27 April, Castro was occupied by an army at his point of landing (7-9-1964). He was, however, forced to leave after a short time and went to Washington. There he began to study in secret during the first half of May the plans of Fidelio: "Maybe we can get to the bottom of things if I meet his picture."
+3. In the beginning of 27 April, Castro was occupied by an army at his point of landing (7-9-1964). He was, however, forced to leave after a short time and went to Washington. There he began to study in secret during the first half of May the plans of Fidelio: "Maybe we can get to the bottom of things if I meet his picture."
 
 2. Before showing him the pictures on 28 April, Castro himself short-
 preambles on the background of the case. I told that we were

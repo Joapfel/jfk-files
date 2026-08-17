@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1774.png
-
-Convert to Markdown# Part II
+# Part II
 
 ## Coordination
 

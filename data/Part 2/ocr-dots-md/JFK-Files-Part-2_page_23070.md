@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23070.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 410 First Street, S.E., Washington, D.C. 20003
 

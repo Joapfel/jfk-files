@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7680.png
-
-Convert to Markdown13. (12: cont.)
+13. (12: cont.)
 
 On 20 Jan 1966 Cristobal TORRES Ponce, chauffeur employed by the U.S. Embassy in Mexico, was sent to the Soviet Embassy to pick up the passport of the wife of a U.S. Embassy official who was planning a trip to the USSR. Subject talked to TORRES, asked him if he would like to visit the USSR or receive Soviet magazines, and if he knew anyone who would be willing to give him English lessons, and finally made a dinner date with TORRES for 24 Jan 1966. When TORRES did not keep the date, Subject called on him on 8 and 9 Feb 1966 in an attempt to keep the contact alive.
 

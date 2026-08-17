@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25979.png
-
-Convert to Markdownup with details of whether it could succeed
+up with details of whether it could succeed
 or not. That was my last advisory role with
 him. I was taken off advising on the project
 after that, actually by my own request because

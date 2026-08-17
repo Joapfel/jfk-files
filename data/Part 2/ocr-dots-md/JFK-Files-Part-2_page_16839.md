@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16839.png
-
-Convert to MarkdownJune 10, 1969
+June 10, 1969
 
 After being advised of the identities and official capacities of the arresting officers, BRUCE ALLAN DICKSON was arrested for harboring a Federal fugitive at 5:58 AM, June 4, 1969, at 2350 West Madison, Chicago, Illinois. He was immediately orally advised of his rights as contained in "Interrogation; Advice of Rights; Your Rights" Form. He declined to make a statement and refused to give his identity. He was then transported in Federal Bureau of Investigation (FBI) Car Number 180, to FBI Headquarters, 219 South Dearborn Street, Chicago, for processing by Special Agents.
 

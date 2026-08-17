@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12562.png
-
-Convert to Markdowni. **Finances**
+i. **Finances**
 
 Special efforts must be made to locate and monitor bank accounts of organizations. Emphasis must be placed on determining if funds are being furnished organizations from foreign sources and if there is any rapport between the organizations and organizations in foreign countries.
 

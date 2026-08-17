@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25178.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 KENNEDY, John F. DIEM
 HELMS NHU

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10301.png
-
-Convert to Markdown2.
+2.
 
 that the comrades there had had to undergo."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21734.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 it over it was brought under -- I hesitate to use the term professional management, but I do so in a qualified sense in that I was the only one, I guess, who knew anything about the publishing industry, who had ever been connected with the project. So I knew a little about it.
 

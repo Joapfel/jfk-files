@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23584.png
-
-Convert to MarkdownNovember 23, 1961
+November 23, 1961
 
 MELORANDUM TO: The Secretary of State
 The Secretary of Defense

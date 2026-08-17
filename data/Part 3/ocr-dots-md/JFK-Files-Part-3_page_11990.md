@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11990.png
-
-Convert to Markdown2. Positive Results Achieved Since the Last Inspection
+2. Positive Results Achieved Since the Last Inspection
 
 Since the last inspection 151 cases have been opened on Chinese aliens and only one case on Chinese claiming United States citizenship. During this period 197 alien cases have been closed and eight cases involving citizens were closed. Information developed during these investigations has been disseminated to the intelligence community. To date, no Chicom intelligence agent has been uncovered by these two programs; however, we have steadily increased our source coverage and collected positive intelligence which has been disseminated to the intelligence community. This is a long-range program and it is expected it will pay dividends during the coming year with the establishment of a Chinese Communist embassy in Canada.
 

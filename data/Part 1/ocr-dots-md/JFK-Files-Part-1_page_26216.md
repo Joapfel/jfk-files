@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26216.png
-
-Convert to Markdown<table><thead><tr><th>DATE</th><th>TO/CC</th><th>REASON</th></tr></thead><tbody><tr><td>1967-04-23</td><td>HMHA-SECRET</td><td>HIJA FIRMAMENTE ESSENTIAL<br/>SECRETE</td></tr><tr><td>1967-10-05</td><td>NO. INST. MAT.</td><td>201-132139</td></tr></tbody></table>
+<table><thead><tr><th>DATE</th><th>TO/CC</th><th>REASON</th></tr></thead><tbody><tr><td>1967-04-23</td><td>HMHA-SECRET</td><td>HIJA FIRMAMENTE ESSENTIAL<br/>SECRETE</td></tr><tr><td>1967-10-05</td><td>NO. INST. MAT.</td><td>201-132139</td></tr></tbody></table>
 
 CS COPY
 

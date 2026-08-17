@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26298.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Attachment "A"
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9551.png
-
-Convert to MarkdownOn December 1, 1970, DE T-1 furnished the following booklets, which were received from BPP East Coast Distribution, New York, for use in instructing political education classes:
+On December 1, 1970, DE T-1 furnished the following booklets, which were received from BPP East Coast Distribution, New York, for use in instructing political education classes:
 
 1. "The Palestinian Revolution"
 

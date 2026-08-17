@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6007.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 Staff. Instead of a listing, the files on individuals who were assigned to Moscow and a history of the Moscow Station were made available. In addition, the staff interviewed a former COS Moscow. The Board staff is satisfied with the response and will prepare its own documentation.
 

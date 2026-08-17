@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17198.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 stated that the Illinois BPP was paid
 solely from the admissions charged and received a total

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29785.png
-
-Convert to Markdown056-14-4578
+056-14-4578
 
 MR. HAY, DAVID E.
 

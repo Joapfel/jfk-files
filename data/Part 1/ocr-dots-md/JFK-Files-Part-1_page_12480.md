@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12480.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IRD# 72501
 Page 3

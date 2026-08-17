@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9514.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">REPORTING OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td colspan="2">DETROIT</td><td>DETROIT</td><td>1/6/71</td><td>11/28 - 12/30/70</td></tr><tr><th>TITLE OF CASE</th><th colspan="4"></th><th>TYPED BY</th></tr><tr><td>O BLACK PANTHER PARTY (DPP) NATIONAL COMMITTEE TO COMBAT FASCISM (NCCF) DETROIT DIVISION</td><td colspan="4">SA DONALD V. RITENOUR, JR.</td><td>ah</td></tr><tr><th>CHARACTER OF CASE</th><td colspan="5">SM - SMITH ACT OF 1940; SEDITIOUS CONSPIRACY, REBELLION AND INSURRECTION</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">REPORTING OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td colspan="2">DETROIT</td><td>DETROIT</td><td>1/6/71</td><td>11/28 - 12/30/70</td></tr><tr><th>TITLE OF CASE</th><th colspan="4"></th><th>TYPED BY</th></tr><tr><td>O BLACK PANTHER PARTY (DPP) NATIONAL COMMITTEE TO COMBAT FASCISM (NCCF) DETROIT DIVISION</td><td colspan="4">SA DONALD V. RITENOUR, JR.</td><td>ah</td></tr><tr><th>CHARACTER OF CASE</th><td colspan="5">SM - SMITH ACT OF 1940; SEDITIOUS CONSPIRACY, REBELLION AND INSURRECTION</td></tr></tbody></table>
 
 REFERENCES: Detroit report of SA DONALD V. RITENOUR, JR., 12/17/70.
 

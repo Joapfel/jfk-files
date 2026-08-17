@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24634.png
-
-Convert to MarkdownTweedy's cable indicated that a third country national would be required as an agent in the PROP operation:
+Tweedy's cable indicated that a third country national would be required as an agent in the PROP operation:
 
 IF DECIDED SUPPORT FOR PROP OBJECTIVES, BELIEVE ESSENTIAL SUCH BE PROVIDED THROUGH THIRD NATIONAL CHANNEL WITH [AMERICAN] ROLE COMPLETELY CONCEALED. (CIA Cable, 9/22/60.)
 

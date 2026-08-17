@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14112.png
-
-Convert to Markdown- 20 -
+- 20 -
 
 became greater. But even if this flight had been conducted, in Mr. McCone's opinion there would not at that time have been obtained information of a more convincing nature than was later obtained as a result of the October 14 mission. Mr. McCone said that on September 7 he made a recommendation that more frequent flights be conducted, and it continues to be Mr. McCone's view that there should have been more intense U-2 coverage during September.
 

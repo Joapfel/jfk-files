@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17859.png
-
-Convert to MarkdownG C A L T
+G C A L T
 
 Chief of Station, Mexico City
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2983.png
-
-Convert to Markdowndiscontinued any further interest.
+discontinued any further interest.
 
 Senator Hart of Michigan. Well, my time has expired but even this brief exchange, I think, indicates that if we really want to control the dangers to our society of using informants to gather domestic political intelligence, we have to restrict sharply domestic intelligence investigations. And that gets us into what I would like to raise with you when my turn comes around again, and that's the use of warrants, obliging the Bureau to obtain a warrant before a full-fledged informant can be directed by the Bureau against a group or individuals.
 

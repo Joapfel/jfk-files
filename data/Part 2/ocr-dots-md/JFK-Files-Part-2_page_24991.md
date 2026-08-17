@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24991.png
-
-Convert to MarkdownMEMORANDUM FOR THE FILES
+MEMORANDUM FOR THE FILES
 
 INVENTORIED:
 

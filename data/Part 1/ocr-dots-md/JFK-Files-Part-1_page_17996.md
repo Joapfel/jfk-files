@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17996.png
-
-Convert to MarkdownSubject: Das, A., NISLEY's (Jr.) Report for June 1960
+Subject: Das, A., NISLEY's (Jr.) Report for June 1960
 
 1. During June the LIENVOY project put taps on the telephones of the Czech and Yugoslav Embassies. An establishing a possible LIENVOY tap on the Polish Legion, the LIPEAT project removed its tap on that installation low it be discovered by LIENVOY. The Station will receive Czech and Yugoslav news every day from LIENVOY. The LIPEAT tap on Aleksandar BEKIER'S line continues, a tap on Stanislav ADAMOWICZ has just begun to produce, and a tap on the Polish Commercial Office is under consideration. Eventually, when the Station is confident that the LIENVOY project will not tap the Polish Legion lines, the LIPEAT project will be able to restore its coverage of this target.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4748.png
-
-Convert to MarkdownSECRET
+SECRET
 
 they've only got 18 or 19 thousand people on the Hill to begin with and it's a hell of a lot better than what CIA must have: at least 16,000 probably.
 

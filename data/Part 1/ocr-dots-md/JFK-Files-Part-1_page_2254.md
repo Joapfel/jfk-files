@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2254.png
-
-Convert to MarkdownWhit Moore Bishop
+Whit Moore Bishop
 
 056446
 

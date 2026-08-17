@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16284.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CLASSIFIED MESSAGE TOTAL COPIES 43
 

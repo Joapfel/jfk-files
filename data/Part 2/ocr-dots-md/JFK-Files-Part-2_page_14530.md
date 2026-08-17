@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14530.png
-
-Convert to MarkdownMemorandum from Belmont to Boardman
+Memorandum from Belmont to Boardman
 
 sufficiently serious to warrant such coverage. He stated that such establishments as the Embassy of India could possibly be covered on a long-range basis because of India's extremely "neutralist" position. He said it is possible that considerable information of interest could be obtained through such coverage.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28808.png
-
-Convert to Markdown<table><tr><td>Resignation COB 5/12/61</td></tr><tr><td>No lump sum payment authorized for leave.</td></tr><tr><td>E. Kathryn Mallow, Chief<br/>Leave and Retirement Section</td></tr></table>
+<table><tr><td>Resignation COB 5/12/61</td></tr><tr><td>No lump sum payment authorized for leave.</td></tr><tr><td>E. Kathryn Mallow, Chief<br/>Leave and Retirement Section</td></tr></table>
 
 Address:
 

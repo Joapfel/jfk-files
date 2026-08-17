@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15707.png
-
-Convert to MarkdownSECRET
+SECRET
 -3-
 
 1958 - Albert, invented and patented a commercial advertising device,

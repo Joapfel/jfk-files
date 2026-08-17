@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3158.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the need to instill an esprit de corps among the trainees. To do this JMTRAV was urged to provide for unit separation, competition in the military arts, and specific identities for the individual units through the use of scarfs, caps, or some other device. This new training program was to be instigated in November 1960 and to be completed by the end of January 1961.
 

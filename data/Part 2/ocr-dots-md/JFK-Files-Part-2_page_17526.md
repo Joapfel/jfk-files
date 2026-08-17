@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17526.png
-
-Convert to MarkdownCOOK more or less indicated that "the coast" authorized a purge of the Chicago area members for any reason the Chapter felt justified in doing. This would eliminate members aware of information and therefore make picking the informants out easier.
+COOK more or less indicated that "the coast" authorized a purge of the Chicago area members for any reason the Chapter felt justified in doing. This would eliminate members aware of information and therefore make picking the informants out easier.
 
 6/14/69
 

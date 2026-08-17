@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_732.png
-
-Convert to Markdown23 February 1977.
+23 February 1977.
 
 Mr. Jerome Fox
 P.O. Box 593514 AMF

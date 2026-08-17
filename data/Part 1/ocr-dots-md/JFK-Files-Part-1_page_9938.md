@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9938.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. WILL ADVISE.
 

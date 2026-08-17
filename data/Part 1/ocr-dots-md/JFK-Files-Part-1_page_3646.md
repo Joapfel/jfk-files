@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3646.png
-
-Convert to Markdown<table><tr><td>DOC. MICRO. SER.</td></tr><tr><td>MAY 1 01973</td></tr><tr><td>MICROFILMED</td></tr><tr><td>CAS-1-067</td></tr></table>
+<table><tr><td>DOC. MICRO. SER.</td></tr><tr><td>MAY 1 01973</td></tr><tr><td>MICROFILMED</td></tr><tr><td>CAS-1-067</td></tr></table>
 
 19 October 1972
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5985.png
-
-Convert to Markdown63-64-037-1-1
+63-64-037-1-1
 63-73-022-1-1
 
 money spent. SHELTON stated that he travels 90,000 to 110,000 miles per year on KLAN business. He traveled 120,000 miles by automobile during the year 1966 on KLAN business.

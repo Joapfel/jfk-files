@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5562.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 October 9, 1997
 

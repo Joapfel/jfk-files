@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7025.png
-
-Convert to MarkdownFor example, one cable was files and processed 58 times in the collection.
+For example, one cable was files and processed 58 times in the collection.
 
 b. The ARRB required that all sanitized documents be reviewed by the Board and that each postponement (deletion) be acted on individually. Even after the Board changed procedures and accepted staff recommendations instead of reviewing each document, the detailed tracking, recording and coding of every deletion within each document required processing resources well beyond what would be considered reasonable for such a project. A most sanitized documents contained multiple deletions (one contained more than 1600 deletions and many over 100).
 

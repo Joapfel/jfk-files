@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17667.png
-
-Convert to Markdownd. Inquire that all operational and intelligence information
+d. Inquire that all operational and intelligence information
     receives appropriate handling, by the LITAT personnel involved and,
     where appropriate, other station personnel.
 

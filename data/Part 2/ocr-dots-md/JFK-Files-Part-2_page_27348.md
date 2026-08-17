@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27348.png
-
-Convert to MarkdownINDEX
+INDEX
 
 (Cont'd)
 

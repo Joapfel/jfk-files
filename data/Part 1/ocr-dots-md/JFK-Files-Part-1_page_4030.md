@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4030.png
-
-Convert to MarkdownThe plans for the Ilicaragua shipboat fleet this year call for
+The plans for the Ilicaragua shipboat fleet this year call for
 80 boats. All 40 coastal boats of all types and the total comes to
 120 boats which will require repair yard services four times per year (3
 beings or normal groundings and an emergency), that is, a total of 480

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20196.png
-
-Convert to MarkdownThe Columbians
+The Columbians
 
 Communist Party, U.S.A., formerly Communist Political Association, and its affiliates and committees, including:
 

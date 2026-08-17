@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15127.png
-
-Convert to Markdown-9-
+-9-
 
 ## 18. MILITÄRISCHER WERDEGANG
 

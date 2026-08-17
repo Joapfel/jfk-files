@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9620.png
-
-Convert to Markdown6 January 1949
+6 January 1949
 
 Memorandum for Chief, Special Funds
 

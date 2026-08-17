@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_739.png
-
-Convert to MarkdownSUMMARY OF AGENCY EMPLOYMENT
+SUMMARY OF AGENCY EMPLOYMENT
 
 Mr. Jerome Fox
 

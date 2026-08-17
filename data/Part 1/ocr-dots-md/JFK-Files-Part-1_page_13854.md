@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13854.png
-
-Convert to Markdown622.-
+622.-
 
 Entrada a las 13:24hs. HF "El Profesor" con Rogelio Rodriguez le dice que esa cuostión así como se la propuso, que os bastante difícil, porque ya había estado todo concertado on la otra manera.- Rogolio: quo como lo dico quo.... HF quo que para hacerlo más para allá y no más para acá quo os a lo quo se refería; quo por otra parto tiene algo quo le acaba de rogalar uno de los cuales tuyos.- Quodan para las seis.-- 642.
 

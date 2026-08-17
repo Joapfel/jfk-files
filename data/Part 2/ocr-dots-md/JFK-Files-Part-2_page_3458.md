@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3458.png
-
-Convert to MarkdownSECRET SENSITIVE NOFORN
+SECRET SENSITIVE NOFORN
 
 11905, was not issued until February 1976.* In the
 meanwhile, advice from the Hill and the lawyers supplied the

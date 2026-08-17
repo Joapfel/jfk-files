@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17846.png
-
-Convert to Markdown<table><thead><tr><td>INDEX ☐ YES ☐ NO</td></tr></thead><tbody><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>I-REP TO FILE NO.</td></tr><tr><td>FILE ID ☐ RET. TO BRANCH ☒</td></tr><tr><td>DESTROY ☐ SIO.</td></tr><tr><td>20</td></tr></tbody><tfoot><tr><td colspan="3"><strong>ACTION</strong> LOGS Y ☐ RID COPY</td></tr></tfoot></table>
+<table><thead><tr><td>INDEX ☐ YES ☐ NO</td></tr></thead><tbody><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>I-REP TO FILE NO.</td></tr><tr><td>FILE ID ☐ RET. TO BRANCH ☒</td></tr><tr><td>DESTROY ☐ SIO.</td></tr><tr><td>20</td></tr></tbody><tfoot><tr><td colspan="3"><strong>ACTION</strong> LOGS Y ☐ RID COPY</td></tr></tfoot></table>
 
 **SECRET** REPRODUCTION PROHIBITED
 

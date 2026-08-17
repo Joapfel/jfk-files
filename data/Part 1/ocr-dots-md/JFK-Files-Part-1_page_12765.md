@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12765.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IR04 72501
 29 June 1973

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11597.png
-
-Convert to Markdown4-E
+4-E
 
 BASELINE is a double agent operated against Hungarian Intelligence Services (HIS), who is reportedly considered to be the top Hungarian agent in the U. S.
 

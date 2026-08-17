@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6895.png
-
-Convert to Markdown-4-
+-4-
 
 decision indirectly supports S.J. Res. 282's "clear and convincing"
 standard. For, my original 1980 request and receipt in 1983 of the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24343.png
-
-Convert to Markdown<table>
+<table>
     <caption>PORTFOLIO SALES OF STOCKS TO DATE</caption>
     <thead>
         <tr>

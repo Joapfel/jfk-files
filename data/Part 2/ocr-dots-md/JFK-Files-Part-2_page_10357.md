@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10357.png
-
-Convert to Markdown29 MAY 1973
+29 MAY 1973
 
 MEMORANDUM FOR: Executive Secretary, CIA Management Committee
 

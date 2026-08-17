@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17534.png
-
-Convert to MarkdownCommunists added much to the Station's efforts: Xavier GUERRERO Saucedo and his wife, Clara Porcet de GUERRERO; Carron FRUMAU Civit; and Juan Luis CAMPOS Villalobos. Besides the operational support in the CI/CE field, the following informational reporting was provided by LIFCAT:
+Communists added much to the Station's efforts: Xavier GUERRERO Saucedo and his wife, Clara Porcet de GUERRERO; Carron FRUMAU Civit; and Juan Luis CAMPOS Villalobos. Besides the operational support in the CI/CE field, the following informational reporting was provided by LIFCAT:
 
 * HMM-5154, 31 August 1960 (Activities of Vicente LOBARDO Toledano, Mexican Marxist Leader)
 

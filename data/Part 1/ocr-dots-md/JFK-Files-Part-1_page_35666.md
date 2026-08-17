@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35666.png
-
-Convert to MarkdownCartas recibidas para el Programa
+Cartas recibidas para el Programa
 
 "EL MEDICO Y USTED"
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17118.png
-
-Convert to MarkdownV. ACTIVITIES
+V. ACTIVITIES
 
 WILLIE JAMES CALVIN, also known as "Jew Man" Captain of Defense and JEWEL COOK, Field Secretary, Chicago BPP, travelled to Indianapolis, Indiana to ascertain why the Indianapolis Chapter had purged so many members, during August, 1969.
 

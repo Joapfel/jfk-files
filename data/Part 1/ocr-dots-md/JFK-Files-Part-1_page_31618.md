@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31618.png
-
-Convert to MarkdownFollows Radio Prague announcement 0510 today re note on balloons:
+Follows Radio Prague announcement 0510 today re note on balloons:
 
 "The Ministry of Foreign Affairs has sent the following note to the Embassy of the United States on July 20, 1953:
 

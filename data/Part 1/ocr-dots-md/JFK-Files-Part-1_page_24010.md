@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24010.png
-
-Convert to Markdown69. Nguyen KIEN (or Loan Ngo MANH or Ngo Minh LAN).
+69. Nguyen KIEN (or Loan Ngo MANH or Ngo Minh LAN).
 
 ## Latin America
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25646.png
-
-Convert to MarkdownJim Braden's True Identity Emerges
+Jim Braden's True Identity Emerges
 
 In early 1969, Peter Noyes, the investigative reporter whose book covers much of the information regarding Jim Braden, began investigating the mysterious California "oil man."
 

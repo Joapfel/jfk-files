@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3917.png
-
-Convert to MarkdownAtt. No. 40 to UFGA-21693
+Att. No. 40 to UFGA-21693
 UFGA-21693/1
 
 SUBJECT: DRJOHN, Roberto

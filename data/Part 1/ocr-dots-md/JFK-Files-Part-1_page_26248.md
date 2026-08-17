@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26248.png
-
-Convert to Markdown- 5 -
+- 5 -
 
 8.- Fedi a NICO GALAN me diente su concepto y una total evaluación de PIDU CHILO HUN. Dijo, entonces que nodes, que el CASTRO NOE es cominista o que es el el de commista, me dió la orders. que es un gran lector revolucionario y un gran trade- por que no puede jugar el papel deagitador del latínóre- rion porque depende de mayor y que esta nacida je controla estrategicamente. Pues que NICO GALAN chino挖了 que CASTRO se ha convertido en un instrumento de los rovi- ticos. También dijo que el Castillo "Chili" de Viva, quieró realizar- te que Cubu+rumiera las escenas revolucionarias, pero que CASTRO no es capaz de hacerlo. Con respecto al sarandero del Chil gut- Verá, dijo que tal vez ni el propio PIDU CASTRO así'do donde
 

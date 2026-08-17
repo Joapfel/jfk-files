@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23767.png
-
-Convert to Markdownin there.
+in there.
 
 Mr. Miller. What cates would this prohibit? In our
 actions in the past it would prohibit Chile, Iran --

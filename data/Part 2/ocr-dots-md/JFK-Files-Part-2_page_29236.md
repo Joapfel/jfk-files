@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29236.png
-
-Convert to MarkdownSTATEMENT
+STATEMENT
 
 FROM: MR. PETER CARROLL GLYNN, JR.
 107 HOWARD STREET

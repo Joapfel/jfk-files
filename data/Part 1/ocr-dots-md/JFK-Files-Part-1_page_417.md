@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_417.png
-
-Convert to MarkdownNAMES
+NAMES
 
 1. FAULKNER, Jack W.
 2. FERRIE, David

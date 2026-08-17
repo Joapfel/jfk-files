@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3568.png
-
-Convert to Markdownc. The Belgian ambassador thinks these papers are probably genuine. He says the Russians have made the mistake of underrating the Congolese and have stumbled into a sure trap.
+c. The Belgian ambassador thinks these papers are probably genuine. He says the Russians have made the mistake of underrating the Congolese and have stumbled into a sure trap.
 
 d. The Congolese also picked up two Czech diplomats but have since released them. This morning they arrested the correspondent of the Soviet news agency.
 

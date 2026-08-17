@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4861.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 intended to depart New York City about March, 1966, by
 unnamed airline, not by organized tour. Stated he expected

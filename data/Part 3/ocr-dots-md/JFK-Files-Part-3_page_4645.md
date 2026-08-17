@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4645.png
-
-Convert to MarkdownDate November 8, 1962
+Date November 8, 1962
 
 The records of the Southern Bell Telephone and Telegraph Company were reviewed and the following information obtained for telephone number 445-3115.
 

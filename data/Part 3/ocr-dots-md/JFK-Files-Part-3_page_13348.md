@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13348.png
-
-Convert to MarkdownSTURGIS: I do not. No, sir.
+STURGIS: I do not. No, sir.
 
 OLSEN: Okay. Now, was there any other discussions about assassi-
 nations that you could tell us about that you participated in or knew of,

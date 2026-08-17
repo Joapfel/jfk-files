@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32631.png
-
-Convert to MarkdownSUBJECT: Earl J. Williamson
+SUBJECT: Earl J. Williamson
 
 1 April 1968 - 31 March 1969
 

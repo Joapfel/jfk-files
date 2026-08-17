@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11863.png
-
-Convert to MarkdownUFGX-00070/12
+UFGX-00070/12
 
 Attachment to UFGA-25747
 

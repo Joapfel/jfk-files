@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25421.png
-
-Convert to MarkdownMM 105-1742
+MM 105-1742
 
 On August 7, 1963, MARIO DEL CANAL, Executive Secretary of Rescate Democratico Revolucionario, advised that when SOMOZA was in the United States during July of 1963, MANUEL ANTONIO DE VARONA, head of the Rescate Democratico Revolucionario (RDR), conferred with SOMOZA in Miami and New York. At the invitation of SOMOZA, VARONA left for Nicaragua on August 1; 1963, to again confer with SOMOZA, and is expected to return to Miami in about a week.
 

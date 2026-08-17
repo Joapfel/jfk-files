@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3415.png
-
-Convert to Markdown# LEAR POR LA INDEPENDENCIA DE LA PATRIA QUE PEDIRLE PERMISO A NADIE
+# LEAR POR LA INDEPENDENCIA DE LA PATRIA QUE PEDIRLE PERMISO A NADIE
 
 —las frontiras del MEX están estrechas para todo el mundo
 

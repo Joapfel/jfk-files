@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9782.png
-
-Convert to MarkdownMr. J. Walter Tongley
+Mr. J. Walter Tongley
 Assistant Attorney General
 
 Director, FBI

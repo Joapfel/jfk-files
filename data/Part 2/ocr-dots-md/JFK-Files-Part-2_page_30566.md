@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30566.png
-
-Convert to MarkdownSECRET HUNT
+SECRET HUNT
 
 CCS memo to DDP, apperorval noted + Signed by O Karamessines
 10/14/70

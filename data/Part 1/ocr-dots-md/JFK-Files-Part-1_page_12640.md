@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12640.png
-
-Convert to MarkdownCABLE SEC DISSE BY ____ PER ____
+CABLE SEC DISSE BY ____ PER ____
 TOTAL COPIES SCA 01
 PERSON. UNIT NOTIFIED ______________ SECRET
 

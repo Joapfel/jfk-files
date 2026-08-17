@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31969.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">
      E.T.O.F.I.C.I.A.

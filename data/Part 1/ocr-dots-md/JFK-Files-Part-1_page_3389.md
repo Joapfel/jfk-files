@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3389.png
-
-Convert to MarkdownANWORLD Meeting in San Juan, 7-8 June 1964
+ANWORLD Meeting in San Juan, 7-8 June 1964
 
 SUBJECT: AMBIDDY/1's Political Reporting
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8635.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## PERSONNEL
 

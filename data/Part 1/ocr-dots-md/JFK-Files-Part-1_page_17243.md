@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17243.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CRYPTONYM: LIEMPTY
 OPERATING DIVISION: WH

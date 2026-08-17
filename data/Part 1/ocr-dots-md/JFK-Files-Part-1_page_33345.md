@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33345.png
-
-Convert to MarkdownThe university, an urban campus with old and semi-modern buildings scattered throughout the city, as organized along European lines. Eleven separate faculties, like separate colleges, educate lawyers, doctors, agronomists and liberal professionals. Each gives two years of basic college education. Seven years ago, after a violent university purge by Argentina's military government, many parts of the separate curricula were shaped to American models.
+The university, an urban campus with old and semi-modern buildings scattered throughout the city, as organized along European lines. Eleven separate faculties, like separate colleges, educate lawyers, doctors, agronomists and liberal professionals. Each gives two years of basic college education. Seven years ago, after a violent university purge by Argentina's military government, many parts of the separate curricula were shaped to American models.
 
 When the Peronists returned to power last May, young leftist leaders loyal to Peron were given the university as their share of the new government. It changed almost overnight.
 

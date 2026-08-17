@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25209.png
-
-Convert to MarkdownNEWSWEEK
+NEWSWEEK
 
 Mr. Robert KORENGOLD
 

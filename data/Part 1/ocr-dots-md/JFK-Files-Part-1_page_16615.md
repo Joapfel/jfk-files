@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16615.png
-
-Convert to MarkdownBESTA, FNU
+BESTA, FNU
 
 DOB?
 

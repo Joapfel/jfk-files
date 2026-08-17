@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27928.png
-
-Convert to Markdown14-00007
+14-00007
 
 SECRET
 

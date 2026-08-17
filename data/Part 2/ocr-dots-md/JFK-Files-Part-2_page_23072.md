@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23072.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The one case that I mentioned is this man who gave us the lead of the two Soviets from the missile site, and that did not come to the Miami Station through the FBI.
 

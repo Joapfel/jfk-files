@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3578.png
-
-Convert to Markdownc. Design requirements call for the delivery of a 1,600-pound warhead to a maximum range of 300 miles with a CEP slightly in excess of half a mile. A conventional war-head would not make military sense under these specifications.
+c. Design requirements call for the delivery of a 1,600-pound warhead to a maximum range of 300 miles with a CEP slightly in excess of half a mile. A conventional war-head would not make military sense under these specifications.
 
 5. Egypt
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15794.png
-
-Convert to MarkdownB. Officers of the Rockford Branch BPP
+B. Officers of the Rockford Branch BPP
 
 During January, 1970, the following
 individuals listed in alphabetical order were reported

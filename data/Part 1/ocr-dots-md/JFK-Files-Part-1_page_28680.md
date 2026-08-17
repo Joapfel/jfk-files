@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28680.png
-
-Convert to Markdown<table><tr><td colspan="2">U.S. MARINE CORPS REPORT OF DEPARTURE</td></tr><tr><td>DATE OF ARRIVAL</td><td>S8-100</td></tr><tr><td>FORM 1597A</td><td>COMPLETE PREVIOUS EDITIONS</td></tr></table>
+<table><tr><td colspan="2">U.S. MARINE CORPS REPORT OF DEPARTURE</td></tr><tr><td>DATE OF ARRIVAL</td><td>S8-100</td></tr><tr><td>FORM 1597A</td><td>COMPLETE PREVIOUS EDITIONS</td></tr></table>
 
 <table><tr><td>(I) DATE OF CLEARANCE</td></tr></table>
 

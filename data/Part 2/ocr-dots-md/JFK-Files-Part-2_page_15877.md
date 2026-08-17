@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15877.png
-
-Convert to Markdown**May, Christina Darlene**
+**May, Christina Darlene**
 
 Arrested: 2/9/69
 Charge: Defrauding an Innkeeper, Theft and Conspiracy to commit theft

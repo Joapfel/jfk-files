@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14464.png
-
-Convert to Markdown30 April 1970
+30 April 1970
 
 **NAME:** Orestes Guillermo RUIZ Perez (201-735296)
 (NOTE: A comprehensive study/analysis on RUIZ was prepared in February 1970, see OSMW-11726.)

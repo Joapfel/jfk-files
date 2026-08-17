@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22582.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 In an effort to provide Mr. Wiley with a more substantial mechanism for operations to increase his journalistic reputation, it was decided that he would set up a news-gathering service based in New York City and secure, where possible, the services of writers or journalists who would feed him news storeis from various points in the world. This would have the advantage of being a legitimate news-gathering service and at the same time possibly being later used as an information-gathering organization for intelligence purposes. Acting under instructions, Wiley, in 1959 or 1960, founded World News Analysis, opened an office in Flushing, New York, had press credentials made and conducted business to a certain extent in the name of this organization. Wiley has pretty much maintained this cover ever since.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10255.png
-
-Convert to MarkdownFrente, solo que en Bano d'í a allíres
+Frente, solo que en Bano d'í a allíres
 
 Ara pisanse el Consul de Guatemala, Traan:
 El musical para Todos las Tristas. El Consulado

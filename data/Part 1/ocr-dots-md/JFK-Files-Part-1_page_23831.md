@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23831.png
-
-Convert to MarkdownTO: Chief, KUDESK
+TO: Chief, KUDESK
 FROM: Chief of Station, London
 Attachment No. 5 to OELA-43,237
 

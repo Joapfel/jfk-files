@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9998.png
-
-Convert to MarkdownJuly 16, 1953
+July 16, 1953
 
 Honorable J. Edgar Hoover, Director
 Federal Bureau of Investigation.

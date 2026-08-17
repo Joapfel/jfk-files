@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29045.png
-
-Convert to MarkdownCharlotte BUSTOS-VIDELA
+Charlotte BUSTOS-VIDELA
 
 RIGHT HAND SIDE FILE
 

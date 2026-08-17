@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_13141.png
-
-Convert to MarkdownBy internal Bureau memorandum dated 5/13/61, it was noted that information from a confidential informant (Rowe) was received concerning the possibility that local authorities may allow disturbances to generate against above civil rights group on 5/14/61, when they were due to arrive in Birmingham, Alabama. This memorandum shows that appropriate local law enforcement authorities were advised of the potential for violence in Birmingham prior to 5/14/61.
+By internal Bureau memorandum dated 5/13/61, it was noted that information from a confidential informant (Rowe) was received concerning the possibility that local authorities may allow disturbances to generate against above civil rights group on 5/14/61, when they were due to arrive in Birmingham, Alabama. This memorandum shows that appropriate local law enforcement authorities were advised of the potential for violence in Birmingham prior to 5/14/61.

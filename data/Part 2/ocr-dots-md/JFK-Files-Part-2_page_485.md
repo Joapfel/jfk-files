@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_485.png
-
-Convert to MarkdownMESSAGE WORK
+MESSAGE WORK
 TOTAL COPIES: 33
 
 <table><tr><td>ORIG:</td><td>V-69751N</td></tr><tr><td>UNIT:</td><td>V-69751RR</td></tr><tr><td>EST:</td><td>20 Feb 86</td></tr><tr><td>DATE:</td><td></td></tr></table>

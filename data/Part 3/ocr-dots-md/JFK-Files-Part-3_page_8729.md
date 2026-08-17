@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8729.png
-
-Convert to Markdown# Memorandum for Mr. Callahan
+# Memorandum for Mr. Callahan
 Re: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
 
 formerly employed by CIA and resigned in December, 1974, after his clearance for sensitive compartmented information had been lifted as a result of his marrying an alien. This marriage would not preclude him from clearance for access to lesser degrees of sensitive material but only for the more sophisticated clearances. Mr. Miller advised that Sloan had not been appointed and was not going to be appointed because of other reasons unrelated to a security clearance.

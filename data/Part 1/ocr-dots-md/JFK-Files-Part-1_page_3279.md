@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3279.png
-
-Convert to Markdown14-00000
+14-00000
 
 CUBAN RESIDENTS ELECTIONS NEW OFFICERS -- Havana, El Mundo, 30 August 1936
 

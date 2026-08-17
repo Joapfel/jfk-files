@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33763.png
-
-Convert to Markdown# PROPOSED STATEMENT
+# PROPOSED STATEMENT
 
 The National Committee for a Free Europe is an organization of private American citizens whose purpose is to encourage the spread of freedom behind the Iron Curtain in Europe. It is a membership corporation, chartered under the laws of the State of New York.
 

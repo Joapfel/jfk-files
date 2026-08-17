@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3263.png
-
-Convert to Markdownb. <u>interfere with the functioning of the government</u>
+b. <u>interfere with the functioning of the government</u>
 of the United States or the free flow of interstate commerce in
 <u>order to influence policies or decisions of the federal govern-</u>
 ment.

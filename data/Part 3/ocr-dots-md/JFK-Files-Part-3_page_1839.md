@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1839.png
-
-Convert to MarkdownNAM-8608-Dated:3/29/78-Page.91
+NAM-8608-Dated:3/29/78-Page.91
 
 JAN 13 6 42 PM '78
 

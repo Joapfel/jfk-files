@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4319.png
-
-Convert to Markdown-3-
+-3-
 
 | | |
 |:---|---:|

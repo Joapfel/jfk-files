@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2139.png
-
-Convert to MarkdownSUBJECT: PCB Return Prior to Completion of Tour of Duty -
+SUBJECT: PCB Return Prior to Completion of Tour of Duty -
 James A. Noel
 
 CONCUR:

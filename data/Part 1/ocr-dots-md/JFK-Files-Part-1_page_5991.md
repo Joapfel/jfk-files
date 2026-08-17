@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5991.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>NRIG:</td><td>R.E.BOWMAN:dh</td></tr><tr><td>WIT:</td><td>CII/OCDU</td></tr><tr><td>XT:</td><td>X7900</td></tr><tr><td>DATE:</td><td>18 NOV 1971</td></tr></table>
 

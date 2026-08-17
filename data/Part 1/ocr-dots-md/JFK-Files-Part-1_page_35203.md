@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35203.png
-
-Convert to Markdown# RESUMEN DE LAS OPERACIONES DE INGRESOS Y EBITOS
+# RESUMEN DE LAS OPERACIONES DE INGRESOS Y EBITOS
 
 Partiendo del saldo conciliado en 30 de Junio de 1960, de $2,868.95,
 le sumamos un prestamo recibido del Dr. Justo Carrillo Hernandez --

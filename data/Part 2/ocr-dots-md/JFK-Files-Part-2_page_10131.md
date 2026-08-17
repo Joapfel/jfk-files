@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10131.png
-
-Convert to Markdownare paid, and she also wanted to see the receipt for the deposit of his salary per University records. He advised he had determined a discrepancy existed between what the University claimed to put into the account and what they actually put into RIHA's account. He advised at this meeting TANNENBAUM did not discuss RIHA's whereabouts.
+are paid, and she also wanted to see the receipt for the deposit of his salary per University records. He advised he had determined a discrepancy existed between what the University claimed to put into the account and what they actually put into RIHA's account. He advised at this meeting TANNENBAUM did not discuss RIHA's whereabouts.
 
 He recalled his third meeting with TANNENBAUM occured about five days later at the same location, although this time TANNENBAUM was accompanied by a small female child about three years of age. He advised her of the amount the University had deposited to RIHA's account. At this time TANNENBAUM told him her real name was not GALY, TANNENBAUM, but something else which she did not disclose, and added that she was about ready to leave town. He advised of no contact with TANNENBAUM since their last meeting.
 

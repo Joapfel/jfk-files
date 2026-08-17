@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34924.png
-
-Convert to MarkdownF. O. Boe, 703
+F. O. Boe, 703
 Broward, Florida
 Date: Jun 30, 1966
 

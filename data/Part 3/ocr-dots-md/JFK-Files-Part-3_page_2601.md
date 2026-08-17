@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2601.png
-
-Convert to MarkdownVol. 20
+Vol. 20
 The United States Senate
 
 Report of Proceedings

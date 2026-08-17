@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5345.png
-
-Convert to MarkdownRE: SENSTUDY 75
+RE: SENSTUDY 75
 
 Steven Blackhurst, Deputy Special Counsel for
 Intelligence Coordination, later advised Inspector Hotis that

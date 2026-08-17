@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6560.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 There are obvious moral judgments attached to many of the proposals for actions directed against Cuba. When the judgments of various individuals differ, the resulting U. S. position probably reflects the least common denominator. Many proposals may be unacceptable because the deniability factor is too low or the proposals may be of a nature that premature commitment and subsequent disclosure would not be desirable since the weapon may be worthy of a more far reaching impact. There is an understandable frustration in the U. S. resorting to the application of sophisticated clandestine weapons against a small state which theoretically could be brought to its knees in a relatively short period of time through the application of conventional weapons.
 

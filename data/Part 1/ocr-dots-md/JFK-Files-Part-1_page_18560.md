@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18560.png
-
-Convert to MarkdownMEMORANDUM FOR : Chairman, Board of Medical Examiners
+MEMORANDUM FOR : Chairman, Board of Medical Examiners
 
 SUBJECT : Request for Medical Evaluation - Mr. Calvin W. Hicks
 

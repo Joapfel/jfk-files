@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10280.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PROPRIETARY ENTITY COVER
 

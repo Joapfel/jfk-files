@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22674.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, WH Division
 ATTENTION : WH/III/Mexico (ed Ogden)

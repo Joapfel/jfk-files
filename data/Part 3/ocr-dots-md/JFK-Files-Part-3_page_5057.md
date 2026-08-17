@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5057.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 2 - Mr. J. A. Mintz
 (1 - J. B. Hotis)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10452.png
-
-Convert to Markdown(E) Identity 64 - This is an operation with additional participation by National Security Agency. It is designed in anticipation of the Identity 64 in Washington. The listening post was obtained by using the Agency covert mechanisms for procuring the property. New systems are being designed and produced by using TSD's covert contractor mechanisms and TSD engineers.
+(E) Identity 64 - This is an operation with additional participation by National Security Agency. It is designed in anticipation of the Identity 64 in Washington. The listening post was obtained by using the Agency covert mechanisms for procuring the property. New systems are being designed and produced by using TSD's covert contractor mechanisms and TSD engineers.
 
 (F) Identity 65 - Ten masked audio devices purchased from TSD were installed in Identity 65
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11840.png
-
-Convert to MarkdownCABLE SEC DISSEM BY RS PER
+CABLE SEC DISSEM BY RS PER
 
 TOTAL COPIES:
 

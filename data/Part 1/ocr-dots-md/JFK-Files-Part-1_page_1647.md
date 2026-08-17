@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1647.png
-
-Convert to Markdown**NAME**: BUSTOS-VIDELA, Charlotte Z.
+**NAME**: BUSTOS-VIDELA, Charlotte Z.
 
 **DATE OF BIRTH**: 12 January 1929
 

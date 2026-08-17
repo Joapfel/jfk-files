@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28063.png
-
-Convert to Markdown14-0000
+14-0000
 
 **Department of State**
 **Personnel Action**

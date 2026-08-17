@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30627.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7028 - report of 9/28 +10/1
 corr. by A.B.

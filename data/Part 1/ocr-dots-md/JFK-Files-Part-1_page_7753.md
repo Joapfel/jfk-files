@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7753.png
-
-Convert to Markdown11.02 Humor:
+11.02 Humor:
 
 11.02.01 Is he a person whom you
 Have never seen tease anyone

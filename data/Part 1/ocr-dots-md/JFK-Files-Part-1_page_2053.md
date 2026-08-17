@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2053.png
-
-Convert to Markdown1947-1949: Columbus, Georgia and/or Panama - with RHI
+1947-1949: Columbus, Georgia and/or Panama - with RHI
 1949-Pres: Mexico
 
 b. Subject given the following character references:

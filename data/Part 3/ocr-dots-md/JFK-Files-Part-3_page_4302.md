@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4302.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Office of the Attorney General
 Washington, D. C.

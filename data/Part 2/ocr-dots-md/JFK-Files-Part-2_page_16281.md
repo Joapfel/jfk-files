@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16281.png
-
-Convert to MarkdownODESSA JACKSON
+ODESSA JACKSON
 
 Negro female, 19 years old, 5' 4" tall, 140-145 pounds, resides at 1625 Fifth Avenue, East Moline, Illinois, and has been employed in a hospital in East Moline as a nurses' aide.
 

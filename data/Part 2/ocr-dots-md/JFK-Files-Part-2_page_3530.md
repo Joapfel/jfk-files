@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3530.png
-
-Convert to MarkdownTOP SECRET DINAR
+TOP SECRET DINAR
 
 CUBAN ECONOMIC DEVELOPMENT - cont'd
 

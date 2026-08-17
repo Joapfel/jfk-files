@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15039.png
-
-Convert to Markdownrevolutionary movement of students and young intellectuals. New Leftists from U. S. have played important roles in demonstrations in foreign countries.
+revolutionary movement of students and young intellectuals. New Leftists from U. S. have played important roles in demonstrations in foreign countries.
 
 **Racial Unrest on College Campuses** Campuses throughout U. S. have been marked by racial unrest. Minority groups such as Black Student Union becoming increasingly militant and violent. Demands unreasonable. Other militant groups have joined in demonstrations and offer full support to minority groups.
 

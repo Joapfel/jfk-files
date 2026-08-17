@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8394.png
-
-Convert to Markdown# Vivienda
+# Vivienda
 
 ## 12.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27346.png
-
-Convert to MarkdownA - Ltr from Olsen to Jennings - 24 Feb 75
+A - Ltr from Olsen to Jennings - 24 Feb 75
 
 B - Ltr from Jennings to Hon. Nelson A. Rockefeller - 13 Feb 75 with attached copies of 3 pages of Jennings' 1 May 73 ltr.
 

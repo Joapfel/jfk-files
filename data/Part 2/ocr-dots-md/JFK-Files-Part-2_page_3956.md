@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3956.png
-
-Convert to MarkdownE. Germany Frees
+E. Germany Frees
 U.S. Ex-Officer
 
 WASHINGTON POST

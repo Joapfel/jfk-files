@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15502.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>ATE : 517<br/>: 22 SEP 61</td><td><table><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr><tr><td>D : DIRECTOR<br/>IOM : LEOPOLDVILLE<br/>CTICN : C/AF 3 (C/AF TEMPO SLOTTED AT 1550-22 SEP)<br/>LFO : COP, C/C1, C/F1 2, C/TSD 2, S/C 2 cc:<br/><br/></td><td><table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>C.100 4</td></tr><tr><td>2</td><td>C.100 5</td></tr><tr><td>3</td><td>C.100 6</td></tr></tbody></table></td></tr><tr><td></td><td>SEP 22 1914Z 61</td></tr><tr><td></td><td>Routine</td></tr><tr><td></td><td>IN 33643</td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>ATE : 517<br/>: 22 SEP 61</td><td><table><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr><tr><td>D : DIRECTOR<br/>IOM : LEOPOLDVILLE<br/>CTICN : C/AF 3 (C/AF TEMPO SLOTTED AT 1550-22 SEP)<br/>LFO : COP, C/C1, C/F1 2, C/TSD 2, S/C 2 cc:<br/><br/></td><td><table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>C.100 4</td></tr><tr><td>2</td><td>C.100 5</td></tr><tr><td>3</td><td>C.100 6</td></tr></tbody></table></td></tr><tr><td></td><td>SEP 22 1914Z 61</td></tr><tr><td></td><td>Routine</td></tr><tr><td></td><td>IN 33643</td></tr></table>
 
 PRITY DIR CITE LEOP 2088
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6972.png
-
-Convert to Markdown13-00000
+13-00000
 
 The board needs the time designated in this bill to complete its important work
 in making available as complete a historical record as possible concerning the

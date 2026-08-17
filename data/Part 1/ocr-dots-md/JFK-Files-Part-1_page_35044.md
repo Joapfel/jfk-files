@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35044.png
-
-Convert to Markdown# INSERTS
+# INSERTS
 
 ANNEX VI-E:
 

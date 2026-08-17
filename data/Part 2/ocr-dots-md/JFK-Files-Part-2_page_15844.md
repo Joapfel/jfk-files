@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15844.png
-
-Convert to Markdown# RECTIFY THE FATTY'S STYLE OF WORK
+# RECTIFY THE FATTY'S STYLE OF WORK
 
 The Party School opens today and I wish it every success. I would like to say something about the problem of our Party's style of work.
 

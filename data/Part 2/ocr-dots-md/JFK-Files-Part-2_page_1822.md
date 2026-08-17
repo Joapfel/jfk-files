@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1822.png
-
-Convert to MarkdownADMINISTRATIVE - INTERNAL USE ONLY
+ADMINISTRATIVE - INTERNAL USE ONLY
 
 3 February 1977
 

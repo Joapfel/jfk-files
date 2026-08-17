@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11797.png
-
-Convert to Markdown[107C-D SECTION 107. [INTERNAL] SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
+[107C-D SECTION 107. [INTERNAL] SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
 
 3. Inquiries of discreet nature concerning individual's personal history (date and place of birth, etc.), patriotism, health, reliability, stability, integrity, general reputation, present and past employments, and business connections. Investigation must definitely establish that individual can be used without danger of future embarrassment due to instability or unreliability. Securing background information from individual is not sufficient; his background must be established by investigation, including discreet inquiries among persons personally acquainted with him.
 

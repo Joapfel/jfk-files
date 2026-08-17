@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28486.png
-
-Convert to Markdown14-0000
+14-0000
 
 Form No. 68-8
 April 1959

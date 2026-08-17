@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15879.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CRIG:</td>
     <td></td>

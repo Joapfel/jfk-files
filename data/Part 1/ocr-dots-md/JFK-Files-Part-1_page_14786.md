@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14786.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. Should our interviews produce any information likely to interest the FBI we shall, of course, forward it to you promptly.
 

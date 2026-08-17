@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21598.png
-
-Convert to Markdownextremely narrow Soviet compartmentation in such an operation -- a
+extremely narrow Soviet compartmentation in such an operation -- a
 compartmentation which would exclude knowledgeability by any KGB
 officer other than very senior persons and an individual of group of
 action individuals specifically concerned with matters of this nature.

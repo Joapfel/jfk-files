@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2239.png
-
-Convert to Markdown# The Attorney General
+# The Attorney General
 
 Reports were submitted by various FBI field offices regarding the activities of the ELF and COMINFIL, NAACP, within the territory covered by each of these offices. In some instances, some of these offices listed themselves as office of origin. However, inasmuch as the national headquarters of these two organizations were located in New York City, FBIHQ considered the New York Office as the office of origin in the investigation of these organizations and documents submitted by the New York Office were utilized in response to your request.
 

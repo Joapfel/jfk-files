@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1629.png
-
-Convert to MarkdownJanuary 1966
+January 1966
 
 MEMORANDUM FOR: FE Career Management Committee
 SUEJECT: Recommendation for Promotion

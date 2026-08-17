@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16495.png
-
-Convert to Markdown3 better than Chicago). That's real progress: ask Oakland Panthers Huey Newton, Bobby Hutton or Eldridge Cleaver.)
+3 better than Chicago). That's real progress: ask Oakland Panthers Huey Newton, Bobby Hutton or Eldridge Cleaver.)
 
 **PARTICIPANTS:** Command-level officers from the nation's 32 largest cities.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32450.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA Report 21 Dec 62 Rome
 

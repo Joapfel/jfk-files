@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19377.png
-
-Convert to Markdown# AGREEMENT
+# AGREEMENT
 
 IN CONSIDERATION OF THE GOVERNMENT'S undertaking to transport, without cost to me, to my official overseas station, the vehicle described below which is my personal property;
 

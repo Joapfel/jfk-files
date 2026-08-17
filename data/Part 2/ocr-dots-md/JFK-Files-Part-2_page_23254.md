@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23254.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 officer's signature, and you said to me a moment ago that
 you are almost 100 percent sure that that is the pseudonym

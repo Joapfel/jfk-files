@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22167.png
-
-Convert to Markdownall; three Americans and three British. I can't remember the British names just now.*
+all; three Americans and three British. I can't remember the British names just now.*
 
 "In 1960 I got a commendation from GRIBANOV for good work in general. A lot of officers got this. In 1961 I received the Order of the Red Star. With a group of case officers I got this for general good work in the Second Chief Directorate. KOVALENKO and KOVSHUK got this too. IVASHUTIN gave it to me (made the presentation). Personnel makes a note in your official file, but you can take the medal and the little certificate that goes with it and either keep it at home or in your study room (office).**
 

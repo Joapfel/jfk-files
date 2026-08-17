@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3780.png
-
-Convert to MarkdownMr. [Swann:] At the request of Helen, Mr. Kuhn's office, Policy Coordination Staff, ext 1623, I asked for a name trace and the files on the following, and gave your name:
+Mr. [Swann:] At the request of Helen, Mr. Kuhn's office, Policy Coordination Staff, ext 1623, I asked for a name trace and the files on the following, and gave your name:
 
 Mistretta, Vincent
 b. 13 Jan. 1913, Brooklyn NY

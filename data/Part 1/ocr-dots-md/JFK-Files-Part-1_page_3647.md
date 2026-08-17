@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3647.png
-
-Convert to Markdown-2-
+-2-
 
 importance to the Subject was involved in the investigation carried out by District Attorney of low Orleans James Garrison on the assassination of President John F. Kennedy. About the time that Subject was involved in this investigation, it was said of him that he liked to boast about his influence and contacts. Information from March 1973 indicates that Subject was engaged in narcotics trafficking along with his brother, Carlos, and Roberto VEGA (in Puerto Rico), Ernesto VENERO (Brigade 2503 member); Paul LUAL (in Dominican republic. He is a steady gambling dealer in Las Vegas clubs); Juan GARCIA (fisherman); (fou)CUSA, engineer of the fishing boat "El Viejo Comus"); Ramón DOMINGUEZ (appears as a revolutionary to cover his illegal activities); Aton CONSTANZO and his brother Abelino CONSTANZO; and Julian VALDEZ Villa (aka "Nogrete").
 

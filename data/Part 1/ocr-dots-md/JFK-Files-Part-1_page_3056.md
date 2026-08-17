@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3056.png
-
-Convert to MarkdownA bit later, B. says to C. in an exasperated voice, "He shouldn't be so helpless; he shouldn't be so helpless, Anatoliy Ilioh, he shouldn't be. If he broke it, he should fix it. 'If you can't ((fix it)), get a specialist.'" A. tries to fix the record player and, obviously hurt, he complains about his wife and says to her, "Don't be rule/crude." ((A. sounds rather high.)) B. complains, "He can't do a thing, Anatoliy Ilioh. I simply can't understand. A man in the house is, after all... If something breaks somewhere, it should be fixed. Just say, 'I'll fix it,' that's all. If you can't fix it, you need a specialist." ((She sounds quite annoyed.)) They discuss the cost of fixing the TV and record player.
+A bit later, B. says to C. in an exasperated voice, "He shouldn't be so helpless; he shouldn't be so helpless, Anatoliy Ilioh, he shouldn't be. If he broke it, he should fix it. 'If you can't ((fix it)), get a specialist.'" A. tries to fix the record player and, obviously hurt, he complains about his wife and says to her, "Don't be rule/crude." ((A. sounds rather high.)) B. complains, "He can't do a thing, Anatoliy Ilioh. I simply can't understand. A man in the house is, after all... If something breaks somewhere, it should be fixed. Just say, 'I'll fix it,' that's all. If you can't fix it, you need a specialist." ((She sounds quite annoyed.)) They discuss the cost of fixing the TV and record player.
 
 and
 

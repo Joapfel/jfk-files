@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20971.png
-
-Convert to MarkdownWFO 100-55290
+WFO 100-55290
 
 On August 23, 1972, this source advised that apparently four or five young white girls now live at 219 11th Street, S.E. Source has seen numerous different girls frequenting the residence, but is unsure exactly how many reside there at the present time.
 

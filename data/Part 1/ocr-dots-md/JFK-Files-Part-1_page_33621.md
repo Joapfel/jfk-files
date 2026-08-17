@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33621.png
-
-Convert to MarkdownSince this is an honest letter, and not just pro-forma appreciation by a retiring President, I must also, unfortunately, include some observations that are not so pleasant.
+Since this is an honest letter, and not just pro-forma appreciation by a retiring President, I must also, unfortunately, include some observations that are not so pleasant.
 
 I remember very early in my work with COFE, that you taught me the political meaning of the word "polarisation", and since then I have had ample opportunity in the Hungarian National Council to see polarization at work.
 

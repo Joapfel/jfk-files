@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29219.png
-
-Convert to MarkdownJuanita Brown
+Juanita Brown
 561 Andrews St.
 Metairie, La.
 

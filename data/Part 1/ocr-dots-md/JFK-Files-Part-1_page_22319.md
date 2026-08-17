@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22319.png
-
-Convert to Markdown726.
+726.
 
 k. TDY to Bulgaria and the LUNT Case
 

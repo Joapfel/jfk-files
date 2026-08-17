@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8361.png
-
-Convert to MarkdownNWW 88614 DocId:32989606 Page 108
+NWW 88614 DocId:32989606 Page 108
 
 TJM:1hb
 (4)

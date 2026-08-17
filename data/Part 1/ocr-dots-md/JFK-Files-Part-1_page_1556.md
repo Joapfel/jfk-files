@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1556.png
-
-Convert to MarkdownJanuary 1975
+January 1975
 
 SUBJECT: Yuriy Ivanovich NOSENKO
 

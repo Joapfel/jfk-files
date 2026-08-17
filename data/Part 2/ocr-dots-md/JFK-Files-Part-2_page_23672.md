@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23672.png
-
-Convert to MarkdownThat would be the main reason that I would think that you would move the DCI away from that.
+That would be the main reason that I would think that you would move the DCI away from that.
 
 Senator Mathias. But it does not appear to me that you exonerate your national intelligence officer, whatever you call him. just because you have someone else you can also point to.
 

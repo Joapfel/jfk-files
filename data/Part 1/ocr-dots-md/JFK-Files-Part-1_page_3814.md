@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3814.png
-
-Convert to MarkdownCentral South Internacional Inc.
+Central South Internacional Inc.
 
 C. B. A. SOUTHERN RIGGS STATION, MIAMI, FLA., 03186
 

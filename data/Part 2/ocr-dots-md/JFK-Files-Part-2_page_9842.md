@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9842.png
-
-Convert to MarkdownSAC, Chicago (157-2832)
+SAC, Chicago (157-2832)
 
 Director, FBI (157-9304) - 79
 ST-102 REC-66

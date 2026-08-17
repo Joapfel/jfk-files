@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11868.png
-
-Convert to Markdown# SUGGESTION MEMORANDUM
+# SUGGESTION MEMORANDUM
 ## BLACK NATIONALIST PHOTOGRAPH ALBUM
 
 INSPECTOR E. S. MILLER: The Black Nationalist Photograph Album (BNPA) was approved and established in 1968 and at this time contains the photograph and biographical data of 472 black extremists who travel extensively in this country and abroad. Each field office plus Legal Attaches, Ottawa and Mexico City, maintain this Album to assist in coverage of movement of black extremist individuals in the United States, Canada, and Mexico. The Album appears to be an excellent investigative aid by making immediately available photograph and background data on individuals traveling from one Division to another or out of the country whose activities must be followed.

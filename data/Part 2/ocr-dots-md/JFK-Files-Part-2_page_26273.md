@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26273.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the next group will number approximately 100 men and that they will receive instructions in Algeria, North Vietnam, Laos, and China. The top leader of the Peruvian group has told his lieutenants that he will soon go to Algeria to start arrangements for this training.
 

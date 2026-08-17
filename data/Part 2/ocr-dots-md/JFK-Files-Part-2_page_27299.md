@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27299.png
-
-Convert to MarkdownA - Routing and Record Sheet - 6 Apr 67
+A - Routing and Record Sheet - 6 Apr 67
 
 SECRET FYES ONLY
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24559.png
-
-Convert to Markdownd. Testimony of Bundy
+d. Testimony of Bundy
 
 Bundy served as President Kennedy's Special Assistant for National Security Affairs throughout the Kennedy Administration.
 

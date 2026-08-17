@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9973.png
-
-Convert to Markdowninvolving civilian personnel of the Army, Navy or Air Force. The Federal Bureau of Investigation will refer to the appropriate agency all available material and will request investigation, and upon completion thereof, the reports should be furnished to the Federal Bureau of Investigation as provided hereafter.
+involving civilian personnel of the Army, Navy or Air Force. The Federal Bureau of Investigation will refer to the appropriate agency all available material and will request investigation, and upon completion thereof, the reports should be furnished to the Federal Bureau of Investigation as provided hereafter.
 
 8. With respect to the necessary investigation of any of the personnel of other Departments and Agencies stationed outside the continental limits of the United States, Alaska, Hawaii, Puerto Rico, and the Virgin Islands--
 

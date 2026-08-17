@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16231.png
-
-Convert to MarkdownWICKS, Alastair
+WICKS, Alastair
 
 PRET 2818
 (IN 31010)

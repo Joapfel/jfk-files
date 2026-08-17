@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4078.png
-
-Convert to MarkdownDepartment of Alcoholic Beverage Control. I withdraw my request for a hearing in this matter by the State Personnel Board.
+Department of Alcoholic Beverage Control. I withdraw my request for a hearing in this matter by the State Personnel Board.
 
 "I hereby state that the sole reason for this withdrawal of my appeal and request for a hearing is because of my financial situation. Continued, and what, I consider to be unjustified, postponements of my hearing have created a situation in which I cannot afford to meet my daily living expenses until August 30, 1962, the most recent date given to me as the date of my hearing. Also, I am unable to obtain employment in Los Angeles because of the stigma attached to my dismissal.
 

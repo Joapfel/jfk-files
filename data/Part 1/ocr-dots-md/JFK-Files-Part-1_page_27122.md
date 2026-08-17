@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27122.png
-
-Convert to MarkdownRE: CUBANOS UNIDOS (UNITED CUBANS) INTERNAL SECURITY - CUBA NEUTRALITY MATTERS - CUBA
+RE: CUBANOS UNIDOS (UNITED CUBANS) INTERNAL SECURITY - CUBA NEUTRALITY MATTERS - CUBA
 
 Cubanos Unidos (CU) is a Cuban exile anti-FIDEL CASTRO organization in Miami, Florida. Its purpose is to unite all exile groups into a unity organization and begin military operations against the present Government of Cuba.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11376.png
-
-Convert to MarkdownCONFERENCES:
+CONFERENCES:
 
 Counter Intelligence Staff Date
 

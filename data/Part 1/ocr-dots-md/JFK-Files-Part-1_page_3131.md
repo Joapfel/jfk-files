@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3131.png
-
-Convert to Markdownmerites propios. Buena amfitriona, uurida por sus colegas de
+merites propios. Buena amfitriona, uurida por sus colegas de
 mas o menos el mismo rango, probablemente idiada por los de po-
 sición subordinada, por que a estos dos trata como a perros.
 b) pertenece a la embajada.

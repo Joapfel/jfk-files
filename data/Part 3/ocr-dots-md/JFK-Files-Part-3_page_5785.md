@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5785.png
-
-Convert to Markdown103-237711
+103-237711
 
 Date: July 25, 1968
 

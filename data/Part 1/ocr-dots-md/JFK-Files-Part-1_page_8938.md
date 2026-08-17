@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8938.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th colspan="2">PROCESSING</th></tr><tr><td></td><td></td><td>SECRET</td><td>PRO<br/>PRT'D</td><td>ACCT.<br/>PURSU'd</td></tr></thead><tbody><tr><td>TO</td><td colspan="3">Chief, WU Division</td><td>NO INDEPENDENT REQUIRED</td></tr><tr><td>P.O.</td><td colspan="3">Chief of Station, Caracas</td><td>ONLY QUALIFIED<br/>HEADQUARTERS DESK<br/>CAN REACH INDICATING</td></tr><tr><td>FROM</td><td colspan="3">Chief of Station, Mexico City</td><td>ABSTRACT</td></tr><tr><td>SUBJECT</td><td colspan="4">Tichborn Report on Caracas Travel</td></tr><tr><td>ACTION REQUIRED · REFERENCE</td><td colspan="4">REFERENCE: HMMW-V11415, 22 March 1963 5-134-5</td></tr></tbody></table>
 

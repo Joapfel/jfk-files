@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10524.png
-
-Convert to Markdown# Foreign Support for Activities Planned to Disrupt or Harass the Democratic National Convention
+# Foreign Support for Activities Planned to Disrupt or Harass the Democratic National Convention
 
 ## SUMMARY:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22360.png
-
-Convert to Markdownd. Polygraphs of job applicants and some contractors have been routinely covertly recorded;
+d. Polygraphs of job applicants and some contractors have been routinely covertly recorded;
 
 e. The field offices of the CIA have from time to time installed covert recording devices to record conversations of CIA employees with others where there was some reason to be concerned about the loyalty of such employees.
 

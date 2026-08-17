@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12170.png
-
-Convert to MarkdownA. DEFINITIONS
+A. DEFINITIONS
 
 1. Security informant
 

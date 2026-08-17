@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6959.png
-
-Convert to MarkdownPAGE 17
+PAGE 17
 
 Federal News Service, JUNE 4, 1997
 

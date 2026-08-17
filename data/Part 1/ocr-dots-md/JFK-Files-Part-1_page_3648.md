@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3648.png
-
-Convert to Markdownhis arrival. About that time, he was always accompanied by one Manolito RODRIGUEZ. Subject became a member of the Cuban Liberation Army (Ejército Libertador de Cuba), and had the responsibility of fund raising among the exiled Cuban population. Subject also was believed to be a member of the group Cuban Power but he was only related to the leader of that group, whose surname is also MORALES Navarette. Subject was a confident of Manuel ARTINE, and may still be one. In March 1968, Subject was arrested and charged with involvement in a terrorist attempt in Miami.
+his arrival. About that time, he was always accompanied by one Manolito RODRIGUEZ. Subject became a member of the Cuban Liberation Army (Ejército Libertador de Cuba), and had the responsibility of fund raising among the exiled Cuban population. Subject also was believed to be a member of the group Cuban Power but he was only related to the leader of that group, whose surname is also MORALES Navarette. Subject was a confident of Manuel ARTINE, and may still be one. In March 1968, Subject was arrested and charged with involvement in a terrorist attempt in Miami.
 
 II. We have no traces on Miguel O. MERCADO Orenas.
 

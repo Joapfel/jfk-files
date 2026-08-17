@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4067.png
-
-Convert to Markdown# 3791 (6-75)
+# 3791 (6-75)
 
 NW 88614 DocId:32989602 Page 103
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9799.png
-
-Convert to MarkdownBy foreign governments, their intelligence services and others
+By foreign governments, their intelligence services and others
 acting in their behalf. On the domestic scene the FBI has
 penetrated conspiracies ranging from the communist underground
 to the hooded night riders of the Klan who terrorized our

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18538.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">
      [x] MILITARY-7 EDUCATION: In order to make the most of this evaluation, tell us in detail what training you received during the past 7 years. (Please include the name and location of any military school attended, as well as the dates and nature of your participation.) If you have received any additional military training since leaving the military service, such as advanced basic training or boot camp, be sure to list it here.

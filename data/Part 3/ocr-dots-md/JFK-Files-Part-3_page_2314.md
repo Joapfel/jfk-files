@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2314.png
-
-Convert to MarkdownThe Attorney General.
+The Attorney General.
 
 Durham stated he eventually received a subpoena to testify before the Senate Select Committee on Intelligence activity, but refused to comply with this subpoena, threatening to hold a press conference concerning his experience with this Committee's investigators if they forced him to appear. Durham said he expressed his feelings to an inconsistent United States attorney in its offices in Washington, D.C., and in a few days he was told to forget the subpoena.
 

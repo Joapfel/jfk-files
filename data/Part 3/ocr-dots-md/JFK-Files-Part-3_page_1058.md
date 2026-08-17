@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1058.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 The Tampa Office, during 1969, directed an informant to oppose the klan activities of Norman Bennett Carter, a newly reactivated member of the Melbourne, Florida, Klavern of the Knights of the Invisible Empire.
 

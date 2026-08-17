@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5203.png
-
-Convert to MarkdownCopyright © 1994 by Ben R. Rich
+Copyright © 1994 by Ben R. Rich
 
 All rights reserved. No part of this book may be reproduced in any form or by any electronic or mechanical means, including information storage and retrieval systems, except by a reviewer who may quote brief passages in a review.
 

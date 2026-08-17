@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29134.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><thead><tr><th colspan="3">ADDITIONAL DATA AND/OR CONTINUATION OF PRECEDING ITEMS</th></tr></thead><tbody><tr><td>SIGNED AT</td><td>DATE</td><td>SIGNATURE</td></tr><tr><td>June 28 1967</td><td></td><td>Charles V. Brusson, Jr.</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13361.png
-
-Convert to MarkdownS E C R E T O
+S E C R E T O
 
 CONVENCION DE SECRETARIA
 

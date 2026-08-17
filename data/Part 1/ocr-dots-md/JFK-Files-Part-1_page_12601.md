@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12601.png
-
-Convert to Markdown3. A. Debrin, Lecithinase (1925), 80-0
+3. A. Debrin, Lecithinase (1925), 80-0
 
 4. Ammonium chloride, 78 - 0
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1421.png
-
-Convert to MarkdownDLB: 30 SEPT 64
+DLB: 30 SEPT 64
 
 SECRET
 (When filled in)

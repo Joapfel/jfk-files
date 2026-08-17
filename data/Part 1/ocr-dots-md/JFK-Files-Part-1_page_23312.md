@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23312.png
-
-Convert to Markdown12 April 1957
+12 April 1957
 
 MEMORANDUM FOR: Chief, Cover Division
 Attention: Mr. Raymond Millard

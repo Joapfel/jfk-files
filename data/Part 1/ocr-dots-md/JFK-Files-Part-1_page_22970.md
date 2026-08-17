@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22970.png
-
-Convert to MarkdownRe: AMPHODARCH/Arthur G. VAIVADA
+Re: AMPHODARCH/Arthur G. VAIVADA
 
 CI Staff notes that training for VAIVADA is scheduled to commence on the same date in the same city as the training scheduled for Colonel PEREZ and Lt. CASTANO of the Cuban BRAC. This situation seems inherently dangerous and unwarranted by the circumstances as known to CI Staff. Pending further justification CI Staff cannot concur in the training as requested, but would of course concur in the training for VAIVADA if the locales were shifted to another city such as New York.
 

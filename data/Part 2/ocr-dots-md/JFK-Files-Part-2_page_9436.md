@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9436.png
-
-Convert to MarkdownPART II
+PART II
 
 Due to the brainwashing done by TV, movies, comics etc, there are a lot of incorrect ideas about firearms that must be cleared up. The first thing to understand is, there is no piece (gun) that covers any and all situations. Although they show pigs on TV and in the movies killing people a block away with a snub-nose .38
 

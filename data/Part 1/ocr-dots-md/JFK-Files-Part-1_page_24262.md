@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24262.png
-
-Convert to MarkdownUnder Separate Cover Attachment B to OEPW-1814
+Under Separate Cover Attachment B to OEPW-1814
 
 IDEN - Andrew Ness
 

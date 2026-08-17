@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3978.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th colspan="2">Memorandum</th></tr></thead><tbody><tr><td>TO:</td><td>: Director, O/SY<br/>Thru: Chief, O/SY/E</td></tr><tr><td>FROM :</td><td>L.G.Marcell, O/SY/EO</td></tr><tr><td>SUBJECT:</td><td>Item in East Village Other, August 20, 1969</td></tr></tbody></table>
 

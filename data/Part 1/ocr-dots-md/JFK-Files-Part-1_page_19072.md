@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19072.png
-
-Convert to MarkdownOFFICE OF STRATEGIC SERVICES
+OFFICE OF STRATEGIC SERVICES
 
 COUNTRY France
 SUBJECT Resistance and Labor organization in Normandy; Civilian Attitudes.

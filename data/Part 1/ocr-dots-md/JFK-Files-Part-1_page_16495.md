@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16495.png
-
-Convert to Markdown21 December 1974
+21 December 1974
 
 SUBJECT: Contact Report on SLANK-1. (S-1)
 

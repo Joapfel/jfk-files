@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34535.png
-
-Convert to Markdown<table><tr><td>6. Reason for going to the U.S.S.R.</td></tr><tr><td>Note: Person accompanying for a transit visa through the U.S.S.R. must have an exit transit visa of the same country which or through the border station, if any, to be issued upon leave of absence from the U.S.S.R.</td></tr><tr><td>7. If minors under 16 years of age are accompanying you, indicate the surname, name and patronymic of each child</td></tr><tr><td>8. Write on this form: The USSR, before: ( ), indicate when, where and purpose of stay)</td></tr><tr><td>9. Surnames, names, patronymics and addresses of close relatives in the U.S.S.R.</td></tr><tr><td>10. Your permanent address</td></tr><tr><td>Date<br/>(day, month, year)<br/>Signature</td></tr></table>
+<table><tr><td>6. Reason for going to the U.S.S.R.</td></tr><tr><td>Note: Person accompanying for a transit visa through the U.S.S.R. must have an exit transit visa of the same country which or through the border station, if any, to be issued upon leave of absence from the U.S.S.R.</td></tr><tr><td>7. If minors under 16 years of age are accompanying you, indicate the surname, name and patronymic of each child</td></tr><tr><td>8. Write on this form: The USSR, before: ( ), indicate when, where and purpose of stay)</td></tr><tr><td>9. Surnames, names, patronymics and addresses of close relatives in the U.S.S.R.</td></tr><tr><td>10. Your permanent address</td></tr><tr><td>Date<br/>(day, month, year)<br/>Signature</td></tr></table>
 
 DOCUMENTS
 

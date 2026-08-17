@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15904.png
-
-Convert to MarkdownEXCERPT FROM EGOA 20791 (PARVARD Resettlement Summary)
+EXCERPT FROM EGOA 20791 (PARVARD Resettlement Summary)
 
 WIROGUE
 

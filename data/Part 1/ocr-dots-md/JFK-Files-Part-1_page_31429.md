@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31429.png
-
-Convert to Markdown- C -
+- C -
 
 quotas of only 100, and these quotas are almost all oversubscribed to the year 2000. Should the mortgages laid on these quotas by the Displaced Persons Act be removed, or if Hungarians, for example, were able to borrow from the British quota, so should be able to bring to the United States many others possessing particular skills whose services are urgently needed by this organization. Many of our allies are highly skilled technical, professional, medical or scientific men whose training, experience and ability would most certainly be prospectively beneficial to the United States.
 

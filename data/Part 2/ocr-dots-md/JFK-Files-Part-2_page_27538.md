@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27538.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 TO: Tom Lambeth
 FROM: Steve Fallis

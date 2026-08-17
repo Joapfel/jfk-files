@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4715.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: But Bill wants to build nations. And its very laudable and maybe some government agency ought to build nations. And maybe he ought to be in the AID, or ICA in the old days, or the Red Cross or wherever. But not as a clandestine operations officer, trying to collect intelligence and recruit human beings to be your agent, your spy. A lot of us in the old FE Division on the working level thought, there is going to be trouble with this guy.
 

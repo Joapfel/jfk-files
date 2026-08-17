@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7679.png
-
-Convert to MarkdownMr. RANKIN. Mr. Helms—
+Mr. RANKIN. Mr. Helms—
 
 Mr. DULLES. Could I ask one question there? Do you recall or do you know at what time the name of Lee Harvey Oswald was carded, first came to your attention so it became a matter of record, in the Agency?
 

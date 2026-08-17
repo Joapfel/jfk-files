@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13254.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. MR. STURGIS: No. Again I say, nobody shows if they are CIA, unless you are working yourself as an employee.
 2

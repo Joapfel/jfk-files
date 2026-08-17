@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31390.png
-
-Convert to MarkdownMr. Phoenix requests assurance that if Mr. Royal Tyler approaches French authorities at the border to create such a university and is granted permission, the Agency will supply the funds. No formal request has been made and this project of course has not been budgeted.
+Mr. Phoenix requests assurance that if Mr. Royal Tyler approaches French authorities at the border to create such a university and is granted permission, the Agency will supply the funds. No formal request has been made and this project of course has not been budgeted.
 
 f. Names of pensioned Army and Navy Officers. In compliance with DD/P Notice No. 20-5 issued on 27 October, we have asked Mr. Phenix to furnish the names of pensioned Army and Navy officers employed by NCFE. Mr. Phenix is concerned about the legal ramifications of this step, stating his fear that what this order implies for him is that the monies he dispenses as Treasurer are government funds. He has been assured by us that the purpose of the Agency-wide request is to inventory those who are receiving Navy and Army pensions and serving in proprietary organizations. He has also been assured that Army and Navy pensioners in his organization will be exempt from any action taken by the Agency on the problem of double pay. He is quite naturally worried about it.
 

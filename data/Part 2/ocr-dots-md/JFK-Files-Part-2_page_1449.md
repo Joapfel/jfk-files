@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1449.png
-
-Convert to Markdown5. Mr. Wheeler also has the gift of being able to absorb rapidly and commit to paper accurately and quickly, a characteristic and asset of his which has much to commend it.
+5. Mr. Wheeler also has the gift of being able to absorb rapidly and commit to paper accurately and quickly, a characteristic and asset of his which has much to commend it.
 
 6. He has been a superb deputy, acting in this capacity in my absence. He has excellent recall, is a gifted administrator, and has introduced a number of procedural changes that have increased MP8 effectiveness. He has been effective in dealing with OPPB and in participation in the briefings of Office of Management and Budget (OMB) personnel. He is very cost conscious and has made several suggestions resulting in the saving of hundreds of thousands of dollars. Mr. Wheeler has always enthusiastically accepted assignments to panels designed to upgrade the quality of various trouble areas, the latest being the searching look into the nonofficial cover situation within the CS.
 

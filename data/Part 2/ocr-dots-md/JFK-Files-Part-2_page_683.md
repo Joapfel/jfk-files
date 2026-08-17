@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_683.png
-
-Convert to Markdown3.
+3.
 
 place of the meeting. He informed Rowton that he himself
 could be contacted on 48 22 56, a telephone that was located

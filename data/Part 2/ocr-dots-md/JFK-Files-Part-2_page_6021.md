@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6021.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 

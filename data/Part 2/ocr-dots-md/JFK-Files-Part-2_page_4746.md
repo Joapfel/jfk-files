@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4746.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: Just the bare beginnings of that because, you see, the Freedom
 of Information Act wasn't actually amended until '74 and didn't go into effect

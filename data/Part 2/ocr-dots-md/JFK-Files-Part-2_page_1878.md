@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1878.png
-
-Convert to Markdown## SEC. VIII. PUBLICATIONS
+## SEC. VIII. PUBLICATIONS
 
 <table><tr><td>List below the type of writing (non-fiction: professional or scientific articles, general interest subjects, current events, etc; fiction: novels, short stories, etc.) of any published materials of which you were author or co-author.</td></tr><tr><td></td></tr><tr><td></td></tr><tr><td></td></tr><tr><td></td></tr><tr><td></td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25753.png
-
-Convert to Markdown2. Institute an economic denial program based upon the establishment of a "Proclaimed List" under the Trading with the Enemy Act together with all other feasible actions, overt and covert, to deny to Cuba items critical to its economy.
+2. Institute an economic denial program based upon the establishment of a "Proclaimed List" under the Trading with the Enemy Act together with all other feasible actions, overt and covert, to deny to Cuba items critical to its economy.
 
 **Advantages**
 

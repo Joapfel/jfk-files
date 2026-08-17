@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6248.png
-
-Convert to Markdown# LOS SUCESOS DEL CONGO
+# LOS SUCESOS DEL CONGO
 
 ## UNA MUESTRA DE LO QUE ES EL COMUNISMO
 

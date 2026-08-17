@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15950.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. Meeting 1-400, Norm Roberts, Mrs. Geery and Harlowe Duffin.
 

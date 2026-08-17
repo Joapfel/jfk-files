@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13948.png
-
-Convert to Markdownthe Board have been made on that basis. (The Board's membership is listed under Tab D.) The Board was chaired initially by Dr. James Killian, Jr. In April 1963 when Dr. Killian resigned, President Kennedy appointed Mr. Clark Clifford as Chairman. In appointing Mr. Clifford, the President directed that the Board "continue to perform the highly important function of maintaining an independent review and assessment of the objectives and conduct of the foreign intelligence and related activities of the departments and agencies having responsibilities in this field." (Tab E)
+the Board have been made on that basis. (The Board's membership is listed under Tab D.) The Board was chaired initially by Dr. James Killian, Jr. In April 1963 when Dr. Killian resigned, President Kennedy appointed Mr. Clark Clifford as Chairman. In appointing Mr. Clifford, the President directed that the Board "continue to perform the highly important function of maintaining an independent review and assessment of the objectives and conduct of the foreign intelligence and related activities of the departments and agencies having responsibilities in this field." (Tab E)
 
 Coincident with Mr. Clifford's appointment, the President made a public announcement emphasizing that he would "continue to look to the Board for non-partisan, objective appraisals of the activities of our intelligence agencies in order to assure their efficient management and maximum effectiveness." (Tab F)
 

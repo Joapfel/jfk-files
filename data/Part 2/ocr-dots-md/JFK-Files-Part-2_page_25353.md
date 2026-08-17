@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25353.png
-
-Convert to MarkdownC. FBI involvement in Bay of Pigs, Lansdale planning, etc.
+C. FBI involvement in Bay of Pigs, Lansdale planning, etc.
 
 1. As Church report was being completed, we were just beginning to learn about how deeply the FBI was apparently involved in U.S. anti-Castro action. Possibility here that this could provide another clue in re FBI's original reluctance to investigate retaliation more fully. For instance we now know that FBI had learned about CIA's interest in using organized crime to kill Castro long before RFK told Hoover about it (Hoover had professed surprise in 1963, but there's some indication he may have already known). One FBI witness even told us that a high FBI official had even proposed the plot idea "in jest". At a minimum, the paper record shows FBI was informed about idea of using org. crime figures to provide Cuban intelligence and that, according to the paper record, FBI recommended against it. Trafficante has now claimed that FBI agents came to him seeking Cuban intelligence. This must be followed up, agents interviewed, and FBI memo's, etc., examined.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32769.png
-
-Convert to Markdownprogram is to follow. There is no future price commitment for this pro- duction program. In the event of very large over-runs on the research and development contracts, the price of the production program, which for all practical purposes would be committed to the development con- tactor, would probably be affected.
+program is to follow. There is no future price commitment for this pro- duction program. In the event of very large over-runs on the research and development contracts, the price of the production program, which for all practical purposes would be committed to the development con- tactor, would probably be affected.
 
 When we talk about the TFX program, we are talking National Defense. This aircraft is to be an important element in our military force; it must be operational in proper quantities in the time span scheduled. The more straightforward design of General Dynamics, an airframe contractor well versed in the design, development, and production of supersonic fighters, and assisted by Grumman, an outstanding designer, developer, and pro- ducer of Navy carrier-based aircraft, offered a more dependable answer to our needs.
 

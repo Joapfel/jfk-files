@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33146.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CLASSIFIED MESSAGE
 

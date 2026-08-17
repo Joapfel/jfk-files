@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4015.png
-
-Convert to Markdown-2-
+-2-
 
 situations anywhere in the world on short notice and for short periods of time. When not mobilized, the Agency would assist them in maintaining employment and supporting themselves. They would also, of course, be available for emergency operational commitment to Cuba if required. (It was explained that this was the program handled by Mr. Tom Clines of SOD, who was present and discussed it more in detail with A-4.)
 

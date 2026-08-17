@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16499.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CABLE SEC DISSEM BY</td><td></td><td>PER</td><td></td><td>TOTAL COPIES</td><td>21</td><td>RUN B2</td><td rowspan="2">REPRODUCTION BY OTHER TI<br/>ISSUING OFFICE IS PROHIBIT</td></tr><tr><td colspan="8">PERSON/UNIT NOTIFIED</td></tr><tr><td colspan="8"><hr/></td></tr><tr><td colspan="5">ADVANCE COPY ISSUED SLOTNO</td><td>BY</td><td>10 MAY 1974</td><td rowspan="2">STAFF</td></tr><tr><td>ACTION UNIT</td><td>I N F O</td><td>FILE</td><td>VR</td><td>[Handwritten: John Eubal, CSG]</td><td></td><td>1</td><td>4</td></tr><tr><td>WHB</td><td></td><td></td><td></td><td>Ciber instant PSK64 osotec</td><td></td><td>10</td><td>5</td></tr><tr><td>ACTION #</td><td></td><td></td><td></td><td></td><td></td><td></td><td>6</td></tr></table>
 

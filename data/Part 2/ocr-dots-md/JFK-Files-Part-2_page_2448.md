@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2448.png
-
-Convert to Markdown<table>
+<table>
   <caption>PROCESS SHEET FOR DOMESTIC CONTACT SERVICE COLLECTIONS</caption>
   <thead>
     <tr>

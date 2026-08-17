@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25721.png
-
-Convert to MarkdownFriday, August 27, 1976
+Friday, August 27, 1976
 
 # Jack Anderson and Les Whitten
 ## Smudge Only Clue in Rosselli Case

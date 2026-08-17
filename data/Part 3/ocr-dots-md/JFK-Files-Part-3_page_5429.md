@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5429.png
-
-Convert to Markdownadequate basis. As to the programs, now, indi-
+adequate basis. As to the programs, now, indi-
 vidually activities within those programs may be
 suspect. I have said and repeated that some of
 those activities I would not feel are proper today. I

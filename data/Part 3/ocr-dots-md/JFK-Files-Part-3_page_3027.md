@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3027.png
-
-Convert to Markdownaware of groups such as we have had in greater numbers
+aware of groups such as we have had in greater numbers
 in the past than we do at the present time. We have had
 periods where the demonstrations have been rather severe
 and the courts have said that the FBI has the right,

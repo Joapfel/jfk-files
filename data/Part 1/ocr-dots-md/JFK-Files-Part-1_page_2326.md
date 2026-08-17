@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2326.png
-
-Convert to MarkdownIn summer 1945 there was created the institute of the inter-national relations in Moscow and in July I entered in this institute.
+In summer 1945 there was created the institute of the inter-national relations in Moscow and in July I entered in this institute.
 
 In July my father went in Germany with the group of engineers and he took me (I received a temporary rank of a senior lieutenant, documents and a uniform).
 

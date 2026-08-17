@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31473.png
-
-Convert to Markdown# SAN FRANCISCO CITIZENS COMMITTEE TO PRESERVE AMERICAN FREEDOMS (SFCCPAF)
+# SAN FRANCISCO CITIZENS COMMITTEE TO PRESERVE AMERICAN FREEDOMS (SFCCPAF)
 
 A source advised on April 7, 1960, that a San Francisco affiliate of the Citizens Committee to Preserve American Freedoms (CCPAF) had been established at a meeting held in San Francisco on April 4, 1960. The source advised that the San Francisco affiliate, to be known as the San Francisco CCPAF, would carry out in Northern California, the program of the CCPAF.
 

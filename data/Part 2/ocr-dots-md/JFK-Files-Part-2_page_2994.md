@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2994.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a photograph of Oswald in Graphics Register in March 1964. Brasko was seeking photographs of buildings in Minsk, USSR, where Oswald was resettled by the Soviet Government after 1959. Brasko found a copy of a color transparency which showed in a casual setting a young man who bore a remarkable facial resemblance to Oswald and was wearing a shirt identical in pattern and color to a shirt Oswald was wearing in photographs found in his effects following the Kennedy assassination. (Figure 1, page 77). The photograph was taken by an American tourist in Minsk's Central Square in August 1961 at the Palace of Culture. Copies of the photograph were also furnished to the FBI. The Bureau interviewed the photographer and her companions who could contribute little to their original statements when first interviewed by Agency representatives following their Soviet tour in 1961 (not about Oswald, however, whom they did not recall). A copy of this photograph was published on page 268 of the Warren Commission's report.
 

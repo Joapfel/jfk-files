@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31029.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">DIST AIL N</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31459.png
-
-Convert to MarkdownSP 100-33836
+SP 100-33836
 FTD/1r
 
 WILLIAM WORTHY also spoke at this meeting, and he described himself as a reporter for an Afro-American newspaper in Baltimore, Maryland. He said he was sentenced in September, 1962, to three months in Federal prison for entering the United States without a passport. He said he had lost his passport when he traveled to Red China several months previous.

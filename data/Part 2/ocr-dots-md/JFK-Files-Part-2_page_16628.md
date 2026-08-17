@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16628.png
-
-Convert to Markdown<table><tr><td>PREPAY</td><td></td><td>SPECCALL</td><td>CLAIM</td><td></td></tr><tr><td>PAY</td><td></td><td>CALL</td><td>CLAIM</td><td>L1</td></tr><tr><td>ED</td><td>DEN</td><td rowspan="2">D1 WAYS</td><td rowspan="2">CLOSE</td><td rowspan="2">L2</td></tr><tr><td>TRANSF</td><td>TOW</td></tr><tr><td>REM</td><td>DEN</td><td>FROM</td><td rowspan="2">W.O.</td></tr><tr><td>NOT</td><td>TOW</td><td>PAY</td></tr><tr><td>DEN</td><td rowspan="2"></td><td rowspan="2">RESTD</td><td></td></tr><tr><td>NOT</td><td>PV</td></tr><tr><td>COLL CALL</td><td>LA</td><td>00.155.</td><td>JV.30 A15DN.</td><td>CA</td></tr></table>
+<table><tr><td>PREPAY</td><td></td><td>SPECCALL</td><td>CLAIM</td><td></td></tr><tr><td>PAY</td><td></td><td>CALL</td><td>CLAIM</td><td>L1</td></tr><tr><td>ED</td><td>DEN</td><td rowspan="2">D1 WAYS</td><td rowspan="2">CLOSE</td><td rowspan="2">L2</td></tr><tr><td>TRANSF</td><td>TOW</td></tr><tr><td>REM</td><td>DEN</td><td>FROM</td><td rowspan="2">W.O.</td></tr><tr><td>NOT</td><td>TOW</td><td>PAY</td></tr><tr><td>DEN</td><td rowspan="2"></td><td rowspan="2">RESTD</td><td></td></tr><tr><td>NOT</td><td>PV</td></tr><tr><td>COLL CALL</td><td>LA</td><td>00.155.</td><td>JV.30 A15DN.</td><td>CA</td></tr></table>
 
 200 UNITS Cl. Serv. 203 crcl D Tel. 243-2017
 

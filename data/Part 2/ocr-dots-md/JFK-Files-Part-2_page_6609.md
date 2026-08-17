@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6609.png
-
-Convert to Markdown12.00000
+12.00000
 
 104-10335-10001
 

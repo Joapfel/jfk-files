@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21086.png
-
-Convert to Markdown# SECTION C continued
+# SECTION C continued
 
 Thomas R. CASASIN
 

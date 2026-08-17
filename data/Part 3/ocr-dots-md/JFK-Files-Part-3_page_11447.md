@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11447.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Memorandum to Mr. W. R. Wannall
 Re: U. S. Senate Select Committee (SSC)
 62-116395
 

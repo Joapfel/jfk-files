@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29805.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><td>1. SERIAL NUMBER</td><td>2. NAME (Last, First, Middle)</td></tr></thead><tbody><tr><td>56700</td><td>Davide E.</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14699.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CABLE SECRETARIAT DISPOSITION
 BY 31/21 PER -

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33672.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO. 51-10
 FEB 1950

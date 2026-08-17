@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32678.png
-
-Convert to MarkdownThey also have available a considerable amount of anti-tank guns and light antiaircraft guns suitable for use against low flying aircraft. How much of the large numbers of additional crew-operated weapons of the types mentioned above are now in Cuban hands is apparently not known or estimated.
+They also have available a considerable amount of anti-tank guns and light antiaircraft guns suitable for use against low flying aircraft. How much of the large numbers of additional crew-operated weapons of the types mentioned above are now in Cuban hands is apparently not known or estimated.
 
 The Soviet organization has a powerful modern array of weapons in plen-
 tiful numbers. There are 24 SA-2 sites of 6 launchers each, in a tight knit

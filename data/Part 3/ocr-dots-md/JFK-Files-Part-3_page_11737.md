@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11737.png
-
-Convert to Markdown4-H-1
+4-H-1
 
 committee any increase in these ceilings must be either
 (a) a result of "special studies" or at White House direction;

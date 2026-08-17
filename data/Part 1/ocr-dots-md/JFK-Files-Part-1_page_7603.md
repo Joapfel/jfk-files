@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7603.png
-
-Convert to Markdown480: Subject (giving name as WILSHER), an American, asks for LOGUINOV and tells him that he just wanted to be sure that LOGUINOV would be in as he had called yesterday (9 May) and he had not been in. LOGUINOV tells WILSHER that 9 May is a Holiday and commemorates the Russian Victory in Berlin, Germany on 9 May 1945. WILSHER says he remembers that as he was in the war in that area at the time and remembers that. WILSHER wants to go by to see LOGUINOV to pick up some passports. WILSHER also would like to invite LOGUINOV out to his house. LOGUINOV says he can come by to pick up the visas.
+480: Subject (giving name as WILSHER), an American, asks for LOGUINOV and tells him that he just wanted to be sure that LOGUINOV would be in as he had called yesterday (9 May) and he had not been in. LOGUINOV tells WILSHER that 9 May is a Holiday and commemorates the Russian Victory in Berlin, Germany on 9 May 1945. WILSHER says he remembers that as he was in the war in that area at the time and remembers that. WILSHER wants to go by to see LOGUINOV to pick up some passports. WILSHER also would like to invite LOGUINOV out to his house. LOGUINOV says he can come by to pick up the visas.
 
 156055
 

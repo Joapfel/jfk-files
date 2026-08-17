@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17124.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: FI/OPS - Projects Branch
 CRYPTONUM: LIEMPTY

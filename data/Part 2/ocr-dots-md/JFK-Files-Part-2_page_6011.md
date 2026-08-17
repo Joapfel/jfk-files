@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6011.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 B. to be involved in book publishing matters and the international distribution of anti-Communist books.
 

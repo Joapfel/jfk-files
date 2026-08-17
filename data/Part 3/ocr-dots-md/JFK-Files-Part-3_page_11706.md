@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11706.png
-
-Convert to Markdownprogram is similar in intent to the Emergency Detention Program
+program is similar in intent to the Emergency Detention Program
 and the PRODIP Program; however, it involves an entirely different
 type of individual.
 

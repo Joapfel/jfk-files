@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12544.png
-
-Convert to Markdownthe frail facade of the constitution and the bill of rights. The fascists realize that if these two pieces of paper were implemented they would be in their graves tonight because the constitution and the bill of rights contain the moral impetus necessary to bring this foul evil economic and social system to its doom.
+the frail facade of the constitution and the bill of rights. The fascists realize that if these two pieces of paper were implemented they would be in their graves tonight because the constitution and the bill of rights contain the moral impetus necessary to bring this foul evil economic and social system to its doom.
 
 U.S.A. fascists have compiled and are still evaluating information received from South American satellite states who are being beset by courageous urban guerrillas waging relentless struggle with amazing (to fascists) and stunning success. Eldridge Cleaver, Minister of Information of the Black Panther Party, has said that we still have a little time left because the U.S.A fascist ruling clique hasn't programmed all of the people to accept the genocide of the Party and our people yet. For at least a year now, there have appeared in every major newspaper, seemingly innocent space fillers. Articles from UPI-API dealing with the deployment of fascist death squads against the revolutionary forces in South America.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7978.png
-
-Convert to Markdown'Here is the start of the most famous article that we ever published — excerpted from the May, 1970, issue of *Computers and Automation*. If you would like to read this article, and look at the eleven photographs it contains, send us $2 (prepayment is necessary). This issue is RETURNABLE IN 7 DAYS FOR FULL REFUND (IF IN SALABLE CONDITION). How can you lose?
+'Here is the start of the most famous article that we ever published — excerpted from the May, 1970, issue of *Computers and Automation*. If you would like to read this article, and look at the eleven photographs it contains, send us $2 (prepayment is necessary). This issue is RETURNABLE IN 7 DAYS FOR FULL REFUND (IF IN SALABLE CONDITION). How can you lose?
 
 Computers and Automation, 815 Washington St., Newtonville, Mass. 02160
 

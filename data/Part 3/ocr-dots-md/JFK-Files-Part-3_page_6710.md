@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6710.png
-
-Convert to Markdown10-30-62
+10-30-62
 
 RE: PROJECT HUNTER
 

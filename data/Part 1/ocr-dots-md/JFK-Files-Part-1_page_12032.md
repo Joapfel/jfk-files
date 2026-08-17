@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12032.png
-
-Convert to Markdown14-00090
+14-00090
 
 Post No. 30-8
 April 1960

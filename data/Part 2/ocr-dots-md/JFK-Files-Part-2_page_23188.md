@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23188.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Senator Schweiker. And there were all kinds of Cuban Committees.
 

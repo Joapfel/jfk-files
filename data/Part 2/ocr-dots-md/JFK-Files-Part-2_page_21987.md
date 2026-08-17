@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21987.png
-
-Convert to Markdown"John's own inclination is that the U.S. Government cannot knowingly permit any criminal American involvement in this sort of thing," notes Chase, "and should go all out to stop the plot." In marginal notations, Bundy agrees with John and with the need to forward the matter to the Special Group.
+"John's own inclination is that the U.S. Government cannot knowingly permit any criminal American involvement in this sort of thing," notes Chase, "and should go all out to stop the plot." In marginal notations, Bundy agrees with John and with the need to forward the matter to the Special Group.
 
 23. Memo, Chase to Bundy, 16 June 1964, with attachment (Des FitzGerald's "A Reappraisal of Autonomous Operations")
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7319.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 Attached is a list of those individuals representing the USID who have been designated as points of contact in their respective agencies or departments for Mr. Clarke.
 

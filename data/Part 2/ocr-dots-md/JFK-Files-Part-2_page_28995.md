@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28995.png
-
-Convert to Markdown# SAMUEL L. PHYLLOIS, JR.
+# SAMUEL L. PHYLLOIS, JR.
 RUBY
 I.D. NO.
 OR

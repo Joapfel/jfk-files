@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18352.png
-
-Convert to MarkdownSEP 19 1975
+SEP 19 1975
 
 TELETYPE
 

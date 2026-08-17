@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21888.png
-
-Convert to Markdown# I. Repercussions within the KGB
+# I. Repercussions within the KGB
 
 ## 1. Sensitive Source
 

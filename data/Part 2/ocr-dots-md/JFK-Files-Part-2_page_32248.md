@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32248.png
-
-Convert to MarkdownIn addition, this course of action would involve a broad gamut of carefully time-sensitive, politically economic, psychological and covert actions, such as CIA reactions, Caribbean security arrangements, intensified surveillance of and publicity concerning Castro/Communist subversive activities in Latin America, application of Four Point shipping restrictions and other economic sanctions, and a series of actions designed to obtain, to the greatest extent possible, multilateral approval of an participation in the campaign to unseat the Castro/Communist regime.
+In addition, this course of action would involve a broad gamut of carefully time-sensitive, politically economic, psychological and covert actions, such as CIA reactions, Caribbean security arrangements, intensified surveillance of and publicity concerning Castro/Communist subversive activities in Latin America, application of Four Point shipping restrictions and other economic sanctions, and a series of actions designed to obtain, to the greatest extent possible, multilateral approval of an participation in the campaign to unseat the Castro/Communist regime.
 
 This course of action has the advantage of attaining the objective more rapidly and under more controlled conditions than the alternative stated by the Coordinator. Indeed, this may be the only course of action that will accomplish the ultimate objective. It involves greater risks; and, in the short run, a greater expenditure of money and material and far greater numbers of personnel.
 

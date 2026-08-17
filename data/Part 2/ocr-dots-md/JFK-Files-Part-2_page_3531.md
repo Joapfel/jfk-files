@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3531.png
-
-Convert to Markdown# TOP SECRET DINAR
+# TOP SECRET DINAR
 
 ## BLOC RELATIONS:
 

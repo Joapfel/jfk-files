@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_236.png
-
-Convert to MarkdownSECRET 021858Z
+SECRET 021858Z
 
 DIR INFO GUAT CITE MEXI 6419
 

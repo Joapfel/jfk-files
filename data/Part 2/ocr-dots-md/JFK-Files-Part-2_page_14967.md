@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14967.png
-
-Convert to MarkdownWALTER BERYL CHIPMAN, ET AL.
+WALTER BERYL CHIPMAN, ET AL.
 CRIME ON HIGH SEAS
 
 Alvin Junior Cupp, who had received a five-year Federal term on 3/16/65, in Marquette, Michigan, furnished information to Chicago Agents pinpointing officials and "goons" of the Seamens International Union (SIU) responsible for the 1963 bombing of the Canadian freighter, "Howard L. Shaw" in Chicago, Illinois.

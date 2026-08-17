@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3128.png
-
-Convert to MarkdownNo va a vacilar en rebar, si sabe que saldra impune. En una oportunidad se escouche claramente quién en una conversación con Rosa que, aprovechando conocimiento de cambios monetarios, leyes, idioma y restricción de movimientos, por parte de la delegación deportiva de la lucha grocersomana (Mr. del Plata) y aprovechando su posición les robaba algunos miseros 3-4 delares por cabeza. "Y todo esto es para nosetros"-decía Rosa encantada, batiendose las palmas de las manos como una nína.
+No va a vacilar en rebar, si sabe que saldra impune. En una oportunidad se escouche claramente quién en una conversación con Rosa que, aprovechando conocimiento de cambios monetarios, leyes, idioma y restricción de movimientos, por parte de la delegación deportiva de la lucha grocersomana (Mr. del Plata) y aprovechando su posición les robaba algunos miseros 3-4 delares por cabeza. "Y todo esto es para nosetros"-decía Rosa encantada, batiendose las palmas de las manos como una nína.
 
 # 9. VIDA PROFESIONAL
 

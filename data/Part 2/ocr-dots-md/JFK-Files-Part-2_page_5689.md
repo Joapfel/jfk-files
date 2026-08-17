@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5689.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: (S) Warrenton Training Center Cover Considerations
 

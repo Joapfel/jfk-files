@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22430.png
-
-Convert to MarkdownOther techniques on which various sources have confirmed one another include the following:
+Other techniques on which various sources have confirmed one another include the following:
 
 - reported that the surveillance equipment used by the KGB Surveillance Directorate includes special paint invisible to the naked eye but visible through use of a special device. It is used in conjunction with hidden projectors, closed circuit television at bridges, tunnels and other. A similar technique was described by GOLGINSKI.
 

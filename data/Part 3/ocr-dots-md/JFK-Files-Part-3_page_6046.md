@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6046.png
-
-Convert to MarkdownMr. O'Dell
+Mr. O'Dell
 
 July 3, 1963.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23330.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 RLG/BP/J
 

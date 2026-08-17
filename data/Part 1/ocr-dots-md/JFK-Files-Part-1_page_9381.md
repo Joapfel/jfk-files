@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9381.png
-
-Convert to MarkdownAttachment to 233-C:
+Attachment to 233-C:
 
 # SPECIAL REPORT: Situation and Perspectives.
 

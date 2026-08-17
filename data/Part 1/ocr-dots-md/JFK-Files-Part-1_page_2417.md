@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2417.png
-
-Convert to MarkdownD. During the period 1955-1960, he was neither a senior case officer in, nor Deputy Chief of, the Seventh Department American-British Commonwealth Section.
+D. During the period 1955-1960, he was neither a senior case officer in, nor Deputy Chief of, the Seventh Department American-British Commonwealth Section.
 
 E. NOSENKO was neither Deputy Chief of the American Embassy Section nor a senior officer or supervisor in the Section during the period 1961-1962. (sic)
 

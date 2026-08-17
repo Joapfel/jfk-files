@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24079.png
-
-Convert to Markdownundertaken so drastic an operation without obtaining full and equivocal permission.
+undertaken so drastic an operation without obtaining full and equivocal permission.
 
 William Harvey, the officer in charge of the CIA's attempt using underworld figures to assassinate Castro, testified that he never discussed the plot with McCone or officials of the Kennedy Administration because he believed that it had been fully authorized by the previous Director, because he was uncertain whether it had a chance of succeeding, and because he believed that it was Helms', not his, duty to inform higher authorities.
 

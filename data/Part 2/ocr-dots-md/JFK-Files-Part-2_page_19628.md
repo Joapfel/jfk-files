@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19628.png
-
-Convert to MarkdownNR023 BA PLAIN
+NR023 BA PLAIN
 
 629 RPM NITEL 4-7-71 PWM
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24388.png
-
-Convert to Markdownfrom those who were not. Words of urgency which to the former may have meant
+from those who were not. Words of urgency which to the former may have meant
 killing, to the latter may have meant nothing of the sort.
 
 While we are critical of certain individual actions, the Committee

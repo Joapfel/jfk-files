@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28085.png
-
-Convert to Markdownthe tape and distributed it to all radio stations in the
+the tape and distributed it to all radio stations in the
 Seventh District; wrote and recorded grant announcements
 in my voice to be broadcast on the radio; wrote and edited
 statements for presentation to House and Senate Committees;

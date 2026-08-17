@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24834.png
-
-Convert to MarkdownThree examples of the Chief of Station's reporting bear out his
+Three examples of the Chief of Station's reporting bear out his
 claim to have dissented:
 
 Bear in mind that parameter of action is exceedingly narrow and available options are quite limited and relatively simple.

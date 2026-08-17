@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4886.png
-
-Convert to Markdown20 de Febrero · 1976
+20 de Febrero · 1976
 
 Acunto
 

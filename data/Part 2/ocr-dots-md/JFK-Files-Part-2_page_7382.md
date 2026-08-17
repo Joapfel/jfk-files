@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7382.png
-
-Convert to MarkdownSECURITY CHECK SHEET
+SECURITY CHECK SHEET
 
 <table><tr><td colspan="6">TO : Office of Security<br>THRU: Component Security Officer</td></tr><tr><td colspan="6">TO LOCK</td></tr><tr><td colspan="6">ROTATE DIAL FOUR CONSECUTIVE TURNS IN ONE DIRECTION</td></tr><tr><td colspan="6"><strong>TO CHECK</strong></td></tr><tr><td colspan="6"><strong>SAFES:</strong> DEPRESS CONTROL DRAWER LATCH WHILE DEPRESSING EACH DRAWER LATCH AND PULL OUT BOTH DRAWERS. ON "HERRING-HALL-MARVIN" SAFES TURN DRAWER HANDLE TO RIGHT (on new type, raise latch) AND PULL DRAWERS OUTWARD.<br><strong>VAULTS AND DOOR SAFES:</strong> TURN HANDLE BACK AND FORTH WHILE PULLING DOOR OUTWARD.<br><strong>ALARM SWITCHES:</strong> TURN TO "NIGHT" POSITION</td></tr><tr><td colspan="6"><strong>CERTIFICATION</strong></td></tr><tr><td colspan="6">I CERTIFY, BY MY INITIALS BELOW, THAT I HAVE OPENED OR PROPERLY SECURED THIS VAULT, SAFE OR CABINET AND ALARM.</td></tr><tr><td colspan="6">MONTH(S)</td></tr><tr><th rowspan="2">DATE</th><th colspan="2">OPENED BY</th><th colspan="2">CLOSED BY</th><th colspan="2">CHECKED BY</th><th colspan="2">GUARD CHECK</th></tr><tr><th>INITIALS</th><th>TIME</th><th>INITIALS</th><th>TIME</th><th>INITIALS</th><th>TIME</th><th>INITIALS</th><th>TIME</th></tr></table>
 

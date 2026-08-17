@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15848.png
-
-Convert to Markdownexample and correct their mistakes, and thus the whole nation will be influenced. So long as our Communist Party remains in good order and march in step, so long as our troops are picked troops and our weapons are good weapons, any enemy, however powerful, can be overthrown.
+example and correct their mistakes, and thus the whole nation will be influenced. So long as our Communist Party remains in good order and march in step, so long as our troops are picked troops and our weapons are good weapons, any enemy, however powerful, can be overthrown.
 
 Let me speak now about subjectivism.
 

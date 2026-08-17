@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25411.png
-
-Convert to MarkdownGusulina/bs
+Gusulina/bs
 
 2268
 

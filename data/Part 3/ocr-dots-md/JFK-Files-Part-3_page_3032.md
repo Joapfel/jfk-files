@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3032.png
-
-Convert to Markdowncreate enough disruption that these members will realize that if I go out and murder three civil rights, even though the Sheriff and other law enforcement officers are in on it, if that were the case, and in some of that was the case, that I will be caught, and that's what we did, and that's why violence stopped because the Klan was insecure and just like you say 20 percent, they thought 50 percent of their members ultimately were Klan members, and they didn't dare engage in these acts of violence because they knew they couldn't control the conspiracy any longer.
+create enough disruption that these members will realize that if I go out and murder three civil rights, even though the Sheriff and other law enforcement officers are in on it, if that were the case, and in some of that was the case, that I will be caught, and that's what we did, and that's why violence stopped because the Klan was insecure and just like you say 20 percent, they thought 50 percent of their members ultimately were Klan members, and they didn't dare engage in these acts of violence because they knew they couldn't control the conspiracy any longer.
 
 **QUESTION:** I just have one quick question. Is it correct that in 1971 we were using around 6500 informers for a black ghetto situation?
 

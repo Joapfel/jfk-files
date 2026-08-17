@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5884.png
-
-Convert to Markdown# CIA - 1 ORGANIZATIONAL MATERIAL
+# CIA - 1 ORGANIZATIONAL MATERIAL
 
 The DCI area/IRO made available to the Board the following records:
 

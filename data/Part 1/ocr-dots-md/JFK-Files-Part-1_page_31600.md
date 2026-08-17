@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31600.png
-
-Convert to Markdown# MESSAGE ON BANKNOTE
+# MESSAGE ON BANKNOTE
 
 On one side:
 

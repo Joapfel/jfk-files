@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1565.png
-
-Convert to Markdown14-0000
+14-0000
 
 CENTRAL INTELLIGENCE AGENCY
 WASHINGTON 25, D. C.

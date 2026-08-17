@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30332.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 experience he had. He might have worked in the missile silos,
 2 he might have done anything, but nobody asked him, and that he

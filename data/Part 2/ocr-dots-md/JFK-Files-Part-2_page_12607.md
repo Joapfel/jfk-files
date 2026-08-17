@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12607.png
-
-Convert to Markdowncontractors holding contracts with agencies of Department of Defense where there is credible subversive information concerning employee. Conduct thorough investigation and consider for ADEX any individual employed in or having access to key facility who is alleged to have been, at any time in past, member of any basic revolutionary organiza› tion or against whom there is sufficient subversive information to warrant such action.
+contractors holding contracts with agencies of Department of Defense where there is credible subversive information concerning employee. Conduct thorough investigation and consider for ADEX any individual employed in or having access to key facility who is alleged to have been, at any time in past, member of any basic revolutionary organiza› tion or against whom there is sufficient subversive information to warrant such action.
 
 (1) Requests for investigation from another agency When another agency requests investigation of individual employed in key facility, institute investigation immediately if basis of request warrants, and advise Bureau.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23638.png
-
-Convert to Markdownelements to be included within a national intelligence budget -- In other words, what parts of the community would fit into that. where you draw the line between technical and national intelli- gence, between departmental and national intelligence.
+elements to be included within a national intelligence budget -- In other words, what parts of the community would fit into that. where you draw the line between technical and national intelli- gence, between departmental and national intelligence.
 
 This definition would be established by the Congress in consultation with the Executive Branch.
 

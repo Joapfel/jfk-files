@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33405.png
-
-Convert to MarkdownRELEASING OFFICER
+RELEASING OFFICER
 
 CLASSIFICATION
 

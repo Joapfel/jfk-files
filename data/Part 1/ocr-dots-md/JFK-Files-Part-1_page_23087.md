@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23087.png
-
-Convert to MarkdownDr. A. MILLÉS
+Dr. A. MILLÉS
 
 En el 5to.
 

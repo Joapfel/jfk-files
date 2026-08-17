@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14535.png
-
-Convert to MarkdownReport No. 2234 (Cont'd)
+Report No. 2234 (Cont'd)
 
 to see about a package that Melba had lost traveling from
 Cuba the week before and could not locate because she had

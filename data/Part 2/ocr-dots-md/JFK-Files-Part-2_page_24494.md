@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24494.png
-
-Convert to MarkdownCuban affairs during this period leading up to the Bay of Pigs received active high-level attention. Bissell said that, in a continuation of the kind of intense weekly scrutiny the Eisenhower Administration had given the invasion plans (Bissell, 6/9/75, p. 13).
+Cuban affairs during this period leading up to the Bay of Pigs received active high-level attention. Bissell said that, in a continuation of the kind of intense weekly scrutiny the Eisenhower Administration had given the invasion plans (Bissell, 6/9/75, p. 13).
 
 "...almost from the beginning of the Kennedy Administration, the President himself and a number of Cabinet members and other senior officials took a very active interest in the operation(s) concerning Cuba." (Bissell, 6/9/75, p. 16).
 

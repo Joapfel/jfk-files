@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26513.png
-
-Convert to Markdownyou are in possession of the truth but on the other hand you do not feel you
+you are in possession of the truth but on the other hand you do not feel you
 are victims of the possessors of the truth--I say this for Coleman Rolando--
 I think you can accomplish a great change in the outlook and give a great
 push to the struggle. You have to know, be aware of, have a clear idea that

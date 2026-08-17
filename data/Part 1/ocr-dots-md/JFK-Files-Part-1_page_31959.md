@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31959.png
-
-Convert to Markdown1. Develop and maintain close and effective working relationships with LA Division personnel in support of DDO counterintelligence operations and activities; and to provide guidance and support in the furtherance of those operations and activities.
+1. Develop and maintain close and effective working relationships with LA Division personnel in support of DDO counterintelligence operations and activities; and to provide guidance and support in the furtherance of those operations and activities.
 
 2. To screen non-restricted DDO operational telecommunications in the LA area for selection and routing, of items of CI significance to appropriate Branch and Staff officers.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3853.png
-
-Convert to MarkdownWashington Field Office
+Washington Field Office
 
 21 February 1968
 

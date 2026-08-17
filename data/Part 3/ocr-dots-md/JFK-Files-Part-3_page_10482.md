@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10482.png
-
-Convert to MarkdownNOTE:
+NOTE:
 The word "Re:"
 
 Is there any chance we can get a CEMI INTERFACIAL SECURITY?

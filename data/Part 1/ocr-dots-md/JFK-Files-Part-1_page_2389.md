@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2389.png
-
-Convert to MarkdownSECRET
+SECRET
 
 STORSBERG that it occurred in October 1961 is completely unacceptable and is even contradicted by other statements by STORSBERG himself.
 

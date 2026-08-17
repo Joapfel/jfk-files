@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_662.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CRN:</td><td colspan="3"><input type="checkbox"/> FILE RID</td></tr><tr><td>SALT:</td><td colspan="3"><input type="checkbox"/> INDEX</td></tr><tr><td>EAT:</td><td colspan="3"><input type="checkbox"/> NO INDEX</td></tr><tr><td>CATE:</td><td colspan="3"><input type="checkbox"/> FILE IN CS FILE NO.</td></tr></table>
 

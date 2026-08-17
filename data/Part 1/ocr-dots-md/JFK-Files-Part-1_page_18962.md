@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18962.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FORM DSP-34<br/>9-3-48<br/>FORMERLY FS-J72 APPLICATION FOR EMPLOYMENT IN THE FOREIGN SERVICE OF THE UNITED STATES</td>
     <td>DEPARTMENT STATE<br/><br/><br/><br/><br/><br/>BUREAU NO. 87-2011.1<br/>APPEARS EXPIRES AUGUST 31, 1959<br/><br/><br/><br/><br/><br/><br/>THIS SPACE FOR OFFICE USE ONLY</td>

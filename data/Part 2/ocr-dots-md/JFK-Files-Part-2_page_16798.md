@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16798.png
-
-Convert to Markdown38 SPECIAL BULLETS
+38 SPECIAL BULLETS
 
 Specimen Q233 is.a Remington-Peters type .38 Special lead bullet that was identified as having been fired from the .38 Special Colt revolver, serial number 857237, previously submitted and referred to.as K12, carried by Officer Gross. Specimen Q233 weighed 152.35 grains. Standard weight is 158 grains.
 

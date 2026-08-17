@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7296.png
-
-Convert to MarkdownIII. SOCIAL BEHAVIOR
+III. SOCIAL BEHAVIOR
 
 7. General Impression. (Check the most appropriate.)
 

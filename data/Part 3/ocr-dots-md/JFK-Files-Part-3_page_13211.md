@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13211.png
-
-Convert to MarkdownDate:09/14/94
+Date:09/14/94
 
 JFK ASSASSINATION SYSTEM
 IDENTIFICATION FORM

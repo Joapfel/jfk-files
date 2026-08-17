@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12986.png
-
-Convert to MarkdownDECODED COPY
+DECODED COPY
 
 ☐ AIRGRAM ☐ CABLEGRAM XXXXXRADIO ☐ TELETYPE
 

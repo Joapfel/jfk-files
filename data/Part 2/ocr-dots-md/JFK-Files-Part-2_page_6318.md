@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6318.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 (1) Records policies and schedules;
 

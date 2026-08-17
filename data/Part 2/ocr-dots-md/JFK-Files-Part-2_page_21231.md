@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21231.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 detected [SOCHUREK] in contact with a KGB officer.
 

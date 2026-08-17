@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14969.png
-
-Convert to Markdown# TABLE OF CONTENTS
+# TABLE OF CONTENTS
 
 ## I. ITEMS OF CURRENT INTEREST
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14046.png
-
-Convert to Markdown# THE WHITE HOUSE
+# THE WHITE HOUSE
 WASHINGTON
 
 This document consists of 54 pages

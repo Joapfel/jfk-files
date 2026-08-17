@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30764.png
-
-Convert to Markdownincorporated herein to the extent that such instructions are not inconsistent
+incorporated herein to the extent that such instructions are not inconsistent
 with the terms hereof.
 
 S. You will be required to keep forever secret this agreement and all other information which you may obtain by reason hereof, unless you are released in writing by CIA from this obligation. Violation of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1948, as amended, and other applicable laws and regulations. The termination of your employment with CIA will not release you from the obligations of any security oath you may be required to take.

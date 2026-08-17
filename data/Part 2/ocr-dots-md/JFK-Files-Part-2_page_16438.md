@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16438.png
-
-Convert to MarkdownOne copy of a 29-page Report of Special Agent EDWARD KINZER, JR., dated June 12, 1969, at Chicago, Illinois, is being set forth in the appendix section of this report.
+One copy of a 29-page Report of Special Agent EDWARD KINZER, JR., dated June 12, 1969, at Chicago, Illinois, is being set forth in the appendix section of this report.
 
 The report is titled GEORGE SAMS, JR., aka; Lockett PHILIP BIBES; BRUCE ALLEN DICKSON; ANDREA BEVERLY GRAVES; HARVEY DWIGHT HOLT; PATRICK KEEN; LARRY MAURICE ROBINSON; JESSIE WARD; GEORGIA WASHINGTON; who are the individuals who were arrested at the Chicago BPP Headquarters, 2350 West Madison Street, Chicago, Illinois, on June 4, 1969, and charged with harboring and concealing GEORGE SAMS, JR. at 2350 West Madison Street, Chicago, Illinois, in violation of Title 18, United States Code, Section 1071.
 

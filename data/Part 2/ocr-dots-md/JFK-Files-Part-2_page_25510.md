@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25510.png
-
-Convert to MarkdownML: Yeah.
+ML: Yeah.
 
 FS: A number of times I was present up there for the...
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9617.png
-
-Convert to Markdown# Weapons Caches
+# Weapons Caches
 
 Stockpiles of machine guns, sawed-off shotguns, rifles, hand grenades, thousands of rounds of ammunition, Molotov cocktails, gunpowder, and accumulations of bayonets, swords, and machetes have been confiscated from Panther offices.
 

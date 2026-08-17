@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6072.png
-
-Convert to MarkdownNão nos interessa analizar aqui a parte moral ou jurídica da questão. (Hasta dizer que todas as organizações revolucionárias cubanas rechaçaram tal proposta de negociação do Tirano):
+Não nos interessa analizar aqui a parte moral ou jurídica da questão. (Hasta dizer que todas as organizações revolucionárias cubanas rechaçaram tal proposta de negociação do Tirano):
 
 É interessante frisar apenas a necessidade urgente que têm as коммунистас кубанов de conseguir dólares.
 

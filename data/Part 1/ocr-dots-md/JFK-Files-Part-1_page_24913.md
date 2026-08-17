@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24913.png
-
-Convert to MarkdownSECRET POWEWTZ
+SECRET POWEWTZ
 
 ACTION
 

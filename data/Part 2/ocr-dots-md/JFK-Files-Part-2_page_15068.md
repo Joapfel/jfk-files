@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15068.png
-
-Convert to Markdownaccomplices on October 3, 1968, for bank robbery; the arrest
+accomplices on October 3, 1968, for bank robbery; the arrest
 on November 26, 1968, of La Cosa Nostra "commission" member
 Stefano Magaddino, and eight associates for Interstate Gambling
 Activity; the arrest on December 5, 1968, of Pittston, Pa.,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27150.png
-
-Convert to MarkdownMr. William V. Broe
+Mr. William V. Broe
 
 Dear Mr. Broe:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10789.png
-
-Convert to Markdownattempted to obtain cover for an OSS agent in South America under guise of employment by an organization doing business in South America.
+attempted to obtain cover for an OSS agent in South America under guise of employment by an organization doing business in South America.
 
 A closing paragraph of Colonel Park's report commented on observations made by an official of OSS as follows:
 

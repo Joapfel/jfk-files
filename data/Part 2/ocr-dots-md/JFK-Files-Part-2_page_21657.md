@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21657.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 SHELBYNE: lynch
 fls nash

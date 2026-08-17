@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20149.png
-
-Convert to MarkdownCOPY
+COPY
 Attachment to
 FJTA-19609
 

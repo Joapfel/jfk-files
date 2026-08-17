@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3292.png
-
-Convert to MarkdownRR-2753.
+RR-2753.
 
 No: 237
 

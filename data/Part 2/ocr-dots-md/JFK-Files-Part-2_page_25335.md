@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25335.png
-
-Convert to Markdown3
+3
 
 Francisco Vicente Gonzalez Tejero says he and AY robbed the Banco Financiero in Cuba on March, 61. AV planned me Robbery. AY then sent message to Leningrad (LNN) 1174 SW 12th St. Miami requesting rifle grenades.
 

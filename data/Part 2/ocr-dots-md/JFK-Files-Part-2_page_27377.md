@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27377.png
-
-Convert to MarkdownWashington, DC 20500
+Washington, DC 20500
 
 David W. Belin,
 Executive Director

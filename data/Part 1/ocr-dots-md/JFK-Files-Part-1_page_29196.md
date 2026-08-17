@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29196.png
-
-Convert to Markdown14-0000
+14-0000
 
 RECEIVED
 MAY 10 1950

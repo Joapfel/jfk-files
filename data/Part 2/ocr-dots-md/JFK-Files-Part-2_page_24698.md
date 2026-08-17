@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24698.png
-
-Convert to MarkdownSECTION 7: Rewritten per Subcommittee Instructions, 10/20/75 (FDB)
+SECTION 7: Rewritten per Subcommittee Instructions, 10/20/75 (FDB)
 
 # 7. The Question of the Level at which the Assassination Plot Was Authorized
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24960.png
-
-Convert to Markdown2. The documents shown to me do not in any way refresh my recollection beyond the statements contained therein as to events related to the Congo in the summer and early fall of 1960. I still do not have an independent recollection of any specific conversation regarding the assassination of Patrice Lumumba other than that described in my affidavit to the Rockefeller Commission and in my testimony before the Select Committee on September 2.
+2. The documents shown to me do not in any way refresh my recollection beyond the statements contained therein as to events related to the Congo in the summer and early fall of 1960. I still do not have an independent recollection of any specific conversation regarding the assassination of Patrice Lumumba other than that described in my affidavit to the Rockefeller Commission and in my testimony before the Select Committee on September 2.
 
 3. I was informed by Mr. Dawson that Mr. Robert Johnson has testified that he recollected a statement by President Eisenhower at an NSC meeting which he construed as being an order for the assassination of Lumumba. After seeing the documents listed above I am of the opinion that it is most likely that the NSC meeting of August 18, 1960 is the meeting referred to by Mr. Johnson. Although the record shows that I was present at that meeting I have no personal recollection of any such statement or order by the President.
 

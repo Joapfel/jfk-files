@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7636.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 He gave two examples of this.²⁴ One was the fact that the Mexican Government security (liaison) contact on the case was the (current President of Mexico). He said, and Mr. Wallach agreed,²⁴ this was obviously a matter which had to be protected. The second case was the (Mexican Government) penetration of the Cuban Embassy. Again Mr. Wallach²⁴ agreed.
 

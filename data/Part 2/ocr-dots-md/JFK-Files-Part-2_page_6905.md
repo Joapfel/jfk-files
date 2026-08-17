@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6905.png
-
-Convert to Markdownfirst meeting, although it is certainly expected that it could be
+first meeting, although it is certainly expected that it could be
 completed much more quickly. The point is to proceed
 expeditiously, while still doing a careful job.
 

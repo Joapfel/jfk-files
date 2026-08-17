@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8561.png
-
-Convert to MarkdownTab C
+Tab C
 Continued
 
 | Item | Manuscript Page | |

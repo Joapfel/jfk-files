@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9381.png
-
-Convert to MarkdownU N I V E R S T A D DE PART M E N T O F J U S T I C E
+U N I V E R S T A D DE PART M E N T O F J U S T I C E
 FEDERAL BUREAU OF INVESTIGATION
 
 1 - G-2, Detroit (RM)

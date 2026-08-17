@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9405.png
-
-Convert to Markdown# II. MISCELLANEOUS
+# II. MISCELLANEOUS
 
 KENNETH HORSTON, leader, Detroit BPP, has started wearing very expensive clothes and has recently acquired a diamond ring.
 

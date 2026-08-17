@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21109.png
-
-Convert to MarkdownMM 105-2234
+MM 105-2234
 
 CONFIDENTIAL
 

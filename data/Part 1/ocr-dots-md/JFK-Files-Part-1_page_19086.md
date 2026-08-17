@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19086.png
-
-Convert to MarkdownThe following are the statements made by the candidates in answer to questions提出的疑问：
+The following are the statements made by the candidates in answer to questions提出的疑问：
 
 30. Does the amendment here proposed extend also to the General Assembly? Yes. The General Assembly has no other authority than that of a law passed by its General Assembly. Is there any provision in this constitution which would prevent the General Assembly from passing such laws as it may deem necessary and proper, so long as the General Assembly shall have first determined upon such laws and such measures, and that these laws and measures shall not be obviated or abrogated in their operation by the action of any single person or persons.
 

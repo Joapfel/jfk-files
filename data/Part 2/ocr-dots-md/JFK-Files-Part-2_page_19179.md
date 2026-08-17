@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19179.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      Mr. Telson.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_180.png
-
-Convert to MarkdownPOLITICA
+POLITICA
 
 Quince días de Vida y del Mundo
 PANORAMICO NACIONAL

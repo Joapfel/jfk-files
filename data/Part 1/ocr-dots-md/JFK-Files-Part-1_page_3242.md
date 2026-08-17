@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3242.png
-
-Convert to MarkdownSection XX
+Section XX
 
 G. RELIY, ESTENZ
 Riga, Riga, LSA

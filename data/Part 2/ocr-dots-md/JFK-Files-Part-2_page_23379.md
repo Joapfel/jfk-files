@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23379.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Baron. This cable begins with a reference to Sidney Gottlieb, and he: "Departed Leap for PBPRIME 5 October, view expiration date his materials. However, left certain items of continuing usefulness. Guthman plans continue try implement op."
 

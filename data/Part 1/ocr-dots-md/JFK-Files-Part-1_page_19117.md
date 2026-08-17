@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19117.png
-
-Convert to MarkdownRassemble des Tracteurs du Lycee de Lyon
+Rassemble des Tracteurs du Lycee de Lyon
 
 19. 18.20
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21686.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 rather than going ahead.
 

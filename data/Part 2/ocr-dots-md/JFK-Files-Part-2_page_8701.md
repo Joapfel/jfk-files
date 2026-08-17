@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8701.png
-
-Convert to Markdown13-00000
+13-00000
 
 LOBO claimed he was contacted by Teofilo BABUN and asked to contribute $100,000.00 toward a plot to assassinate Fidel CASTRO and other Cuban leaders. The assassins were described as three or four "Chicago-type Cosa Nostra" individuals who would be going to Havana, Cuba on other legitimate business.
 

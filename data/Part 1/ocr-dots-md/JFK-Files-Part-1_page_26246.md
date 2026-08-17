@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26246.png
-
-Convert to Markdown# ANUNCIOS: Casi no es el 100% DE:
+# ANUNCIOS: Casi no es el 100% DE:
 
 26 enero 1977
 

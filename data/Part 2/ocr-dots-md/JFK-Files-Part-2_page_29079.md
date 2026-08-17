@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29079.png
-
-Convert to MarkdownNAME SAMUEL & PHYLLIS RUBY
+NAME SAMUEL & PHYLLIS RUBY
 ADDRESS
 322-12-7997
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4710.png
-
-Convert to MarkdownOUTGOING "MESSAGE
+OUTGOING "MESSAGE
 
 CIA
 115000

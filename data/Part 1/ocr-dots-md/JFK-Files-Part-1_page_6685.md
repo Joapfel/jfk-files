@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6685.png
-
-Convert to MarkdownCOPY
+COPY
 
 Querido Dr. Guhart:
 

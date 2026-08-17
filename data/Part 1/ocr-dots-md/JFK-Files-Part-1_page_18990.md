@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18990.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section 23 -->
         <tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3611.png
-
-Convert to MarkdownNovember 25, 1975
+November 25, 1975
 
 On that occasion Assistant Director DeLoach's office was able to take
 appropriate action to forestall the

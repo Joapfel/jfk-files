@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26843.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">SECTION II</th></tr><tr><td>MOTIVATION AND CONTROL</td><td></td></tr></thead><tbody><tr><td>1. ESTIMATE SUBJECT'S MOTIVATION. (Be detailed, if possible. e.g., evidence Do not use stock comment such as 'anti-communist'.)</td><td>Financial, desire to make in public - visible, fame, power, degree, political (anti-Communist), anti-religious).</td></tr><tr><td>2. INDICATE WHAT CONTROL, IF ANY, EXISTS OVER THE SUBJECT. (If no control, or if there is a lack of real control explain.)</td><td>No real control exists over subject other than financial. His resident alien status could offer a factor of control if authorization were granted for this maneuver.</td></tr></tbody></table>
 

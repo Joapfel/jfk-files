@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9921.png
-
-Convert to Markdown17 August, 1967
+17 August, 1967
 
 Subject: Review of LIRING Traffic Relating to LIRING/3 and LIRING/4 for the period 2-14 August, 1967.
 

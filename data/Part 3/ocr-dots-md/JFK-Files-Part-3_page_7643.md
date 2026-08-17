@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7643.png
-
-Convert to Markdown3791 (6.75)
+3791 (6.75)
 
 NW 88608 DocId:32989609 Page 46
 

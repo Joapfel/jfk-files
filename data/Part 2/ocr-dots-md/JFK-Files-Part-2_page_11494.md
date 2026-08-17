@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11494.png
-
-Convert to Markdown# SECURITY INVESTIGATION
+# SECURITY INVESTIGATION
 
 ## II. Race
 * White and Caucasian: W

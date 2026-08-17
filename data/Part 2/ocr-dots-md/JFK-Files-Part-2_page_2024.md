@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2024.png
-
-Convert to MarkdownSECRET
+SECRET
 
 This form is to be filled out in triplicate: one copy for the Department and one copy for the appointee. Upon approval, the appointed official will be retained by the Disburser's Office until one copy returned to the Department office.
 

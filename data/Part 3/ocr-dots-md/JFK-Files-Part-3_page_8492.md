@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8492.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee, etc.
 
 Other minor changes were considered and an effort will be made

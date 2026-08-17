@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5437.png
-
-Convert to Markdownfeeling that these things were true and that they were of such
+feeling that these things were true and that they were of such
 importance that they should be passed on. Some of these, of
 course, are in the COINTEL Program. I was not privy to some
 of these allegations. I assure you that this will not continue to

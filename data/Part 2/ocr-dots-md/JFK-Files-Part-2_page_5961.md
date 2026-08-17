@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5961.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 NOTE FOR: Barry Harrolson @ DCI
 FROM: Thomas C. Benza

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14546.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td></tr><tr><td>PERSON UNTERSCHEIDET</td><td>LASSIFIEI EDUAGE TOTAL COPIES ROUTING AND/OR INITIALS SEEN BY</td></tr><tr><td rowspan="5">ADVANCE COPY ☐ ISSUED ☐ DLOTED<br/>BY: __________ AT: __________<br/>D circled BY: V PER: __________ <br/>ACTION UNIT: 1019 N 1 FILE, VR R-1AVN EVR6 C-1295</td><td>SECRET GROUP 1 1 5</td></tr><tr><td>(When Filed In.): 2 6</td></tr><tr><td>REPRODUCTION OF THIS COPY PROHIBITED: 3 7</td></tr><tr><td>INDEX: ☐ TO ☐ NO CLARITY TO CS FILE NO:</td></tr><tr><td>SEARCH TO CS FILE NO.</td></tr><tr><td></td><td>☐ FILE AC ☐ RETURN TO BRANCH</td></tr><tr><td>ACTION NO. 341</td><td></td></tr></table>
 

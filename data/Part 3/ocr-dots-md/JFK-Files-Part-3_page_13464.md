@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13464.png
-
-Convert to Markdown1 clearances up to date. Every time you move from one security
+1 clearances up to date. Every time you move from one security
 2 clearance to another, you get another investigation. There
 3 must be tens of thousands of files on individuals in the State
 4 Department, but a lot of that material is from the FBI.

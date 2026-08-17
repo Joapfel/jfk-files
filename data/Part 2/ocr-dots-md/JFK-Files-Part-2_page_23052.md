@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23052.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. interested in so that there would not be a cross of problems
 2. with these jurisdictions and therefore a liaison was opened on

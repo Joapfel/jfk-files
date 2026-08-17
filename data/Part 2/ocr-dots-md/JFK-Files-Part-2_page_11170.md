@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11170.png
-
-Convert to Markdown"(2) the extent to which its views and policies do not deviate from those of such foreign government or foreign organization; and
+"(2) the extent to which its views and policies do not deviate from those of such foreign government or foreign organization; and
 
 "(3) the extent to which it receives financial or other aid, directly or indirectly, from or at the direction of such foreign government or foreign organization; and
 

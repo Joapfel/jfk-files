@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3106.png
-
-Convert to MarkdownNR074 WA CODE
+NR074 WA CODE
 
 930PM NITEL 5-2-75 MSE
 

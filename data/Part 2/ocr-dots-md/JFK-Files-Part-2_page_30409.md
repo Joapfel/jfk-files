@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30409.png
-
-Convert to Markdownespionage I am talking about:
+espionage I am talking about:
 
 Mr. Goldsmith. I understand.
 

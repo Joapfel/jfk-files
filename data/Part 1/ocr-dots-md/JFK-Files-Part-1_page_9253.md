@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9253.png
-
-Convert to Markdownit would be simplest to have them in yours alone from the start (or he could assign his to you), so that arrangements for foreign publication / perhaps by Swan / could be made with the minimum delay thanks to your legal and security aspects.
+it would be simplest to have them in yours alone from the start (or he could assign his to you), so that arrangements for foreign publication / perhaps by Swan / could be made with the minimum delay thanks to your legal and security aspects.
 
 If I got it right, as of July 31st you had about 100 pages in pretty much finished form, about 70-80 pages in rougher draft, plus Chapters IV & V the typescript of which was circulated here (and which I mailed back to you Oct. 5). Anyway, you thought there would have been an absolute minimum of 3 solid months more work in it for your father. All in all, assuming you were working on it whole-time, would a minimum of 3 and maximum of 8 months be about right? (It's so much better, and so much better reading, than the Deutscher, I think we ought to get it out as soon as possible. Incidentally, have you considered that the "Atlantic" or "Harper's" might print chapters of it in advance? Chapters IV & V are certainly highly readable).
 

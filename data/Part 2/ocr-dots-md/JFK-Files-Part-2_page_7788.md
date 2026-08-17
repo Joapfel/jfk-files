@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7788.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (i) Addis Ababa-1027, dated 18 August 1971; source (JEPYX-1) entertained Hosea Williams in his home during latter's visit to Ethiopia. Incidental reference to the Subject; exempt under (b)(3)(a) and (b)(6).
 

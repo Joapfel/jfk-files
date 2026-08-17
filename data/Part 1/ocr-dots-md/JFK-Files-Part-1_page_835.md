@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_835.png
-
-Convert to MarkdownTO: Director of Special Investigations
+TO: Director of Special Investigations
 Inspector General
 USAF
 

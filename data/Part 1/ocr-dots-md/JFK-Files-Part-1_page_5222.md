@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5222.png
-
-Convert to Markdown14-0000
+14-0000
 
 Director, Federal Bureau of Investigation
 Department of Justice

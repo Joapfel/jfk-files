@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20568.png
-
-Convert to MarkdownCOMUNICATIONS DIVISION
+COMUNICATIONS DIVISION
 
 NR 002. SF PLAIN
 

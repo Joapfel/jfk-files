@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4486.png
-
-Convert to MarkdownNO 87-14835
+NO 87-14835
 
 LEADS (CONTINUED):
 

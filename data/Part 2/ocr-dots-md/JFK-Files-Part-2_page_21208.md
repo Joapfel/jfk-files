@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21208.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 and that she had spent a week with [BRAUNS] in Moscow during which the recruitment attempt was made by KGB.
 

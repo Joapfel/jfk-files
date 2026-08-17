@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1520.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Supplement to Staff Employee Personnel
 Action for Integration ofaphort F. Wheeler

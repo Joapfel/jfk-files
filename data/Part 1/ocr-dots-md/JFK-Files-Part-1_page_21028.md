@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21028.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SECTION C - Narrative Comments (continued)
 

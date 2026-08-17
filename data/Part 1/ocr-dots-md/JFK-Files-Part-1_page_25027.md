@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25027.png
-
-Convert to Markdown<table><tr><td>FORM<br>B-64<br>(40)<br><strong style="font-size: large; font-weight: normal;">538</strong></td><td>USE PREVIOUS EDITION.</td><td><table><tbody><tr><td>CLASSIFICATION</td><td>PAGE NO.</td></tr><tr><td>SECRET</td><td>2</td></tr></tbody></table></td></tr></table>
+<table><tr><td>FORM<br>B-64<br>(40)<br><strong style="font-size: large; font-weight: normal;">538</strong></td><td>USE PREVIOUS EDITION.</td><td><table><tbody><tr><td>CLASSIFICATION</td><td>PAGE NO.</td></tr><tr><td>SECRET</td><td>2</td></tr></tbody></table></td></tr></table>
 
 CONTINUED
 

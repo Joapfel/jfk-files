@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13840.png
-
-Convert to Markdown14-00000
+14-00000
 
 a) Hilario L.J. looking for subject urgently. Leaves message about a "sick" person.
 

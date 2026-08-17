@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22417.png
-
-Convert to MarkdownSECRET
+SECRET
 
 couple hundred staffers there, full-time employees of the
 Agency, plus I don't know how many contract employees,

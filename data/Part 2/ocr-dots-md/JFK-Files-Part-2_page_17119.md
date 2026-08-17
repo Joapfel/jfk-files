@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17119.png
-
-Convert to MarkdownSources advised a rally was held at the American University, Washington, D.C., on September 13, 1969, with approximately 700 to 800 people in attendance. The theme of all speakers was to the effect that a revolution was going on at that time and that all oppressed people should be armed. BOB LEE, Secretary of the BPP, Chicago spoke. LEE contained his remarks to the above and exhibited the film "American Revolution II" which is described as an anti-police and anti-establishment film.
+Sources advised a rally was held at the American University, Washington, D.C., on September 13, 1969, with approximately 700 to 800 people in attendance. The theme of all speakers was to the effect that a revolution was going on at that time and that all oppressed people should be armed. BOB LEE, Secretary of the BPP, Chicago spoke. LEE contained his remarks to the above and exhibited the film "American Revolution II" which is described as an anti-police and anti-establishment film.
 
 | 9/13/69)
 

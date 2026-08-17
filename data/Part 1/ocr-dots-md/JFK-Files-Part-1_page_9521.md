@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9521.png
-
-Convert to Markdownassume that the Congress intends to conduct a Europe versus Soviet Union Congress. It should be understood that these words are merely propagandistic, and that they do not intend to suggest any aim at the present time other than with theutification aimed at the wrong targets. That will make this show doubly effective. Therefore, the working details should be made known to as few people as possible.
+assume that the Congress intends to conduct a Europe versus Soviet Union Congress. It should be understood that these words are merely propagandistic, and that they do not intend to suggest any aim at the present time other than with theutification aimed at the wrong targets. That will make this show doubly effective. Therefore, the working details should be made known to as few people as possible.
 
 The National Committee for Free Europe should assist in all technical preparations, furnish the necessary language announcers for broadcasts of the proceedings in the appropriate languages. Muttooxxown But it is essential that the contents remain secret until the show goes on the air. This is not only security in the ordinary sense; it is also a matter of delivering the blow with maximum effect.
 

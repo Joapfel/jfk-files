@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15000.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>CABINET</td></tr><tr><td>Excluded from archive</td></tr><tr><td>4.07.1964</td></tr><tr><td>decals</td></tr></table>
 

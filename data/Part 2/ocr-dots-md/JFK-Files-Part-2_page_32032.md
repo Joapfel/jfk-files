@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32032.png
-
-Convert to MarkdownREFER TO DATA RE
+REFER TO DATA RE
 Subject (Demonstrations Pertaining to U.S. Intervention in Vietnam, San Francisco)
 WHICH WAS SENT YOUR ONTO OSI-G2
 AGENCY ON 12-6-66

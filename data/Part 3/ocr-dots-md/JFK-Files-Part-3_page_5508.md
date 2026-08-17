@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5508.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 Item 23 requested all materials reflecting contacts or communications between Mr. Sullivan and Mr. Mohr, and between Mr. Sullivan and Mr. DeLoach, as described in the second paragraph of Mr. Sullivan's November 27, 1964, memorandum to Mr. Belmont, subject "Communism and the Negro Movement--A Current Analysis."
 

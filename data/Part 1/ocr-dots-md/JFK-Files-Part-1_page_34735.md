@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34735.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, Mangagua X
 Chief of Station, JIMWAYE

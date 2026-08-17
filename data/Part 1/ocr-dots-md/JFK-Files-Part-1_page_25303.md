@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25303.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LARDN, Nikolay Demyanovich - chauffeur
 wife: Praskovya Artyaeva

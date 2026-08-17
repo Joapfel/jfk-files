@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28416.png
-
-Convert to Markdown<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Stephen James Fallis</td><td>7/17/77</td></tr><tr><th>Employee Social Security Number</th><th>Type of Action</th></tr><tr><td>132 34 5625</td><td>☐ Appointment</td></tr><tr><th>Employing Office or Committee</th><td>☑ Salary Adjustment</td></tr><tr><td>Assassinations</td><td>☐ Termination (At close of business on effective date)</td></tr></tbody></table>
+<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Stephen James Fallis</td><td>7/17/77</td></tr><tr><th>Employee Social Security Number</th><th>Type of Action</th></tr><tr><td>132 34 5625</td><td>☐ Appointment</td></tr><tr><th>Employing Office or Committee</th><td>☑ Salary Adjustment</td></tr><tr><td>Assassinations</td><td>☐ Termination (At close of business on effective date)</td></tr></tbody></table>
 
 (If type of action is an Appointment or Salary Adjustment, complete the following information.)
 

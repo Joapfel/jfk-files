@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14300.png
-
-Convert to Markdown27. All memoranda or other materials prepared by the FBI relating to the reports described in Item 26.
+27. All memoranda or other materials prepared by the FBI relating to the reports described in Item 26.
 
 28. All memoranda and other materials pertaining to the origins and conduct of the FBI investigation in the Dominican Republic in 1965.
 

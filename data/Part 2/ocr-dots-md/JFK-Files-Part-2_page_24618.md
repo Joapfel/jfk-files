@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24618.png
-
-Convert to MarkdownIn the summer of 1960, there was a great deal of concern at the highest levels in the United States government about the role of Patrice Lumumba in the Congo.* Lumumba, who served briefly as Premier of the newly independent nation, was viewed with alarm by United States foreign policymakers because of what they perceived as his magnetic public appeal and his leanings toward the Soviet Union.
+In the summer of 1960, there was a great deal of concern at the highest levels in the United States government about the role of Patrice Lumumba in the Congo.* Lumumba, who served briefly as Premier of the newly independent nation, was viewed with alarm by United States foreign policymakers because of what they perceived as his magnetic public appeal and his leanings toward the Soviet Union.
 
 Under the leadership of Lumumba and the new President, Joseph Kasavubu, the Congo declared its independence from Belgium on June 30, 1960. In the turbulent month that followed, Lumumba threatened to invite Soviet troops to hasten the withdrawal of Belgian armed forces. The United Nations Security Council requested a Belgian withdrawal and dispatched a neutral force to the Congo to preserve order. In late July, Lumumba visited Washington and received pledges of economic aid from Secretary of State Christian Herter. At the beginning of September, Soviet airplanes, trucks, and technicians were arriving in the province where Lumumba's support was strongest.
 

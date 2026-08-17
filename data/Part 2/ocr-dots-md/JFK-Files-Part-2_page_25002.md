@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25002.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 supporter of Vice President Nixon, who was seeking election at that time. Nevertheless, about two or three weeks after the election, about three weeks after the election, I received a telephone call one day in my office from Pierre Salinger, whom I did not know. And he told me on the telephon that Senator Kennedy -- whom I knew slightly, because he was on the Foreign Relations Committee -- would like to come and see me that night.
 

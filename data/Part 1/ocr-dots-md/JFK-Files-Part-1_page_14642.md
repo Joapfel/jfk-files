@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14642.png
-
-Convert to Markdown# Report No. 1939 (continued)
+# Report No. 1939 (continued)
 
 ## Item # 6
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19051.png
-
-Convert to MarkdownPaul Lin
+Paul Lin
 
 TOP SECRET
 

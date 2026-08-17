@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12362.png
-
-Convert to MarkdownH. SYMBOLS
+H. SYMBOLS
 
 1. Assigning numbers
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21177.png
-
-Convert to MarkdownThis memorandum clearly supports NOSENKO's version of this incident.
+This memorandum clearly supports NOSENKO's version of this incident.
 
 With regard to [KEYZERS] failure to identify NOSENKO it is pointed out that he saw the individual who approached him only momentarily, but it is recognized that his description of the individual is not close to that of NOSENKO.
 

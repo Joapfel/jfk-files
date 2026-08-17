@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21851.png
-
-Convert to Markdown**Q:** And at that time, you knew who he was?
+**Q:** And at that time, you knew who he was?
 
 **Hedgman:** I recognized him as an officer of the Agency. . . . I believe he referred to the fact that I had received a message and that he was the person concerned. (Hedgman, 8/21/75, pp. 15-16)
 

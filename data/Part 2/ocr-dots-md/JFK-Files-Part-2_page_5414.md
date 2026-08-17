@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5414.png
-
-Convert to MarkdownSECRET
+SECRET
 
 * The practice of counterintelligence (CI) -- and hence the issue of damage to national security -- proceeds from four basic questions:
 

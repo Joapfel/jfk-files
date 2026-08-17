@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4572.png
-
-Convert to Markdownown judgments without the need for U. S. persuasion in the form
+own judgments without the need for U. S. persuasion in the form
 of concrete financial and military aid. Accordingly, the President
 intended to stay home and do his own heavy thinking as to just
 how he can best promote peace -- if this led to trips, then he

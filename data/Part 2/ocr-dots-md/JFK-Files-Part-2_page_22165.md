@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22165.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>PRESIDENT KENNEDY ✓ BUNDY</td><td rowspan="6">Nov. 12, 1963</td><td>MONGODB</td></tr><tr><td>ROBERT KENNEDY</td><td>PRESIDENTIAL APPROVAL</td></tr><tr><td>HELMS</td><td></td></tr><tr><td>RUSK</td><td></td></tr><tr><td>MCNAMARA</td><td></td></tr><tr><td colspan="3"><strong>OCCURRENCE:</strong></td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>PRESIDENT KENNEDY ✓ BUNDY</td><td rowspan="6">Nov. 12, 1963</td><td>MONGODB</td></tr><tr><td>ROBERT KENNEDY</td><td>PRESIDENTIAL APPROVAL</td></tr><tr><td>HELMS</td><td></td></tr><tr><td>RUSK</td><td></td></tr><tr><td>MCNAMARA</td><td></td></tr><tr><td colspan="3"><strong>OCCURRENCE:</strong></td></tr></tbody></table>
 
 On November 12, 1963 a meeting on "Cuban Operations" was held with "Higher Authority" (President Kennedy). Present were Mr. RUSK, Mr. MCNAMARA, Mr. ROBERT KENNEDY, Mr. BUNDY, Mr. MCCONE, Mr. JOHNSON, Mr. KILPAGRICK, Mr. VANCE, Mr. HELMS, Mr. FITZGERALD, MR. [CHIEFVER], Mr. STEAKLEY. Mr. MCCONE gave a brief summary of recent developments inside Cuba and Mr. Fitzgerald reported on Cuban operations under six main headings. (Mr. FITZGERALD's discussions of these headings is contained in separate cards.)
 

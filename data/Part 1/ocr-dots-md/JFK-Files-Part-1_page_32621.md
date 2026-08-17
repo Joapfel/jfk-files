@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32621.png
-
-Convert to Markdown14 April 1971
+14 April 1971
 
 # MEMORANDUM IN LIEU OF FITNESS REPORT
 

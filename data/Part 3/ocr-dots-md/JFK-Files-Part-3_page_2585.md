@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2585.png
-
-Convert to Markdownprograms set out in the airtel from the FBI Director to SAC, Albany, dated April 28, 1971, entitled "Counterintelligence Programs (COINTEL-PROs), Internal Security - Racial Matters". (C.17.)
+programs set out in the airtel from the FBI Director to SAC, Albany, dated April 28, 1971, entitled "Counterintelligence Programs (COINTEL-PROs), Internal Security - Racial Matters". (C.17.)
 
 2. Committee staff access to a list of all FBI headquarters supervisory personnel involved in the origination, implementation, and termination of each COINTELPRO program. (C.18.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3186.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 across changing political and administrative lines.* 11/
 With WH/4 in the throes of revising the anti-

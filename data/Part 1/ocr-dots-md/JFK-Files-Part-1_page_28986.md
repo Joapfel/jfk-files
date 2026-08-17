@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28986.png
-
-Convert to Markdown6 June 1956
+6 June 1956
 
 MEMORANDUM FOR: CHIEF, MILITARY PERSONNEL DIVISION
 

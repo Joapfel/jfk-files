@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13402.png
-
-Convert to Markdownamt 3
+amt 3
 
 1 Foundation and General Education Board for about eight years
 2 during the 1950's. During the Truman Administration, with the

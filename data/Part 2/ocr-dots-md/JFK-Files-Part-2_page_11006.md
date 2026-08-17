@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11006.png
-
-Convert to Markdown# PART II
+# PART II
 ## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 referred to Bureau by local law enforcement agencies or where Bureau fugitives are taken into custody by local law enforcement officers.

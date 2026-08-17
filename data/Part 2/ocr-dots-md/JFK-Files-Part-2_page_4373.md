@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4373.png
-
-Convert to MarkdownWEDNESDAY
+WEDNESDAY
 
 29
 

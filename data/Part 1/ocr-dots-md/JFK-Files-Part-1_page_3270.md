@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3270.png
-
-Convert to Markdown# CANADA (contd)
+# CANADA (contd)
 
 <u>... No.</u>
 

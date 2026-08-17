@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3934.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Att. 60 to UPGA-1953 dated
 SUBJECT: RODRIGUEZ (Mat. Unk.), Ramon

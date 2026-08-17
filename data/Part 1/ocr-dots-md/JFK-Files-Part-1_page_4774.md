@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4774.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>X-REF.</td><td>SYME. NUMBER</td><td>DLC. DATE</td><td>DOC. FILED IN.</td></tr></thead><tbody><tr><td>201-0299292</td><td>SJOS-15491</td><td>30 APK 7o</td><td>201-03C0985</td></tr></tbody></table>
 

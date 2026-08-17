@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32517.png
-
-Convert to MarkdownCIA RETIREMENT AND DISABILITY SYSTEM
+CIA RETIREMENT AND DISABILITY SYSTEM
 
 Request for Retirement
 

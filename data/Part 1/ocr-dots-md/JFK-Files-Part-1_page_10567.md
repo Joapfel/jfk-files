@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10567.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ATT. TO UFGA-28655
 

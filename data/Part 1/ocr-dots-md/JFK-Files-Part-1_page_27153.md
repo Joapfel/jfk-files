@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27153.png
-
-Convert to MarkdownAugust 7, 1973
+August 7, 1973
 
 Mr. William V. Broe
 111 Indian Trail

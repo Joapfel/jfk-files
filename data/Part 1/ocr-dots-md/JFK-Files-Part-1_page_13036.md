@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13036.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">SECTION VII</th></tr><tr><td colspan="2"></td><th colspan="3">SPECIAL QUALIFICATIONS AND INTERESTS</th></tr></thead><tbody><tr><td colspan="2">24 INDICATE ANY APTING CUTE DUTIES INCLUDING TITLES OF BOOKS OR ARTICLES, ALSO NAMES OF PUBLISHERS AND PUBLICATION DATES.</td><td colspan="3"></td></tr><tr><td colspan="2">25 SPECIAL SKILLS, ABILITIES, HOBBIES SUCH AS RADIO, PHOTOGRAPHY ETC.</td><td colspan="3"></td></tr></tbody></table>
+<table><thead><tr><th colspan="4">SECTION VII</th></tr><tr><td colspan="2"></td><th colspan="3">SPECIAL QUALIFICATIONS AND INTERESTS</th></tr></thead><tbody><tr><td colspan="2">24 INDICATE ANY APTING CUTE DUTIES INCLUDING TITLES OF BOOKS OR ARTICLES, ALSO NAMES OF PUBLISHERS AND PUBLICATION DATES.</td><td colspan="3"></td></tr><tr><td colspan="2">25 SPECIAL SKILLS, ABILITIES, HOBBIES SUCH AS RADIO, PHOTOGRAPHY ETC.</td><td colspan="3"></td></tr></tbody></table>
 
 <table><thead><tr><th colspan="6">SECTION VIII</th></tr><tr><td colspan="2"></td><th colspan="4">MILITARY SERVICE</th></tr><tr><td>COUNTRY</td><td>FROM TO</td><td>UNIT</td><td>RANK</td><td>DUTY</td><td></td></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17662.png
-
-Convert to Markdown# Conclusion
+# Conclusion
 
 The exco co. station and the leaders Mexico ask agree that the product of the LIEAT project measured at the expenditure of secrecy assets in terms of personel, time, security risks and funds will justify its removal. The information produced by this operation has contributed materially and substantially to several prioritized objectives of the exco city station's delayed Mission directive.
 

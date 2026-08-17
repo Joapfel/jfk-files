@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19065.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 HISCOCKS, RICHARD. Democracy in Western Germany. London, New York, Oxford University Press, 1957. 324p. DD259.4.H5 DLC; DD259.4.H6 CIA.
 

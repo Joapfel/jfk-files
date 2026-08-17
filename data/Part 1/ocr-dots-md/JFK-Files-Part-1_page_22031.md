@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22031.png
-
-Convert to Markdownhis trip. Nothing unusual or interesting in it. 'SOLISTKA' also gave a report to GRYAZNOV, but there was nothing there, either."
+his trip. Nothing unusual or interesting in it. 'SOLISTKA' also gave a report to GRYAZNOV, but there was nothing there, either."
 
 NOSENKO was questioned on 20 October 1966 about his respon- sibility for and knowledgeability of KGB operations against American code clerks. He was required to give only brief answers, without discussion, to specific questions. The CIA questions and his answers were as follows:
 

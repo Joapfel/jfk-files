@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25163.png
-
-Convert to Markdown<table><tr><td colspan="2">CIA<br/>RICHARDSON, John (CIA station chief in Saigon)<br/>Saigon Embassy<br/>DIEM</td><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>OCCURRENCE:</td><td>8/22/63</td><td>Diem ✓</td><td>TOP SECRET</td></tr></table>
+<table><tr><td colspan="2">CIA<br/>RICHARDSON, John (CIA station chief in Saigon)<br/>Saigon Embassy<br/>DIEM</td><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>OCCURRENCE:</td><td>8/22/63</td><td>Diem ✓</td><td>TOP SECRET</td></tr></table>
 
 On August 22, 1963, in a CIA cable from Saigon (SAIG 0208) Chief of Station RICHARDSON forwarded his personal views concerning alternate leadership: ". . . Recent events have made us feel that hope for civilian government to replace DIEM administration is unrealistic. The solution seems even more improbable than ever before. Would appear that we should have either DIEM or military junta.. . . View time factor have not coordinated this message with embassy but we have exchanged views fully on subject matter." (3-4)
 

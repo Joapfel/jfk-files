@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23050.png
-
-Convert to Markdown1 record on that as saying that we did not drive around, there
+1 record on that as saying that we did not drive around, there
 2 were no vehicles moving, manned by these Cubans with arms and
 3 weapons on them.
 

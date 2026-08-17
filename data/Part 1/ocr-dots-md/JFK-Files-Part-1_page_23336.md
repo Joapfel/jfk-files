@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23336.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th><th>ROUTING</th></tr></thead><tbody><tr><td>416 RLC/JM/ARB</td><td rowspan="3"><strong>SECRET</strong></td><td><table><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>DATE 27 FEB 57</td><td></td></tr><tr><td></td><td></td></tr><tr><td>TO DIRECTOR</td><td>SAN JOSE</td><td>Feb 27 '87 4:25:57</td></tr><tr><td>FROM SAN JOSE</td><td></td><td>REC'D CABLE SECT.</td></tr><tr><td>ACTION WH 5</td><td></td><td>ROUTINE</td></tr><tr><td>INFO CI, CI/OPS, FI, FI/OPS, FI/RI 2, S/C 2</td><td></td><td>IN 11647</td></tr></tbody></table>
 

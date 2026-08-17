@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17712.png
-
-Convert to MarkdownNOTES FOR SESSION
+NOTES FOR SESSION
 
 In previous sessions we discussed the importance of highlighting issues likely to grow out of Commission or Committee deliberations. We observed that we should identify some of those on which a legal brief or annex would be helpful to Executive Branch initiatives. The idea was to select a few where a solid research paper with options, pros and cons, etc., could help us develop a firm grip on the questions in the issue and identify options. For example, the question of Executive privacy presents itself, and I gather is being worked on.
 

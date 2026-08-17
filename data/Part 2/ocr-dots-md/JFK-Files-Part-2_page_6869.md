@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6869.png
-
-Convert to MarkdownAKKB
+AKKB
 
 Relations of the United States, 1961-63 Vol. 3) and the title page of a 213-page Record [of the] Eighth Secretary of Defense Conference from the Joint Chiefs of Staff Official File that has now been opened in full. Prior to Review Board action, the memorandum had been excluded from automatic downgrading and declassification and could presumably have remained classified forever. A stamp on page 1 discloses that the document was systematically reviewed by JCS in May 1989 and the classification of Top Secret was continued. The document was opened in full at a declassification session in July 1997.
 

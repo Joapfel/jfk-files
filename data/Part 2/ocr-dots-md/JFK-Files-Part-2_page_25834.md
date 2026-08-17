@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25834.png
-
-Convert to MarkdownSECRET
+SECRET
 
 These entity files were independent of the JMWAVE Station files. Had Station JMWAVE referred to its files in WAVE 8049 the cable would have been worded, "according AMISPELL Station files." The file of AMHINT-53, a former executive of the DRE, has also been reviewed and no reference to Oswald was found. The file number which appears on WAVE 8049 is no longer in use and the contents of this former file were transferred into Oswald's and other 201 files by the CI Staff. A tape of the radio debate cited in WAVE 8049 is included in the Oswald 201 held by the CI Staff.
 

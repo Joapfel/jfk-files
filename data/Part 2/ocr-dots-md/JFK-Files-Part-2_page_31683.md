@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31683.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH:jb
 
 A leaflet was issued by the "Root and Branch Press" which reflected that it was planning to publish a book by MAURICE ZEITLIN and ROBERT SCHEER entitled "The Cuban Revolution, An American Tragedy."

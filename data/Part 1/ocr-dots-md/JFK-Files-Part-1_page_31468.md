@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31468.png
-
-Convert to Markdown(3) NCFE has not only failed to provide information about its activities, but had generally expanded its relations with government agencies in an effort to play one agency against another and, indeed, in many cases play the personnel of one agency against other personnel in that agency. A general feeling of suspicion and distrust prevailed CIA's relationships with NCFE.
+(3) NCFE has not only failed to provide information about its activities, but had generally expanded its relations with government agencies in an effort to play one agency against another and, indeed, in many cases play the personnel of one agency against other personnel in that agency. A general feeling of suspicion and distrust prevailed CIA's relationships with NCFE.
 
 2. In an attempt to properly discharge its responsibilities IO Division has attempted to solve the above problems by preparing an agreement or directive which sets out the joint responsibilities of CIA and NCFE and which clearly states NCFE's duties and responsibilities to this Agency. To implement this agreement IO Division has, or is in the process of, creating orderly procedures by which this agreement will be put into effect.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1461.png
-
-Convert to MarkdownG-E-C-R-E-T
+G-E-C-R-E-T
 
 (When filled in)
 

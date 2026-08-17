@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22510.png
-
-Convert to MarkdownSECRET-eyes only
+SECRET-eyes only
 
 There were reports in Ciudad Trujillo at the time that the U.S. Consulate had been in some way involved with the plotters.
 

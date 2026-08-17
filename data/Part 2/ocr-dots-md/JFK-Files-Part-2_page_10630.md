@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10630.png
-
-Convert to MarkdownCODE
+CODE
 
 CABLEGRAM
 

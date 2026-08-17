@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1376.png
-
-Convert to MarkdownSECRET
+SECRET
 
 JAPAN MISSION
 

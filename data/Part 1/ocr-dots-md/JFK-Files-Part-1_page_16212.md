@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16212.png
-
-Convert to MarkdownESTVAN BOTOND, A.I.A.
+ESTVAN BOTOND, A.I.A.
 Architect/Urban Designer
 2152 Wyoming Avenue, N.W. Washington, D.C. 20008 (202) DUPOD 7-7525
 

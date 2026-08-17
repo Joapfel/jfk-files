@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31532.png
-
-Convert to MarkdownSien!
+Sien!
 
 30 December 1963
 

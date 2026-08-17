@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_742.png
-
-Convert to Markdown6 SEP '74
+6 SEP '74
 
 MEMORANDUM FOR : Mr. Jerome Fax
 THROUGH : Head of D Career Service

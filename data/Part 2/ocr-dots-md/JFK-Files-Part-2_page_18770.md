@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18770.png
-
-Convert to MarkdownNY 65-15026
+NY 65-15026
 
 On 11/6/58, subject asked JAFFE if he could ascertain the feeling of American business and American industry toward Red China and apprise him of this feeling.
 

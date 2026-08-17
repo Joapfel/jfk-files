@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5426.png
-
-Convert to MarkdownN: permission. There is some dictum to indicate, at present, that this may be brought up later. But, I know of no authorization which can be obtained per se for a surreptitious entry. And, at this point, of course, the feeling is that these confined as they are to foreign counterintelligence it flows from presidential authority as it applies also to the warrantless wiretaps.
+N: permission. There is some dictum to indicate, at present, that this may be brought up later. But, I know of no authorization which can be obtained per se for a surreptitious entry. And, at this point, of course, the feeling is that these confined as they are to foreign counterintelligence it flows from presidential authority as it applies also to the warrantless wiretaps.
 
 **QUESTION:** Weren't the civil rights groups, Mr. Kelley, among some of the organizations who were burglarized?
 

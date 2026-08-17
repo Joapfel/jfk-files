@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6323.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 Review Board's discretion, may also be placed in the JFK Assassination Records Collection.
 

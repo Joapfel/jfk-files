@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9711.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 Date of transcription 8/12/74
 

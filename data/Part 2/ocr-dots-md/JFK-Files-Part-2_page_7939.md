@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7939.png
-
-Convert to Markdown13-00000
+13-00000
 
 Jacomson, Dan. "Man Street: Warren Commission Report." New Statesman, 15 January 1965 pp. 76-77.
 

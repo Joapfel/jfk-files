@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24993.png
-
-Convert to MarkdownSHELBURNE: lynch
+SHELBURNE: lynch
 
 A
 

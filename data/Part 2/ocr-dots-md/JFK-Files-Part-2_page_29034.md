@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29034.png
-
-Convert to MarkdownSCHEDULE C
+SCHEDULE C
 
 (Form 1040)
 

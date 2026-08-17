@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2306.png
-
-Convert to MarkdownDid you ever tell anyone in the KGB about your contact with
+Did you ever tell anyone in the KGB about your contact with
 American Intelligence? No.
 
 Were you given instructions by the KGB to get in contact with

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26733.png
-
-Convert to Markdownto get the funding through to the organizations.
+to get the funding through to the organizations.
 
 These people were normally prominent people and --
 Q. And did they get funded by the Agency, then, through

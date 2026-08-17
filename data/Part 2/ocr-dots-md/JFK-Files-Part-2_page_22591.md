@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22591.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A memorandum, dated 13 January 1971 captioned "Charles Wiley" states: "Says CIA Covert Agent has stated that he now wants to leave in some material (Mexico) that earlier McCord suggested not be included." (Apparently material for book CIA Cover was writing with Wiley's assistance.)
 

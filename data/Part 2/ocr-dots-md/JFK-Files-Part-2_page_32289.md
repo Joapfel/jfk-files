@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32289.png
-
-Convert to MarkdownConsiderations:
+Considerations:
 
 This action should be seriously considered only if we are determined to use all possible means to obtain removal of Soviet troops.
 

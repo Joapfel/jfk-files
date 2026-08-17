@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21406.png
-
-Convert to Markdown19 JAN. 1962
+19 JAN. 1962
 
 TO: Director
 Federal Bureau of Investigation

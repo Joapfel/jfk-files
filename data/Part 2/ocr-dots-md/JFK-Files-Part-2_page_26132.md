@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26132.png
-
-Convert to Markdownand put together some rough first papers
+and put together some rough first papers
 for Taylor to start his thinking for the
 president. Then when Taylor formed a group,
 I wasn't invited in on it, and I didn't attend.

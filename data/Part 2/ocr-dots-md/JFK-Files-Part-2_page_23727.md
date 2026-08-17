@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23727.png
-
-Convert to MarkdownHW 50955 DocId:32423509 Page 101
+HW 50955 DocId:32423509 Page 101
 
 through its budget levels and manpower levels, let's let the agency decide how many people it takes to run a segment of its own organization.
 

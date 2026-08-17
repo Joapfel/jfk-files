@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1233.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Director of Training
 SUBJECT: Appreciation: Josoph Smith

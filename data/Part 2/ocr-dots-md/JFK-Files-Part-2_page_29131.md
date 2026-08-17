@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29131.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="2">SCHEDULE D</td>

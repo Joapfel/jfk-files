@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13271.png
-
-Convert to MarkdownDear Mr. Diller,
+Dear Mr. Diller,
 
 I was sorry not to have the opportunity to see you during my visit to Washington. I would like to have paid my respects and to have offered to assist you in any way that I might during your service on the Commission of Investigators. The Presidents' assassination.
 

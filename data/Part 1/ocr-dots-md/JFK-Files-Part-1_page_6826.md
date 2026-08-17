@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6826.png
-
-Convert to MarkdownSECRET
+SECRET
 HOFORR/CONFIDENTIAL CONTROL
 
 **Distribution:**

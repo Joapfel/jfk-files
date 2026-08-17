@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12132.png
-
-Convert to MarkdownVenceremos Brigade
+Venceremos Brigade
 
 4. Regarding foreign travel such as that in which the VB is engaged, it is recognized that the best interests of this country would undoubtedly be served by prohibition of such travel. The Internal Security Act of 1950 contained sanctions restricting travel on the part of Communist Party members. After extended litigation, the Supreme Court in June, 1958, ruled in the Kent and Briehl vs. Dulles passport case that the State Department could no longer deny passports to individuals with past history of subversive affiliations. In June, 1964, the Supreme Court in the Flynn - Aptheher passport case ruled that the right of U.S. citizens to travel abroad is protected by the due process clause of the 5th Amendment. In January, 1967, in the Laub decision specifically dealing with travel to Cuba, the Supreme Court ruled that the State Department could not confiscate an individual's passport simply because the individual traveled to Cuba without State Department sanction. In December, 1967, in the Lynd decision, the District of Columbia Court of Appeals, ruled that anyone can travel to a restricted country if they did not use their passport to enter that country.
 

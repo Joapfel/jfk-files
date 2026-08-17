@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_12708.png
-
-Convert to Markdown(D) When the office of origin for a security index or reserve index A subject against whose identification record a notice has been placed is changed, form FD-128 submitted to change office of origin should show that a security flash notice has been posted with Identification Division. An extra copy of form FD-128 should be specifically sent to Identification Division in order that its records will show new office of origin to which future records will be submitted.
+(D) When the office of origin for a security index or reserve index A subject against whose identification record a notice has been placed is changed, form FD-128 submitted to change office of origin should show that a security flash notice has been posted with Identification Division. An extra copy of form FD-128 should be specifically sent to Identification Division in order that its records will show new office of origin to which future records will be submitted.
 
 (E) Cancel a security flash notice when (1) it is learned that subject of such is deceased or (2) such subject is determined to be no longer of security interest. Do not cancel security flash notice when a subject is removed from security index solely by application of security index criteria.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16455.png
-
-Convert to MarkdownTHE MOVEMENT: The question of nation- alism is a vital one in the black move- ment today. Some have made a distinction between cultural nationalism and revolu- tionary nationalism. Would you comment on the differences and give us your views?
+THE MOVEMENT: The question of nation- alism is a vital one in the black move- ment today. Some have made a distinction between cultural nationalism and revolu- tionary nationalism. Would you comment on the differences and give us your views?
 
 HUEY P. NEWTON: There are two kinds of nationalism, revolutionary nationalism and reactionary nationalism. Revolutionary nationalism is first dependent upon a people's revolution with the end goal being the people in power. Therefore to be a revolutionary nationalist you would by necessity have to be a social- ist. If you are a reactionary nationalist you are not a socialist and your end goal is the oppression of the people.
 

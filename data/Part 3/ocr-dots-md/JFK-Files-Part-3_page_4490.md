@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4490.png
-
-Convert to MarkdownNO 87-14835
+NO 87-14835
 
 On February 14, 1969, it was determined that ANTHONY ROSSI's telephone number former at 119 South Claiborne, was transferred to 8917 Apple Avenue.
 

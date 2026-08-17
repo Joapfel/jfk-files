@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1552.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th rowspan="2">NAME OF PERSON OR COMPANY</th><th rowspan="2">DATE OF SPECIAL KNOWLEDGE OR EXPERIENCE</th><th rowspan="2">DATE OF ARRIVAL<br>(TO US)"},<th colspan="4">PROFESSION ACCORDING TO CHECK IN<br>DEPT. DEPT. STUDY ASSIST MENT</th></tr><tr><th>X FOR DEPT.</th><th>X FOR ARRIVAL</th><th>X FOR STUDY</th><th>X FOR ASSIST MENT</th></tr></thead><tbody><tr><td>JAPAN</td><td>Economic, political, cultural,<br>1947-56<br>1968-69</td><td></td><td>X</td><td>X</td><td>XXX</td><td>X</td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

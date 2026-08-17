@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32760.png
-
-Convert to MarkdownIt has been suggested by several of your committee staff in their role as witnesses before the committee that much ado about nothing has been made about the so-called issue of commonality. It has been suggested to you that the only reason for common structures or common parts is so that money could be saved by use of common tooling. Such a conclusion overlooks the basic purpose of attempting to get one airplane instead of two. Two airplanes increase costs at every stage beginning with development itself.
+It has been suggested by several of your committee staff in their role as witnesses before the committee that much ado about nothing has been made about the so-called issue of commonality. It has been suggested to you that the only reason for common structures or common parts is so that money could be saved by use of common tooling. Such a conclusion overlooks the basic purpose of attempting to get one airplane instead of two. Two airplanes increase costs at every stage beginning with development itself.
 
 As the Fourth Evaluation Report stated, the design approach adopted by Boeing would "require separate documentation, (drawings; loads, stress, flutter, and fatigue analyses; etc.); separate static, dynamic and fatigue test programs; and more extensive developmental flight testing for the USAF and Navy versions."
 

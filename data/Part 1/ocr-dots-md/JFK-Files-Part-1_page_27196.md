@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27196.png
-
-Convert to MarkdownCOURIER
+COURIER
 
 FJYA-6055
 

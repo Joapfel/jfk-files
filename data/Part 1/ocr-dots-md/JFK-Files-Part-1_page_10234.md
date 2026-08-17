@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10234.png
-
-Convert to Markdownfino a la confirmación del accidente y
+fino a la confirmación del accidente y
 nuevamente que le pedía vinienda, más en el
 hablar sin confidencialidad. Le di las
 nuestro no llorar la Sra. Constitución, desde

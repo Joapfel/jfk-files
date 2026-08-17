@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27909.png
-
-Convert to MarkdownS-K-C-11-2-T
+S-K-C-11-2-T
 
 TRAINING WEIGHT
 

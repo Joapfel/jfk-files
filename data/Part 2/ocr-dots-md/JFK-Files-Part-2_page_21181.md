@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21181.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 this denial is fatal to his claims that he was KOSOLAPOV's
 supervisor and supervised all operations against American

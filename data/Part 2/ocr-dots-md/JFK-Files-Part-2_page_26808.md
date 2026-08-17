@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26808.png
-
-Convert to MarkdownSECRET
+SECRET
 
 tions. Obviously, these guys trained. In order to run one
 of these operations, you know, you would have to have a mother

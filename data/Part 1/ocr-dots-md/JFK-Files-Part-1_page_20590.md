@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20590.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, Western Europe Division
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30770.png
-
-Convert to MarkdownSEC. II. WORK EXPERIENCE
+SEC. II. WORK EXPERIENCE
 
 1. CIA Experience: State the specific nature of duties performed with CIA and CIG, starting with your present position. Take position titles from your official personnel papers, if you have personal copies. Please do not request your Official Personnel Folder. Include geographic area and subject matter dealt with, if applicable. Position Title is your classification title such as Geographer, Intelligence Officer, etc. Duty Title indicates your organization position such as - Section Chief, Branch Chief, Administrative Assistant, etc., and is to be filled in only if different to the Position Title. Approximate dates (month and year) are sufficient. Use a continuation sheet, if necessary, to adequately describe your duties.
 

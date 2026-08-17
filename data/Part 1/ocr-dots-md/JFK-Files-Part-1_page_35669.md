@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35669.png
-
-Convert to MarkdownProgramacion del mes : Agosto "EL MEDICO X USTED"
+Programacion del mes : Agosto "EL MEDICO X USTED"
 
 | Day | Time | Description | Doctor |
 |---|---|---|---|

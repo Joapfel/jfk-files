@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25855.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1803 Eye Street, N. W., take a room and wait for a call. If unable to get a room he should leave a forwarding address for further contact.
 

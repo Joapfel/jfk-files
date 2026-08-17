@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8990.png
-
-Convert to Markdown¿Quién fue el jefe de Durán en la Embajada Soviética durante el mes de junio de 1963.
+¿Quién fue el jefe de Durán en la Embajada Soviética durante el mes de junio de 1963.
 
 ¿Oficiales recién llegados a la embajada cubana desde el primero de septiembre de 1963, sus cargos?- Detalles
 

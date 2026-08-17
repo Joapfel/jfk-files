@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8677.png
-
-Convert to Markdowninformation. Separate, finished, memoranda were prepared,
+information. Separate, finished, memoranda were prepared,
 on the basis of these data, including the heading Findings.
 This heading lists the specific document number (s) and
 other pertinent data, and a few lines providing the gist

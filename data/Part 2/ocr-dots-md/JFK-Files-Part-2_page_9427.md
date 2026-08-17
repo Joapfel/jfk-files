@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9427.png
-
-Convert to MarkdownEast. Com., Ministry of Infor.
+East. Com., Ministry of Infor.
 
 1370 Boston Road
 Bronx, N.Y. 11212

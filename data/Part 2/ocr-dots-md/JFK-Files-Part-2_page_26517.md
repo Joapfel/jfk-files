@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26517.png
-
-Convert to MarkdownSECRET
+SECRET
 
 prematurely last spring in a country-
 side where the rural population strongly

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6050.png
-
-Convert to MarkdownHENRY F. GRAFF cont'd
+HENRY F. GRAFF cont'd
 
 "Presidents are Now Mayors," *The New York Times*, July 18, 1979.
 "Electing Civilians," *The New York Times*, February 22, 1980.

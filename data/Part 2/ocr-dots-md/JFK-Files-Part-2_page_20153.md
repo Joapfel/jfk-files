@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20153.png
-
-Convert to MarkdownAR235 NY CODE
+AR235 NY CODE
 
 9:01 PM URGENT 10-6-72 CJR
 

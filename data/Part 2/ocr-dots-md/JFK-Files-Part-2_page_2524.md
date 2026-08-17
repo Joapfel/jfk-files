@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2524.png
-
-Convert to MarkdownE - INTERNAL USE ONLY
+E - INTERNAL USE ONLY
 
 Mr. Bruce A. Bertotally
 

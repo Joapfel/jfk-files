@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1947.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (10 him Tilled In)
 

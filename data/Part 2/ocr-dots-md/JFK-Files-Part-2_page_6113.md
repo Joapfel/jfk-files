@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6113.png
-
-Convert to Markdown11. Government experience: List any advisory, consultative, honorary or other part-time service or positions with Federal, State, or local governments, other than those listed above.
+11. Government experience: List any advisory, consultative, honorary or other part-time service or positions with Federal, State, or local governments, other than those listed above.
 
 * Federal Practice Committee, United States District Court for the District of Minnesota; member (1990 to present)
 

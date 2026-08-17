@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8296.png
-
-Convert to MarkdownAB-PT Income Rises;
+AB-PT Income Rises;
 Theatre Take Larger
 
 (Continued from Page 1)

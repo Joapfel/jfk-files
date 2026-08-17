@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19441.png
-
-Convert to MarkdownMemorandum to Mr. W.C. Sullivan
+Memorandum to Mr. W.C. Sullivan
 
 RE: JEANNETTE RANKIN BRIGADE
 

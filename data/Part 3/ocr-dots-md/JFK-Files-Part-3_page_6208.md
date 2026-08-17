@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6208.png
-
-Convert to MarkdownLA 157-2325
+LA 157-2325
 
 LA T-3
 * 157-2325-55 Orally to SA CHARLES K. JOHNSON on 3/29/69

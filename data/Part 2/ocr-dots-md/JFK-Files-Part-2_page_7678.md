@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7678.png
-
-Convert to Markdown13-00000
+13-00000
 
 nished him with any funds or money or compensated him directly or indirectly
 in any fashion, and Lee Harvey Oswald was never associated or connected

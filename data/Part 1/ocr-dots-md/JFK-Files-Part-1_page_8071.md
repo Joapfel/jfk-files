@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8071.png
-
-Convert to Markdown/46/
+/46/
 
 SECRET
 

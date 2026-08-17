@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31432.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- LIST ALL RESIDENCES FROM 1 JANUARY 1937 -->
         <tr>

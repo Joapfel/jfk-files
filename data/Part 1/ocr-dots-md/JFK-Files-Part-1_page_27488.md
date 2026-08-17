@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27488.png
-
-Convert to Markdown11. April. 1951
+11. April. 1951
 
 44. ADIDY JOSEPH . . .0705301 IIT (.) YOB 11 PIt Fly Status Unk DOC. 10-45 P/1 4710 S Laandalo Chicago 32 III PSSN 1055 Dy SSN Unk DPG Unk: Above off roll ros asgnt Vel Tng Flt "A" (Int) 9463J V.A.T Sq 9110th V.MT Gp Washington DC asgd Hq & Hq Sq L.F (VAS) Sol'ridge AFB Mich ECDCa 19 Apr 51.
 

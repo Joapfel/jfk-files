@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22440.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Now, since they belong to us we could levy ceratin require
 ments on them if we wanted to, which we did very infrequently

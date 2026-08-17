@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34935.png
-
-Convert to MarkdownTRANSLATION
+TRANSLATION
 
 21 September 1967
 

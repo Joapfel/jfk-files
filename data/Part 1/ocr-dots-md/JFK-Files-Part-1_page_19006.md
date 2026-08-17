@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19006.png
-
-Convert to Markdown• SECRET/NO FOREIGN DISSEM
+• SECRET/NO FOREIGN DISSEM
 
 ( classification ) ( dissem controls )
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24271.png
-
-Convert to Markdownnot -- but the matter is not resolved as discussion below indi-
+not -- but the matter is not resolved as discussion below indi-
 cates. Ultimately the program question is whether there will
 be future U.S. involvement in covert wars -- and whether, if so,
 some substitute for CIA-owned air support can meet the operational

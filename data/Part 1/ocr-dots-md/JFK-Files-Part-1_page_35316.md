@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35316.png
-
-Convert to MarkdownHE RECIBIDO de "Judicatura Cubana Democrática la canti-
+HE RECIBIDO de "Judicatura Cubana Democrática la canti-
 dad de Ciento carenta y al restante cientos cincuenta
 importe de la asignación correspondiente al presente---
 mes,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10335.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CONFIDENTIAL
 

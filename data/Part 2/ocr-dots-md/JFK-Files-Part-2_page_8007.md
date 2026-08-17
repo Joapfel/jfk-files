@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8007.png
-
-Convert to MarkdownF. Irving Dymond, attorney for the defendant, in
+F. Irving Dymond, attorney for the defendant, in
 the February 1969 trial of Clay Shaw in New
 Orleans; Clay Shaw was charged by the grand jury
 with "having conspired with David W. Ferrie and

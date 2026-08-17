@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8352.png
-
-Convert to MarkdownAndrea has often extended an invitation to LOGINOV through Rafael, but when Rafael mentiones this to LOGINOV, LOGINOV has told him to forget it because other people from his Embassy are seeing her and LOGINOV does not want to appear there and cause trouble. LOGINOV did not expound and R-fael did not ask further explanation. Rafael thinks that CHERNYSH really wants to take Andrea to bed, but he also thinks that CHERNYSH is up to other things also. He has no idea what, but just suspects.
+Andrea has often extended an invitation to LOGINOV through Rafael, but when Rafael mentiones this to LOGINOV, LOGINOV has told him to forget it because other people from his Embassy are seeing her and LOGINOV does not want to appear there and cause trouble. LOGINOV did not expound and R-fael did not ask further explanation. Rafael thinks that CHERNYSH really wants to take Andrea to bed, but he also thinks that CHERNYSH is up to other things also. He has no idea what, but just suspects.
 
 3. The meeting with Rafael, after three hours, was cut short at this time because he had some obligations. His general daily schedule is as follows:
 

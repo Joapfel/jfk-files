@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12793.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEX 92-13
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4801.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 Las Vegas telephone number 735-1363 has recently been changed to 735-0506, which is the main switchboard for "Circus Circus" a new casino which is presently under construction on the "Las Vegas Strip".
 

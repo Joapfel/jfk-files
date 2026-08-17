@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_285.png
-
-Convert to Markdown28. KOLASO
+28. KOLASO
 24. JMITEDE
 25. JMFIC
 26. AMBRUSH

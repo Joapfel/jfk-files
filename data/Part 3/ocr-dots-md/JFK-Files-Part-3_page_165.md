@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_165.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 Counterintelligence Program
 

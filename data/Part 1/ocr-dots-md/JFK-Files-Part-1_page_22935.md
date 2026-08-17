@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22935.png
-
-Convert to MarkdownSECRET
+SECRET
 
 51. What is subject's social standing? Aristocracy, upper middle class, lower middle class, peasantry, etc.?
 Middle class

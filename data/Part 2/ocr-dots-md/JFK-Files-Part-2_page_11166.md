@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11166.png
-
-Convert to MarkdownSECTION 87. SECURITY INVESTIGATIONS
+SECTION 87. SECURITY INVESTIGATIONS
 
 e. Legitimate non-communist organizations that are Communist infiltrated
 (1) No investigation should be conducted without prior Bureau approval.

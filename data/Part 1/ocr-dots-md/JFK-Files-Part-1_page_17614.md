@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17614.png
-
-Convert to MarkdownProject Viceroy
+Project Viceroy
 
 Attachment to H-14-A-10198
 KAPOK-1401

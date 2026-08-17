@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29504.png
-
-Convert to MarkdownContinuation of FITNESS REPORT, Section B:
+Continuation of FITNESS REPORT, Section B:
 
 Subject is a well-qualified para-military specialist, who has fully mastered the tools of his trade. Subject applies all of his para-military knowledge in the performance of his current duties as the senior outside case officer for a thirty-man commando group, which is capable of carrying out a variety of different missions. These missions include caching operations, sabotage raids, tactical intelligence reconnaissance activities and contingency missions related to war plans. Subject is at his best in dealing with men and military equipment. Subject's major weakness is in records management and reports writing. Despite this minor weakness, Subject's overall performance warrants an evaluation of Proficient.
 

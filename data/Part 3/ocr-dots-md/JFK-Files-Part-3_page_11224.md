@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11224.png
-
-Convert to MarkdownContractual obligations. The determination of that need shall be made by officials having responsibility for the classified information or material.
+Contractual obligations. The determination of that need shall be made by officials having responsibility for the classified information or material.
 
 D. Consent of Originating Department to Dissemination by Recipient. Except as otherwise provided by Section 102 of the National Security Act of 1947, 61 Stat. 495, 50 U.S.C. 403, classified information or material originating in one Department shall not be disseminated outside any other Department to which it has been made available without the consent of the originating Department.
 

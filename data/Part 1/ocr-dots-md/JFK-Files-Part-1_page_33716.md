@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33716.png
-
-Convert to MarkdownJanuary 18, 1952
+January 18, 1952
 
 Mr. Allen W. Dulles
 P. O. Box 1513

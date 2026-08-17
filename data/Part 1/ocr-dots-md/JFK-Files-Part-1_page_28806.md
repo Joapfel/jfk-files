@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28806.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>FORM DS-1032<br/>(Exception to SF 50<br/>approved by CSC and<br/>8 of 8 April 22, 1960)</td>

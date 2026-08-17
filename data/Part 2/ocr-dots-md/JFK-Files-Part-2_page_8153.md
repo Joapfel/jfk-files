@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8153.png
-
-Convert to MarkdownAPPEALS REVIEW FORM
+APPEALS REVIEW FORM
 
 . Tab 328 contains *Bessinger DCI* dated 25 April 1968.
 

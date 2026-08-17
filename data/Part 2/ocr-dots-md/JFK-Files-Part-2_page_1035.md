@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1035.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. In his last two fitness reports Mr. Smith has received a "Strong" rating and the Chief of the Operations School as reviewing official has added his opinion that Mr. Smith has done his job with distinction and with credit to himself and his career service, citing the assignment to OTR as a first-rate example of quality in rotational tours. While Mr. Smith passed on his expertise through the training process, he also enhanced his own versatility through involvement in the various training activities cited above.
 

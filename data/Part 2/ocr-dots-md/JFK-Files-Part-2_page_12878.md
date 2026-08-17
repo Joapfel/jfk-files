@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12878.png
-
-Convert to MarkdownNY 100-136585
+NY 100-136585
 
 (What LEVISION particularly wanted GUS HALL to know
 is that "KING is a wholehearted Marxist, who has studied

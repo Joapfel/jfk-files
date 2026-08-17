@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22028.png
-
-Convert to Markdownbe a code clerk. We wanted to send KOSOLAPOV to Helsinki with the mission of returning with JENNER on the same train, during which time KOSOLAPOV was to study his behavior. JENNER was young and so was KOSOLAPOV.
+be a code clerk. We wanted to send KOSOLAPOV to Helsinki with the mission of returning with JENNER on the same train, during which time KOSOLAPOV was to study his behavior. JENNER was young and so was KOSOLAPOV.
 
 **Question:** How old was JENNER at the time?
 

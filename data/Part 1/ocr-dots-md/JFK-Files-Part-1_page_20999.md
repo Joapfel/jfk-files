@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20999.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE: 23 July 1974
 CTC NO. 210

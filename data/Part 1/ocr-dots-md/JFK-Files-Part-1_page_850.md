@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_850.png
-
-Convert to Markdown4 US Deserters Possibly Left Japan Aboard Baikal
+4 US Deserters Possibly Left Japan Aboard Baikal
 
 The four deserters from the US aircraft carrier Intrepid who made a dramatic television appearance Monday in Moscow are believed to have left Japan irregularly by the Soviet liner Baikal which left Yokohama on November 11 for the Far East
 

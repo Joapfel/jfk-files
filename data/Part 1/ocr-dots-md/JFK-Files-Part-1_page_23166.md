@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23166.png
-
-Convert to Markdownpoder obtener algún día la ansiada litertad.
+poder obtener algún día la ansiada litertad.
 
 Los que trabajan en alguna dependencia del Estado, y hoy en día todos los servicios médicos en su enorme totalidad, están bajo el control del Estado, se encuentran sujetos a una disciplina despótica que anula toda independencia personal, tan propia del ejercicio de la más liberales de toda las profesiones como es la Medicina. Se le controla lo que receta, el número de indicaciones que hace, los análisis que prescribe, tiene que cumplir su trabajo bajo un horario estricto, como cualquier burócrata secundario, y lo que es peor, está sujeto a la vigilancia no tan sobo de sus colegas directores de la institución, sino también de los llamados Comités de Vigilancia y de las Secciones del Partido Comunista, encargadas de supervisar las funciones todas de la institución, y que llaman inmediatamente al profesional "al orden" ante cualquier aspiración de quebrantamiento y que incluso lo juzgan ante Asamblea de todos los trajes bajadores, médicos y no médicos.
 

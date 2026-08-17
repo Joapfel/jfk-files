@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3564.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 Luis Bordas is reportedly the Honorary Nicaraguan Consul in San Juan, Puerto Rico, and, as a result, Department of State clearance for technical coverage of the business he operates jointly with Diego Bordas was obtained by the Federal Bureau of Investigation on June 1, 1965.
 

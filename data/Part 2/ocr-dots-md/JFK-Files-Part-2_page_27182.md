@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27182.png
-
-Convert to MarkdownE-G-G Files (Cont.)
+E-G-G Files (Cont.)
 
 IV. Miscellaneous (Cont.)
 

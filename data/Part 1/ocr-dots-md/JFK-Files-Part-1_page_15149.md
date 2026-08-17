@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15149.png
-
-Convert to Markdown# C.I.R.C. U.A.F. No. 3
+# C.I.R.C. U.A.F. No. 3
 
 CONSULADO GENERAL DE CHILE
 Frankfurt/Main

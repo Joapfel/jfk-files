@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7246.png
-
-Convert to Markdownand that his "maybe" was just a way of joking Loginov. Subj then ansoried to the C/O that he felt strong in his capacity to deal with the Soviets, and that his joking remarks in now way vitiated that strength.
+and that his "maybe" was just a way of joking Loginov. Subj then ansoried to the C/O that he felt strong in his capacity to deal with the Soviets, and that his joking remarks in now way vitiated that strength.
 
 The C/O brought up the matter of Subj's having told Loginov he would supply his personal documents to Loginov, and (solely with the design of reaching for Subj's motive) stated that we thought it would be better if Subj did nothing to pass those documents to the Soviets and held them off indefinitely. Subj appeared a bit chagrined at the C/O's request, and told the C/O why: he wanted to give those "bastards" his documents to show them he had nothing to hide, and that he was not afraid of them; if he didn't give over his documents they might think they had something on him. Further he felt that he was buying insurance by handing them over openly, and gave as an example that he might be flying in Europe and might find himself diverted or force-landed in a place like Prague or Warsaw - and it would be a comfort to him to know that he had nothing to be afraid of concerning any irregularities in his past.
 

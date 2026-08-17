@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9394.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10 July 1950
 

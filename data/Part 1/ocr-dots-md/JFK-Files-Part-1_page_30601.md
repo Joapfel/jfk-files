@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30601.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><td colspan="3">CATION OF ESTABLISHMENT OR CANCELLATION<br/>OF OFFICIAL COVER BACKSTOP</td><td>2 APRIL 1975</td><td>1731</td></tr></thead><tbody><tr><td rowspan="3"></td><td>X CHIEF, CONTROL DIVISION, OF</td><td></td><td>ST. NUMBER<br/>480-22-3553</td><td></td></tr><tr><td></td><td>CHIEF, CONTRACT PERSONNEL DIVISION, OF</td><td></td><td>PARTICIPANT NUMBER<br/>112775</td></tr><tr><td>X</td><td>CHIEF, OPERATING COMPONENT (For action) ci</td><td></td><td>ID CARD NUMBER</td></tr><tr><td>ATTN:</td><td colspan="2">CHIEF SUPPORT STAFF</td><td></td><td>ESTABLISHED</td></tr><tr><td>REF:</td><td colspan="2">RETIRED</td><td>OFFICIAL<br/>COVER</td><td>X DISCONTINUED</td></tr><tr><td>SUBJECT</td><td colspan="2">NEWTON SCOTT MILER</td><td>UNIT</td><td>DEPARTMENT OF STATE</td></tr></tbody></table>
 

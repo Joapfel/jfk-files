@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21526.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. of assassination is obviously a two-pronged subject, ours and theirs.
 2. We spent countless hours over the years trying to determine the parameters of how far the Soviet service was willing to go.

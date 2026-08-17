@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25100.png
-
-Convert to Markdown<table><thead><tr><th>DISPATCH</th></tr></thead><tbody><tr><td>TO<br/>Chief of Station, Panama City H2 P</td></tr><tr><td>INFO.<br/>Chief, WH: Chief, SR</td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td></tr><tr><td>SUBJECT<br/>REDCOAT - Modesto * VJG-31 BERMUDEZ</td></tr><tr><td>ACTION REQUIRED - REFERENCES<br/>Δ Mexico CIT PANAMA</td></tr><tr><td>REFERENCE: PACY - 7321, 8 July 1965</td></tr></tbody></table>
+<table><thead><tr><th>DISPATCH</th></tr></thead><tbody><tr><td>TO<br/>Chief of Station, Panama City H2 P</td></tr><tr><td>INFO.<br/>Chief, WH: Chief, SR</td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td></tr><tr><td>SUBJECT<br/>REDCOAT - Modesto * VJG-31 BERMUDEZ</td></tr><tr><td>ACTION REQUIRED - REFERENCES<br/>Δ Mexico CIT PANAMA</td></tr><tr><td>REFERENCE: PACY - 7321, 8 July 1965</td></tr></tbody></table>
 
 1. Panama City traces are requested on Modesto BERMUDEZ, a Panamanian currently in Mexico City. BERMUDEZ has been in touch with Valerly Vladimirovich KOSTIKOV (201-305052). Vice Consul at the Soviet Embassy in Mexico City and Identified KGB officer.
 

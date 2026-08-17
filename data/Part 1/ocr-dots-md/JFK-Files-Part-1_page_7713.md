@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7713.png
-
-Convert to Markdown4. Before completing the enclosed PAQ form, please provide the following information about yourself:
+4. Before completing the enclosed PAQ form, please provide the following information about yourself:
 
 Age 39 Sex M Nationality US
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2668.png
-
-Convert to Markdown1 Mr. Kelley. Removing him from his position or whatever
+1 Mr. Kelley. Removing him from his position or whatever
 2 is necessary in order to make it impossible or at least as
 3 impossible as possible to perpetuate this thing.
 4 Mr. Schwarz. You mean have him lose his job or --

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17705.png
-
-Convert to Markdown10. Operational Clearances
+10. Operational Clearances
 
 of Item 9.
 

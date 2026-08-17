@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9263.png
-
-Convert to Markdownon a special train, handing out free groceries and making political speeches. This supposedly is to get SEALE's name in the public's mind for his upcoming bid for Mayor of Oakland, California.
+on a special train, handing out free groceries and making political speeches. This supposedly is to get SEALE's name in the public's mind for his upcoming bid for Mayor of Oakland, California.
 
 DE T-3
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16375.png
-
-Convert to Markdown# "COLLABORATING WITH THE ENEMY
+# "COLLABORATING WITH THE ENEMY
 
 "The Government of the U.S. is trying desperately to maintain her domination over oppressed peoples in this pig society. One of her first tactics is to base herself an official collaborators and reactionary elements. These traitors-sons are singled out, given concessions, and placed on the national news media to denounce the revolutionary movement and the peoples aspirations for freedom. The government has made a consensus of its loyal and faithful traitors-sons, mobilized them to make declarations and Condemnations on radio, TV, and in the papers to the effect of denouncing the peoples' rights to self-defense in the face of brutal pig attacks. The Black Panther Party has uncovered this scheme to keep the people at the mercy of this vicious pig power structure. We see this stepped-up campaign against the revolutionary peoples party as an attempt to cut off the "sound" population from the revolutionary body. The pig power structure knows that if the people follow the Black Panther Party, they will be unable to exploit, oppress, and murder us at will. These same traitors who denounced the people's legal right to be free, endorse the cynical, inhuman, deviate methods used to suppress the people.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_389.png
-
-Convert to Markdown14-00000
+14-00000
 
 Will Dunham - Superior of Welcott.
 

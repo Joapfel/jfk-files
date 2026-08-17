@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17244.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. It is requested that the LIEMPTY Project be renewed on the basis of the attached Project Review.
 

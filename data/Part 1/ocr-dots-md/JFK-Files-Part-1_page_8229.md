@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8229.png
-
-Convert to Markdown14-00007
+14-00007
 
 Name (T) : Henry P. Lopez
 DPOS : 28 May 1920; Denver, Colorado

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23622.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SANJ 981
 

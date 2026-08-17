@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11323.png
-
-Convert to Markdown(10) Political activities (Bureau file 100-3-72)
+(10) Political activities (Bureau file 100-3-72)
 (a) Political activities in which party is engaged, including names and identities of party member candidates or party-sponsored candidates for public office
 (b) Details relating to party sponsorship of third party movements
 

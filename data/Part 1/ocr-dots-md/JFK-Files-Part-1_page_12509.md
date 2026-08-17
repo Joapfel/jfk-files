@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12509.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td>MARKED FOR INDEXING</td></tr><tr><td>NO INDEXING REQUIRED</td><td>ONLY QUALIFIED DISK CAN JUDGE INDEXING</td></tr><tr><td>MICROFILM</td><td></td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td>MARKED FOR INDEXING</td></tr><tr><td>NO INDEXING REQUIRED</td><td>ONLY QUALIFIED DISK CAN JUDGE INDEXING</td></tr><tr><td>MICROFILM</td><td></td></tr></tbody></table>
 
 <table><tr><td>DISPATCH</td><td><strong>Chief of Station, Port of Spain</strong></td></tr><tr><td>NSO</td><td><strong>Chief, Western Hemisphere Division</strong></td></tr><tr><td>FROM</td><td><strong>Chief of Station, Caracas</strong></td></tr><tr><td>SUBJECT</td><td>CIFINKC/CIFINCE - Recent Trip to Trinidad of CIFINCE-4</td></tr></table>
 

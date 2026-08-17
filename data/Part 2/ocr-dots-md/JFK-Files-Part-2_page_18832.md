@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18832.png
-
-Convert to MarkdownLetter to Director
+Letter to Director
 Central Intelligence Agency
 
 He stated he was formerly employed by "Time" and "Life" and in connection with this latter employment, had been assigned to writing and research on the articles published in "Life" magazine dealing with the various religions of the world.

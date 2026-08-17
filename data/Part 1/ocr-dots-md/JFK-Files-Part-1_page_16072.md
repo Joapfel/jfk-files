@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16072.png
-
-Convert to Markdown2.12
+2.12
 
 The operation of the HUNTER and KILLER teams would be encouraged and prohibited from entering into any area of combat activity, whatsoever.
 

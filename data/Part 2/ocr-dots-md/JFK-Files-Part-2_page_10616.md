@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10616.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 Memorandum to Mr. W.R. Wannall
 

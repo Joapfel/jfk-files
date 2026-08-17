@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10615.png
-
-Convert to MarkdownKlonvocation of United Klans of America at Birmingham on
+Klonvocation of United Klans of America at Birmingham on
 9/5-6/64. This is to be sold to members for $2 each and
 there is apparently considerable demand for it. Since it is
 not apparent to the unitiated that it has anything to do

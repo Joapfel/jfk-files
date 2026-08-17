@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27587.png
-
-Convert to Markdownmicrotechnology, audio countermeasures, and emanations intelligence areas of effort within his Division make this Quality Step Increase long overdue, in my opinion.
+microtechnology, audio countermeasures, and emanations intelligence areas of effort within his Division make this Quality Step Increase long overdue, in my opinion.
 
 Robert M. Chapman
 Director of Research and Development

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30988.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Herman Greenspun
 DOB-8/27/09

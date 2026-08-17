@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31540.png
-
-Convert to MarkdownRivor End, N. Roberts Lane
+Rivor End, N. Roberts Lane
 H. Arlington, Virginia
 4 December 1953
 

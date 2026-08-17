@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25191.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Source: AEWIGWAG/2
 Date Acquired: 13 August 1966

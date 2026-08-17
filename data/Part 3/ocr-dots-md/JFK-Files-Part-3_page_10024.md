@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10024.png
-
-Convert to MarkdownNR 004 CI CODE
+NR 004 CI CODE
 
 748PM NITEL 3/25/75 KOD
 

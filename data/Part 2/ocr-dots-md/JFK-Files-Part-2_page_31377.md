@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31377.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 KING also opined that there was probably a violation of Public Law 90-618 (Gun Control Act of 1968), possibly a violation of customs regulations, and possibly a fraud in that government transportation facilities had been misused.
 

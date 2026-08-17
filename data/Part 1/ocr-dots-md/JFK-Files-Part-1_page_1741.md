@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1741.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>Nationalist Party of Puerto Rico</td>
     <td>Santa Barbara Peace Forum</td>

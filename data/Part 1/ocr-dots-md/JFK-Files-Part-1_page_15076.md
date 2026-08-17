@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15076.png
-
-Convert to MarkdownWIROGUE, former REDSOX Agent Candidate and AF Division Agent, has been quitclaimed and resettled on the local economy. This dispatch covers the WIROGUE case from May 1962 to March 1964.
+WIROGUE, former REDSOX Agent Candidate and AF Division Agent, has been quitclaimed and resettled on the local economy. This dispatch covers the WIROGUE case from May 1962 to March 1964.
 
 Subject arrived in FRANKFURT/MAIN on 22 May 1962 and immediately made telephone contact with CABEZONE. He had been guaranteed a meeting with a Fran KUBARK representative who, he had been told, would explore KUBARK employment possibilities for him. He in the meantime would be attempting to market a telephone answering device which he had invented, and conduct an investigation into the disappearance of 30 million francs which had been misappropriated by members of the Congolese Defense Ministry. KUBARK's reasons for establishing contact were dictated, however, by the need to relieve Subject of his KUBARK supplied false Austrian passport in the name of Reiner, the need to institute or suggest a course of action which would encourage him to establish himself as a contributing member of society and, above all, prevent his return to the Congo.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8718.png
-
-Convert to MarkdownLUISA : Asks for her husband whom she hasn't seen.
+LUISA : Asks for her husband whom she hasn't seen.
 
 CALLER : Said "he was here, but he left."
 

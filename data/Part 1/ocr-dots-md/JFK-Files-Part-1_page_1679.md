@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1679.png
-
-Convert to Markdownonly one third of each. He was told that the American attorney
+only one third of each. He was told that the American attorney
 attorney general could make such an application for the position of the
 attorney general, but that he should not be allowed upon being called.
 Who knew that we have tried several other unsuccessful solutions,

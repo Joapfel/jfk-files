@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26907.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1960 8.3.51 Washington, D.C. 20506
 

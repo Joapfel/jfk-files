@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24424.png
-
-Convert to Markdowntaken during the Bay of Pigs operation) present Castro with a
+taken during the Bay of Pigs operation) present Castro with a
 contaminated diving suit* (Colby, 5/21, pp. 38-39).
 
 The Inspector General's Report dates this

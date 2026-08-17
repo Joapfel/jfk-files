@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23703.png
-
-Convert to Markdownintelligence information that this would not, you know, that at the same time the Agency could be directed to perform such other collection tasks as directed by the NSC.
+intelligence information that this would not, you know, that at the same time the Agency could be directed to perform such other collection tasks as directed by the NSC.
 
 In other words, the point is that certainly they do some overt collection. For example, foreign broadcast information service is done by them as a service and so forth. But at the same time the point of giving the CIA a charter is to give it a charter for its primary mission and as set forth NSCID 5, for example, that mission is to conduct espionage.
 

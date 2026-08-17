@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25189.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>McCone<br/>CIA Subcommittee on House Armed Services</td><td>Sept. 23, 1963</td><td>DIEM</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>McCone<br/>CIA Subcommittee on House Armed Services</td><td>Sept. 23, 1963</td><td>DIEM</td></tr></tbody></table>
 
 OCCURRENCE:
 

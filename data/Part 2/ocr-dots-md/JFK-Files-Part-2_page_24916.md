@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24916.png
-
-Convert to MarkdownSchneider
+Schneider
 
 The issue here is not whether the objectives of the CIA were contrary to those of the Administration. It is clear that President Nixon desired to prevent Allende from assuming office, even if that required fomenting and supporting a coup in Chile. Nor did White House officials suggest that tactics employed (including as a first step to kidnapping General Schneider) would have been unacceptable as a matter principle. Rather, the issue posed is whether White House officials were consulted, and thus given an opportunity to weigh such matters as risk and likelihood of success, and to apply policy-making judgments to particular tactics. The record indicates that up to October 15 they were; after October 15 there is some doubt.
 

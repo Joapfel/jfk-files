@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22045.png
-
-Convert to MarkdownNOSENKO further reported to CIA that the KGB case officer working against MORONE was NOSENKO's subordinate and specialist in code clerk operations, KOSOLAPOV. NOSENKO read the file on MORONE and saw his visa photograph, but he never saw him in person and so could not provide a physical description. NOSENKO had discussed the MORONE case with KOSOLAPOV and GRYAZNOV on a number of occasions.
+NOSENKO further reported to CIA that the KGB case officer working against MORONE was NOSENKO's subordinate and specialist in code clerk operations, KOSOLAPOV. NOSENKO read the file on MORONE and saw his visa photograph, but he never saw him in person and so could not provide a physical description. NOSENKO had discussed the MORONE case with KOSOLAPOV and GRYAZNOV on a number of occasions.
 
 NOSENKO said that the KGB agents working on MORONE were:
 

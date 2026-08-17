@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21163.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 operations against code clerks and for some months against
 service attaches; case officer for the Embassy security

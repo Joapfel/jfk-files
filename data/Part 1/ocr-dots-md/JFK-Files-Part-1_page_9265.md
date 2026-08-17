@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9265.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Oct. 1950
 

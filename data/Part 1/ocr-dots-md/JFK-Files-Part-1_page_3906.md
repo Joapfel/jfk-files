@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3906.png
-
-Convert to MarkdownU-GA-21693/14
+U-GA-21693/14
 Att. No. 24 to UFGA-21693
 
 SUBJECT: FORS, Emilio (E.R.) and Cubo, Cefuquita (F.S.C.) - 21693/14

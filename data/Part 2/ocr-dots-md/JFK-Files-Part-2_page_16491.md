@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16491.png
-
-Convert to MarkdownIn order to do this they would have to be disciplined and they would have at least some philosophical replacement of the system. This is not to say that this itself will free the individual. The individual will not be free until the state does not exist at all, and I think I don't want to be redundant. But this cannot be replaced by the anarcho-right away.
+In order to do this they would have to be disciplined and they would have at least some philosophical replacement of the system. This is not to say that this itself will free the individual. The individual will not be free until the state does not exist at all, and I think I don't want to be redundant. But this cannot be replaced by the anarcho-right away.
 
 As far as the blacks are concerned, we are not hung up on attempting to actualize or express our individual souls because we're repressed not as individuals but as a whole group of people. Our evolution, or our liberation, is based first on freeing our group. Freeing our group to a certain degree. After we gain our liberation, our people will not be free. I can imagine in the future that the blacks will rebel against the organized leadership that the blacks themselves have structured. They will see there will be limitations, limiting their individual selves, and limiting their freedom of expression. But this is only after they become free as a group.
 

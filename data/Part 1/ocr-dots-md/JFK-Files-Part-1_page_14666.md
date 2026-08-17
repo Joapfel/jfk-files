@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14666.png
-
-Convert to Markdown<table><tr><td rowspan="2">FORM<br/>3-62</td><td colspan="5">610 USE PREVIOUS EDITIONS</td></tr><tr><td>☑X SECRET</td><td>☐ CONFIDENTIAL</td><td>☐ INTERNAL USE ONLY</td><td>☐ UNCLASSIFIED</td></tr></table>
+<table><tr><td rowspan="2">FORM<br/>3-62</td><td colspan="5">610 USE PREVIOUS EDITIONS</td></tr><tr><td>☑X SECRET</td><td>☐ CONFIDENTIAL</td><td>☐ INTERNAL USE ONLY</td><td>☐ UNCLASSIFIED</td></tr></table>
 
 - [ ] UNCLASSIFIED
 - [ ] INTERNAL USE ONLY

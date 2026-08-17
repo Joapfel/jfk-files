@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14267.png
-
-Convert to MarkdownReferring to Panama, Mr. Helms observed that CIA appeared for the moment to have backed the right candidate -- Robles.
+Referring to Panama, Mr. Helms observed that CIA appeared for the moment to have backed the right candidate -- Robles.
 
 With reference to Brazil, Mr. Helms said that the coup was Brazil - inspired and spontaneous, not a U. S. operation. He added that Brazil had come close to being lost to the Communists through subversion from the top (Goulart).
 

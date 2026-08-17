@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32409.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ship of a revolution in Brazil; however, the Brazilian Government
 has not taken public note of the document.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32733.png
-
-Convert to Markdownnaval units had participated in the inter-American combined quarantine force -- i.e., Argentina, Dominican Republic, and the United States -- notified the C.O.A.S./O.C. on November 30 that the operations of the quarantine force had been terminated. During this period, it had not been necessary to take up the offers of airport and seaport facilities and other types of assistance made by other hemispheric determination and solidarity.
+naval units had participated in the inter-American combined quarantine force -- i.e., Argentina, Dominican Republic, and the United States -- notified the C.O.A.S./O.C. on November 30 that the operations of the quarantine force had been terminated. During this period, it had not been necessary to take up the offers of airport and seaport facilities and other types of assistance made by other hemispheric determination and solidarity.
 
 As the negotiations between the United States and the Soviet Union in New York progressed, the United States kept the C.O.A.S./O.C. fully informed of developments. The C.O.A.S./O.C. in the meantime withheld taking any further action with regard to the crisis until these talks were completed.
 

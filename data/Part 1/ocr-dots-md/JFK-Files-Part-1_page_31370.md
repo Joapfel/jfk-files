@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31370.png
-
-Convert to MarkdownCONFIDENTIAL.
+CONFIDENTIAL.
 
 TO : Chief, Covort Personnel Branch
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8506.png
-
-Convert to MarkdownJF/March 17, 1968
+JF/March 17, 1968
 
 SUBJECT: VALENTIN LOGUINOV
 

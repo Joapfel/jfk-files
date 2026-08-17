@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18477.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 JGD: 19 NOV 65

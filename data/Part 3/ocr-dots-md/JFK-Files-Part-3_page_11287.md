@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11287.png
-
-Convert to MarkdownEND
+END
 
 CATEGORIZED BY SPEC. XDE CATEGORY S. I., LELIMIT.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19798.png
-
-Convert to MarkdownCOPY
+COPY
 
 Chief, Special Security Division
 Director of Security

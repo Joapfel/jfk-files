@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10840.png
-
-Convert to MarkdownNK 89-56
+NK 89-56
 
 Upon arrival, CUNNINGHAM was again in the foyer,
 as if expecting someone. SA WALLER again identified himself

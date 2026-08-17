@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24431.png
-
-Convert to MarkdownThe case officer later recalled that AMLASH-1 did not "think much of the device," and complained that CIA could surely "come up with something more sophisticated than that" (I.G., p. 93a).
+The case officer later recalled that AMLASH-1 did not "think much of the device," and complained that CIA could surely "come up with something more sophisticated than that" (I.G., p. 93a).
 
 The case officer recalled offering the pen to AMLASH-1, but could not remember whether AMLASH-1 threw it away then or took it with him (Case Officer 2, pp. 105, 110). He did recall that AMLASH-1 said he would not take the pen back to Cuba, but did not know what AMLASH-1 in fact did with the pen (Case Officer 2, pp. 110-111).
 

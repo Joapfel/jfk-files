@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11270.png
-
-Convert to Markdown(i) Subjects missing or out of country may be recommended for the security index provided instructions set forth in 87D 6b (3) and (1) are followed. Forms FD-122 submitted on subjects should include data required in 87D 7b (6) (b) IV below.
+(i) Subjects missing or out of country may be recommended for the security index provided instructions set forth in 87D 6b (3) and (1) are followed. Forms FD-122 submitted on subjects should include data required in 87D 7b (6) (b) IV below.
 
 (j) When form FD-122 is submitted recommending a security index card be prepared on a subject who is of Chinese extraction, the words "Other - Chinese" must be included in the space on the form calling for a statement as to the subject's race. When form FD-122 is submitted recommending that a security index card be prepared on a person who is not of Chinese extraction but who has shown definite sympathies with communist China, the form should include under "Miscellaneous" a statement to the effect "sympathetic to Communist China."
 

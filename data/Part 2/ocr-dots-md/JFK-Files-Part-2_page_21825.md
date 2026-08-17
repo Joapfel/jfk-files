@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21825.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Sarno. No, sir.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11657.png
-
-Convert to MarkdownSTC81
+STC81
 
 Chief, Foreign Division T
 Chief of Station, Santiago

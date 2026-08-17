@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2260.png
-
-Convert to Markdown20 February 1950
+20 February 1950
 
 TO: Employees Division
 

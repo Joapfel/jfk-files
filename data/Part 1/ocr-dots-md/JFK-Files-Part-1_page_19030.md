@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19030.png
-
-Convert to MarkdownSECRET
+SECRET
 
 activities in 1938. He refused to permit the raising of white flags when the Allied forces arrived in 1945. Despite his past, he won 15,000 votes in Karlsruhe. In one commune in the northern end of the state, the NPD gained an absolute majority with 55 percent of the vote; this was the home of an NPD candidate named Valentin Goetz, who had been voted out as Buergermeister two years before.
 

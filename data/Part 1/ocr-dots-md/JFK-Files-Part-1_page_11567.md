@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11567.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th></th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td>MARKED FOR INDEXING</td></tr><tr><td rowspan="3">OF STATION, Mexico City<br/>Western Hemisphere Division<br/><br/>OF STATION, Guatemala City<br/><br/>OF LIRING-3 Operation<br/><br/>ACTION RELEVANT TO THE following</td><td>XX</td><td>NO INDEXING REQUIRED<br/><br/>ONLY QUALIFIED DELEGATIONS CAN JUDGE INDEXING</td></tr><tr><td>MICROFILM</td><td></td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th></th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td>MARKED FOR INDEXING</td></tr><tr><td rowspan="3">OF STATION, Mexico City<br/>Western Hemisphere Division<br/><br/>OF STATION, Guatemala City<br/><br/>OF LIRING-3 Operation<br/><br/>ACTION RELEVANT TO THE following</td><td>XX</td><td>NO INDEXING REQUIRED<br/><br/>ONLY QUALIFIED DELEGATIONS CAN JUDGE INDEXING</td></tr><tr><td>MICROFILM</td><td></td></tr></tbody></table>
 
 JAN 15 1969
 

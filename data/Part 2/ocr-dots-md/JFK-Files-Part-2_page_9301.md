@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9301.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 B. Local Leaders and Membership Totals
 

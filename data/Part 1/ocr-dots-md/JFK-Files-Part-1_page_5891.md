@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5891.png
-
-Convert to Markdown<table><tr><td colspan="2">OFFICE MESSAGE</td></tr><tr><td>LDP</td><td></td></tr><tr><td>NAME (PERSON CALLING)</td><td>IN PERSON</td></tr><tr><td>A. M.</td><td>TELEPHONE</td></tr><tr><td colspan="2">P.O. BOX</td></tr><tr><td>NO. DISCARD</td><td>PLEASE CALL</td></tr><tr><td>CHECK OFF</td><td>RECEIVED BY</td></tr><tr><td>BEMEAKS:</td><td>Plexi write up a POC. I've already telephoned you to see if there is anything else I can do for you.</td></tr><tr><td>FORM NO.</td><td>36-9</td></tr><tr><td>SEP 1946</td><td></td></tr></table>
+<table><tr><td colspan="2">OFFICE MESSAGE</td></tr><tr><td>LDP</td><td></td></tr><tr><td>NAME (PERSON CALLING)</td><td>IN PERSON</td></tr><tr><td>A. M.</td><td>TELEPHONE</td></tr><tr><td colspan="2">P.O. BOX</td></tr><tr><td>NO. DISCARD</td><td>PLEASE CALL</td></tr><tr><td>CHECK OFF</td><td>RECEIVED BY</td></tr><tr><td>BEMEAKS:</td><td>Plexi write up a POC. I've already telephoned you to see if there is anything else I can do for you.</td></tr><tr><td>FORM NO.</td><td>36-9</td></tr><tr><td>SEP 1946</td><td></td></tr></table>
 
 U. S. DEPARTMENT PRINTING OFFICE 10-62876-1
 

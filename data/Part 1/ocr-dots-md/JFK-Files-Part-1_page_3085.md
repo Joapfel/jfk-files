@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3085.png
-
-Convert to MarkdownSECRET
+SECRET
 
 14/08/60 IN70606
 

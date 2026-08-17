@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30459.png
-
-Convert to MarkdownSECRET
+SECRET
 
 or anything else what the normal station procedure was regard-
 ing retention of tapes, although, as I did indicate earlier,

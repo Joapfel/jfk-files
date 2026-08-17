@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32457.png
-
-Convert to Markdown14-0000
+14-0000
 
 STANDARD FORM 61
 REVISED JUNE 1987

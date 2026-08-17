@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13577.png
-
-Convert to Markdownsmr.
+smr.
 
 TOP SECRET
 

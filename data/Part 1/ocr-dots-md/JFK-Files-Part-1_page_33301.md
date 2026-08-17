@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33301.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. FILE1 DEFER, E2 IMPDET
 

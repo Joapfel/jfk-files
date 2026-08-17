@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6020.png
-
-Convert to MarkdownCONTINUED
+CONTINUED
 
 VENEZUELA
 

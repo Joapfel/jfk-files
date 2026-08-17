@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23874.png
-
-Convert to Markdown1. of the idea that academics be off limits, period, and students
+1. of the idea that academics be off limits, period, and students
 2. in order to protect the integrity of our entire academic
 3. community, and it is the realization that if we continued to
 4. close the possibilities for recruitment, and the adverse

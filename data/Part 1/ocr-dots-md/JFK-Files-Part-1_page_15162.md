@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15162.png
-
-Convert to MarkdownTranslation from German
+Translation from German
 
 Consulado del Uruguay
 En

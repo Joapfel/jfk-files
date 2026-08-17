@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6359.png
-
-Convert to MarkdownLetter to Distribution
+Letter to Distribution
 
 RE: COUNTERILLUSTRATION PROGRAM
 107-0-4

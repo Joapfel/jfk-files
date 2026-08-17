@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20764.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">
      Date of Report

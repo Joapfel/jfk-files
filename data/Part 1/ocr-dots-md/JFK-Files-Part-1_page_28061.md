@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28061.png
-
-Convert to MarkdownRAE L. FREDERICK Co.
+RAE L. FREDERICK Co.
 
 Foreign Service Officer and Foreign Service Reserve
 Officer Schedule

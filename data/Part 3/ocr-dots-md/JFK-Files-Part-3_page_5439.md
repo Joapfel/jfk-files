@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5439.png
-
-Convert to Markdownstatute by investigating it. But more than anything else if we
+statute by investigating it. But more than anything else if we
 have no business in it we shouldn't be checking it out and we
 do not.
 

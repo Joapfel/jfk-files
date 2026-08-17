@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8961.png
-
-Convert to MarkdownREC-102
+REC-102
 
 JUL 15 1975
 

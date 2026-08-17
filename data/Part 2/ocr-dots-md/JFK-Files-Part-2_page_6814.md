@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6814.png
-
-Convert to MarkdownAs we carry out our program to declassify Kennedy assassination documents, our goal will be to release as many documents as possible. In fact, I recently approved new CIA declassification guidelines for our Historical Review Program which specifically direct a presumption in favor of declassification. I believe we can be very forward leaning in making these documents available to the public, and I have instructed the Historical Review Group to take this attitude to heart.
+As we carry out our program to declassify Kennedy assassination documents, our goal will be to release as many documents as possible. In fact, I recently approved new CIA declassification guidelines for our Historical Review Program which specifically direct a presumption in favor of declassification. I believe we can be very forward leaning in making these documents available to the public, and I have instructed the Historical Review Group to take this attitude to heart.
 
 To understand the magnitude of the effort involved in reviewing these documents for declassification, it is important to place them in some context. The CIA's collection of documents related to the assassination of President Kennedy consists of approximately 250,000-300,000 pages of material. This includes 64 boxes of copies and originals of information provided to the Warren Commission and the House Select Committee on Assassinations and 17 boxes of material on Lee Harvey Oswald accumulated after President Kennedy's assassination.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33817.png
-
-Convert to Markdown(e) British Broadcasting Corporation, where applicable,
+(e) British Broadcasting Corporation, where applicable,
 (f) Voice of America, where applicable,
 (g) Special confidential sources.
 

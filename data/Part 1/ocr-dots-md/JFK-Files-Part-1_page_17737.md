@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17737.png
-
-Convert to Markdown479-
+479-
 
 Salida.- GUZMAN pide comunicarse a papeleria. HF dice que llame en as tarda porque la señora salió a comer.- 499-
 

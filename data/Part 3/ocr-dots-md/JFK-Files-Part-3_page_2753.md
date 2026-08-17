@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2753.png
-
-Convert to Markdown1949
+1949
 
 these instructions were given to an agent or an informant?
 

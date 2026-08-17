@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30511.png
-
-Convert to MarkdownG. E. M. F. D. M. T. S.
+G. E. M. F. D. M. T. S.
 
 P. . J. ST C. A. ND
 A. N G 500

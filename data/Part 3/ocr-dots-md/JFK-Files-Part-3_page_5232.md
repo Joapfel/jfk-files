@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5232.png
-
-Convert to Markdown(3) You should stress the necessity of proper utilization of Title 3 installations as other field divisions have been very successful in this regard in obtaining a backlog of potential statistical accomplishments.
+(3) You should stress the necessity of proper utilization of Title 3 installations as other field divisions have been very successful in this regard in obtaining a backlog of potential statistical accomplishments.
 
 (4) You should concentrate on quality cases which have proactive potential which will obtain the desired statistical accomplishments.
 

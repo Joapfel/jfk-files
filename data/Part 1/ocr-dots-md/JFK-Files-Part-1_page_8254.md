@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8254.png
-
-Convert to Markdown<table><tr><td>SECTION XIII</td></tr></table>
+<table><tr><td>SECTION XIII</td></tr></table>
 
 <table><caption>BROTHERS AND SISTERS</caption><thead><tr><th rowspan="2">FULL NAME</th><th colspan="2">SES.</th><th rowspan="2">YEAR OF BIRTH</th><th rowspan="2">PLACE OF BIRTH</th><th rowspan="2">NATIONALITY AT BIRTH*</th></tr><tr><th>M</th><th>F</th></tr></thead><tbody><tr><td>Alfred A. Lopez</td><td>X</td><td></td><td>1920</td><td>Calirolaus, Mexico</td><td>Mexican</td></tr><tr><td>Joseph P. Lopez</td><td>X</td><td></td><td>1918</td><td>El Paso, Texas</td><td>American</td></tr><tr><td>Mrs. Beatrice Gonzalez</td><td></td><td>X</td><td>1930</td><td>Denver, Colorado</td><td>American</td></tr></tbody></table>
 

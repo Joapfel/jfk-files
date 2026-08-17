@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11439.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 The handling agent assisted Dorsett in preparing a letter announcing his resignation from the UKA and his formation of the CKKKK. This letter invited Dorsett's friends in the Klan to join him in the CKKKK. A total of 41 chapters of the CKKKK were chartered; however, all of them did not become effective operating chapters.
 

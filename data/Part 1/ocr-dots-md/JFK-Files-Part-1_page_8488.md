@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8488.png
-
-Convert to MarkdownTHE CONSULAR SECTION OF THE USSR EMBASSY IN MEXICO CITY
+THE CONSULAR SECTION OF THE USSR EMBASSY IN MEXICO CITY
 
 The consular section consists of three persons:
 

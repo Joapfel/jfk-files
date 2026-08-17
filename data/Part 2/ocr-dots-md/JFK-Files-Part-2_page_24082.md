@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24082.png
-
-Convert to Markdownwas said to have been the basis upon which the Special Group agreed to the "limited supply" of small arms, did not mention assassination. To the contrary, it spoke of "sabotage potential" and stated that there "would be no thought of toppling the [government] by any such minor measure [as the supplying of small arms]."
+was said to have been the basis upon which the Special Group agreed to the "limited supply" of small arms, did not mention assassination. To the contrary, it spoke of "sabotage potential" and stated that there "would be no thought of toppling the [government] by any such minor measure [as the supplying of small arms]."
 
 On February 17, 1961, Richard Bissell sent a memorandum on the Dominican Republic to McGeorge Bundy. Bissell knew that the dissidents planned to assassinate Trujillo, but his memorandum did not mention assassination. It indicated that the dissidents' "plan of action" included arms for 300 men. Those involved agreed that support of this nature suggested a non-targeted paramilitary plan, not an assassination.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35653.png
-
-Convert to Markdown<table><tr><td>LAGO, VICENTE /DR/</td><td>019-006-050/03</td></tr><tr><td>SEX M DOB ?</td><td>UFGA-12894</td></tr><tr><td>CIT CUBA</td><td>17 DEC 63</td></tr><tr><td>OCC DOCTOR</td><td>P13</td></tr><tr><td>A CUBA</td><td></td></tr><tr><td colspan="2">DEVOTES HIMSELF EXCLUSIVELY TO HIS PRO-</td></tr><tr><td colspan="2">FESSION. CONTACT OF 201-332675.</td></tr></table>
+<table><tr><td>LAGO, VICENTE /DR/</td><td>019-006-050/03</td></tr><tr><td>SEX M DOB ?</td><td>UFGA-12894</td></tr><tr><td>CIT CUBA</td><td>17 DEC 63</td></tr><tr><td>OCC DOCTOR</td><td>P13</td></tr><tr><td>A CUBA</td><td></td></tr><tr><td colspan="2">DEVOTES HIMSELF EXCLUSIVELY TO HIS PRO-</td></tr><tr><td colspan="2">FESSION. CONTACT OF 201-332675.</td></tr></table>
 
 FLD INDEX ONLY
 

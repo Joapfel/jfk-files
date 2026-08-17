@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24755.png
-
-Convert to MarkdownLEONOV is believed still to have been in contact with
+LEONOV is believed still to have been in contact with
 CARDENAS as recently as March 1967.⁵ In recent years,
 CARDENAS has been active in the Movimiento Latinoamericano
 de Liberacion, a Latin American revolutionary organization

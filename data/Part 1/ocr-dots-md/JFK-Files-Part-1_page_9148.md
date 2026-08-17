@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9148.png
-
-Convert to MarkdownJuly 9
+July 9
 
 Breakfast 1.70
 CotAREA 1.40

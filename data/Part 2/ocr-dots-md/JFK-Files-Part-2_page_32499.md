@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32499.png
-
-Convert to Markdownthat France would have been in an even deeper morass if her military forces had managed with the British to occupy Cairo.)
+that France would have been in an even deeper morass if her military forces had managed with the British to occupy Cairo.)
 
 4. How feasible is it to control subversion at the source without destroying the Communist State?
 

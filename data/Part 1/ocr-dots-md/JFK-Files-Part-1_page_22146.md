@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22146.png
-
-Convert to Markdowna few minutes, the police chief remarked that it was in his power
+a few minutes, the police chief remarked that it was in his power
 to dismiss the whole affair, provided JOHNSON would do him a
 favor. The favor turned out to be a signed commitment that he
 would not speak ill of the Soviet Union when he returned to the

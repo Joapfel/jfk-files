@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19597.png
-
-Convert to Markdown**Hudson, IL**
+**Hudson, IL**
 OCCUPATION LAST EMPLOYER
 EMPLOYER'S OR OWN BUSINESS ADDRESS St. & No. City State Country
 MILITARY SERVICE FROM ______ TO ______ BRANCH OF SERVICE

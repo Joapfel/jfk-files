@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6108.png
-
-Convert to Markdown# SECTION 122. RACIAL MATTERS
+# SECTION 122. RACIAL MATTERS
 
 4. Informants and interviews
 a. In order that the Bureau may discharge its responsibilities, it is mandatory that information be obtained regarding all pertinent Klan or hate organization activities. In this regard it is necessary that informants be developed in all such organizations which meet the criteria set forth in 3a above. Efforts in this regard must be discreet.

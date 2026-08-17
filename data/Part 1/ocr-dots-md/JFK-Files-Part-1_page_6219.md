@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6219.png
-
-Convert to Markdown<table><tr><td>esen una Oficina para el Movimiento Estudiantil Venezuelano.</td></tr></table>
+<table><tr><td>esen una Oficina para el Movimiento Estudiantil Venezuelano.</td></tr></table>
 
 <table><tr><td>NO VINE /. SL. SERVIDO, SINO A SERVIR</td></tr></table>
 

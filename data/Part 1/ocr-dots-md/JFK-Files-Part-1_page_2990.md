@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2990.png
-
-Convert to Markdown"Lillian" 183, 184
+"Lillian" 183, 184
 LITTELL, Wallace L. 314
 LOPUKHOV, Yury Aleksandrovich 116
 "LUCH" 110

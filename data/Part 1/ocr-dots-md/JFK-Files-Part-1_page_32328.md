@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32328.png
-
-Convert to Markdown# Continuation of Section E
+# Continuation of Section E
 
 the intelligence community for reports acquired through Mr. Flores. Subject's staff duties include desk chief responsibilities for support and guidance to field programs including the research and targetting required to conduct an effective recruitment program. Although such duties requiring supervision are new to him, he is also making progress in this capacity. With proper guidance and assistance, he will develop into a most effective supervisor.
 

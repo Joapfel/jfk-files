@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14260.png
-
-Convert to MarkdownLegal Counsel to Mr. Adams
+Legal Counsel to Mr. Adams
 
 Re: SENSTUDY 75
 

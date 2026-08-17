@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15792.png
-
-Convert to Markdownat 1222 West 109th Street and is manned by SAMUEL LEROY LATSON. This office operates by a pay telephone located near there and does not have authority to contact the National Office of the BPP. This location is merely used for the BPP newspaper distribution and to keep the name of the BPP known on Chicago's South side.
+at 1222 West 109th Street and is manned by SAMUEL LEROY LATSON. This office operates by a pay telephone located near there and does not have authority to contact the National Office of the BPP. This location is merely used for the BPP newspaper distribution and to keep the name of the BPP known on Chicago's South side.
 
 1/31/70)
 

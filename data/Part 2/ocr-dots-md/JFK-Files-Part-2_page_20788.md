@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20788.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 # F. Membership and Finances
 

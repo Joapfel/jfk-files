@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8402.png
-
-Convert to MarkdownCONTACT REPORT:
+CONTACT REPORT:
 
 SUBJECT: LIROBBINS/1 P-11665
 

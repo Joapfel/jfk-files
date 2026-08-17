@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10614.png
-
-Convert to Markdownof America, Inc., in North Carolina, and published both photos
+of America, Inc., in North Carolina, and published both photos
 and names of a number of members. So far as has been learned
 from informants, this had very little adverse effect upon the
 organization. It was alleged that two to five members were

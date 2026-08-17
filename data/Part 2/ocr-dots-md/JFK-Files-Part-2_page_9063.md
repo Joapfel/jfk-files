@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9063.png
-
-Convert to MarkdownSECRET
+SECRET
 
 How much information CIA has developed over
 the years concerning our operational activity in

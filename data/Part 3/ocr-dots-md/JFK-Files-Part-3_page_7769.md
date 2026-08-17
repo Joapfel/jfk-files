@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7769.png
-
-Convert to Markdown# OFFICIAL RECOGNITION OF INTELLIGENCE INVESTIGATION
+# OFFICIAL RECOGNITION OF INTELLIGENCE INVESTIGATION
 
 Although the cold facts indicate that the Presidential directives dating back to 1939 do not convey any authority to the FBI which it did not have already by legislative enactment, it is obvious that intelligence-type investigations are necessary in the protection of the national security. Various documents emphasize the necessity for developing intelligence data. For example, the report of the National Advisory-Commission on Civil Disorders (Kerner Commission, 1968) emphasized that law enforcement organizations must develop the means to obtain adequate intelligence for planning purposes and that law enforcement should "gather, evaluate, analyze and disseminate information on potential as well as actual civil disorders."
 

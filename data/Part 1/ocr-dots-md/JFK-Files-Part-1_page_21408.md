@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21408.png
-
-Convert to MarkdownTHIS BLANK FORM IS CLASSIFIED:
+THIS BLANK FORM IS CLASSIFIED:
 
 SECRET
 

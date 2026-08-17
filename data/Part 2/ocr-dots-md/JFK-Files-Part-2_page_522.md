@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_522.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE TWO MEXICO CITY 8932 SECRET
 

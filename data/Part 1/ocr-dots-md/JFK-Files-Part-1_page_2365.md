@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2365.png
-
-Convert to Markdowncan differ as to the weight which should be given to the value of this
+can differ as to the weight which should be given to the value of this
 type of information.
 
 NOSENKO has furnished information concerning SCD, KGB,

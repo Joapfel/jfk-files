@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24152.png
-
-Convert to MarkdownChief of Station, Paris/LCPIPIT
+Chief of Station, Paris/LCPIPIT
 
 XX
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6153.png
-
-Convert to Markdown14-0000
+14-0000
 
 25. Report dated 9 January 1969, Cincinnati, Ohio; Field office file CI 100-15928; Bufile 105-142056. Subject: Carl Preston Oglesby, Jr.
 

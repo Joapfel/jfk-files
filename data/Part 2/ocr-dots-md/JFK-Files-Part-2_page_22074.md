@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22074.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>TREICHLER, Ray<br>TSD</td><td rowspan="2">March-July 60</td><td rowspan="2">CUBA (Misc. Schemes)</td></tr><tr><td>BORTNER, Henry<br>ESTERLINE, Jake</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>TREICHLER, Ray<br>TSD</td><td rowspan="2">March-July 60</td><td rowspan="2">CUBA (Misc. Schemes)</td></tr><tr><td>BORTNER, Henry<br>ESTERLINE, Jake</td></tr></tbody></table>
 
 OCCURRENCE:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35541.png
-
-Convert to MarkdownRADIO ! W YORK WORLDWII . WRUL .
+RADIO ! W YORK WORLDWII . WRUL .
 
 4 WEST 50TH STREET, NEW YORK 18. N. Y.
 

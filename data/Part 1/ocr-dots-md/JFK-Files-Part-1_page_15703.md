@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15703.png
-
-Convert to MarkdownSECRET
+SECRET
 
 He also has invented various labor saving and photomechanical devices. He has had practical experience in the forgery and fabrication of documents. WIROGUE/1 was brought to the U.S. black for training in connection with the AEsSENTINEL operation. It is contemplated that he will be flown black to West Germany where he will be surfaced as an Austrian citizen with a legend of having worked in various concerns in West Germany subsequent to World War II. He will proceed to Leopoldville where, with a $4,000 operational loan, he will open a small photo or repair shop which it is expected will give him a degree of freedom of movement and provide for covert contact. It is estimated that there is a need for technicians in the Republic of Congo at the present time. The project has been coordinated with the Chief of Station, Leopoldville.
 

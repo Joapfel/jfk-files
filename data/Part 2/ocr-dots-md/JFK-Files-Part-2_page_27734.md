@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27734.png
-
-Convert to Markdown NW 88326
+NW 88326
 
 DocId:32239471 Page 20
 

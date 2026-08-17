@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20829.png
-
-Convert to Markdown1 - Mr. R. L. Shackelford (FS)
+1 - Mr. R. L. Shackelford (FS)
 
 1 - Mr. W. H. Floyd
 

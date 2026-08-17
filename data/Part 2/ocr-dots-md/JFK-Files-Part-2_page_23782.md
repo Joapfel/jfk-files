@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23782.png
-
-Convert to Markdown1 and inquiry into it has been thorough, and I think we know this
+1 and inquiry into it has been thorough, and I think we know this
 
 2 well. There is no dispute from the Agency.
 

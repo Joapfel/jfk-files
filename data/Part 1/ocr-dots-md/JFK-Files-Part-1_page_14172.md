@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14172.png
-
-Convert to Markdown# Intelligence Information Report
+# Intelligence Information Report
 
 DIRECTORATE OF
 POLICY

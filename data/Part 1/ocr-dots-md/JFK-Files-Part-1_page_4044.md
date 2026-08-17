@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4044.png
-
-Convert to Markdown**Construct!n Equipment:**
+**Construct!n Equipment:**
 
 1 D-7 Caterpillar bulldozer;
 

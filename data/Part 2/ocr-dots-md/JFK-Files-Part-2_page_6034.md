@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6034.png
-
-Convert to MarkdownMifflin. Usually described as "the classic work on research and writing," it has been a Book-of-the-Month choice and a selection of the Quality Paperback Book Club. Graff's best-known general work is *The Tuesday Cabinet: Deliberation and Decision on Peace and War* under Lyndon B. Johnson (Prentice-Hall, 1970), which was based on extensive conversations over a period of years with the President and his principal advisors, chiefly on the subject of the Vietnam War.
+Mifflin. Usually described as "the classic work on research and writing," it has been a Book-of-the-Month choice and a selection of the Quality Paperback Book Club. Graff's best-known general work is *The Tuesday Cabinet: Deliberation and Decision on Peace and War* under Lyndon B. Johnson (Prentice-Hall, 1970), which was based on extensive conversations over a period of years with the President and his principal advisors, chiefly on the subject of the Vietnam War.
 
 A well-established standard reference work is Graff's The Presidents: A Reference History (Scribner, 1984). On invitation, Graff presented a copy to President Ronald Reagan for placement in the White House Library.
 

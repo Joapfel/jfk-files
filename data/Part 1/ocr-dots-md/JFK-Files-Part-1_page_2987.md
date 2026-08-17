@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2987.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 GAVRILENKO, Nikolay Aleksandrovich 159, 211, 222
 GAZARYAN, Oganes 400

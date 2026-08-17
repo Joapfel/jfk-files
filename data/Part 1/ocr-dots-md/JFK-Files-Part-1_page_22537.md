@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22537.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 Special Group on this date:
 

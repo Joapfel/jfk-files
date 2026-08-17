@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12048.png
-
-Convert to MarkdownAssistant Director C. D. Brennan
+Assistant Director C. D. Brennan
 (1/25/71 - WAB:hke)
 
 The comments of the Inspector are noted.

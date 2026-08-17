@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24315.png
-
-Convert to Markdown(3) Non-U.S. Government securities; list specific issues recommended for purchase.
+(3) Non-U.S. Government securities; list specific issues recommended for purchase.
 
 (c) Maximum amount recommended for investment in each type.
 

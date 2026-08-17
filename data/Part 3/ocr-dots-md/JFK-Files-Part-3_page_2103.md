@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2103.png
-
-Convert to MarkdownAT 66-2242
+AT 66-2242
 
 Atlanta has reviewed pertinent files as requested by FBIHQ, and the information sought by the HSCA is set forth below in chart form:
 

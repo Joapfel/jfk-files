@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14455.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>TO</td><td>Chief of Station, Madrid</td><td></td><td>X</td><td>NO INQUIRIES REQUIRED</td></tr><tr><td>FROM</td><td>Chief of Station, WU/Miami</td><td></td><td></td><td>ONLY QUALIFIED OFFICERS CAN AMEND INDICATIONS</td></tr><tr><td>PROJECT</td><td>Chief, Western Hemisphere Division</td><td></td><td>MK20F/48</td><td></td></tr><tr><td colspan="5">ACTION REQUIRED: REFERENCES</td></tr><tr><td colspan="5">Reference: OSMW-11726</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30328.png
-
-Convert to Markdown7 MAR 1967
+7 MAR 1967
 
 MEMORANDUM FOR: Deputy Director of Security for Physical, Technical & Overseas Security
 

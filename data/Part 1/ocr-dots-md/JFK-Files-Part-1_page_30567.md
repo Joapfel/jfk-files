@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30567.png
-
-Convert to MarkdownINCOMING
+INCOMING
 
 Copy Nr: 3
 of 5 Copies

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13857.png
-
-Convert to Markdownencargo a "nuestros superiores, van a hablar ese asunto". -
+encargo a "nuestros superiores, van a hablar ese asunto". -
 RODRIGUEZ pregunta si tiene que hablar el Embajador HERNANDEZ
 ARMAS con el de ól y HF dice que sí, porque el de HF lo sabe
 y lo único que falta es que "ellos" hablen y traten eso para

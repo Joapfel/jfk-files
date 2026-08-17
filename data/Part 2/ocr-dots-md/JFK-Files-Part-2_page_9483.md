@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9483.png
-
-Convert to MarkdownSt. Leo's Church
+St. Leo's Church
 15th and Grand River
 feeding about seven children per day
 

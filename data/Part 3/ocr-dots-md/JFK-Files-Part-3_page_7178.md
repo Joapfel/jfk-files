@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7178.png
-
-Convert to Markdown1. the provision in section 102 (d) (3) of the National
+1. the provision in section 102 (d) (3) of the National
 2. Security Act of 1947 (50 U.S.C. 403(d)(3)) that
 3. "... that the agency shall have no police, subpena, law
 4. enforcement powers, or internal security functions...."

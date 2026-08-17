@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1826.png
-
-Convert to Markdownall matters involving liaison with the British or with Canadian,
+all matters involving liaison with the British or with Canadian,
 Australian and New Zealand intelligence services except matters
 concerned with Sigint and Comsec. Further, this officer should
 have full control authority over liaison exchange of information

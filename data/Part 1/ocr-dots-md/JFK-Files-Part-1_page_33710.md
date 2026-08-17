@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33710.png
-
-Convert to MarkdownCOPY
+COPY
 
 The delegation of the Council and the National Committee of Free Czechoslovakia, aware of the great importance for the Czechoslavak cause of a united political leadership of the Czechoslavak democratic exile, have discussed in a number of meetings a complex of political and organizational matters and have agreed unanimously on the following:
 

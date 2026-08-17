@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20044.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 RZF: 7 APR 66

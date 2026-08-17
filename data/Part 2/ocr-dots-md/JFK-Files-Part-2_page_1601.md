@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1601.png
-
-Convert to Markdown25 July 1978
+25 July 1978
 
 SUMMARY OF AGENCY EMPLOYMENT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22116.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>HARVEY, William<br>SILVER, Arnold<br>BISSELL, Richard</td><td>26 Jan. 1961</td><td>EXECUTIVE ACTION</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>HARVEY, William<br>SILVER, Arnold<br>BISSELL, Richard</td><td>26 Jan. 1961</td><td>EXECUTIVE ACTION</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

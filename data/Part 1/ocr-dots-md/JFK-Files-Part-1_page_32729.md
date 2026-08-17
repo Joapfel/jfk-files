@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32729.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- SECTION 19. RESIDENCES FOR PAST 15 YEARS (CONTINUED FROM PAGE 7) -->
         <tr>

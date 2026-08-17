@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3752.png
-
-Convert to MarkdownFROM:
+FROM:
 
 Headquarters Security Branch
 Security Duty Office

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24393.png
-
-Convert to MarkdownThe Concept of "Plausible Deniability"
+The Concept of "Plausible Deniability"
 
 Non-attribution for U. S. Government covert operations was the original and principal purpose of the so-called doctrine of plausible denial.
 

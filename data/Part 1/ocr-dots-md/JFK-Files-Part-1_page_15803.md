@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15803.png
-
-Convert to MarkdownParis, March 7, 1960
+Paris, March 7, 1960
 
 Very dear Eduardc,
 

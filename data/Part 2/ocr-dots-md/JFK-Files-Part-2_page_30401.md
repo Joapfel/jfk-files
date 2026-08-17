@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30401.png
-
-Convert to Markdowna field station might have a counter-person I described earlier and become interested in him because he did have some CI attraction or interest. The station itself or the division would open the 201 file. It would not be us. The CI Staff as a rule is not involved in that type of thing.
+a field station might have a counter-person I described earlier and become interested in him because he did have some CI attraction or interest. The station itself or the division would open the 201 file. It would not be us. The CI Staff as a rule is not involved in that type of thing.
 
 At this stage of the game since we are not operating and we are not out soliciting new contacts, we are not working in that sense of the term, we don't to my knowledge originate 201 files.
 

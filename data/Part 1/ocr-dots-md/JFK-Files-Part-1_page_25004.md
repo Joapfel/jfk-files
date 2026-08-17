@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25004.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">KOSTIKOV VALERIY VLADIMIROVICHKA-018973</td>

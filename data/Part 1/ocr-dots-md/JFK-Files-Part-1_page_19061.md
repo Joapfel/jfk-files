@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19061.png
-
-Convert to Markdown- 5 -
+- 5 -
 
 SEETZEN, Walter, geb. 29.11.1916 in Hamburg,
 wohnhaft: Bremen, Kulenkampffallee 162

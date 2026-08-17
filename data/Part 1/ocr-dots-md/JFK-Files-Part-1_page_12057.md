@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12057.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: ASST. DEPT. (DEFECTION & SECURITY)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8694.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>9.02</td>
     <td>Hábitos de comer</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2116.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO      : CCD
 FROM     : CSC

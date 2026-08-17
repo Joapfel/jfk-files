@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21843.png
-
-Convert to MarkdownThis review is presented in the following format:
+This review is presented in the following format:
 
 **Part II:** A summary of developments in the NOSENKO case from 1962 to the present, including his clandestine meetings with CIA, his defection, and the subsequent debriefings and interrogations.
 

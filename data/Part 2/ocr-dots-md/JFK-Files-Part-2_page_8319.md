@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8319.png
-
-Convert to MarkdownSECURITY : UNCLASSIFIED
+SECURITY : UNCLASSIFIED
 
 -5- Enclosure, ATHENS 588
 

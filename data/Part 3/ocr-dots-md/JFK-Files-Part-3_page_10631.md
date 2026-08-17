@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10631.png
-
-Convert to MarkdownTO: Director, FBI
+TO: Director, FBI
 
 FROM: SAC, Birmingham
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28985.png
-
-Convert to Markdown10. Canada's practical solutions to problems, great resources, skill and knowledge of equipment as well as all phases of military operations, contributed materially to the success of the Saigon Military Mission in advancing U.S. objectives. Cossin is a good, strong right-hand man in a tight spot and proved it in a number of tense situations during this assignment.
+10. Canada's practical solutions to problems, great resources, skill and knowledge of equipment as well as all phases of military operations, contributed materially to the success of the Saigon Military Mission in advancing U.S. objectives. Cossin is a good, strong right-hand man in a tight spot and proved it in a number of tense situations during this assignment.
 
 EDWARD G. LANEAL
 Colonel, USAF

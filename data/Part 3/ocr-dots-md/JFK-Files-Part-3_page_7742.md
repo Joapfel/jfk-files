@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7742.png
-
-Convert to MarkdownEXPANSION OF AUTHORITY CONTAINED IN 1939 DIRECTIVE
+EXPANSION OF AUTHORITY CONTAINED IN 1939 DIRECTIVE
 
 Further in his testimony Mr. Hoover was asked if any other agencies of the Government were covering the same work that emergency employees of the FBI were covering. He replied that he would like to leave the committee a publication listing the statutes, proclamations and Executive Orders pertaining to national defense matters. He then stated that the President in 1939 directed that all investments in organizations dealing with espionage, sabotage, subversive activities, and national defense activities, would be handled by the FBI except those arising within the Army or Navy. He went on to say that other governmental agencies were instructed under this Executive order to report to the FBI any information showing any violation dealing with national defense matters.
 

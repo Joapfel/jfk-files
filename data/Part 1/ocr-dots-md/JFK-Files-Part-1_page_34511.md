@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34511.png
-
-Convert to MarkdownJ 6 NOV 1972
+J 6 NOV 1972
 
 Received this date from an Authorized Government Representative four Bank Cashiers Checks drawn on the following banks:
 

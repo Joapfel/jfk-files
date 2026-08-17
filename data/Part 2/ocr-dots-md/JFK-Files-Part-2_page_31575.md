@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31575.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 march on November 13, 1965 from Berkeley through Oakland.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10553.png
-
-Convert to MarkdownSenator Walter D. Huddleston
+Senator Walter D. Huddleston
 
 NOTE: See Director, FBI, to the Attorney General memorandum dated 7/16/75, captioned, "Request for Information in FBI Files By Senators Gary Hart, Walter D. Huddleston, Charles McC. Mathias, Walter F. Mondale and Robert Morgan, Members of the U. S. Senate Select Committee on Intelligence Activities." DRW:mlh.
 

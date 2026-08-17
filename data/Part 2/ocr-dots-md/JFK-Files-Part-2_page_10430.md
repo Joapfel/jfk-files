@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10430.png
-
-Convert to MarkdownCIA INTERNAL USE ONLY
+CIA INTERNAL USE ONLY
 
 8 May 1973
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11116.png
-
-Convert to MarkdownCases of all security index subjects must be reopened or placed in a pending status for the purpose of preparing investigative reports in accordance with the schedule outlined in 87D 7f(2) and (7).]
+Cases of all security index subjects must be reopened or placed in a pending status for the purpose of preparing investigative reports in accordance with the schedule outlined in 87D 7f(2) and (7).]
 
 Office indices and any material channelized to the case file since the most recent report should be reviewed and the case brought up to date by appropriate investigation to determine subject's current activities.
 

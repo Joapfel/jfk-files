@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9444.png
-
-Convert to Markdown# ORGANIZING SELF DEFENSE
+# ORGANIZING SELF DEFENSE
 
 6 ON REVOLVERS
 

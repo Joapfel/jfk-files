@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26702.png
-
-Convert to Markdown19 MAY 65 in. 71360
+19 MAY 65 in. 71360
 
 SECRET 192138Z
 

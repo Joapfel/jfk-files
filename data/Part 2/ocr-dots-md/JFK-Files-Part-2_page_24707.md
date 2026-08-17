@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24707.png
-
-Convert to Markdownpolitical action was being discussed, it is your clear
+political action was being discussed, it is your clear
 impression that you had heard an order for the assassi-
 nation of Lumumba?
 

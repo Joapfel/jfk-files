@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8325.png
-
-Convert to Markdowna. He wishes to be on friendly terms with LOGINOV, but certainly it is not a friendly attitude of LOGINOV asks him something impossible. (Try to get LOC to do explaining).
+a. He wishes to be on friendly terms with LOGINOV, but certainly it is not a friendly attitude of LOGINOV asks him something impossible. (Try to get LOC to do explaining).
 
 d. Repeat description of LIOVAL's personality as he did in Cuautla and ask what can LOGINOV possibly achieve by meeting LIOVAL. It is anticipated that LOGINOV may be brief and say that this would be his problem and that all KILLED LIBACON had to do is to arrange for an introduction.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8704.png
-
-Convert to Markdown13-00000
+13-00000
 
 24 Sept 63 - Call to Embassy at 1258 hours. Woman calling in asks LLAGOSTERA (Cuban Embassy gardner) if he knows about the attempt against CASTRO. LLAGOSTERA says he knows nothing. She asks if the news comes from Miami. He says yes. (Item #272).
 

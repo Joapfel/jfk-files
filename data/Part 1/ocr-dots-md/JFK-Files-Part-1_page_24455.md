@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24455.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "AFRICA, LATIN AMERICA, ASIA REVOLUTION"
 

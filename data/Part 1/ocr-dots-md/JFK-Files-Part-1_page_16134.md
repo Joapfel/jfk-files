@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16134.png
-
-Convert to MarkdownThe Owner of Guns Seized
+The Owner of Guns Seized
 In 1974 Will Sell Them
 
 MARIETTA Co. Sept. 4 (AP) —Mitchell L. WerBell 3d of Marietta has agreed to quit the arms trade, which in the past has frequently involved him in international intrigue.

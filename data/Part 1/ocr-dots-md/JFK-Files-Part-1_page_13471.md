@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13471.png
-
-Convert to MarkdownUNION
+UNION
 DE CUBANOS EN EL ESTADO
 
 Lea, acercado el ahorro

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31179.png
-
-Convert to Markdownare subject to different interpreters,
+are subject to different interpreters,
 it is clear that no plane were
 penalized between the parties by
 until some time after October 1962

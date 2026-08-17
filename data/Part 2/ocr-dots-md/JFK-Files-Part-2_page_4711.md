@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4711.png
-
-Convert to MarkdownSECRET
+SECRET
 
 it. And I told them what I was doing. I told them I wasn't going to reply to the thing, I didn't need to as far as I was concerned, but I left it up to each individual that talked to me to make it up in his own mind. I don't know how many did or didn't, but I think it was in terms of a CYA thing, in terms of: here's a new man on the block, Schlesinger, and he wants to know what happened since Genesis. You know, doesn't he have anything else to do? He's got a whole Agency and a whole new world to conquer. What the hell is worried about all that stuff for? So, I think it was basically in terms of, at least the guys I talked to or talked to me, it was a CYA activity on the part of Schlesinger who didn't want to get blind sided by something that might have happened that CIA would be accused of. But the attitude was, what the hell is he worried about, it is not on his watch. If there is something is wrong, and even if CIA is accused of it, it's not on his watch. Nobody can hold him responsible for it. If it happened, even two years ago, what the hell. I mean, so. It might have happened under somebody elses aegis, and CIA takes the heat, but he could say, you know, it wasn't me. I wasn't around. So that was the general attitude. And as I say, a lot of people responded like good soldiers and wrote all kinds of tomes about things they thought were wrong, and not all of them were accepted. I mean that 690 whatever thing. . .
 

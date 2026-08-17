@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29366.png
-
-Convert to Markdown15 April 1971
+15 April 1971
 
 MEMORANDUM FOR: Chief, SOD/Personnel
 

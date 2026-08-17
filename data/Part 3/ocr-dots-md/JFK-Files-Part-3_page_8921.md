@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8921.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE THREE TOP SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1318.png
-
-Convert to Markdown29 January 1974
+29 January 1974
 
 MEMORANDUM FOR: Chief, Plans Staff
 THROUGH : Deputy Director for Operations

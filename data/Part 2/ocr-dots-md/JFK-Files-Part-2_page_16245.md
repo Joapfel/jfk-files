@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16245.png
-
-Convert to Markdownorganization before they can mobilize.
+organization before they can mobilize.
 
 Get the Plans of city's sewage system
 through bribery, extortion or any means

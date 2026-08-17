@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18324.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BUE 62-37
 

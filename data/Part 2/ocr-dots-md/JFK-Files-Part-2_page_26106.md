@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26106.png
-
-Convert to Markdownmet them, I didn't get in on that. The one
+met them, I didn't get in on that. The one
 person who [WILLIAM P.] would have has a view of their reactions
 would probably be Bill Bundy, [WILLIAM P.] who is that Bund-
 this with them.

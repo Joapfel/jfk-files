@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5189.png
-
-Convert to Markdown5
+5
 
 Section 108, I-12, Volume 4, Manual of Instructions, which states informants should be developed on Government reservations and military installations when warranted. In view of the large installations located within your territory, it is suggested you identify particular areas of these installations wherein informant coverage would be logical and productive and give consideration to pinpointing such areas for development.
 

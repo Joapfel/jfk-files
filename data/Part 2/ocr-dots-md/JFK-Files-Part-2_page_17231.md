@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17231.png
-
-Convert to Markdown2/20/70
+2/20/70
 
 DIRECTOR, FBI
 

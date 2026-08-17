@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5798.png
-
-Convert to Markdown09/16/98
+09/16/98
 
 WED 13:01 FAX 202 724 0457
 

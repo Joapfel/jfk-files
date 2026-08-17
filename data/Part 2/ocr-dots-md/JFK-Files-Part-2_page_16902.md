@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16902.png
-
-Convert to Markdown# Handwritten Notes from the Original "Notes on War" Series
+# Handwritten Notes from the Original "Notes on War" Series
 This hand written document includes notes from the original "Notes on War" series. The series was developed by a German military officer and is believed to have been used by German soldiers during World War I to communicate their thoughts and experiences.
 
 ## I. Problem:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31502.png
-
-Convert to Markdown29 July 1952
+29 July 1952
 
 MENORANDUM FOR: Chief, IO Division
 

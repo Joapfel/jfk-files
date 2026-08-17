@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9349.png
-
-Convert to MarkdownBEWARE!
+BEWARE!
 
 NAME: CLEVELAND (CHICO) HOLT
 WEIGHT: 165 lbs.

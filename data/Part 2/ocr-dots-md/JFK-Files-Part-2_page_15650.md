@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15650.png
-
-Convert to Markdown# Illinois Chapter Black Panther Party
+# Illinois Chapter Black Panther Party
 ## Special News Bulletin
 November 19, 1969
 

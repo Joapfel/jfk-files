@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7054.png
-
-Convert to Markdown2. Personnel security investigations on Select Committee Staff are under way by the FBI. It is understood that upon completion of Staff investigations, the Select Committee Chairman will certify to the DCI the Top Secret clearances of Committee Staff. The DCI, through his Intelligence Community Staff, will pass along the certification to the security elements of the respective agencies. Compartmented clearance arrangements and certification also have been agreed with the Senate Select Committee Staff. Similar arrangements have been discussed with the House Select Committee Staff.
+2. Personnel security investigations on Select Committee Staff are under way by the FBI. It is understood that upon completion of Staff investigations, the Select Committee Chairman will certify to the DCI the Top Secret clearances of Committee Staff. The DCI, through his Intelligence Community Staff, will pass along the certification to the security elements of the respective agencies. Compartmented clearance arrangements and certification also have been agreed with the Senate Select Committee Staff. Similar arrangements have been discussed with the House Select Committee Staff.
 
 3. Secrecy agreements for the Senate Select Committee Staff employees are being drafted and the AD/DCI/IC, supported by the CIA General Counsel and the Associate Deputy Attorney General, will negotiate similar arrangements with the House. The DCI policy is to insist upon secrecy agreements.
 

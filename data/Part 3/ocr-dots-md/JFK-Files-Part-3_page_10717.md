@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10717.png
-
-Convert to Markdown# Letter to Atlanta
+# Letter to Atlanta
 
 RE: COUNTERINTELLIGENCE PROGRAM
 INTERNAL SECURITY

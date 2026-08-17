@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16006.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 The above rally was dismissed without incident.
 

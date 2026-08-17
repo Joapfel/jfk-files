@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1984.png
-
-Convert to MarkdownSECURITY INDOCTRINATION AND SECRECY AGREEMENT
+SECURITY INDOCTRINATION AND SECRECY AGREEMENT
 BYEMAN CONTROL SYSTEM, BYECOM APPROVAL
 
 A special system of security and control, known as the BYEMAN Security and Control System, has been established by the Director of Central Intelligence for the purpose of providing maximum security protection to a number of extremely sensitive intelligence collection projects. Each of these projects requires a separate, special security approval for access. In your official capacity in connection with U. S. Government communication systems you have been granted a BYECOM approval which permits you to perform your official duties as regards BYEMAN projects in general, without regard to the necessary separate special security approvals. Strict adherence to the (BYEMAN) Control Manual and all supplemental directives must be adhered to in the handling of BYEMAN materials or information. You are requested to read and sign the Secrecy Agreement and Oath.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20493.png
-
-Convert to MarkdownCG 100-44775
+CG 100-44775
 
 Mrs. ROBERT GRONNER was shown as a member of a seventh anniversary dinner committee of the Chicago Area Committee for a Sane Nuclear Policy held at Chicago October 15, 1964, on an invitation furnished by September 23, 1964. No other information in Chicago files. ROBERT GRONNER appears to be identical with Chicago file 140-2299 as attending physician (1957) Veterans Administration Research Laboratory, VA, Chicago, Illinois, SGE, on basis that he spoke at a 1952 meeting sponsored by the Chicago Council of Arts, Sciences and Professions.
 

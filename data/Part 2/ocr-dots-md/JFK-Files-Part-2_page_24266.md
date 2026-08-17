@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24266.png
-
-Convert to MarkdownA. An Overview
+A. An Overview
 
 Using broad authority under the National Security Act of 1949, the Directors of Central Intelligence have established Government-owned business enterprises, foundations and quasi-business enterprises ("notionals") to serve a variety of intelligence and covert action purposes. Chief among those purposes have been:
 

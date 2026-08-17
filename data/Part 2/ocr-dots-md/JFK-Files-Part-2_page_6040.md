@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6040.png
-
-Convert to MarkdownWith Eric Rise, *From Local Courts to National Tribunals* (Carlson, 1992).
+With Eric Rise, *From Local Courts to National Tribunals* (Carlson, 1992).
 
 With James W. Ely, Jr., An Uncertain Tradition: Constitutionalism and the History of the South (Georgia, 1989).
 

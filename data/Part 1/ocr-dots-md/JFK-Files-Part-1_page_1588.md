@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1588.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SCHLUMBERGER and Company and another SCHLUMBERGER subsidiary firm, Machine Bull (Competitor of IBM), are connected with Schneider and Company, 42 rue d'Anjou, Paris. Francois SAAR-DEMICHEL, manager of Compagnie Internationale de Commerce, represents SCHNEIDER for the USSR and is a Soviet agent. In September 1961, an investigation conducted in France disclosed that "everything that takes place in the Elysee is known in Moscow within 48 hours and the originator of such intelligence is Francois SAAR-DEMICHEL." Machines Bull is controlled by General Electric Company of the U. S. and SCHNEIDER and Company is affiliated with U. S. Westinghouse Corporation under the name SCHNEIDER-Westinghouse.
 

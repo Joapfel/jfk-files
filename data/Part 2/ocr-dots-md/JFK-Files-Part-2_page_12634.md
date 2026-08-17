@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12634.png
-
-Convert to MarkdownE. INVESTIGATION OF INDIVIDUALS - INVESTIGATIVE PROCEDURES AND TECHNIQUES
+E. INVESTIGATION OF INDIVIDUALS - INVESTIGATIVE PROCEDURES AND TECHNIQUES
 
 1. General
 All pertinent information concerning subject's background and subversive activity must be fully developed and reported to assure accurate evaluation of his dangerousness. Use discretion to prevent subjects from becoming unnecessarily aware of investigation.

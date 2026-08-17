@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31643.png
-
-Convert to Markdown7
+7
 14-207
 
 FSP:jal

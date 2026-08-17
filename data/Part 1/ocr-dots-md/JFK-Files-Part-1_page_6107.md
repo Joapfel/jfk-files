@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6107.png
-
-Convert to MarkdownSECRET
+SECRET
 
  reply stated that the document had to remain classified indefinitely in order to protect intelligence sources and methods, and stated that release of segregable portions was not feasible. This was based upon a classification review by a knowledgeable officer with experience in French-African affairs, dated 24 May 1976.
 

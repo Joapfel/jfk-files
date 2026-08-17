@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14195.png
-
-Convert to Markdown154. 10/14/62 - SAC flew its first U-2 mission over Cuba. This mission produced the first photographic identification of MRBM launch sites at San Cristobal No. 1. (This area had last been covered by a CIA U-2 flight on August 29.)
+154. 10/14/62 - SAC flew its first U-2 mission over Cuba. This mission produced the first photographic identification of MRBM launch sites at San Cristobal No. 1. (This area had last been covered by a CIA U-2 flight on August 29.)
 
 From 10/14/62 through 11/8/62 SAC flew 43 U-2 missions over Cuba:
 

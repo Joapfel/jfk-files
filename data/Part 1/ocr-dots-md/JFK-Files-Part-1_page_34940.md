@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34940.png
-
-Convert to MarkdownCERTIFICATE
+CERTIFICATE
 
 CITY OF MIAMI ) SS.
 COUNTY OF LAKE ) SS.

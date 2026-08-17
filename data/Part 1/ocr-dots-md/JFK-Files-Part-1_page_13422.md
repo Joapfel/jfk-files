@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13422.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>CLASS. IF TO BE CHANGED</td>
         <td>TOTALCopies</td>

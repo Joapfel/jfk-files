@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2019.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 assisted AGEE in his Inside the Company. Exposures include "close" relationship with AGEE and CIA Von A-Z. As of June 1972 Subject was employed by U. S. Department of Labor, Bureau of Labor Statistics.

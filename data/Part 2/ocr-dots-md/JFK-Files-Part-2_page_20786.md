@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20786.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 in New York City (NYC), details of which will be set out
 more fully hereinafter.

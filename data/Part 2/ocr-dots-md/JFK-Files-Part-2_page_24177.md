@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24177.png
-
-Convert to MarkdownTAB A
+TAB A
 
 ENTITIES DISSOLVED (Continued)
 

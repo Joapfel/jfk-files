@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32771.png
-
-Convert to MarkdownIDENTITIES:
+IDENTITIES:
 
 A: Miguel DIAZ Isalgue
 

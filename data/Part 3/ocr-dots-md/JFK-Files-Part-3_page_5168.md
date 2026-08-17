@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5168.png
-
-Convert to Markdown5. Comparative Disbursements
+5. Comparative Disbursements
 
 | Month | 8/1/68 through 5/69 | 6/1/69 through 9/70 |
 |---|---|---|

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7650.png
-
-Convert to MarkdownPersons who are suspect or may be considered dangerous are immediately rounded up and detained while the individual is in the country. The authorities have no problem because in those countries there is not a free society such as we enjoy, and the people who are detained have no redress. The FBI approaches this whole field of security—I am not boring you with this, am I?
+Persons who are suspect or may be considered dangerous are immediately rounded up and detained while the individual is in the country. The authorities have no problem because in those countries there is not a free society such as we enjoy, and the people who are detained have no redress. The FBI approaches this whole field of security—I am not boring you with this, am I?
 
 The CHAIRMAN. No, indeed. This is tremendously important.
 

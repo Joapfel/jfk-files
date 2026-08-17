@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21515.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 involved in this operation? That was the first reference I
 recall to a female operative.

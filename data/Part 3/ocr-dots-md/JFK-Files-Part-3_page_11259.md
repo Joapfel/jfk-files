@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11259.png
-
-Convert to MarkdownNR008 AT CODED
+NR008 AT CODED
 
 5:44 PM URGENT MARCH 26, 1975 LAP
 

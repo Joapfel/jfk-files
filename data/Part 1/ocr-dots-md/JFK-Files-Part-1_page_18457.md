@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18457.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, Rome
 

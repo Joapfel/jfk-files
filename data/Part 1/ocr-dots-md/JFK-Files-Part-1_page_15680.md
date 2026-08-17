@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15680.png
-
-Convert to Markdown140000
+140000
 
 9. Funda - If necessary to protect the security of this arrangement, monies due you hereunder may be funded in other than a direct manner. It is understood and agreed that any monies so funded constitute payment by the Government in satisfaction of its obligations under this agreement.
 

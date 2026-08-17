@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15507.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG Mo. M. Holder
 UNIT OS/OSD/SE-SD/1

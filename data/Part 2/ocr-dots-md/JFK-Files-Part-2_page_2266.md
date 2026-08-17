@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2266.png
-
-Convert to MarkdownSECR LT
+SECR LT
 
 12 October 1960
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10657.png
-
-Convert to Markdown14-0000
+14-0000
 
 # INFORMATION REPORT FOR CENTRAL INTELLIGENCE AGENCY
 ## C-O-N-F-I-D-E-N-T-I-A-L

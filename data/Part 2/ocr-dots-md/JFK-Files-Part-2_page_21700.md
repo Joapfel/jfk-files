@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_21700.png
-
 , the reaction I encountered
 was a rather jesting one, and the impression I gained was
 here were a couple of men who were drawing salaries and doing

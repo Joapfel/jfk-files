@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17824.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Son 1900W 8/86, 11 Feb 1960, LAUNCH, filed C/WHD's office,
 

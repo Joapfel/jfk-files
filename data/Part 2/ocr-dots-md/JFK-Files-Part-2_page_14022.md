@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14022.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section 4: AVAILABILITY OF APPLICANT -->
         <tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26987.png
-
-Convert to MarkdownATL-39-74
+ATL-39-74
 
 28 February 1974
 

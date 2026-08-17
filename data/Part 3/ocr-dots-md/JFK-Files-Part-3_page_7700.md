@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7700.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2 - Mr. J. A. Mintz
 (1 - Mr. J. B. Hotis)

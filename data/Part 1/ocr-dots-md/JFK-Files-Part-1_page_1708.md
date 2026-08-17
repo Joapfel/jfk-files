@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1708.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a. It is estimated that the passport will be required for that end, following which it is to be returned to ED/AB. Should further functional need exist for this document beyond that time, it must be returned in end of each expiration date to 7 March 1959 and that email evaluation are made from that time forward. By each evaluation will be to be entered by ED/AB. Also, use of this passport for travel other than that originally intended (direct from U.S. to Argentina and back with his exact months) will require careful scrutiny by ED/AB of the status at the time of the intended future travel.
 

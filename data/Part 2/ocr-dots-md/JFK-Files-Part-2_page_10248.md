@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10248.png
-
-Convert to MarkdownCONTROLED DISSEM
+CONTROLED DISSEM
 
 Of the bombing in Vietnam are being organized by the "Republican Party National Convention Coalition" to occur on 21 August 1972. In an apparent reference to the 21 August actions, the PCPJ leader added that representatives of the Stockholm Conference on Vietnam will speak on the subject of the alleged American bombing of dikes in North Vietnam.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2590.png
-
-Convert to Markdown10. Letter from FBI Director Hoover to Attorney General Mitchell dated July 27, 1970, regarding the "Huston Plan". (C.12.)
+10. Letter from FBI Director Hoover to Attorney General Mitchell dated July 27, 1970, regarding the "Huston Plan". (C.12.)
 
 11. All memoranda or other materials pertaining to meetings or conversations between FBI Director Hoover and Attorney General Mitchell from July 23, 1970, through July 28, 1970, concerning the "Huston Plan". (C.13.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29804.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="4">REQUEST FOR PERSONNEL ACTION</td></tr><tr><td>1. SERIAL NUMBER</td><td>: NAME (Last, First, Middle)</td><td></td><td>DATE PREPARED</td><td>7 JUNE 1962</td></tr><tr><td colspan="3"></td><td colspan="2"><i>(EFFECTIVE DATE REQUESTED)</i></td></tr><tr><td colspan="3"><i>NATURE OF PERSONNEL ACTION</i></td><td colspan="2"><i>CATEGORY OF EMPLOYMENT</i></td></tr><tr><td colspan="5"><u>Reassignment</u></td></tr><tr><td rowspan="2">0. FUNDS</td><td>X</td><td>V TO CR</td><td rowspan="2">2259</td><td rowspan="2">1010-1000</td></tr><tr><td></td><td>CR</td><td>TO CR</td></tr><tr><td colspan="5"><i>ORGANIZATIONAL DESIGNATIONS</i></td></tr><tr><td colspan="5"><b>DDP/EE</b><br/><b>Office of the Chief</b></td></tr><tr><td colspan="3"><i>POSITION TITLE</i></td><td colspan="2"><i>CAREER SERVICE DESIGNATION</i></td></tr><tr><td colspan="3">OPS. OFF. Div. Ch</td><td colspan="2">HOT 0001 D</td></tr><tr><td colspan="3"><i>CLASSIFICATION SCHEDULE (GS, LS, etc.)</i></td><td colspan="2"><i>GRADE AND STEP</i></td></tr><tr><td colspan="3">GS</td><td colspan="2">16 3</td></tr><tr><td colspan="3"><i>REMARKS</i></td><td colspan="2"><i>SALARY OR RATE</i></td></tr><tr><td colspan="5">One copy has been forwarded to the Office of Security.<br/>From: DDP/EE<br/>Office of the Chief<br/>Washington, D.C.<br/>#2</td></tr></table>
 

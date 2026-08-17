@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22335.png
-
-Convert to MarkdownE. Examination of Other Aspects of NOSENKO's Biography
+E. Examination of Other Aspects of NOSENKO's Biography
 
 1. KGB Awards and Ranks
 

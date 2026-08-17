@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2293.png
-
-Convert to Markdown(b) Subparagraph (i)1 of paragraph 1 of Rule XXV of the Standing Rules of the Senate is amended by striking out the period at the end of such paragraph and inserting in lieu thereof a comma and the following: "(except matters described in subparagraphs (s)(1)) and (2))."
+(b) Subparagraph (i)1 of paragraph 1 of Rule XXV of the Standing Rules of the Senate is amended by striking out the period at the end of such paragraph and inserting in lieu thereof a comma and the following: "(except matters described in subparagraphs (s)(1)) and (2))."
 
 (c) Subparagraph (1)9 of paragraph 1 of Rule XXV of the Standing Rules of the Senate is amended by striking out the comma after the word "espionage" and inserting in lieu thereof the following:
 "(except matters described in subparagraphs (s)(1) and-(2))."

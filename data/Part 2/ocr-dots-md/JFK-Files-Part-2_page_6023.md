@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6023.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: JFK Declaration for the Directorate of Operations
 

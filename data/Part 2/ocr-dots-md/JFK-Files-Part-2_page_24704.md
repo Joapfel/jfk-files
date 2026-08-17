@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24704.png
-
-Convert to MarkdownI think it is . . . likely that it might have been the beginning of this whole idea on the CIA's part that they should develop such a capacity. And maybe they didn't have it then and went to work to develop it be- ginning in August. (Dillon, 9/2/75, p. 61)
+I think it is . . . likely that it might have been the beginning of this whole idea on the CIA's part that they should develop such a capacity. And maybe they didn't have it then and went to work to develop it be- ginning in August. (Dillon, 9/2/75, p. 61)
 
 Dillon said that it was unlikely that formal notes were taken at the meeting or preserved because it was a small "ad hoc" group rather than an official body (Dillon, 9/2/75, p. 18). Such interdepartmen- tal meetings were "not unusual," according to Dillon (Dillon, 9/2/ 75, p. 20).
 

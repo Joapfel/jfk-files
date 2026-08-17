@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4739.png
-
-Convert to MarkdownSECRET
+SECRET
 
 said, "That money was appropriated by Congress under my command, my
 responsibility. It stays with me. We'll work with you and we'll help you and

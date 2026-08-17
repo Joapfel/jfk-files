@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20471.png
-
-Convert to Markdown# WASHINGTON CULTURAL CO-OPERATIVE (WCC), aka Washington Cultural Co-op Association
+# WASHINGTON CULTURAL CO-OPERATIVE (WCC), aka Washington Cultural Co-op Association
 
 On February 23, 1960, a source reported the Communist Party (CP), Northwest District Committee, at a meeting in January, 1960, decided to prepare for opening a cooperative bookstore and directed the CP State Board to set up a Party committee for this purpose.
 

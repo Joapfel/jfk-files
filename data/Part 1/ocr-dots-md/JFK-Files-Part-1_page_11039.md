@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11039.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Row 1: SECTION XIII -->
         <tr>

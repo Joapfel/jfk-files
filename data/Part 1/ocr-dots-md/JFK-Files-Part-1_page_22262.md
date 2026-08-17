@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22262.png
-
-Convert to Markdownwas the end of 1960 or the very beginning of 1961. whereas in
+was the end of 1960 or the very beginning of 1961. whereas in
 fact MAHONEY's visit was in January 1961. Despite the errors
 relating to loadings and unloadings of deaddrops at the Pushkin
 Street location after the second (ABIDIAN) visit there, this

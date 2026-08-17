@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4102.png
-
-Convert to MarkdownSECRET
+SECRET
 
 W/C 65-331
 6 August 1965

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14230.png
-
-Convert to Markdown# Appendix B
+# Appendix B
 
 | Section | Subject |
 | :--- | :--- |

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23678.png
-
-Convert to MarkdownATTACHMENT I
+ATTACHMENT I
 
 2 June 1964
 

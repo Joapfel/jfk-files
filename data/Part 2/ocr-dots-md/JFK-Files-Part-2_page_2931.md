@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2931.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 concerned about the circumstances. When the facts became known, he
 said, he hoped the new government would be able to state that the

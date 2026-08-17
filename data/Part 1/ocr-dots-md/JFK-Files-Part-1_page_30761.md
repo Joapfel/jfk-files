@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30761.png
-
-Convert to MarkdownMr. Thee, E. Hall
+Mr. Thee, E. Hall
 
 April 9, 1958
 

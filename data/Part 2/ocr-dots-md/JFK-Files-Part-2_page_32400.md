@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32400.png
-
-Convert to MarkdownOUTGOING TELEGRAM Department of State
+OUTGOING TELEGRAM Department of State
 
 02147
 

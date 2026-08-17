@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27206.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WILLIAM VINCENT BROE
 

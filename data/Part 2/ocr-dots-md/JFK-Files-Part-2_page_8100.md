@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8100.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 UFGA-29884
 
 <table><tr><td>MICROFILMED</td></tr><tr><td>APR 15 1968</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>

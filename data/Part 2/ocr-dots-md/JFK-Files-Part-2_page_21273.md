@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21273.png
-
-Convert to MarkdownCLASSIFIED BY 5268 resp/klr
+CLASSIFIED BY 5268 resp/klr
 DECLASSIFY ON: 25X
 
 <table><tr><td>MAILED &amp; COMMS-FBI</td></tr></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6112.png
-
-Convert to Markdown9. Employment record: List all jobs held since college, including the title or description of job, name of employer, location of work, and dates of employment. (Please use separate attachment, if necessary.)
+9. Employment record: List all jobs held since college, including the title or description of job, name of employer, location of work, and dates of employment. (Please use separate attachment, if necessary.)
 
 1. United States Senate, Office of Senator Hubert H. Humphrey, Field Representative,
 Minneapolis, MN

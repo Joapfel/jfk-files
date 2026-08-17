@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10608.png
-
-Convert to MarkdownFBI doc
+FBI doc
 8 Dec 64 (NY)
 Re - Rolando Arcadia Marferre: Rojas
 Naitian Revolutionary Activities

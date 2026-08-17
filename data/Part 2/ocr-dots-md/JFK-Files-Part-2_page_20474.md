@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20474.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">FBI</td>
   </tr>

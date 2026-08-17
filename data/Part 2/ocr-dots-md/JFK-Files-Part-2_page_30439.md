@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30439.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ALDERSON REPORTING COMPANY
 

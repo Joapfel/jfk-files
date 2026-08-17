@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23608.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>1951</td>
     <td>NO.</td>

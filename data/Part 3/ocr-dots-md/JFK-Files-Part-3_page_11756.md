@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11756.png
-
-Convert to Markdown# Extremist Intelligence Section
+# Extremist Intelligence Section
 
 ## Front Office
 2 Agents

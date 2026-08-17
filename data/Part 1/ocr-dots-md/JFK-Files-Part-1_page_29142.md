@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29142.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>PERIODIC SUPPLEMENT<br/>PERSONAL HISTORY STATEMENT</td><td>THIS DATE<br/>10 September 1957</td></tr><tr><td colspan="2">INSTRUCTIONS:</td></tr><tr><td colspan="2">This form provides the means whereby your official personnel records will be kept current. Even though it duplicates information you have furnished previously, it will be necessary for us to complete Sections I through VI in these entirety. You need complete Section VII through III only if there is any change since you entered on duty with the organization or if you believe the item requires more complete knowledge than you have previously reported.</td></tr></table>
 

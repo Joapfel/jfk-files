@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4742.png
-
-Convert to MarkdownVI. 8 Jul 76
+VI. 8 Jul 76
 
 CENTRAL AMERICA
 

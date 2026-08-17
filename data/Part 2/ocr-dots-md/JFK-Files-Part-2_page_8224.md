@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8224.png
-
-Convert to Markdown13-0000
+13-0000
 
 AFTER 5 DAYS RETURN TO:
 

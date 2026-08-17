@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6159.png
-
-Convert to Markdownn175. See O'Leary, supra note 174, at A1.
+n175. See O'Leary, supra note 174, at A1.
 
 -End Footnotes-
 

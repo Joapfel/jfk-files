@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_806.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 JLB: 17N MAY 68

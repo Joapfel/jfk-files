@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33227.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIGIN: CLERK-HUNT/rbo</td></tr><tr><td>UNCLASSIFIED</td></tr><tr><td>DATE: 22 MAY 68</td></tr></table>
 

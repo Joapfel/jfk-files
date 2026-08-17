@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20521.png
-
-Convert to Markdown# FBI
+# FBI
 
 Date: 11/12/71
 

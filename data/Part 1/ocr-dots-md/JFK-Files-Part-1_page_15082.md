@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15082.png
-
-Convert to MarkdownHARVARD as the final step in the WIROGUE case has arranged through for Subject to be listed in so that any attempt to immigrate to any country will bring him to the attention of KUBARK and appropriate action can be taken.
+HARVARD as the final step in the WIROGUE case has arranged through for Subject to be listed in so that any attempt to immigrate to any country will bring him to the attention of KUBARK and appropriate action can be taken.
 
 In summary, everything has been done to insure Subject a successful future free from problems resulting from his "black" association with KUBARK. On the other hand, there is no reason for KUBARK to fear any future attempts by WIROGUE to return to the fold under veiled threats to reveal all. With his criminal background he is aware that he can be brought to the attention of French authorities. He also believes that KUBARK's position in the FEDREP is such that we have nothing to fear from any action on his part.
 

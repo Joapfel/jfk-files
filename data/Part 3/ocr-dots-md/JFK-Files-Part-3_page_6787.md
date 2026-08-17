@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6787.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 Mr. J. Walter Yeagley
 Assistant Attorney General

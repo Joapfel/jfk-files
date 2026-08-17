@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24736.png
-
-Convert to Markdownby assassination capability; more specifically, it involved
+by assassination capability; more specifically, it involved
 "spotting" potential agents and "researching" assassination
 techniques that might be used (Bissell, 7/17/75, p. 11 and 6/9/75,
 p. 73; Harvey, 6/25/75, pp. 37-A, 45). Bissell characterized

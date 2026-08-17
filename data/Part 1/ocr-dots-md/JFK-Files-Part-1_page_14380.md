@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14380.png
-
-Convert to MarkdownReport No.345 (continued)
+Report No.345 (continued)
 
 proposed getting a substitute for De La Nuez, but only because
 of his administrative inefficiency, and for no other reason.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27839.png
-
-Convert to Markdown<table><tr><td rowspan="2">LANGUAGE PROFICIENCY REPORT - ABSOLUTE RATING</td><td>76</td></tr><tr><td></td></tr></table>
+<table><tr><td rowspan="2">LANGUAGE PROFICIENCY REPORT - ABSOLUTE RATING</td><td>76</td></tr><tr><td></td></tr></table>
 
 *Rating based on classroom performance.*
 

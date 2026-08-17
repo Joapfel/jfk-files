@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26867.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><thead><tr><th>SENDER</th><th>RECEIVER</th></tr></thead><tbody><tr><td>JAWAVE</td><td>S.O.D.-6</td></tr><tr><td>ADVISE</td><td></td></tr><tr><td>MR. BILL, HF-6, D.HF-5, C.I.F.</td><td></td></tr></tbody></table>
 

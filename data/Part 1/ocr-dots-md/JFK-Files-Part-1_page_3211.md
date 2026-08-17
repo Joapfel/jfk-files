@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3211.png
-
-Convert to Markdownengineer with the Bauman District Road Department where he worked until February 1955.
+engineer with the Bauman District Road Department where he worked until February 1955.
 
 q. After he lost his job in 1949 with the Moscow Soviet, he states that his relations with his wife went from bad to worse and ultimately cultivated first in a separation and latter in a divorce in 1950. In the meantime, he was already living with
 

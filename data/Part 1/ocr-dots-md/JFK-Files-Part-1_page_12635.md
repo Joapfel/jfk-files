@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12635.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OBTAIN VISAS,
 

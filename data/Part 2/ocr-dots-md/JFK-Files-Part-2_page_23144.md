@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23144.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 relationship with the DMR where we gave them a monthly subsidy. In other words, this would make them in our category like independent contractors. In return for this particular subsidy, they were to collect intelligence for us on the island of Cuba where they still had people. They were to be a symbol of a certain amount of resistance, therefore they had to engage in certain activities, propaganda, radio broadcasts, correspondence to their friends and associates on the inside to show that there was a spark on the outside, around which people could rally.
 

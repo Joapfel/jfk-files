@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27190.png
-
-Convert to MarkdownS-M Files
+S-M Files
 
 V. Watergate Documents
 

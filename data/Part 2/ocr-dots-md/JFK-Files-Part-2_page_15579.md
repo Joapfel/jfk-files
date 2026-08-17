@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15579.png
-
-Convert to MarkdownLR
+LR
 
 HAMPTON felt that the BPP program should appeal to the masses, including such projects as breakfasts for school children and work toward the establishment of health centers since the communities cannot absorb large quantities of ideology, but must be assisted where personal needs exist.
 

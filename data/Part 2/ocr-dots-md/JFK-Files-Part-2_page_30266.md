@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30266.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 give them certain information which is valuable.
 

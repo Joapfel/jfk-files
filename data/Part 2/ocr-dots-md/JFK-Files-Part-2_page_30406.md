@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30406.png
-
-Convert to Markdownkind of document.
+kind of document.
 
 Mr. Goldsmith. To whom would this document go today?
 

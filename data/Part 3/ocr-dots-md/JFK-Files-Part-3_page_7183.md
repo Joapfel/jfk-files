@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7183.png
-
-Convert to Markdown10
+10
 
 1 made available to it by the Senate to perform the duties
 2 and exercise the powers conferred upon it by this resolution

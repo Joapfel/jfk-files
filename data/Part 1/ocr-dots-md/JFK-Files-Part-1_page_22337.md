@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22337.png
-
-Convert to Markdown744.
+744.
 
 2. Affiliation with Communist Party Organs
 

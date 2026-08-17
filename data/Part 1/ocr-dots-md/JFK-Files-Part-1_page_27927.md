@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27927.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="6">Part III - DETERMINATION OF COMPETITIVE STATUS. Complete for non-competitive hires based on competitive status as required by instructions in FPM Chapter 52.) Employee has a competitive status. This determination is based upon the following evidence:</td>
         <td></td>

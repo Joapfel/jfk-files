@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10151.png
-
-Convert to Markdown1 - Mr. J. B. Adams
+1 - Mr. J. B. Adams
 2 - Mr. J. A. Mintz
 (1 - Mr. P. V. Daly
 1 - Mr. J. J. McDermott (Route Through

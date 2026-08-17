@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34785.png
-
-Convert to Markdown# TRANSLATION
+# TRANSLATION
 
 Miami
 December 26, 1966

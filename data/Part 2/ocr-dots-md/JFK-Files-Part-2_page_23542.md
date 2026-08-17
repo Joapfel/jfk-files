@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23542.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FEB 1970
 

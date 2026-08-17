@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13230.png
-
-Convert to MarkdownDistribution:
+Distribution:
 
 1 - Mr. Wilderotter
 1 - Mr. Latimer

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6494.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Chief, New York Field Office
 C.A.S.E.

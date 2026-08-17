@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9420.png
-
-Convert to MarkdownFile PDQUICK
+File PDQUICK
 
 Kano of telephone conversation with Jim Burnham in New York
 10 a.m. Thursday morning 15 June, 1950.

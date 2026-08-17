@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22684.png
-
-Convert to Markdown152 WO/J/BJ
+152 WO/J/BJ
 
 DATE : 30 DECEMBER 1958
 

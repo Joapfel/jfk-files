@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7322.png
-
-Convert to Markdown13-00000
+13-00000
 
 could result to U.S. and host country activities from exposure
 of such liaison. Several foreign governments or entities thereof

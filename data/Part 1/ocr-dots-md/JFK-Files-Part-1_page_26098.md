@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26098.png
-
-Convert to Markdown300985 Z
+300985 Z
 
 SECRET F TOTAL COPIES 30
 

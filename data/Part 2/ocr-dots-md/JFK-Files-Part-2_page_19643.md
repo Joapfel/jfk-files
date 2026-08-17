@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19643.png
-
-Convert to MarkdownNR009 NY CODE
+NR009 NY CODE
 
 920AM URGENT 4-10-71 JAA
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3813.png
-
-Convert to MarkdownMiami 3 de Marzo de 1967
+Miami 3 de Marzo de 1967
 
 Querido Jim:
 

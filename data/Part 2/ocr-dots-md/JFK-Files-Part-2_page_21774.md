@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21774.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Sarno.
 2. Mr. Wides. And then Mr. Esterline replaced Mr. Hines.

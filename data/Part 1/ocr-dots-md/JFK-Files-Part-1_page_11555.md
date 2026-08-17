@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11555.png
-
-Convert to MarkdownVITAMIN
+VITAMIN
 
 SAISON. 21 de octubre.
 —Los Estados Unidos de

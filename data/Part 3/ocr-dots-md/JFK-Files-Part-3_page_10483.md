@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10483.png
-
-Convert to MarkdownNR008 HO CODE
+NR008 HO CODE
 
 5:55 PM NITEL MARCH 25, 1975 BNG
 

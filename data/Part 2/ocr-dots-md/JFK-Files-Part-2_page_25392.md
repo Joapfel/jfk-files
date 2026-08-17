@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25392.png
-
-Convert to Markdown1961
+1961
 
 **After the Bay of Pigs (April 1961)**
 Rosselli felt "sorry for the poor bastards left on the beach." Rosselli felt indirectly responsible for their deaths since he had encouraged many of them to participate in the invasion. Two or three weeks after the invasion, Rosselli was contacted in Los Angeles by O'Connell, a meeting was arranged for at the airport hotel in Miami. Rosselli went there and was introduced to Harvey. O'Connell said Harvey was now in charge of the Cuban project. Harvey told Rosselli he was to cease all contact with Maheu and Giancana. Further, Harvey stated that the government was still interested in using Rosselli for intelligence-gathering operations. Rosselli would report information from the Cubans to Harvey about personalities and events in Cuba. Rosselli would also relay on to his Cuban contacts requests for specific information from the CIA.

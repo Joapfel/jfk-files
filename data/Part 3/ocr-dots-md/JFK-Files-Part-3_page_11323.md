@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11323.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE UNIT
 C5217201976
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10319.png
-
-Convert to Markdown6.
+6.
 
 "After about three or four hours an army truck arrived driven by
 sergeant who appeared to have been driving heavily (it was Holy

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6630.png
-
-Convert to MarkdownSECRET
+SECRET
 
 any concerns or restrictions on access to the mandatory
 review documents. Also please provide any additional

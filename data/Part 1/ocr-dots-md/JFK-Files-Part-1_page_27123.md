@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27123.png
-
-Convert to MarkdownRE: CUBANOS UNIDOS
+RE: CUBANOS UNIDOS
 (UNITED CUBANS)
 
 On June 19, 1970, M.I. T-3, another Government agency which conducts intelligence investigations, advised information had been received that CU recently held a meeting to introduce Americans who are backing their organization. The Americans were FRANK FIORINI and FD KAISER. FIORINI calls himself the "Chief of Intelligence Section of Cubanos Unidos".

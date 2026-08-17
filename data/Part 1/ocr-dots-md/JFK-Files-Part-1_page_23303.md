@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_23303.png
-
-Convert to MarkdownSubject was also instructed to open a bank account in Miami, Fla., so the Finance Division will be in a position to make payment adjustments without delay. Subject was instructed to advise Hqs as to the amount of allotment to be paid him by the station - preferably in a round figure.
+Subject was also instructed to open a bank account in Miami, Fla., so the Finance Division will be in a position to make payment adjustments without delay. Subject was instructed to advise Hqs as to the amount of allotment to be paid him by the station - preferably in a round figure.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5323.png
-
-Convert to Markdown14-0000
+14-0000
 
 Ceci dit, malgré tous ces obstacles qui sembleraient incumbrables, je n'ai pas totalement perdu l'espoir de pouvoir t'aider à sortir Clémard, sain et sauf, de la prison où sa santé se détériore rapidement, je le sais. L'essentiel est que le Chef lui-même soit persuadé que l'inhabilité que nous éprouvons à satisfaire les exigences du moment, ne sont en aucune façon imputables à Clémard mais plutôt à des circonstances totalement indépendantes de notre volonté.
 

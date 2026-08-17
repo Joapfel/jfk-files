@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9626.png
-
-Convert to Markdown3. Espionage. This involves the placing or recusing of agents within the enemy personnel where they can learn the enemy's plans first hand, steal the enemy's documents or materials, influence or misdirect the enemy's plans or policies.
+3. Espionage. This involves the placing or recusing of agents within the enemy personnel where they can learn the enemy's plans first hand, steal the enemy's documents or materials, influence or misdirect the enemy's plans or policies.
 
 Suppose you had a chance to see some important document for just a few minutes. How quickly could you scan it for its essential content? How well could you separate the important from the unimportant? Could you record this information in a written message that can be easily read and will not be misinterpreted?
 

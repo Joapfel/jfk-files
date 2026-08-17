@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16067.png
-
-Convert to MarkdownH. Systematic Introduction of Military Judgement
+H. Systematic Introduction of Military Judgement
 
 By definition the neutralization or defeat of
 Communist terrorism consists of the specialized application

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32041.png
-
-Convert to MarkdownDate : 08/24/98
+Date : 08/24/98
 Page : 1
 
 <table>

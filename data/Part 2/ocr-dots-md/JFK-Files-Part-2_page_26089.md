@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26089.png
-
-Convert to Markdownme but used to bore other people. But he did know his country, and its history, which he would give at the drop of a hat. This evening in '61, seeing him, he was very hesitant in his talk and hadn't--it was something physical as well as mental hazard or something, I felt.
+me but used to bore other people. But he did know his country, and its history, which he would give at the drop of a hat. This evening in '61, seeing him, he was very hesitant in his talk and hadn't--it was something physical as well as mental hazard or something, I felt.
 
 O'BRIEN: Did he go into that later?
 

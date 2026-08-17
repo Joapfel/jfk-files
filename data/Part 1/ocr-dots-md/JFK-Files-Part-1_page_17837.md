@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17837.png
-
-Convert to Markdown25 June 1969
+25 June 1969
 
 MEMORANDUM FOR: DDP/APS
 

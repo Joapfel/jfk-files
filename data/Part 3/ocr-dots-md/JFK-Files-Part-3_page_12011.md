@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12011.png
-
-Convert to Markdownsketch concerning each individual included in the BNPA
+sketch concerning each individual included in the BNPA
 and to amend those sketches then included in the Album
 to show such data.
 

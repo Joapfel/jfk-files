@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15252.png
-
-Convert to Markdown# MONTHLY ESTIMATES
+# MONTHLY ESTIMATES
 
 <table>
   <tbody>

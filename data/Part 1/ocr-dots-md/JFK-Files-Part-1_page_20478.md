@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20478.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td>NAME OF EMPLOYEE (Last, First-Middle)</td><td>NAME AND RELATIONSHIP OF DEPENDENT</td><td>CLAIM NUMBER</td></tr><tr><td>Kristin Dacard</td><td>I am not this person</td><td>09-21-95</td></tr></table>

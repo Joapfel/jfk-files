@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20575.png
-
-Convert to MarkdownWOMEN'S NATIONAL ABORTION
+WOMEN'S NATIONAL ABORTION
 ACTION COMMITTEE (NONAAC)
 
 women and children and laws which make some Black and nonwhite

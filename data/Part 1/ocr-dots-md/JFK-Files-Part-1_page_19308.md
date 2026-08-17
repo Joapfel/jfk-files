@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19308.png
-
-Convert to MarkdownTO: 007 Security Officer
+TO: 007 Security Officer
 Mr. John Benson
 
 FROM: CCO

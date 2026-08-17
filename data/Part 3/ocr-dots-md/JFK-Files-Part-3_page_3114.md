@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3114.png
-
-Convert to Markdown# CONTENT
+# CONTENT
 
 PAGE
 

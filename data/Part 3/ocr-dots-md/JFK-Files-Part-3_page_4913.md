@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4913.png
-
-Convert to MarkdownRe: NORMAN ROTHMAN
+Re: NORMAN ROTHMAN
 
 MM T-9 is an individual who has some knowledge of the criminal element in the Miami, Florida, area.
 

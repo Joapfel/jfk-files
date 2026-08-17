@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26863.png
-
-Convert to MarkdownA Normally, the requirements are pretty standard, or they were at that time. But here again, you always have ad hoc type things that pop up from time to time, and have to be surfaced.
+A Normally, the requirements are pretty standard, or they were at that time. But here again, you always have ad hoc type things that pop up from time to time, and have to be surfaced.
 
 Q Some of these contract employees were, then, in the business of collecting intelligence information in the Cuban communities in Miami.
 

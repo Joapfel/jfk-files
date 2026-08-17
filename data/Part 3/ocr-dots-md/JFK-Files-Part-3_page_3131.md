@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3131.png
-
-Convert to Markdown1743
+1743
 
 1 letter was not -- I mean it was in connection with other
 2 material. So I think we can assume --

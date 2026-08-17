@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17528.png
-
-Convert to Markdown"Projected Arrival in Mexico of Polish Travel Officials" - State Department said that this report was of moderate importance and the information was new and useful. They expressed a continuing interest in this type of reporting.
+"Projected Arrival in Mexico of Polish Travel Officials" - State Department said that this report was of moderate importance and the information was new and useful. They expressed a continuing interest in this type of reporting.
 
 "New Policy of the Soviet Commercial Office in Mexico" - ORR reported that this information was now but only of moderate importance.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9518.png
-
-Convert to Markdownin the two leading alphabets of Europe (the Latin and Cyrillic)— is enough for the opening ceremony. Two names fix and/or bugs for each country will suffice. A great quote from each could go with it.
+in the two leading alphabets of Europe (the Latin and Cyrillic)— is enough for the opening ceremony. Two names fix and/or bugs for each country will suffice. A great quote from each could go with it.
 
 Examples:
 

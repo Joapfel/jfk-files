@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30670.png
-
-Convert to MarkdownNOTED:
+NOTED:
 
 N. Scott Miler
 

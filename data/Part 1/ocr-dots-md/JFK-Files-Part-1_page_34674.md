@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34674.png
-
-Convert to MarkdownE. I. K.
+E. I. K.
 
 SECRET
 

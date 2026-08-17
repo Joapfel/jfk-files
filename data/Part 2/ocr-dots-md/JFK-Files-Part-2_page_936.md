@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_936.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13 December 1973
 

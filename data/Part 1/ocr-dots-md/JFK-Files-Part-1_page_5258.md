@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5258.png
-
-Convert to Markdowntruction se transfère au vif, l’irritable canalisation s’efface. Dans la production de ceREVêtement, on chacun sans subir nullement l’influence d’une mystique ou d’un principe supérieur, et à tout en croyant agir dans le sens de ses intérêts les plus légitimes, on l’impression qu’elle communau té ne peut se frayer sa voie sans un tuteur, d’où l’on reconnaît implicite ou avouée de la supérité de l’ancien patron.
+truction se transfère au vif, l’irritable canalisation s’efface. Dans la production de ceREVêtement, on chacun sans subir nullement l’influence d’une mystique ou d’un principe supérieur, et à tout en croyant agir dans le sens de ses intérêts les plus légitimes, on l’impression qu’elle communau té ne peut se frayer sa voie sans un tuteur, d’où l’on reconnaît implicite ou avouée de la supérité de l’ancien patron.
 
 Ces vérités qu’on trouve en fi ligrairie à travers les pages de l’histoire moderne et contemporainne du colonialisme, devraient susciter des réflexions chez les haliens pour qu’ils s’efforceent d’augmenter les potentialités nationales et se dépasser dans l’appréciation et le respect de leurs Valours sociales.
 

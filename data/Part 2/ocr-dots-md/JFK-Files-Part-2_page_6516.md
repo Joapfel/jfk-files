@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6516.png
-
-Convert to Markdown13-00000
+13-00000
 
 (1) Attacking Cuba resources
 

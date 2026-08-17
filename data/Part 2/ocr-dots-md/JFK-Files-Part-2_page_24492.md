@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24492.png
-
-Convert to MarkdownAgain as part of his "pure personal opinion" (Bissell, 6/9/75, p. 60) that this was done, Bissell speculated that Dulles would have engaged in a "circumlocutious" sort of conversation. (Bissell, 6/11/75, p. 6), using "rather general terms."
+Again as part of his "pure personal opinion" (Bissell, 6/9/75, p. 60) that this was done, Bissell speculated that Dulles would have engaged in a "circumlocutious" sort of conversation. (Bissell, 6/11/75, p. 6), using "rather general terms."
 
 Bissell repeatedly coupled Eisenhower and Kennedy together when he speculated about the manner in which he felt the Presidents would have been advised to maintain "plausible deniability." (Bissell, 6/9/75, pp. 38, 57; 6/11/75, pp. 5-6):
 

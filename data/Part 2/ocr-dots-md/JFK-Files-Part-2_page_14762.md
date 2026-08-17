@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14762.png
-
-Convert to MarkdownSAC, Washington Field (134-6831)
+SAC, Washington Field (134-6831)
 
 October 15, 1968
 

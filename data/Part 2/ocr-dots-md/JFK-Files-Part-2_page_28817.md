@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_28817.png
-
 in the Budget Office. She will be a voucher clerk and will be trained to handle all vouchering and accounting procedures.
 
 This position is scheduled at $14,000 in the Committee's salary budget. I am recommending that Mrs. Wilander be hired at $13,000 and raised to $14,000 on October 1, 1977, if she works out satisfactorily.

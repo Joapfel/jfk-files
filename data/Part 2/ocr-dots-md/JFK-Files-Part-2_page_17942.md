@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17942.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>Accr. No.</td>

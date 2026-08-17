@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26927.png
-
-Convert to MarkdownOCC 79-08601
+OCC 79-08601
 
 20 September 1979
 

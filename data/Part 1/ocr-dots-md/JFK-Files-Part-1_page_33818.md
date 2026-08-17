@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33818.png
-
-Convert to Markdownadditional approval of the Personnel Director of NCFE is required before employment either at New York or Munich. Thus, even if a proposed exile employee meets all the described criteria, he may not be employed without this ultimate approval.
+additional approval of the Personnel Director of NCFE is required before employment either at New York or Munich. Thus, even if a proposed exile employee meets all the described criteria, he may not be employed without this ultimate approval.
 
 The Personnel Director of NCFE utilizes appropriate and de-
 pendable sources of information to determine the acceptability of

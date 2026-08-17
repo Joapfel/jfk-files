@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13382.png
-
-Convert to MarkdownSTURGIS: Yes, sir.
+STURGIS: Yes, sir.
 
 OLSEN: Now, did you recruit anybody at that time? Did you
 recruit 12 people?

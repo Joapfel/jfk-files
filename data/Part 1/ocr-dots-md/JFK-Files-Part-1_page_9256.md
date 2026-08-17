@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9256.png
-
-Convert to Markdown6 Nov. 1950
+6 Nov. 1950
 
 Re: Boris Shub
 

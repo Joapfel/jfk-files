@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26439.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFICATION — DISSEMINATION CONTROLS</th></tr></thead><tbody><tr><td>CONFIDENTIAL<br/>(When Pilled In)</td><td>NOFORN/CONTINUED CONTROL</td></tr><tr><td>TDCS -3/500,097</td><td>IN 18750<br/>PAGE 3</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFICATION — DISSEMINATION CONTROLS</th></tr></thead><tbody><tr><td>CONFIDENTIAL<br/>(When Pilled In)</td><td>NOFORN/CONTINUED CONTROL</td></tr><tr><td>TDCS -3/500,097</td><td>IN 18750<br/>PAGE 3</td></tr></tbody></table>
 
 5. (FIELD COMMENT. LY TALKED TO SOURCE IN GENERAL TERMS. IT IS NOT KNOWN WHETHER THIS WAS BECAUSE OF RETICENCE ON LY'S PART IN RESPECT TO SOURCE, OR WHETHER LY IS NOT IN FACT INVOLVED IN THE ALLEGED PLANNING OF GENERAL NGHIEM.)
 

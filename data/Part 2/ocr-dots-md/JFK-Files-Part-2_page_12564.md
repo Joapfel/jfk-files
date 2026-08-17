@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12564.png
-
-Convert to Markdown5. Recommendation and preparation of ADEX cards
+5. Recommendation and preparation of ADEX cards
 
 a. When potential dangerousness of subject has been established, office of origin is to prepare recommendation to Bureau on FD-122, in triplicate. Forward original and copy to Bureau, and place copy in subject's file. FD-122 has three uses: (1) to recommend subject for ADEX, (2) to submit changes for existing cards, and (3) to recommend subject be deleted from ADEX. Submit abstract when recommending subject for ADEX, or removal from ADEX, but no abstract for changes.
 

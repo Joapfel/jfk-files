@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13107.png
-
-Convert to Markdown✓ Aracaju - San Jose
+✓ Aracaju - San Jose
 
 - Bogota - San Salvador
 

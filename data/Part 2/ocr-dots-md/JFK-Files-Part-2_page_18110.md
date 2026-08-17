@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18110.png
-
-Convert to MarkdownSSC LETTER 7/14/75
+SSC LETTER 7/14/75
 
 ITEM # 21
 

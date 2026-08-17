@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7164.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      FILE PROCESSED FOR RELEASE

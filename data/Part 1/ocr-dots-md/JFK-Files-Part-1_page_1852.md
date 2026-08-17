@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1852.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 - 17 -
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1608.png
-
-Convert to MarkdownOGC 69-0181
+OGC 69-0181
 
 31 January 1969
 

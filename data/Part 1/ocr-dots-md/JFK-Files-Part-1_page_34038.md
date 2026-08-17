@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34038.png
-
-Convert to MarkdownCHART NO.3
+CHART NO.3
 CUBAN EXPORTS
 1959-1966
 

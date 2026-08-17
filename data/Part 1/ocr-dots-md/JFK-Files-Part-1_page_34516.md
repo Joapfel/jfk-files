@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34516.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Review Staff: 75/880
 

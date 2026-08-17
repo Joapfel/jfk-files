@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31168.png
-
-Convert to Markdown002201
+002201
 
 the logical inference that be drawn is that both the Agency and ngayid eune, and other persons intruded into remeire that Castro regime had settled on de l'Anza, and an individual who had the potential of uniting the multitudes of that group who were in a confidential atmosphere found de l'Anza was undisturbed U.S. government aid criminal syndicate to offer him support and asked no questions as to the source of the fund or the motives of his benefaction. See Javina testimony.
 

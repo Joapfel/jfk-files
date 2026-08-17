@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6993.png
-
-Convert to Markdown# mors
+# mors
 
 ALL INFORMATION PROVIDED
 WILL BE UNCLASSIFIED

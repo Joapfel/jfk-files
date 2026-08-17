@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13235.png
-
-Convert to Markdownpast 2 years resulte "almost entirely from Stations ( and eventually ) encouragement. He followed directions and reported fairly well."
+past 2 years resulte "almost entirely from Stations ( and eventually ) encouragement. He followed directions and reported fairly well."
 
 26. JMWAVE-8569 IN 24289, 2 August 1967 summarized KICOBALT-1's report. KICOBALT-1 met ANCLEVE-15 on 28 July. AMCLEVE-15 said he was going to Bolivia to help train a special unit in guerrilla warfare. KICOLBAT01 conferred that ANGLEVE-15 was in touch with the Bolivian consul in Miami and the Bolivian military attaché to whom AMCLEVE-15 had made the offer to organize the group of Cuban guerrilla training officers. JMWAVE felt that somehow either ANCLEVE-15/gate/np/ came up with the idea on his own or some leak occurred during initial contacts on this program Since this was in conflict with statement AMCLEVE-15 made to JMWAVE that AMCLEVE-15 was seeking employment in Caracas.
 

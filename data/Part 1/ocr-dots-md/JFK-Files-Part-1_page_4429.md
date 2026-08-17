@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4429.png
-
-Convert to MarkdownU.S. Intelligence Agency
+U.S. Intelligence Agency
 
 WASHINGTON, D.C. 20505
 

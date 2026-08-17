@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3515.png
-
-Convert to Markdownheavy items. It was stressed to A-1 the importance of assuring the letter is sent to the attention of Mr. Chester.
+heavy items. It was stressed to A-1 the importance of assuring the letter is sent to the attention of Mr. Chester.
 
 6. When the balance of the money ($27,000) is sent to A-1 for the Atlantic-Chesapeake we will also send the $132,000 for construction equipment. The money should be sent to A-1 by 20 April.
 

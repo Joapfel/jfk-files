@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32505.png
-
-Convert to Markdowne. Partly as a result of the efforts of the CIA station in Santiago, the Government of Chile prohibited the entry into Chile of organizers of the Cuban sponsored Second Latin American Youth Congress, which had been scheduled to take place in Santiago in August. This was one of the factors which led to postponement of the Congress.
+e. Partly as a result of the efforts of the CIA station in Santiago, the Government of Chile prohibited the entry into Chile of organizers of the Cuban sponsored Second Latin American Youth Congress, which had been scheduled to take place in Santiago in August. This was one of the factors which led to postponement of the Congress.
 
 f. After considerable prodding by the CIA Station and the Embassy the Minister of Public Security of Costa Rica presented legislative proposals to the Costa Rican Assembly which will require all persons intending to travel to Communist countries to have their travel approved by a newly created Costa Rican security agency.
 

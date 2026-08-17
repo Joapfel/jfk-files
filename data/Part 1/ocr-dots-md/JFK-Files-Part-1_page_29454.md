@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29454.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 30 JUN 1967

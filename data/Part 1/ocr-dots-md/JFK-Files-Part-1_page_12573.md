@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12573.png
-
-Convert to MarkdownSECRET
+SECRET
 
 citizen? It will be appreciated if your office could make a determination on this question as soon as possible, emphasizing to the appropriate authorities our concern for Subject and his operational importance to the U.S. intelligence effort.
 

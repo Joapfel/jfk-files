@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4053.png
-
-Convert to MarkdownFP 65-951
+FP 65-951
 
 # ALLEGED CONNECTION WITH LEE HARVEY OSWALD
 

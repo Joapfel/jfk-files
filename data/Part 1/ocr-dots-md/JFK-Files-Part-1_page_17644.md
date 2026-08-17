@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17644.png
-
-Convert to MarkdownMEMORANDUM FOR: Deputy Director of Central Intelligence
+MEMORANDUM FOR: Deputy Director of Central Intelligence
 
 THROUGH : Chief of Operations, DD/P
 SUBJECT : Project LIFETAT (Amendment)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24449.png
-
-Convert to MarkdownBissell said he was certain, however, that the statement regarding Dulles' knowledge about the operation was wrong, and testified that "it is just flatly contrary to my recollection that Allen Dulles was unaware of these contacts, as I have testified several times" (Bissell, 6/11, p. 27).*
+Bissell said he was certain, however, that the statement regarding Dulles' knowledge about the operation was wrong, and testified that "it is just flatly contrary to my recollection that Allen Dulles was unaware of these contacts, as I have testified several times" (Bissell, 6/11, p. 27).*
 
 When asked to speculate on why Edwards would have told the FBI that Dulles was unaware of Edwards' contact with Maheu, Bissell replied:
 

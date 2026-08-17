@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_5417.png
-
 military aide to the President, telephoned this morning and asked me to meet Mr. Louis A. Brun at Mr. Burris' office. This I did this afternoon.
 
 Mr. Brun, a nationalized American, owns and operates the B & B International Corporation, 1182 Broadway, New York. A native-born Haitian, he has lived in the States since 1957. He is a close friend and confidant of Clemard Joseph Charles, a Haitian banker who has been deeply involved with the Duvalier government. Charles has fallen in disfavor with Duvalier and several of his government concessions have been cancelled. Charles is actively plotting the overthrow of Duvalier and, according to Brun who saw Charles in Port au Prince June 5-7, has 167 military and civilians ready to move with him. None of this group was represented by the 19 officers who were recently executed or the 80 some Haitians who are currently in diplomatic asylum.

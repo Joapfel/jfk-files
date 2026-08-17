@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23986.png
-
-Convert to MarkdownSimilarly, isn't sensitivity that you spoke about. It'szzzzssazzy the Cuban population sensitized in such fashion as to come up with a comparably provocative and and dialogue-ending remark.)
+Similarly, isn't sensitivity that you spoke about. It'szzzzssazzy the Cuban population sensitized in such fashion as to come up with a comparably provocative and and dialogue-ending remark.)
 
 the
 

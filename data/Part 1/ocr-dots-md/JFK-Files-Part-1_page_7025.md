@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7025.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 TO : DIRECTOR
 FROM : BONN

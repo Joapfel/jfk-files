@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25232.png
-
-Convert to MarkdownCOLONIAL INSIGHTS:
+COLONIAL INSIGHTS:
 
 **DATES:**
 Nov. 1, '63

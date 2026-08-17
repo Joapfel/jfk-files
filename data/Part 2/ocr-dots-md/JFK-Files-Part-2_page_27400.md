@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27400.png
-
-Convert to MarkdownINDEX
+INDEX
 
 1. Interview - William Cotter - Mail Intercept, dtd 14 Mar 75 SECRET SENSITIVE
 

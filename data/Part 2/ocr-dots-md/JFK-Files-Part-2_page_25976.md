@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25976.png
-
-Convert to Markdownknowledgeable, and there was a planning group at CIA, but I don't think it went beyond that. I don't know how far it was known, but I thought it was rather closely held.
+knowledgeable, and there was a planning group at CIA, but I don't think it went beyond that. I don't know how far it was known, but I thought it was rather closely held.
 
 O'BRIEN: You don't know whether the presidential candidates... at all, do you?
 

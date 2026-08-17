@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10995.png
-
-Convert to Markdown# CONTRACT FOR OML COMMITMENTS
+# CONTRACT FOR OML COMMITMENTS
 
 Date 5 March 1965
 

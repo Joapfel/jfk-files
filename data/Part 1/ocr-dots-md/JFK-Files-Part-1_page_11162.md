@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11162.png
-
-Convert to Markdown15. Gustavo ARQUIS - Nothing except he arrested. Will query again re ARCOS.
+15. Gustavo ARQUIS - Nothing except he arrested. Will query again re ARCOS.
 
 16. Mercedes MUÑOZ Carrillo - See Gen of the Casa Cita/Mexico in Habana. MULES acc L-9, cut him L-9 out of the Meican picutre.
 

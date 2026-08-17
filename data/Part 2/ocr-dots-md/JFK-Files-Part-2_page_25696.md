@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25696.png
-
-Convert to Markdown7- APR 1964
+7- APR 1964
 
 The Warren Commission
 

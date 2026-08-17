@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8874.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DISPATCH</td>
     <td><table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td>MARKED FOR INDEXING</td></tr><tr><td></td><td>NO INDEXING REQUIRED</td></tr><tr><td></td><td>OBLIVIOUS QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td></td><td>MICROFILM</td></tr></tbody></table></td>

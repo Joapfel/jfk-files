@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9594.png
-
-Convert to Markdown14-0000
+14-0000
 
 SEPARATE COVER ATTACHMENT TO: NFL-002-76
 [The "Informal Grievance" was written by IDEN I]

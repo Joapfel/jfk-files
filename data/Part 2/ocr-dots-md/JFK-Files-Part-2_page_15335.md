@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15335.png
-
-Convert to MarkdownSAC, Washington Field
+SAC, Washington Field
 
 (Orig & 1)
 

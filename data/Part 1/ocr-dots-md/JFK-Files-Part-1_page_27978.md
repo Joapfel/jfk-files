@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27978.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. During Mr. Randall's total service at the Tokyo Station, he has demonstrated his adaptability and capability to carry out a variety of tasks in an exemplary manner. In a previous recommendation, Chief of Station, Tokyo, described Mr. Randall as an officer capable of assuming greater responsibilities. In the most recent recommendation, Chief of Station, Tokyo, emphasized that Mr. Randall's performance was characterized by exceptional proficiency in all respects of his assigned duties and, therefore, endorsed his previous recommendation, and strongly recommended Mr. Randall's promotion to GS-14 at an early date.
 

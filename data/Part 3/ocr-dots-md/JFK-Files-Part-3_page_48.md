@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_48.png
-
-Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+# Office Memorandum • UNITED STATES GOVERNMENT
 
 ALL INFORMATION CONTAINED
 HEREIN IS UNCLASSIFIED.

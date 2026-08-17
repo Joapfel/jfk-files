@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6888.png
-
-Convert to MarkdownAs a supplement to bits of information ditherto orally trans-
+As a supplement to bits of information ditherto orally trans-
 mitted here is a summarised account on the movements and acti-
 vities of
 

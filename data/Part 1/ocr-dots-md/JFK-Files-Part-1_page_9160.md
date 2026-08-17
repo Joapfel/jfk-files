@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9160.png
-
-Convert to Markdown"CS" RECORD MATERIAL
+"CS" RECORD MATERIAL
 
 DUE DATE
 

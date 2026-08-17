@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7110.png
-
-Convert to MarkdownIV. DIRECTOR COLBY'S PUBLIC SENATE TESTIMONY ON DOMESTIC OPERATIONS
+IV. DIRECTOR COLBY'S PUBLIC SENATE TESTIMONY ON DOMESTIC OPERATIONS
 
 Reference is made to Director Colby's public testimony on January 15, 1975, before the Senate Appropriations Committee, in which Director Colby identified several documents basic to an understanding of the Agency's domestic operations. The following requests are based on that testimony. Parenthetical page references after each request indicate the page of Director Colby's testimony where the items requested were identified.
 

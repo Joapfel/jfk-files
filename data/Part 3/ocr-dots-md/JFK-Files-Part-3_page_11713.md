@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11713.png
-
-Convert to Markdownwill continue to encourage visitors, any of which is a possible subject for recruitment by Chicom intelligence for hard espionage, intelligence activities or propagandizing the American people.
+will continue to encourage visitors, any of which is a possible subject for recruitment by Chicom intelligence for hard espionage, intelligence activities or propagandizing the American people.
 
 ### 3. Extent and Nature of Current Supervision.
 

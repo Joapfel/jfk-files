@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11934.png
-
-Convert to Markdown1
+1
 
 1 R. MAC AMOS, JR.
 

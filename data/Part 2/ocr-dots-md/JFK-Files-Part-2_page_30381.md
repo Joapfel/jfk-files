@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30381.png
-
-Convert to MarkdownNew Zealand, and Oceania. That was until 1964.
+New Zealand, and Oceania. That was until 1964.
 
 Mr. Goldsmith. Have you had a chance to review CIA document number 1817 and the pages that follow it?
 

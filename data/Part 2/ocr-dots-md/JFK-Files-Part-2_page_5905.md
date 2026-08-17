@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5905.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 Types of Questions for DA Records Briefing
 March 17, 1997

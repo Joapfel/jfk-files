@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_11603.png
-
 s and concentrate his efforts on ZACACTUS matters, which he thought were of greater importance in Chile. General ACKERMAN, according to ROSS, was not adverse to this proposal but stated he would await contact from ZACACTUS Headquarters before considering the matter further.
 
 This Station has high regard for ROSS and is of the opinion that he would apply himself in a very diligent and intelligent manner to the duties of handling ZACACTUS in Chile. He is fully aware of the necessity for discretion, as he had been briefed on this at the time the former ZACACTUS candidate had been considered for the Air Attache Office.

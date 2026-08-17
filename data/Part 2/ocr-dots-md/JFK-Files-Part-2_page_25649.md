@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25649.png
-
-Convert to MarkdownThe Smaldone brothers, who were also known as "Checkers and Flip Flop," were the Mafia leaders in charge of the syndicate's vending-machine market which stretched from the Rockies all the way to Chicago. Police records show that at one time, the Smaldones virtually controlled the entire Pueblo area of Colorado.
+The Smaldone brothers, who were also known as "Checkers and Flip Flop," were the Mafia leaders in charge of the syndicate's vending-machine market which stretched from the Rockies all the way to Chicago. Police records show that at one time, the Smaldones virtually controlled the entire Pueblo area of Colorado.
 
 The Smaldone brothers were notorious for the brutal brand of violence they practiced in their operations. Brading (Braden) became involved in many transactions with the Smaldones and became a close personal friend. Several years later, after Brading finally went to jail for the embezzlement of the Texas widow, the Smaldone brothers regularly wrote to him in prison, seeking his advice on various financial matters.
 

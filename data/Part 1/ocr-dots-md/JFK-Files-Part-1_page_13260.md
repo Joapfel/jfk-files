@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13260.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">SECRET 021356Z CITE CARACAS 8227</th><th rowspan="2">2 Nov 67 N 85222</th></tr><tr><th>INDEX: ☐ YES ☒ NO</th><th>CLASSIFIED MESSAGE ☑ TOTAL COPIES</th><th></th><th></th></tr></thead><tbody><tr><td colspan="2">FILE ID ☐ RET. TO BRANCH ☐</td><td>PERSON/UNIT NOTIFIED</td><td>REPRODUCTION PROHIBITED</td></tr><tr><td colspan="2">DESTROY ☐ SIC.</td><td></td><td></td></tr><tr><td colspan="2">FROM 4</td><td></td><td></td></tr><tr><th>ACTION</th><th>[L] CHG ☐ [R] RID COPY ☐</th><th>ADVANCE COPY ☐ [U] ISSUED ☐ [S] SLIPPED ☐ [Y] FILMED</th><th>UNIT TIME BY</th></tr><tr><td colspan="4">INFO FILE VR DDP AEXP CA2 F5 FELENTZ</td></tr></tbody></table>
+<table><thead><tr><th colspan="4">SECRET 021356Z CITE CARACAS 8227</th><th rowspan="2">2 Nov 67 N 85222</th></tr><tr><th>INDEX: ☐ YES ☒ NO</th><th>CLASSIFIED MESSAGE ☑ TOTAL COPIES</th><th></th><th></th></tr></thead><tbody><tr><td colspan="2">FILE ID ☐ RET. TO BRANCH ☐</td><td>PERSON/UNIT NOTIFIED</td><td>REPRODUCTION PROHIBITED</td></tr><tr><td colspan="2">DESTROY ☐ SIC.</td><td></td><td></td></tr><tr><td colspan="2">FROM 4</td><td></td><td></td></tr><tr><th>ACTION</th><th>[L] CHG ☐ [R] RID COPY ☐</th><th>ADVANCE COPY ☐ [U] ISSUED ☐ [S] SLIPPED ☐ [Y] FILMED</th><th>UNIT TIME BY</th></tr><tr><td colspan="4">INFO FILE VR DDP AEXP CA2 F5 FELENTZ</td></tr></tbody></table>
 
 SECRET
 

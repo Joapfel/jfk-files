@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30670.png
-
-Convert to Markdown8 of 9 pages
+8 of 9 pages
 
 SECRET
 

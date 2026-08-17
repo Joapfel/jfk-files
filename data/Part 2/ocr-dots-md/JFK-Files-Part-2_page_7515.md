@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7515.png
-
-Convert to Markdownclearance and permission to visit were obtained, but he "backed-out" (after all had been arranged) saying it was too much trouble for U.S. persons and authorities concerned.
+clearance and permission to visit were obtained, but he "backed-out" (after all had been arranged) saying it was too much trouble for U.S. persons and authorities concerned.
 
 16 Oct 67
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14103.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 forth overall recommendations relating to counterintelligence activity. All of these exhibits are in the nature of deliberative, internal work papers wherein opinions were freely expressed because they were not prepared with the idea in mind of publication, and it would appear they would be exempt from disclosure even if the report itself is furnished to Senator Church.
 

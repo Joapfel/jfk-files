@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_217.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 On 1/27/65 the Birmingham Office made anonymous mailings to fifteen Negro churches identifying Carl Ridout, Manager of Ensley Finance Company, Inc., Birmingham, as a member of the National Executive Committee of the National States Rights Party. Ridout was then transferred to the Fairfield Finance Company, 5011 Gary Avenue, Birmingham, which was under same ownership as Ensley Finance Company. Fifteen letters were then anonymously mailed to Negro churches identifying Ridout as Manager of the Fairfield Finance Company and also a member of the National Executive Committee of the National States Rights Party.
 

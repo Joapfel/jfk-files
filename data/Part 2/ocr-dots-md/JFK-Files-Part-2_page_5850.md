@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5850.png
-
-Convert to Markdown14-0000
+14-0000
 
 # Names thru 1968
 Name: LOMNOWST Gary H.

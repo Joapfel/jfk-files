@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9183.png
-
-Convert to Markdown7. A breakdown by district of the IGRS files maintained in each district office, indicating the following:
+7. A breakdown by district of the IGRS files maintained in each district office, indicating the following:
 
 (a) the number of such files on which some form of action constituting enforcement of the tax laws other than the maintenance of the file has actually been undertaken;
 

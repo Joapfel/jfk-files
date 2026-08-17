@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13192.png
-
-Convert to MarkdownSECRET TELEPHONE
+SECRET TELEPHONE
 
 (47)
 

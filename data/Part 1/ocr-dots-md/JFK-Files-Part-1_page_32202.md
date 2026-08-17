@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32202.png
-
-Convert to Markdown5. What other components or categories of personnel do you believe would benefit from SAI training to a degree making it worthwhile for them to receive it?
+5. What other components or categories of personnel do you believe would benefit from SAI training to a degree making it worthwhile for them to receive it?
 
 6. Please comment, if you have any definite opinion, on the duration and pace of the training: too long/short? too fast/slow?
 The pace of the course was excellent. However, adding one or two more days would certainly help in putting the SAI concepts into practice by the trainee himself. That is, perhaps a live exercise with a person who is not aware of the training situation. A trainee could be tasked to elicit information from an unwitting participant. The use of videotapes and/or movies would help in testing the trainees' perceptiveness through the course.

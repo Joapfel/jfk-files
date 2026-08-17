@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32423.png
-
-Convert to Markdown# SABOTAGE
+# SABOTAGE
 
 A number of acts of sabotage have been committed in various Latin American states. There is no conclusive evidence available to link these acts of sabotage with the Castro/Communist apparatus.
 

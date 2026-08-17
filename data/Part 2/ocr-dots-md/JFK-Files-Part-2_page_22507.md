@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22507.png
-
-Convert to MarkdownOn 30 April 1958, Wiley prepared a report on his contact (Charles Raphael) with the International Commission of Jurists, and the location of possible files on Soviet Espionage Commissioned by Philip Chancellor to be gathered by Sidney McLaglen.
+On 30 April 1958, Wiley prepared a report on his contact (Charles Raphael) with the International Commission of Jurists, and the location of possible files on Soviet Espionage Commissioned by Philip Chancellor to be gathered by Sidney McLaglen.
 
 On 2 May 1958, Wiley prepared a report on his chance meeting with Vladimir Oserov, Tass reporter.
 

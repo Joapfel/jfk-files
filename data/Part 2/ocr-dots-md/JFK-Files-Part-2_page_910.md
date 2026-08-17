@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_910.png
-
-Convert to Markdown# SECTION I: INTERPRETATION INFORMATION
+# SECTION I: INTERPRETATION INFORMATION
 
 <table><tr><td>NAME</td><td>SEX</td><td>DATES OF COURSE</td><td>NO. OF STUDENTS</td></tr><tr><td>FOX, Jerome</td><td>Male</td><td>5 Jun - 13 March 1972</td><td>3</td></tr><tr><td>DATE OF HIRE</td><td>EOD DATE</td><td>CRALE OR MARK</td><td>OFFICE</td></tr><tr><td>9 Oct 1928</td><td>15 June 1972</td><td>08-11</td><td>OFD</td></tr><tr><td colspan="4">INTERPRETED ASSIGNMENT ON PREVIOUS POSITION</td></tr><tr><td colspan="4">Analytic position in ST/FM</td></tr></table>
 

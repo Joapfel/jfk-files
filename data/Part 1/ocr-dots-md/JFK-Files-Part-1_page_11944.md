@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11944.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DDO/OPS/NARCOG:S.Archenhold:el
 

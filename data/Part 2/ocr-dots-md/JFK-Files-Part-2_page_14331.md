@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14331.png
-
-Convert to Markdowngation beyond that is made only upon approval by Headquarters. If such
+gation beyond that is made only upon approval by Headquarters. If such
 continuance is approved, investigation continues to resolve whether juris-
 dictional standards are met. If met, and Headquarters' approval obtained, a
 full investigation is conducted.

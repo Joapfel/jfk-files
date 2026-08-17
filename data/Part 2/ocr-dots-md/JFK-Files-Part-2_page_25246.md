@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25246.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>LODGE<br>BUNDY</td><td>30 Oct 1963</td><td>DIEM ✓</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>LODGE<br>BUNDY</td><td>30 Oct 1963</td><td>DIEM ✓</td></tr></tbody></table>
 
 **OCCURRENCE:** On October 30, 1963 in a CIA cable from Saigon (SAIG 2094) the following cable from LODGE (in its entirety) occurred: "Thanks for your sagacious instruction. Will carry out to best of my ability."
 

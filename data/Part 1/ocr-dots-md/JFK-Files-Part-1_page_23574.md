@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23574.png
-
-Convert to Markdown10 Sept 53
+10 Sept 53
 
 MEMORANDUM FOR RECORD
 

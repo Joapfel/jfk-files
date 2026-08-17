@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17335.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 APPENDIX
 

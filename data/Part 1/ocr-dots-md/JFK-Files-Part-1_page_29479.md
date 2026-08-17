@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29479.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 1 September 1964
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8404.png
-
-Convert to Markdowna good strip-tease performance now and then relating that he had seen
+a good strip-tease performance now and then relating that he had seen
 a number of them when he was in the States. SARATOV spoke nostalgically
 of his life in the States admitting that he missed many aspects of his
 life there. L/1 remarked that the conversation was largely centered

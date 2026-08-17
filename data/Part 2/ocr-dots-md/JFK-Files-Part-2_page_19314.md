@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19314.png
-
-Convert to Markdown# NATIONAL LAWYERS GUILD
+# NATIONAL LAWYERS GUILD
 
 The "Guide to Subversive Organizations and Publications" revised and published December 1, 1961, by the Committee on Un-American Activities, U.S. House of Representatives, Washington, D.C., states as follows on page 121 concerning the National Lawyers Guild:
 

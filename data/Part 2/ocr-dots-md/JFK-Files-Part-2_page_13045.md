@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13045.png
-
-Convert to MarkdownNY 100-136585
+NY 100-136585
 
 for civil rights for Negroes, and further, since they feel
 that the Party, as a result of this "do nothing" attitude,

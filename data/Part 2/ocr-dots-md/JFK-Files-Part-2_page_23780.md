@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23780.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 And then the question is whether or not there is a prohibition on printing in the English language.
 

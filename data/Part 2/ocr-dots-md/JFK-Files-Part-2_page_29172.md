@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29172.png
-
-Convert to MarkdownNW 88326 DocId:32245515 File Name: Finance Department, Treasury Division, 104 City-Code 49675 WEBB TEN MILE ROAD 48226 P.O. BOX 3377 200 N. Market St. Detroit, MI 48226 (248) 4822678
+NW 88326 DocId:32245515 File Name: Finance Department, Treasury Division, 104 City-Code 49675 WEBB TEN MILE ROAD 48226 P.O. BOX 3377 200 N. Market St. Detroit, MI 48226 (248) 4822678
 
 <table>
   <tr>

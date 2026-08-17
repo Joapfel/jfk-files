@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12450.png
-
-Convert to Markdown"SECRET - NO FOREIGN DISSEMINATION"
+"SECRET - NO FOREIGN DISSEMINATION"
 
 33. Discontinued assets
 

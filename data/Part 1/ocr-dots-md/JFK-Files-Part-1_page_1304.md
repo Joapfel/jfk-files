@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1304.png
-
-Convert to MarkdownSECRET
+SECRET
 
 14 January 1977
 

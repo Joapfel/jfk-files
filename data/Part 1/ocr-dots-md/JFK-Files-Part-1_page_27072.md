@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27072.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CLASSIFIED MESSAGE TOTAL COPIES:
 

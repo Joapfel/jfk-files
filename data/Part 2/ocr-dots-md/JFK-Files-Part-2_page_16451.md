@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16451.png
-
-Convert to MarkdownV. Sectional Tactics (In detail for section and sub-leaders)
+V. Sectional Tactics (In detail for section and sub-leaders)
 
 1. Deployment
    a. position

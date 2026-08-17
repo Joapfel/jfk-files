@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32392.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. Another report may also refer to this arms shipment. According to information dated 1 February 1963 from a CIA source and appraised by the CIA preparing office as possible true, Pedro MATOS, who together with the three-member regional command committee of the Partido Comunista de Venezuela (PCV) in the state of Zulia is responsible for PCV arms deliveries in that state, said recently that the party is awaiting a shipment of arms from Cuba and Panama but that the exact date of arrival in Billings will have to be confirmed.
 

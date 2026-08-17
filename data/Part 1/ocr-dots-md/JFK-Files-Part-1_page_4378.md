@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4378.png
-
-Convert to MarkdownChina
+China
 
 ¿Usted considera que Guava-
 ra fue "separado del cargo" o

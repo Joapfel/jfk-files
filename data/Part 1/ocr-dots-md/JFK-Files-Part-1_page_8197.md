@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8197.png
-
-Convert to MarkdownSECRET
+SECRET
 
 28 February 1961
 3-13 A (Mullen)

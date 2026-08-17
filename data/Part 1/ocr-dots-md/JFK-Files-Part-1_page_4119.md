@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4119.png
-
-Convert to Markdownand A/1 went with SOMOZA in his car. While they were riding, SOMOZA told A/1 why he was so angry.
+and A/1 went with SOMOZA in his car. While they were riding, SOMOZA told A/1 why he was so angry.
 
 d. A message had recently come to General SOMOZA from the Nicaraguan Ambassador in Panama saying that he had it from authoritative sources that the U. S. not only would not support his candidacy for the Presidency, but would strongly oppose it. In addition, SOMOZA had word that Sydney ROSS, Director of El Tiempo (Spanish language newspaper in New York), after a recent interview with Asst. Secretary Jack Vaughn of the State Department, had an off-the-record talk with VAUGHN after the interview. VAUGHN had said that, so far as he was concerned, SOMOZA was no different from the other Latin American dictators such as TRUJILLO, PERON, DUVALIER, STROESSNER, Col. LOPEZ, or Gen. CASTELL Branco, and that he could certainly not support installing another military dictator in Nicaragua. The two reports were confirmatory in SOMOZA's mind and made him feel extremely bad as he said he has always talked favorably about the U.S. and tried to cooperate with them at every chance.
 

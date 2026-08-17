@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20209.png
-
-Convert to MarkdownSECRET
+SECRET
 
 GROUP 1
 EXCLUDES FROM AUTOMATION, DERIVED FROM

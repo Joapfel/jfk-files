@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11497.png
-
-Convert to Markdownof a saferoom would not appear unannounced in such a manner, adding
+of a saferoom would not appear unannounced in such a manner, adding
 that to date he did not have any definite word on this person's ETA
 in Mexico City.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17729.png
-
-Convert to MarkdownReel 39-2
+Reel 39-2
 
 2 June 1966
 

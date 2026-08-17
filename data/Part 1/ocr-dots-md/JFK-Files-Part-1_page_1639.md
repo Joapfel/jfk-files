@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1639.png
-
-Convert to MarkdownSECRET
+SECRET
 
 audio surveillance appeared to be technically feasible since I
 had located a possible listening post. However, I admitted

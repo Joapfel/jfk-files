@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14098.png
-
-Convert to Markdownto maintaining coverage of activities in Cuba.
+to maintaining coverage of activities in Cuba.
 
 Dr. Killian next informed the Board that he was somewhat troubled by the position of the Board with respect to the following: (1) Mr. Bundy once told Dr. Killian that inasmuch as a special Cuban operation had been laid on with the Attorney General involved, the MONGOOSE group would have particular jurisdiction with respect to Cuba (2) during the height of the Cuba crisis the Board had not been included in the designated recipients of intelligence regarding strategic missiles in Cuba, and (3) it would appear essential that the Board have an opportunity to examine the records of the Special Group.
 

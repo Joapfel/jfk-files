@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25175.png
-
-Convert to MarkdownSource: AENIGMAG/2
+Source: AENIGMAG/2
 Date acquired: September 1966
 
 Marina LOPOUKHINE, Secretary Archivist, French Embassy

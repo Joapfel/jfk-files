@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8642.png
-
-Convert to Markdown1. Laind on the dot, found Sbj through there. First thing he said was that he couldn't stay late, & having trouble with his life but he entirely due to this business of course. A few days later he called and asked if any one knew him and I did not push it. I do not know, at this time, that this is a particularly important item.
+1. Laind on the dot, found Sbj through there. First thing he said was that he couldn't stay late, & having trouble with his life but he entirely due to this business of course. A few days later he called and asked if any one knew him and I did not push it. I do not know, at this time, that this is a particularly important item.
 
 2. First thing I know for all purposes like MIAMI after that (a) Tax 'Miamis', or 'Miami' (corresponding to Subject)
 

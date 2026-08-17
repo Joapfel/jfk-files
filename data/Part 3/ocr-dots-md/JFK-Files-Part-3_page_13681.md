@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13681.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. dictated and typed?
 2. AMLASH Case Officer. No. What are you asking me?

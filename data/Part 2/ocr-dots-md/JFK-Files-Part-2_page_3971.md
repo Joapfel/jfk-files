@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3971.png
-
-Convert to Markdown13-00000
+13-00000
 
 99146 Department of State
 CABLE SECRETARIAT DISSEM BY

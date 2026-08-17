@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_21473.png
-
 to the editors
 of "Monthly Review".
 

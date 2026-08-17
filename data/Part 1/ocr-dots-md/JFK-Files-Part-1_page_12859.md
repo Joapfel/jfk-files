@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12859.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CABLE SEC DIGEST BY US PER TOTAL COPY 37/1 RUN BY</td>
     <td>SECRET</td>

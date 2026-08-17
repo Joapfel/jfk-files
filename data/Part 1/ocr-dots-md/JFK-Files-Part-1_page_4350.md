@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4350.png
-
-Convert to Markdown# ELECTRIC COMPANY
+# ELECTRIC COMPANY
 
 Sevilva LALLAY GARCIA
 Aribol LARAN TRIJAS

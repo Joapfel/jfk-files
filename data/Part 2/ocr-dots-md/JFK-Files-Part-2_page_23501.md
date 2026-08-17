@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23501.png
-
-Convert to MarkdownTo; Files
+To; Files
 From: FDB
 Re: NOTES ON TESTIMONY OF ROBERT H. JOHNSON (6/18/75)
 Date: 7/5/75

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29281.png
-
-Convert to MarkdownH. Martin Gabriel Zamora-Fox
+H. Martin Gabriel Zamora-Fox
 
 File #A12 416 893
 DOB: 3/18/96, Matanzas, Cuba

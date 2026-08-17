@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16534.png
-
-Convert to Markdown<table><thead><tr><th>REFERENCE</th></tr></thead><tbody><tr><td>A. HUNTER - 10339, 10 December 1971<br>B. HUNTER - 10315, 7 June 1971</td></tr></tbody></table>
+<table><thead><tr><th>REFERENCE</th></tr></thead><tbody><tr><td>A. HUNTER - 10339, 10 December 1971<br>B. HUNTER - 10315, 7 June 1971</td></tr></tbody></table>
 
 1. AMBIG-1 failed to identify the picture of Enrique *Gomez* Carliz which was forwarded as reference A. We will of course, review the photograph with the other AMSTAFF/AMQUAKE defectors who are the responsibility of the MI/Miami Station and advise you of the results.
 

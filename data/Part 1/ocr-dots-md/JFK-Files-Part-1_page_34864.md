@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34864.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CLASSIFICATION</th><th colspan="2">PROCESSING</th></tr><tr><th>SECRET</th><th>PROPOSED</th><th>ACTION<br/>COMPLETED</th></tr></thead><tbody><tr><td>TO<br/>Chief, WH Division</td><td rowspan="3" colspan="2"><div>MARVEL FOR INDEXING</div><div>X NO INCREASING REQUIRED</div><div>ONLY QUALIFIED HEADQUARTERS DESCRIBE THE SPECIFICATIONS</div><div>ABSTRACT</div><div>MICROFILM</div></td></tr><tr><td>INFO.</td></tr><tr><td>FROM<br/>Chief of Station, JMWAVE</td></tr><tr><td>SUBJECT<br/>AMEUD Trustee Accounts</td><td colspan="2">ACTION REQUESTED · REFERENCES</td></tr><tr><td colspan="3">REFERENCES: A. UFGA-29508<br/>B. UFGA-29614<br/>C. JMWAVE-1613<br/>D. DIR 83308</td></tr></tbody></table>
 

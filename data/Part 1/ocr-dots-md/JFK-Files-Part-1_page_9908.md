@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9908.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MICROFILMED</td></tr><tr><td>OCT 31 1967</td></tr><tr><td>DOC. MICRO CER.</td></tr></table>
 

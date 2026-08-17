@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26501.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. Some of the 158 guerrillas known to have been trained in Cuba have been in hiding and inactive ever since the January round-up, and others are known to be waiting outside the country. The MIR leader, Luis de la Puente Uceda, was believed to be in Cuba and now is in Europe.
 

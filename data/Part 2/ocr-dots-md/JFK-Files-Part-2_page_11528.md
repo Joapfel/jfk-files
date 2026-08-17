@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11528.png
-
-Convert to MarkdownII. No investigation should be conducted solely to obtain such information but include such data in the report. Separate reports setting out such data are not desired.
+II. No investigation should be conducted solely to obtain such information but include such data in the report. Separate reports setting out such data are not desired.
 
 (g) Military record
 

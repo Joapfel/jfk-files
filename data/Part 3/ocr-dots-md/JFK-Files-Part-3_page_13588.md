@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13588.png
-
-Convert to Markdown1 included as an exhibit? This is all theoretically secret? Or
+1 included as an exhibit? This is all theoretically secret? Or
 2 do you feel you might not be able to?
 
 MR. DONOHUE: Well, the code word I just mentioned,

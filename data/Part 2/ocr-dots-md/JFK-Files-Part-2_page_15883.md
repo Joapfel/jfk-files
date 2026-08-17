@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15883.png
-
-Convert to Markdown**Bell, Lance S.**
+**Bell, Lance S.**
 
 Arrested: 11/13/69
 Charge: Two counts Murder

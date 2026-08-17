@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25690.png
-
-Convert to MarkdownSECRET
+SECRET
 
 would be useful to know what MARTIN's status in law is so far as the United States is concerned. If, for example, your Government could not take legal action, the Canadian authorities would be in a position if this matter came to public attention to say that they were not aware of any barrier preventing MARTIN from seeing his parents in the United States. I should be most grateful if through your channels we could be provided informally with an indication of MARTIN's status in law in the United States.
 

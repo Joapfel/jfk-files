@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30051.png
-
-Convert to MarkdownC-51 C.U.P.
+C-51 C.U.P.
 (Not to be used)
 
 I'll do it.

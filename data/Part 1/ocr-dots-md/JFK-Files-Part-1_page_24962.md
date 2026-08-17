@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24962.png
-
-Convert to MarkdownMarcellus Conferencing Put Off
+Marcellus Conferencing Put Off
 
 The session of this court was adjourned until further order.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18907.png
-
-Convert to MarkdownIn Reply, Please Refer to
+In Reply, Please Refer to
 File No.
 
 Washington, D.C. 20535

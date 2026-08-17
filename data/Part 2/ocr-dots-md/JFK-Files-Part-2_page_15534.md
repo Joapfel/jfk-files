@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15534.png
-
-Convert to Markdown'What we're doing for the people just heightens the contradictions of charges made against the Panther Party,' said Sanchel, a slightly built youth of 19.
+'What we're doing for the people just heightens the contradictions of charges made against the Panther Party,' said Sanchel, a slightly built youth of 19.
 
 According to Sanchel, a survey of the Westside community indicated that residents wanted the center to provide, in order of importance, pediatrics, obstetrics, dentistry and general medical care.
 

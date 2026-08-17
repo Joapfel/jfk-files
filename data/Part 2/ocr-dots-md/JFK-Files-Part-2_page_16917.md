@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16917.png
-
-Convert to Markdown3. Air-train, air-pipe.
+3. Air-train, air-pipe.
 4. Water-train, (pump).
 5. Locomotive.
 

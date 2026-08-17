@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3130.png
-
-Convert to MarkdownA. ALFARIEVA Rosa Alexoievna
+A. ALFARIEVA Rosa Alexoievna
 
 Apodo: descencide.
 

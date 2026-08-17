@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14355.png
-
-Convert to MarkdownBU 157-1681
+BU 157-1681
 
 the arrest of WILLIAM EDWARD GARRETT (Bureau file 157-22471; Buffalo file 157-1388) by Bureau Agents at Buffalo, New York on 10/23/74 at the residence of KARL HAND, 2213 South Bailey Avenue, Buffalo, New York. GARRETT was arrested based on an authorized complaint and warrant at Pittsburgh, Pennsylvania, charging GARRETT with violation of Title 18, Appendix, Section 1202(a)(1), USC, "Possession of a Firearm by a Convicted Felon". It should be noted that KARL HAND was not present at this arrest and GARRETT was alone in the house.
 

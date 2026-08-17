@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21697.png
-
-Convert to MarkdownSSCI BOX 248-10
+SSCI BOX 248-10
 
 State of Florida )
 County of Okaloosa )

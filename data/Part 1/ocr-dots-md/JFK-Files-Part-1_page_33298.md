@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33298.png
-
-Convert to MarkdownSECRET
+SECRET
 
 T 422494 E1A951 PAGE 03-03 IN 362715
 

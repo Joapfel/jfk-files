@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17748.png
-
-Convert to MarkdownPHILIP S. HAYES, N.C.
+PHILIP S. HAYES, N.C.
 WILLIAM F. BONNIE L. MINN.
 WALTER E. RICHTER, K.Y.
 ROBERT MORGAN, N.C.

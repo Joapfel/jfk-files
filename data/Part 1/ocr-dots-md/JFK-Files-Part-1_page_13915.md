@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13915.png
-
-Convert to Markdown399. Entrada.- JAMES DE LEON (el comandante de Panamá) pre-
+399. Entrada.- JAMES DE LEON (el comandante de Panamá) pre-
 cuenta a ROGELIO si no ha ido HARVIS y ROGELIO dice que no
 ni sabe donde está alojado. JAIME:¿qué lo arriba buscando
 ara arrengar una cuestión y n... le ha sido posible pregunt

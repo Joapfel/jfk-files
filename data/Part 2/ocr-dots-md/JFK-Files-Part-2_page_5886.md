@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5886.png
-
-Convert to Markdownfurther processing. OGC is currently reviewing files for pertinent Houston records.
+further processing. OGC is currently reviewing files for pertinent Houston records.
 
 See Attachment 12
 

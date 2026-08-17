@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7167.png
-
-Convert to Markdown13-00000
+13-00000
 
 FORM 3020b
 7-71 MPG, 2/75

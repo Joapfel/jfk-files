@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14597.png
-
-Convert to MarkdownMr. A. H. Belmont
+Mr. A. H. Belmont
 
 Mr. S. B. Donahoe
 

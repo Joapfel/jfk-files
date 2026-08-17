@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3393.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Minutes of Special Group Meeting [from Thomas A. Parrott, 12 Jan 61]. S.
 

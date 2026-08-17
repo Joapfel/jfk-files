@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28891.png
-
-Convert to MarkdownLUCIYN E. CONEIN
+LUCIYN E. CONEIN
 
 ## 2. U. S. Army
 

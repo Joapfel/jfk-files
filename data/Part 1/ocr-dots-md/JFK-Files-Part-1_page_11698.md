@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11698.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OPERATIONAL REVIEW
 

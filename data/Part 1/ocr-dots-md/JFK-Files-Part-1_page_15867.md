@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15867.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG: D. HESLER
 UNIT: AF/M/2

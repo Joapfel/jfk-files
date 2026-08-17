@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21413.png
-
-Convert to MarkdownRichard Gibson Reports
+Richard Gibson Reports
 International news & features
 
 32, Hartswood Road

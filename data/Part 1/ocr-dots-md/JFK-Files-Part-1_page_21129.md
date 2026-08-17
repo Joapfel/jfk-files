@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21129.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 (When filled in)
 
 # TRAINING REPORT

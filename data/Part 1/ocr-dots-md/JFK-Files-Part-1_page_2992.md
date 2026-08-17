@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2992.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 06 RASK, Walter 421, 422
 RASTVOROV, Yuriy (KGB defec: ...). 17, 61, 277, 396

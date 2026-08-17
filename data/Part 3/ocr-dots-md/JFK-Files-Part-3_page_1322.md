@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1322.png
-
-Convert to MarkdownHonorable Frank Church
+Honorable Frank Church
 Chairman, Select Committee to
 Study Governmental Operations with
 Respect to Intelligence Activities

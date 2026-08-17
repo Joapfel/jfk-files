@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10961.png
-
-Convert to MarkdownSECRET
+SECRET
 Classification
 
 JFK MICROFILM FILE SUMMARY

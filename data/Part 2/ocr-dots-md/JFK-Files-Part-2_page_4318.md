@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4318.png
-
-Convert to Markdowntwo bases of the Artime group, one in Costa Rica and the other in
+two bases of the Artime group, one in Costa Rica and the other in
 Nicaragua. Also it was hoped that the autonomous group under Manolo Ray
 would soon get itself established in a working base, possibly Costa Rica.
 Mr. FitzGerald said that much could be accomplished by these autonomous

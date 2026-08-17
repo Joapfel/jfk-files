@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13507.png
-
-Convert to Markdown1 do?
+1 do?
 
 2 MR. BISSELL: I returned to MIT where I was then a
 3 member of the faculty for about two years. Then I came to

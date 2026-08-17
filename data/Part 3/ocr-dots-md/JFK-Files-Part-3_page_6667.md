@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6667.png
-
-Convert to Markdown30. All materials reflecting that "(w) ith Bureau approval, (William C. Sullivan) had previously given (Ralph) McGill some of the basic facts concerning King's connections with communism and his (deleted)," as indicated in Mr. Sullivan's January 21, 1965 memorandum to Mr. A. H. Belmont, subject "Martin Luther King, Jr., Security Matter - C."
+30. All materials reflecting that "(w) ith Bureau approval, (William C. Sullivan) had previously given (Ralph) McGill some of the basic facts concerning King's connections with communism and his (deleted)," as indicated in Mr. Sullivan's January 21, 1965 memorandum to Mr. A. H. Belmont, subject "Martin Luther King, Jr., Security Matter - C."
 
 31. All materials reflecting contact by Special Agent Alden F. Miller or by any FBI Headquarters officials with Eugene Patterson concerning Martin Luther King, Jr., as proposed by Special Agent Miller in a telephone conversation with Mr. Sullivan on January 15, 1964. (See Mr. Sullivan's 1/16/64 memorandum to Mr. Belmont, subject "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, Internal Security - C.")
 

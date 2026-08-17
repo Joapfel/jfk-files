@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15089.png
-
-Convert to Markdown18. MILITARY HISTORY
+18. MILITARY HISTORY
 
 A. DRAFT BOARD REGISTRATION: In the summer of 1939 I received a notification from my rayon-voyenkomat (draft board) of my rayon and reported there on a specified date before the draft board, then I was sent in a group of other future conscripts to the rayon polyclinic for a medical check-up. I had lost the first joint of my left thumb and index fingers during an accident at the job, and when the findings of the medical examinations were reported to the draft board, I was rejected for active duty and deferred into the reserve. At that time my pripisnoye svidetelstvo (registration certificate) was exchanged for the military booklet.
 

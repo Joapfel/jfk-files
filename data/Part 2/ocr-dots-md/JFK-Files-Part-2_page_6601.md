@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6601.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>SECRET-NOFORN SPECIAL HANDLING</td>
    </tr>

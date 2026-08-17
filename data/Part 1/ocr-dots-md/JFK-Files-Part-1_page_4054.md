@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4054.png
-
-Convert to MarkdownI. INTRODUCCION
+I. INTRODUCCION
 
 El proyecto de desarrollo industrial la presenta el INVERNICA (Inversión en Industria, Sede en Nicaragua),ubicada en la zona de Neves, D. N., Nicaragua.
 

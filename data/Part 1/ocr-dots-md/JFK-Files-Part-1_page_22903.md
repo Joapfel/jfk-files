@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22903.png
-
-Convert to Markdown6 December 1966
+6 December 1966
 
 ATTENTION : GLEICHAUP
 

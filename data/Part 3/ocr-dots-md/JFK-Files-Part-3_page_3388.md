@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3388.png
-
-Convert to MarkdownDecember 4, 1975
+December 4, 1975
 
 FBI LEGISLATION - PROPOSED OPTIONS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14280.png
-
-Convert to Markdown# Minutes of February 1, 1962 Meeting of the Special Group
+# Minutes of February 1, 1962 Meeting of the Special Group
 
 This meeting was attended by General Taylor, Mr. Johnson,
 Mr. Gilpatric, and Mr. Helms.

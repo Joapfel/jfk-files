@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9144.png
-
-Convert to MarkdownJuly 1, 1967.
+July 1, 1967.
 
 | Description | Amount |
 | :--- | ---: |

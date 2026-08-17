@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17656.png
-
-Convert to Markdown**Information Storage and Retrieval**
+**Information Storage and Retrieval**
 
 The storage and retrieval of information is a basic operational necessity of any investigative or intelligence-gathering agency. Procedures within the FBI for these functions provide for written records of information received from a variety of sources—confidential informants, confidential INVESTIGATIVE techniques, and open sources—and the storage or transmission of this information in different types of files. These include active investigative files on organizations and individuals and some general files.
 

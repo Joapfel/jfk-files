@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4776.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 Date _________ 9/27/68
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7951.png
-
-Convert to Markdowneable stress in his statements.
+eable stress in his statements.
 
 Patrolman Gerald L. Hill testified that he and three spent bullet hulls on the floor beneath the window from which the fatal shots allegedly were fired. The PSE showed a stress in his statements.
 

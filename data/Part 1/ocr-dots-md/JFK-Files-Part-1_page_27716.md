@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27716.png
-
-Convert to Markdown42 East Follett St.
+42 East Follett St.
 Fond du Lac, Wisconsin
 
 January 3, 1957

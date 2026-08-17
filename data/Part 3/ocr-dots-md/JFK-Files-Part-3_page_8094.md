@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8094.png
-
-Convert to Markdown14. All memoranda and other materials reflecting meetings and contacts during 1971 between officials of the FBI and officials of the Department of State on the subject of "legal attaches".
+14. All memoranda and other materials reflecting meetings and contacts during 1971 between officials of the FBI and officials of the Department of State on the subject of "legal attaches".
 
 15. All memoranda and other materials relating to the elimination of the FBI Crime Records Division in 1972 or early 1973.
 

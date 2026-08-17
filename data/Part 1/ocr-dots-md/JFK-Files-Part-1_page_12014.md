@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12014.png
-
-Convert to Markdown14-00000
+14-00000
 
 T 038993 EIA651 PAGE 01 IN 354509
 

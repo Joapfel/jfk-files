@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29076.png
-
-Convert to MarkdownPart II
+Part II
 
 Pre-1970 and Post-1969 Capital Loss Carryovers
 

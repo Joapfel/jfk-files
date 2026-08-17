@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12366.png
-
-Convert to Markdown<table><tr><td>1</td></tr><tr><td>2</td></tr><tr><td>3</td></tr><tr><td>4</td></tr></table>
+<table><tr><td>1</td></tr><tr><td>2</td></tr><tr><td>3</td></tr><tr><td>4</td></tr></table>
 
 <table><thead><tr><th colspan="2">MESSAGE FORM - 1527<br/>TOTAL AMOUNTS</th></tr></thead><tbody><tr><td>S E C R - E T</td><td></td></tr></tbody></table>
 

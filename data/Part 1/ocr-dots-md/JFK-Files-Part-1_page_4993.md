@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4993.png
-
-Convert to MarkdownThe KCMP Liaison Office,
+The KCMP Liaison Office,
 2450 Massachusetts Ave. N.W.,
 Washington, D.C. 20008
 

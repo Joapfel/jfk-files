@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25691.png
-
-Convert to MarkdownSECRET
+SECRET
 
 K/BC/CANADA:JMHouley:cn - 23 January 1968
 

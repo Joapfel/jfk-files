@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3205.png
-
-Convert to Markdown1817
+1817
 
 1. Senator Tower. Are the criteria different for paid and
    for non-paid informers?

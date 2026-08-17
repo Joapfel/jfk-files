@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5261.png
-
-Convert to MarkdownHonors & Awards :
+Honors & Awards :
 
 Knight of the National Order " Honor & Merit "
 

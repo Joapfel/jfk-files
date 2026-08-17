@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31943.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="12">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td colspan="4">AES: 8 JAN 60</td><td colspan="7"></td></tr><tr><th colspan="3">1. Serial No.</th><th colspan="3">9. Name (Last,First-Middle)</th><th colspan="2">3. Date Of Birth</th><th colspan="2">4. Vet Prof.</th><th colspan="2">5. Sex</th><th colspan="2">6. CS-TOD</th></tr><tr><td>Mo.</td><td>Dg.</td><td>Yr.</td><td>Name (Last, First)</td><td>Pat.</td><td>SSN</td><td>Mo.</td><td>Dg.</td><td>Yr.</td><td>None-0<br/>S-DG-1<br/>10 Pt-9</td><td>Code</td><td>S.</td><td>P-T-1</td><td>Yr.</td><td>02</td><td>04</td><td>57</td></tr></thead><tbody><tr><td rowspan="2">7.</td><td rowspan="2">SCD</td><td>Mo.</td><td>Dg.</td><td>Yr.</td><td colspan="3"></td><td rowspan="2">10. Apm Affil./Td.<br/>No.-2</td><td colspan="2">11. REGD</td><td colspan="2">12. CD</td><td rowspan="2">13. QTR/CD</td><td colspan="2"></td></tr><tr><td>Yes.</td><td>No.</td><td>1</td><td colspan="3"></td><td>Tod.</td><td>Code</td><td>1/16</td><td>Dg.</td><td>Yr.</td><td>Yes.</td><td>No.</td><td>1</td><td>2</td></tr><tr><td>12</td><td>27</td><td>54</td><td colspan="3"></td><td colspan="3">50 USCA 403 J</td><td colspan="2"></td><td>02</td><td>04</td><td colspan="2"></td><td colspan="2">2</td></tr></tbody></table>
 

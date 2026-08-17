@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30680.png
-
-Convert to Markdown12 APR 1966
+12 APR 1966
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

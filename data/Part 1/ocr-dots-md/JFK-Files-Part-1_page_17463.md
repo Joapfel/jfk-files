@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17463.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The following cables re passing information to Tello on which he can base a break in relations with Cuba and letting Ambassador use what material he wants to pass to Tello, all cables to be found in C/III office only.
 

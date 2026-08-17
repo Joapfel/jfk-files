@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16489.png
-
-Convert to Markdownhomes in violation of our HUMAN RIGHTS, will henceforth be treated as outlaws, as gangsters, as evildoers. We have no way of determining that a man in a uniform involved in a forced outlaw entry into our home is in fact a Guardian of the Law. He is acting like a law-breaker and we must make an appropriate response.
+homes in violation of our HUMAN RIGHTS, will henceforth be treated as outlaws, as gangsters, as evildoers. We have no way of determining that a man in a uniform involved in a forced outlaw entry into our home is in fact a Guardian of the Law. He is acting like a law-breaker and we must make an appropriate response.
 
 We draw the line at the threshold of our doors. It is therefore mandated as a general order to all members of the Black Panther Party for Safety Defense that all members must acquire the technical equipment to defend their homes and their dependents and shall do so. Any member of the Party having such technical equipment who fails to defend his threshold shall be expelled from the Party for Life.
 

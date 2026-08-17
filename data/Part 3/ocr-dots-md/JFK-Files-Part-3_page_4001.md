@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4001.png
-
-Convert to Markdowneven though there is no specific allegation of likely involve-
+even though there is no specific allegation of likely involve-
 ment in violence.
 
 Another reason for the revision is to exclude those

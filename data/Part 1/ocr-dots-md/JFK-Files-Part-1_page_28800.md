@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_28800.png
-
-Convert to MarkdownSTATE - C, WASHINGTON, D.C.
+STATE - C, WASHINGTON, D.C.

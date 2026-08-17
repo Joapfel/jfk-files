@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18382.png
-
-Convert to MarkdownMark Gitenstein or Art Harrigan of the SSC staff that response, in
+Mark Gitenstein or Art Harrigan of the SSC staff that response, in
 such an instance, will be voluminous and should be refined by
 consultation.
 

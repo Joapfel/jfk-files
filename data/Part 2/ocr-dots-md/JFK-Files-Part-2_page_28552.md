@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28552.png
-
-Convert to Markdown# DISTRICT UNEMPLOYMENT COMPENSATION BOARD
+# DISTRICT UNEMPLOYMENT COMPENSATION BOARD
 ## LOW EARNINGS REPORT—To be completed by the employer and delivered to the claimant at his request.
 
 Employee's Social Security No. 212-56-6718

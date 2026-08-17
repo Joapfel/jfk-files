@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26187.png
-
-Convert to Markdownofficial documents of the French, trying
+official documents of the French, trying
 to explain him and so on, by friends. I found
 very interesting, and I had no way of judging
 really on it—there was a tremendous sympathy

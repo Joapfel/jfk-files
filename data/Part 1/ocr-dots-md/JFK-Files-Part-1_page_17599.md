@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17599.png
-
-Convert to MarkdownSECRET - KAPOK
+SECRET - KAPOK
 
 Attachment
 HDC-A-12936

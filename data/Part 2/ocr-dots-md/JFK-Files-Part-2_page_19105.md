@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_19105.png
-
 professor in differential geometry. Don and his wife, Phyllis, have two children; Tamar and Jeremy. Phyllis has a Ph.D. in biophysics and worked in a laboratory in Princeton, New Jersey. The second son, Alan, 26 years old, graduated from Columbia University in 1959 and is in business with his father. The youngest son, Tom, 22 years old, had just graduated from Cornell in 1964 and planned to enter Columbia School of Business. -C -
 
 An extra copy of this communication is being furnished for urfile 134-3315 on Samuel Jaffee. -C -

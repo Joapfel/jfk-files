@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11420.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="2">PERSONAL RECORD QUESTIONNAIRE<br/>PART I - BIOGRAPHICAL INFORMATION</td>

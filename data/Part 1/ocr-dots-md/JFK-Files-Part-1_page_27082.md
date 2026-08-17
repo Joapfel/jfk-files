@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27082.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><caption>PROVISIONAL OPERATIONAL APPROVAL</caption><tbody><tr><td rowspan="3">MEMORANDUM FOR: Chief,<br/>BOD/AB/CPS-3 - Larry Murphy</td><th scope="row">NUMBER</th><td>201-294544</td></tr><tr><th scope="row">SUBJECT</th><td>SOTO Vasquez, Antonio</td></tr><tr><th scope="row">REFERENCE:</th><td>Your Memorandum, Dated<br/>7 April 1965 pno</td></tr></tbody></table>
 

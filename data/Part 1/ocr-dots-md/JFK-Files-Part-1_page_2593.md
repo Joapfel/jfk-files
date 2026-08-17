@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2593.png
-
-Convert to MarkdownYuriy Ivanovich NOSENKO
+Yuriy Ivanovich NOSENKO
 
 001274
 

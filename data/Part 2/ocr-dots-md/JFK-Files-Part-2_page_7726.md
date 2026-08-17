@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7726.png
-
-Convert to Markdown13-00000
+13-00000
 
 Directorate, KGB, to provide for assignment to the KGB residency under Soviet Embassy cover in Helsinki, Finland, as the CI officer working against foreign intelligence services.
 

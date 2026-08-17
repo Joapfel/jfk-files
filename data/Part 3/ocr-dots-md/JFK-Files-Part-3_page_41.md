@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_41.png
-
-Convert to MarkdownHelen, and Antonio, figure in a soft情—about time could be. Now come to Norwalk from Phoenix 25 year-olds. Since then, they have evidently lived according to a single, uncomplicated philosophy — namely, people who work hard, worship God, discipline their children, and mind their own business will make out accordingly. Life might be meager, but it will advance smoothly and peaceably and, perhaps, for their children, it may even become progressively richer.
+Helen, and Antonio, figure in a soft情—about time could be. Now come to Norwalk from Phoenix 25 year-olds. Since then, they have evidently lived according to a single, uncomplicated philosophy — namely, people who work hard, worship God, discipline their children, and mind their own business will make out accordingly. Life might be meager, but it will advance smoothly and peaceably and, perhaps, for their children, it may even become progressively richer.
 
 And, until July, the Hernandez formula had seemed a sound one.
 

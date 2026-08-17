@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5760.png
-
-Convert to Markdown1.7 Sep 72
+1.7 Sep 72
 
 B2
 

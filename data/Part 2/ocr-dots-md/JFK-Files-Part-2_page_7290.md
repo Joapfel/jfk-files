@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7290.png
-
-Convert to MarkdownUUCG:NG MESSAGE
+UUCG:NG MESSAGE
 
 SIGNAL CENTER USE ONLY
 

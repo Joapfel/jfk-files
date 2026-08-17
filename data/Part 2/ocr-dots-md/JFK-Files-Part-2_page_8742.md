@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8742.png
-
-Convert to Markdownthe two Cubans had been in Dallas to organize or
+the two Cubans had been in Dallas to organize or
 oversee the operation. APIAGAS said he had been greatly
 distressed by what he had seen and heard.
 

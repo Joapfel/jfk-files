@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19111.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 APR-0298
 

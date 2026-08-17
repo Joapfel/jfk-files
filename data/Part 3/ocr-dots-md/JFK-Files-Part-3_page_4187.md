@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4187.png
-
-Convert to MarkdownFBI WASH DC
+FBI WASH DC
 
 FBI MEMPHIS
 1256AM URGXENT 3-29-68 DGB

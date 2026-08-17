@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15816.png
-
-Convert to MarkdownST/EL H/
+ST/EL H/
 
 JOHN
 CISZEWSKI

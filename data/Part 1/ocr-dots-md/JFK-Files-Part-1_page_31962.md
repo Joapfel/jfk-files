@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31962.png
-
-Convert to MarkdownSECRET
+SECRET
 CLASSIFICATION
 
 # FITNESS REPORT

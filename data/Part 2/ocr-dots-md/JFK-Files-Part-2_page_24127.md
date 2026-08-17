@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24127.png
-
-Convert to Markdowninvestment, and profits situations of the corporations in the context of the operational objectives and the cover needs of the corporations. In effect the annual project review is based upon an audit as searching as that required for statutory Government corporations.
+investment, and profits situations of the corporations in the context of the operational objectives and the cover needs of the corporations. In effect the annual project review is based upon an audit as searching as that required for statutory Government corporations.
 
 ## F. Disposition of Funds Returned from Proprietaries
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6933.png
-
-Convert to Markdownwhich you heard today, if you support release of the records, you
+which you heard today, if you support release of the records, you
 must also ensure that you have the support of other agencies,
 including the Department of Defense, the Treasury Department, the
 State Department, and such divisions as the Secret Service and the

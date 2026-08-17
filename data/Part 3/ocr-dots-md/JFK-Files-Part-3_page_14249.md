@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14249.png
-
-Convert to Markdownrelated bases is being made with a view to analyzing alternative courses of action open to us if we lose specific bases, classified and otherwise.
+related bases is being made with a view to analyzing alternative courses of action open to us if we lose specific bases, classified and otherwise.
 
 In the audio field, Mr. McCone said that the USIB will have some recommendations to make.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1519.png
-
-Convert to MarkdownINCOMING TELEGRAM Department of State
+INCOMING TELEGRAM Department of State
 
 34-31
 Action

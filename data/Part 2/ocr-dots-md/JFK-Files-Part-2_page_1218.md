@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1218.png
-
-Convert to Markdown1 December 1952
+1 December 1952
 
 GS-11
 

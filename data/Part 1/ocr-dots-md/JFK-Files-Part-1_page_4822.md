@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4822.png
-
-Convert to MarkdownFBI DOCUMENTS
+FBI DOCUMENTS
 
 CABLE FM DIRECTOR, FBI
 DATE: 7 MARCH 1975

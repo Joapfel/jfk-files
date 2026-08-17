@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24987.png
-
-Convert to Markdownremind at an NSC meeting that could
+remind at an NSC meeting that could
 have been construed as an order to
 assassinate Lemmunda.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9074.png
-
-Convert to Markdown<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>OSMA 23,350</td></tr></tbody></table>
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>OSMA 23,350</td></tr></tbody></table>
 
 there are several developments relating to TICHBORN/WUSALINE, etc. that should be mentioned.
 

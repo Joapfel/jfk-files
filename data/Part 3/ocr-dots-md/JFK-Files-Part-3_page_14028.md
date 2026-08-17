@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14028.png
-
-Convert to Markdowneffort has penetrated into the South Vietnamese society. Viet Cong
+effort has penetrated into the South Vietnamese society. Viet Cong
 military units are guided by Cong Political Committees which are set up in
 each Province. There is, Mr. Colby stated, a Communist Party in South
 Vietnam whose main efforts are directed at "shooting at us" and propagandizing

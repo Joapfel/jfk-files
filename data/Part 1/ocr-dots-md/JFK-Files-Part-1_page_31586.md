@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31586.png
-
-Convert to Markdown<table><tr><td>Executive Department</td></tr><tr><td>3-6124</td></tr></table>
+<table><tr><td>Executive Department</td></tr><tr><td>3-6124</td></tr></table>
 
 12 January 1953
 

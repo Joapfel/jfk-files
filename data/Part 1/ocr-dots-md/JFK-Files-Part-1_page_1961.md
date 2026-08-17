@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1961.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EYES ONLY
 

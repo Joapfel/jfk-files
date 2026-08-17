@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11907.png
-
-Convert to MarkdownIn March, 1970, we again advised the White House,
+In March, 1970, we again advised the White House,
 the Attorney General, the Army, Secret Service, Internal
 Revenue Service, the Internal Security and Civil Rights Division
 of the Department and the Inter-Division Information Unit,

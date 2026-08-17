@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8205.png
-
-Convert to Markdown13-00000
+13-00000
 
 # Le peuple soviétique est fidèle à STALINE !
 

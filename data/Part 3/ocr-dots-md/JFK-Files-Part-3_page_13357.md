@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13357.png
-
-Convert to MarkdownOLSEN: And do you know how long after the assassination that
+OLSEN: And do you know how long after the assassination that
 that interview took place?
 
 STURGIS: No, sir. I don't; I really don't remember the exact date.

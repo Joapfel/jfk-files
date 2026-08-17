@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26751.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A Well, it is a matter of record in the AMOT history that this indeed did take place. Now, what I have been trying to determine is whether the On-Site Case Officer authorized this, which I fully doubt.
 

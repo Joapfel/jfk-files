@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22355.png
-
-Convert to Markdown# The Huston Plan
+# The Huston Plan
 
 Mr. Osborn states emphatically that the Office of Security had no knowledge whatever in developing or assisting in the so-called "Huston Plan," relating to domestic security operations. He states that he had never heard of it until it hit the papers at the time of the Watergate investigation. All relationships with the Inter-Agency Domestic Intelligence unit was handled for the CIA by Mr. Helms and Mr. Ober.
 

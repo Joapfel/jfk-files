@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9298.png
-
-Convert to Markdown5 Sept. 1950
+5 Sept. 1950
 
 To Boris Shub
 SIO W. 110th St.

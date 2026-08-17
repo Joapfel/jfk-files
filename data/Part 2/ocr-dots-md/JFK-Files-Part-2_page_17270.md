@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17270.png
-
-Convert to Markdownspoke on revolution andIntegration. In addition to this speech he also spoke at Roosevelt University on this date in defense of the black student union at that university. This speech was directed at the radical whites to illicit backing of the black student demands.
+spoke on revolution andIntegration. In addition to this speech he also spoke at Roosevelt University on this date in defense of the black student union at that university. This speech was directed at the radical whites to illicit backing of the black student demands.
 
 ## Field Secretaries
 

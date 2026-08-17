@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5822.png
-
-Convert to Markdownadvised that Mrs. CUESTA had inquired what it would cost to obtain documents in the FBI files on her under the FOIA.
+advised that Mrs. CUESTA had inquired what it would cost to obtain documents in the FBI files on her under the FOIA.
 
 9. Attempts are being made to obtain the name of the attorney for whom Mrs. CUESTA works.
 

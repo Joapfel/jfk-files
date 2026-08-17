@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14637.png
-
-Convert to Markdown# DOMESTIC INTELLIGENCE DIVISION
+# DOMESTIC INTELLIGENCE DIVISION
 
 On March 12, 1959, the Director attended a conference in the Attorney General's office in connection with current security programs and matters collateral thereto. The Director expressed the view that security programs had been held in abeyance in the Department of Justice with the result that other agencies of the Government were taking advantage of such delays and offering as excuses for nonaction the fact that the Department of Justice had not yet indicated what should be done or should not be done in view of some decisions of the courts and anticipated decisions of the courts. The Director urged that basic action should be taken on certain of these programs. While some of these matters have been acted upon, others are still pending and are set forth below for the Director's information.
 

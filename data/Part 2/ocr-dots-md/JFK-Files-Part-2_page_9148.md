@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9148.png
-
-Convert to Markdown# III. STATEMENTS BY THE SUBJECT CONCERNING VIOLENCE AND ACTIVITY IN RACIAL SITUATIONS
+# III. STATEMENTS BY THE SUBJECT CONCERNING VIOLENCE AND ACTIVITY IN RACIAL SITUATIONS
 
 As noted before, on July 1, 1966, RH T-1 made available an ANP application pertaining to DRAGER dated July 26, 1965. Under a section of this application entitled "State In Your Own Words Why You Want To Join The American Nazi Party," the following was contained:
 

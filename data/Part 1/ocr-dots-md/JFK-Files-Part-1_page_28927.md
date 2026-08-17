@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28927.png
-
-Convert to MarkdownSECRET
+SECRET
 
 It is understood and agreed that the eligibility and extent of the participation by you and your dependents in the above medical programs will be in conformance with the rules, regulations and policies of this organization in effect at the time an illness or injury is incurred, that all claims will be submitted only to this organization and the adjudication of such claims by this organization shall be final and conclusive.
 

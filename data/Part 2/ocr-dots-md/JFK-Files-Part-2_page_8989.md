@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8989.png
-
-Convert to Markdown¿Detalles sobre el empleo, quien fue el contacto?
+¿Detalles sobre el empleo, quien fue el contacto?
 
 ¿Que papel tuvo Carlos Lechuga Evía en el complot?
 

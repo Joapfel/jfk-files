@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18850.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 returned from Russia. MARTIN said he had a friend in the Soviet Embassy in London, a First Secretary, Mr. DENCHINSKY (ph), who also talked to JAFFE about the visa and promised to help. Just before JAFFE left London for the U. S., he received word from DENCHINSKY that the matter was being considered at the highest level, and word of the results would be given to the Soviet Embassy in Washington, or directly to the magazine in New York. JAFFE asked FEDOSEEV to help him. FEDOSEEV asked if JAFFE planned on being in Washington, D. C., soon. JAFFE said he hoped to be here next week. It was arranged that he will call FEDOSEEV the day before coming down to arrange to get together and FEDOSEEV will try to find out about the visa in the meantime. JAFFE and FEDOSEEV recalled that they had had dinner together some time ago.
 

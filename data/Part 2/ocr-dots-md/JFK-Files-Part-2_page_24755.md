@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24755.png
-
-Convert to MarkdownI. Background
+I. Background
 
 Rafael Trujillo came to power in the Dominican Republic
 in 1930. For most of his tenure, the United States government

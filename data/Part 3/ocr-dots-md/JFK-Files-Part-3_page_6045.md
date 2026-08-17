@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6045.png
-
-Convert to MarkdownJuly 3, 1963
+July 3, 1963
 
 Mr. Jack H. O'Dell
 488 St. Nicholas Avenue

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34777.png
-
-Convert to MarkdownDecember 29, 1966.
+December 29, 1966.
 
 Mr. Paul J. Avaut.
 P.O. Box 701.

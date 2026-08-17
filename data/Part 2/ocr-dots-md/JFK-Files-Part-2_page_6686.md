@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6686.png
-
-Convert to Markdown9 February 1994
+9 February 1994
 
 MEMORANDUM FOR: OGC/Litigation STEVE
 FROM: Terri Eagal

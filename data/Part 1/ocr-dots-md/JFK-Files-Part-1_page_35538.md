@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35538.png
-
-Convert to MarkdownRADIO NEW YORK WORLDWIDE
+RADIO NEW YORK WORLDWIDE
 
 West 80th Street New York 19 N.Y.
 P. O. Box 1163

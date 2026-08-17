@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9614.png
-
-Convert to MarkdownSECRET ARMY ORGANIZATION
+SECRET ARMY ORGANIZATION
 
 The Secret Army Organization is the most active, most completely dedicated and most selective in its membership of all the many patriotic organizations in America. We are willing to make any sacrifice for our country and we fully expect that some of us will have to make the ultimate sacrifice before victory is achieved. Our very lives depend on each other. There is no place in this organization for bunglers, playboys or lukewarm conservatives. If you join the Secret Army Organization, there might easily come a time that your life would depend on how competently some other member had learned his job.
 

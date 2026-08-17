@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23082.png
-
-Convert to MarkdownDr. Guillermo Barcela
+Dr. Guillermo Barcela
 Liverpool, 52
 Mexico 6, D.F.
 Haroico

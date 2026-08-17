@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22528.png
-
-Convert to Markdown# Michael J. Malone, rep of U.S.
+# Michael J. Malone, rep of U.S.
 ## businesses in South America
 
 Among the numerous potential contacts listed by Wiley were Paul Bethel and Jules Dubois who Wiley was told to avoid because they were being watched by local services in South America. Wiley was told to be careful in contacts with Manuel Artime and the DRE representatives.

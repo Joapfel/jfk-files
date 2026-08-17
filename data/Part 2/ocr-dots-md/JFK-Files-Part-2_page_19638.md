@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19638.png
-
-Convert to MarkdownNR 002 AX PLAIN
+NR 002 AX PLAIN
 
 TELETYPE
 

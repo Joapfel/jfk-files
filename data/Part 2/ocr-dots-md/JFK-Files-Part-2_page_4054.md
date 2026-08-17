@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4054.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 examined the photograph and then stated that she did not know the individual who appeared in the photograph and had never seen him before. Mrs. OSWALD was advised of the name and aliases of the subject and she stated that she did not know anyone by any of those names.
 

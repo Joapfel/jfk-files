@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6467.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. Questions What are the criteria for accepting a Soviet escapee as a relief recipient and what office or regulations determine case?
 

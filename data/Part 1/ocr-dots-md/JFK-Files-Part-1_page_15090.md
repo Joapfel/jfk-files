@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15090.png
-
-Convert to Markdownmy qualifications as a car driver (I learned how to operate an automobile while working on electric detail on car repair at my M.T.S.). I can not recall the unit number where I went through the basic training. At that time the barracks were full of troops, basically infantry and artillery units which rotated quite frequently.
+my qualifications as a car driver (I learned how to operate an automobile while working on electric detail on car repair at my M.T.S.). I can not recall the unit number where I went through the basic training. At that time the barracks were full of troops, basically infantry and artillery units which rotated quite frequently.
 
 E. SPECIALIZED COURSES: One month's driver's training as mentioned above.
 

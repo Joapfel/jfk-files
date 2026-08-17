@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14929.png
-
-Convert to Markdown625 SE/LSB/LSB/
+625 SE/LSB/LSB/
 
 CLASSIFIED MESSAGE
 

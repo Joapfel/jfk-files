@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24977.png
-
-Convert to MarkdownMemo for the Files
+Memo for the Files
 
 Page Two
 

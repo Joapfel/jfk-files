@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8729.png
-
-Convert to Markdownbanquet at the Presidential Palace. A large caliber machine gun on a tripod had been discovered behind a curtain. AMFAUNA-1 said that this had nothing to do with AMFAUNA-7's plan which was still pending.
+banquet at the Presidential Palace. A large caliber machine gun on a tripod had been discovered behind a curtain. AMFAUNA-1 said that this had nothing to do with AMFAUNA-7's plan which was still pending.
 
 UFGA 13428 dated 15 January 1964
 

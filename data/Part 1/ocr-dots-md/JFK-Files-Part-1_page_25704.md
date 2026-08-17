@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25704.png
-
-Convert to MarkdownDATE: 2 July 1965
+DATE: 2 July 1965
 
 WED GENT BOARD
 

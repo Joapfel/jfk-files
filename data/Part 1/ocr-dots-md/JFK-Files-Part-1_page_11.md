@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a. Do the Soviet authorities normally permit Soviet citizens married to foreign nationals to emigrate from the Soviet Union to the homelands of their spouses?
 

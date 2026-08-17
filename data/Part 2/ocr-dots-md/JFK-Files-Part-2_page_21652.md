@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21652.png
-
-Convert to Markdown143
+143
 
 Senator Schweiker. Let me ask counsel this.
 

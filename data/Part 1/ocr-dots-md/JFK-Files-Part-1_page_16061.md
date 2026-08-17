@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16061.png
-
-Convert to MarkdownPROPRIETARY NOTICE
+PROPRIETARY NOTICE
 
 The data furnished herein--
 

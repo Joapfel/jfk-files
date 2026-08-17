@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_950.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16 OCT 1967
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24213.png
-
-Convert to MarkdownSECRET
+SECRET
 
 II The arrangement between the cover firm and CREBONY/1 should be on the basis of a regular subvention to CREBONY/1 to act as a foreign stringer contributing feature-type material to the press service. An agreement having been ostensibly entered into by CREBONY/1 and the cover firm during the former's trip to the U.S. (expected around 20 July), a regular monthly check should be forwarded to CREBONY/1 by the cover firm, along with any correspondence it may see fit (suggestions for pieces to write, comments on pieces received etc.)
 

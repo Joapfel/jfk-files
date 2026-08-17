@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28979.png
-
-Convert to Markdown13 August 1956
+13 August 1956
 
 MEMORANDUM FOR: CHIEF, MILITARY PERSONNEL DIVISION
 SUBJECT : Major Lucien F. CORBIN

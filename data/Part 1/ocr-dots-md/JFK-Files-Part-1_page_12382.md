@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12382.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td rowspan="4">PERSONAL USE NOTIFIED</td>
     <td colspan="3">SECRET (When Filled In)</td>

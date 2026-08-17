@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7155.png
-
-Convert to Markdownb. Identifying collaborative operations between the United States intelligence agencies and other foreign intelligence liaison services against targets within the country extending the collaboration or within a jointly targetted third country.
+b. Identifying collaborative operations between the United States intelligence agencies and other foreign intelligence liaison services against targets within the country extending the collaboration or within a jointly targetted third country.
 
 c. The nature of support provided, or arrangements with foreign intelligence services supporting US technical collection operations.
 

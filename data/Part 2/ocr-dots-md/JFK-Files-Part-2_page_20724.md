@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20724.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 At approximately 10:00 A.M., November 20, 1971, various women's groups from cities within the United States, including Boston, were observed gathering on the Ellipse in Washington, D.C., and at approximately 12:10 P.M. the group, then numbering about 1500, was observed to march from the Ellipse to the west front of the Capitol building. One of the signs carried by the marchers read "Boston Repeal All Abortion Laws". Two tables of SWP literature were set up during the gathering at the Ellipse and four at the rally site at the Capitol.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8840.png
-
-Convert to MarkdownLunes
+Lunes
 
 8.15 62
 

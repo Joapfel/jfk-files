@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35399.png
-
-Convert to Markdown"The Fastistianos are very well organized and also the Frio followers, waiting for me to do something, and I cannot do anything. It's like St. Lawrence, roasted on one side and fried on the other."
+"The Fastistianos are very well organized and also the Frio followers, waiting for me to do something, and I cannot do anything. It's like St. Lawrence, roasted on one side and fried on the other."
 
 I asked whether the Council was looked upon too much as a political entity rather than a unifying medium. Miro replied, "Those people (Prio, Alabau, etc.) want to obstruct the ones who are fighting: Castro through the medium of the Council. They are divided into two groups: (1) Politicians; Prio, Alonso Fujol; those that want to be the directors; (2) The groups that want to act within Cuba who don't want to join CRC but rather to deal directly with you people in order to have the power tomorrow in Cuba; people only of action, but not of common sense and who cannot mean much to the future of Cuba; they would cause another era like that of Fidel, who is nothing but a student. That is extremely dangerous. You give these people the means and if one of them over-throws Fidel he is the one who assumes power. He may be a good man of action but only 24 or 25 years old and not one who can orient Cuba in the way of democracy. After reaching 40, people think differently. Fighters are capable of carrying out the action you give them to do, but not to govern."
 

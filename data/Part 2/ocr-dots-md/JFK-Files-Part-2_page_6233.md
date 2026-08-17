@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6233.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 8. We have seen DDP monthly operational reports which contain information on the allocation/distribution of operational funds. Are there other DDP records which would reflect how certain projects utilized their funding? How are these records organized? How should a search query be framed?
 

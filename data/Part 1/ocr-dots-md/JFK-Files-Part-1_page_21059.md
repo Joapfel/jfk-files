@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21059.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Pilled In)
 
 17 APR 68

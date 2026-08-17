@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3348.png
-
-Convert to MarkdownH.R. 10916
+H.R. 10916
 
 IN THE HOUSE OF REPRESENTATIVES
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31203.png
-
-Convert to MarkdownUJUNCI
+UJUNCI
 
 002339
 

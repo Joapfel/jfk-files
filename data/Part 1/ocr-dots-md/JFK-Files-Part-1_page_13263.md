@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13263.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM<br/>TOTAL COMES:</td><td></td><td>BOUTING AND/OR INITIALS - SHOWN BY</td><td></td></tr><tr><td rowspan="5"><table><tr><td>ORIG. K. TARDINER</td></tr><tr><td>UNIT W1/3/V</td></tr><tr><td>END 4521</td></tr><tr><td>DATE 7 SEPT 1967</td></tr><tr><td></td></tr></table></td><td></td><td></td><td><table><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></table></td></tr></table>
+<table><tr><td>MESSAGE FORM<br/>TOTAL COMES:</td><td></td><td>BOUTING AND/OR INITIALS - SHOWN BY</td><td></td></tr><tr><td rowspan="5"><table><tr><td>ORIG. K. TARDINER</td></tr><tr><td>UNIT W1/3/V</td></tr><tr><td>END 4521</td></tr><tr><td>DATE 7 SEPT 1967</td></tr><tr><td></td></tr></table></td><td></td><td></td><td><table><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></table></td></tr></table>
 
 <table><thead><tr><th>CABLE SECRETARIAT DISSEMINATION</th><th>☐ INDEX ☐ DESTROY ☐ RETURN TO __________ SEARCH ☐ FILE 813</th></tr></thead><tbody><tr><td>BY <u>23</u> PER <u>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</u></td><td><input type="checkbox"/> NO INDEX <input type="checkbox"/> FILE IN C5 FILE NO.</td></tr><tr><td>CONFIDENTIALITY <input type="checkbox"/></td><td>ADVICE <input type="checkbox"/> RED COPY <input type="checkbox"/></td></tr></tbody></table>
 

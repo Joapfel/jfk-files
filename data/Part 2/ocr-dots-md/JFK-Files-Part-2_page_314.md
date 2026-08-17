@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_314.png
-
-Convert to Markdown148. Entrada a las 1102hs.- Súmno, de Cubana procura que el o. Consul os Curbolo.- Jorrín, que no, que es Mira bal.--- 151.
+148. Entrada a las 1102hs.- Súmno, de Cubana procura que el o. Consul os Curbolo.- Jorrín, que no, que es Mira bal.--- 151.
 
 158. Entrada a las 1109hs.- HF con Jorrín lo dice que con el muchacho que lo va a mandar el papel que pidió que si le pueda mandar nño de literatura sobre Cuba porque el os simpaticante de los cubanos.- Jorrín: que sí, que lo que tenga so lo va a mandar.--- 169.
 

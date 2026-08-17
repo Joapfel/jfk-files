@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29760.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4" style="text-align:center;">M. SPACE FOR DETAILED ANSWERS TO OTHER QUESTIONS. Indicate item numbers to which answers apply.</th>

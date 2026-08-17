@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21226.png
-
-Convert to Markdownpertaining to RALPH MATLAW only when he was reviewing files
+pertaining to RALPH MATLAW only when he was reviewing files
 of VOLKOV and YEFREMOV although he was their case officer when
 they were in touch with MATLAW in 1959.
 

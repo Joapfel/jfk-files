@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_844.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TSURUSHIMA Sotsubrei, KURO Kenji, KONAKA Yotaro, SAKAMOTO
 Yoshikazu, SAITO Masahiko, etc.

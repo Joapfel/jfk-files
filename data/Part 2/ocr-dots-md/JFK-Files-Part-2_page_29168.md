@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29168.png
-
-Convert to Markdown# CITY OF DETROIT INCOME TAX
+# CITY OF DETROIT INCOME TAX
 
 CITY OF
 DETROIT

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11362.png
-
-Convert to Markdownarts. Individual members of the cultural sections have close ties in many instances with suspected international communist representatives. The following of this phase of the Communist Party movement is most important to develop the full and complete picture of Communist Party activities.
+arts. Individual members of the cultural sections have close ties in many instances with suspected international communist representatives. The following of this phase of the Communist Party movement is most important to develop the full and complete picture of Communist Party activities.
 
 (18) Veteran's matters (Bureau file 100-3-73)
 Communist Party policy and activities of a significant character directed toward the exploiting of veterans and their problems

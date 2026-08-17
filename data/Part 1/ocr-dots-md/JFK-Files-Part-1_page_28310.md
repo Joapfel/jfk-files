@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28310.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 AFS: 29 AUG 61

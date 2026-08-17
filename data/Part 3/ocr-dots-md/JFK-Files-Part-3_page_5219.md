@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5219.png
-
-Convert to MarkdownPART D.
+PART D.
 
 1. The La Cosa Nostra (LCN) continues to exist in the Northern California area and includes a San Francisco "family" and a San Jose "family." There are currently 8 members of the San Francisco "family" residing in this division and 19 members of the San Jose "family" residing in this division. In addition, there are two members of the San Francisco "family" residing in the Sacramento Division, one member in the Los Angeles Division, one in the Chicago Division and two members presently residing in Italy. There are currently 3 members of the San Jose "family" residing in the Sacramento Division and one in the Las Vegas Division. All of these members have been identified as members of the San Francisco or San Jose "families by TE informants of the San Francisco Division.
 

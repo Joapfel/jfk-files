@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17204.png
-
-Convert to Markdown1) Following the daily movements of LIMEC personnel;
+1) Following the daily movements of LIMEC personnel;
 
 2) Providing and confirming the identities of LIMEC staffers and their visitors (some of whom were PERMERS);
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32628.png
-
-Convert to MarkdownSECRET
+SECRET
 
 this level of activity is not the sort of thing that
 will bring down the government unless the president

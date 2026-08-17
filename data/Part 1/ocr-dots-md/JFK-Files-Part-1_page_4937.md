@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4937.png
-
-Convert to Markdown# Terrorist Plot by Rightist Cuban Exiles See
+# Terrorist Plot by Rightist Cuban Exiles See
 
 By Joanne Omalig
 Washington Post Foreign Service

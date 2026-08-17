@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28984.png
-
-Convert to MarkdownDu Company was associated with the fitting out of its French manager, who also acted as the chief engineer. The main operation was a unilateral operation by France.
+Du Company was associated with the fitting out of its French manager, who also acted as the chief engineer. The main operation was a unilateral operation by France.
 
 6. The oil contamination took place just prior to the Vistulaish takeover of Danilovichi on 9 October 1944. Cohen, assisted by Frank Gartner, gained entry to stored drugs of the Du Company's lubricating oil, opened the doors, and started pouring in the contaminant. Funds from the contaminant overran them in the enclosed storage area. Upon reviving, the two placed themselves over their forces and completed the task.
 

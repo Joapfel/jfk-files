@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8445.png
-
-Convert to MarkdownFIRST REQUEST TO INTERNAL REVENUE SERVICE FOR DOCUMENTS
+FIRST REQUEST TO INTERNAL REVENUE SERVICE FOR DOCUMENTS
 
 The Committee wishes to identify all intelligence collection, analysis and dissemination functions performed by the Internal Revenue Service (IRS), and to review the legal authority for such activities, the manner in which they are ordered and controlled, the coordination of such activities with other federal agencies, the exchange of intelligence information with other federal agencies and any other cooperation with such agencies relative to intelligence activity. In pursuit of this inquiry the Committee requests, that the IRS provide the Committee with the documents and information identified below.
 

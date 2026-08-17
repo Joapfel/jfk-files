@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35358.png
-
-Convert to MarkdownGENERAL EXPENSES
+GENERAL EXPENSES
 
 APRIL N-24
 NO. 3

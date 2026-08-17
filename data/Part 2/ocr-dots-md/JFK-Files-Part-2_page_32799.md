@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32799.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 interchange of information between the U.S. Coast Guard and British naval forces with regard to possible staging areas which may be used by exiles in the Bahamas.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24046.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th></th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET/RYBAT</td><td></td><td>MARKED FOR INDEXING</td></tr><tr><td></td><td>NO INDEXING REQUIRED</td><td></td></tr><tr><td></td><td>ONLY QUALIFIED DESK CAN AUDGE INDEXING</td><td></td></tr><tr><td></td><td>MICROFORM</td><td></td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th></th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET/RYBAT</td><td></td><td>MARKED FOR INDEXING</td></tr><tr><td></td><td>NO INDEXING REQUIRED</td><td></td></tr><tr><td></td><td>ONLY QUALIFIED DESK CAN AUDGE INDEXING</td><td></td></tr><tr><td></td><td>MICROFORM</td><td></td></tr></tbody></table>
 
 <table><tr><td>DISPATCH</td></tr><tr><td>TO<br/>Chief, WOLIME</td></tr><tr><td>INFO.<br/>Chief of Station, London<br/>Chief, EUR Division</td></tr><tr><td>FROM<br/>Acting Chief, LCPIPIT/London (PARFORTH Acting)</td></tr><tr><td>SUBJECT<br/>DTDORIC/Operational<br/>QRPHONE/Illness</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td></tr></table>
 

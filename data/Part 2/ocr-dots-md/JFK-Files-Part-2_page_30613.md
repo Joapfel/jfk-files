@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30613.png
-
-Convert to MarkdownSECRET
+SECRET
 
 14. MW 8
 3/21/67 Biir Dator

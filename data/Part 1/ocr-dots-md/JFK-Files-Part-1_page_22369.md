@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22369.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 NOBLEKU's position: in the KGB would and authenticity to his earlier evaluation of the NOSENKO information of 1962, to his contradictions of NOBENKO's statements concerning service in the U.S. Embassy Section and the operations of that section, and to his contention that the KGB would try to counteract his (GOLITSYN's) information by spreading purportedly authoritative but purposefully misleading reports on the same subject matter. In summary, GOLITSYN's intention in lying about NOSENKO could simply have been to add greater credibility to his expressed opinion that NOBLEKO was a KGB provocateur.
 

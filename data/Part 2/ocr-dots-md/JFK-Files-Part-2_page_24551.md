@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24551.png
-
-Convert to Markdownb. **Harvey and the Special Group Augmented**
+b. **Harvey and the Special Group Augmented**
 
 Harvey testified that he never informed the Special Group Augmented, or any of its members individually, of the ongoing assassination plots. As we described earlier, the Special Group Augmented and its Mongoose program began its Cuba activities in late 1961 through 1962. Harvey attended many of the Special Group Augmented meetings as the CIA's representative. He testified that at no time was assassination discussed at any of the meetings, except for the August 10, 1962 meeting.*
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15926.png
-
-Convert to MarkdownThe following investigation was conducted at New Haven, Connecticut:
+The following investigation was conducted at New Haven, Connecticut:
 
 On April 22, 1969, Mrs. OLIVIA ROSS, Alumni Records Office, Yale University, advised that the subject was an ex-member of the class of 1968, entering Yale in the fall of 1964, and leaving in the spring of 1965. She stated that no reason was recorded for his leaving. She stated that records show that he was a member of Branford College and resided at 368 Wright Street, New Haven.
 

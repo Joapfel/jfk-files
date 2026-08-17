@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33485.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CABLE SEC DISSENT BY 38 P.F.
 TOTAL COPIES 30 - RUN BY

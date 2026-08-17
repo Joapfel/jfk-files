@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30073.png
-
-Convert to Markdown14-0000
+14-0000
 
 Herman Edward Kimsey
 7110 Massachusetts Avenue, N. W.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29913.png
-
-Convert to Markdown20 AUG 1975
+20 AUG 1975
 
 MEMORANDUM FOR: Chief, Plans Staff
 

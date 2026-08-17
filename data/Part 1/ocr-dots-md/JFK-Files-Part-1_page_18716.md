@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18716.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EMPLOYEE NOTICE OF RESIGNATION
 

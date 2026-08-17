@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3314.png
-
-Convert to MarkdownAppendix B
+Appendix B
 
 A Program of Covert Action
 

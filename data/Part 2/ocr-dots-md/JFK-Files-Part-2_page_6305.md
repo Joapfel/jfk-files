@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6305.png
-
-Convert to Markdown<table><thead><tr><th>Office of<br>OIM<br>Information Management</th></tr></thead><tbody><tr><td colspan="2">OIM Corrective Actions</td></tr><tr><td colspan="2">ADMINISTRATIVE - INTERNAL USE ONLY</td></tr><tr><td>☞</td><td><strong>Expedite Automation Efforts</strong><br>♦ Assure All Released Agency Material Contained in a Compatible and Easily Accessible Database</td></tr><tr><td>☞</td><td><strong>Conduct a Top Level Review of Current Classification Policy</strong><br>♦ Confirm What is Sensitive and What is Not</td></tr></tbody></table>
+<table><thead><tr><th>Office of<br>OIM<br>Information Management</th></tr></thead><tbody><tr><td colspan="2">OIM Corrective Actions</td></tr><tr><td colspan="2">ADMINISTRATIVE - INTERNAL USE ONLY</td></tr><tr><td>☞</td><td><strong>Expedite Automation Efforts</strong><br>♦ Assure All Released Agency Material Contained in a Compatible and Easily Accessible Database</td></tr><tr><td>☞</td><td><strong>Conduct a Top Level Review of Current Classification Policy</strong><br>♦ Confirm What is Sensitive and What is Not</td></tr></tbody></table>
 
 s/addais/ed/briefing/982Gina8.ppt
 

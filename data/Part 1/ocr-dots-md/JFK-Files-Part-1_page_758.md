@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_758.png
-
-Convert to MarkdownSECRET
+SECRET
 
 22
 (HRB-906)

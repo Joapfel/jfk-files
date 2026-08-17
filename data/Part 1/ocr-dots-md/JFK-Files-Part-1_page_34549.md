@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34549.png
-
-Convert to Markdownthe Belorussian KGB. Therefore, the KGB and MVD in Belorussia knew about it. Then how and why was Oswald permitted to have a shotgun which he kept in his apartment in Minsk?
+the Belorussian KGB. Therefore, the KGB and MVD in Belorussia knew about it. Then how and why was Oswald permitted to have a shotgun which he kept in his apartment in Minsk?
 
 32. Do you have any information that while in the USSR, especially during the year 1960-1961, Oswald might have been visiting Cuba?
 

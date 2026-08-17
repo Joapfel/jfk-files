@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23118.png
-
-Convert to MarkdownPues bien, debemos escribirnos los tres (lo estoy haciendo también a Millán) para llegar a Lima con perspectivas de una línea adecuada.
+Pues bien, debemos escribirnos los tres (lo estoy haciendo también a Millán) para llegar a Lima con perspectivas de una línea adecuada.
 
 Luego debemos demandar de los norteamericanos y de Pichot y los Europeos un cambio de impresiones o indicarselo a la OMS como acuerdo de nuestra reunión en Lima.
 

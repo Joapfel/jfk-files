@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4186.png
-
-Convert to Markdown5. On the question of autonomous groups the President asked the cost of these operations (five million dollars). He also asked the cost of Cuban operations for the current year (21 or 2 million dollars) and the total Agency budget.
+5. On the question of autonomous groups the President asked the cost of these operations (five million dollars). He also asked the cost of Cuban operations for the current year (21 or 2 million dollars) and the total Agency budget.
 
 6. The intelligence summary concerning Cuba prepared by General Carter for the meeting was examined.
 

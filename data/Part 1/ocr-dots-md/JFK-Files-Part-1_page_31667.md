@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31667.png
-
-Convert to Markdown6 April 1953
+6 April 1953
 
 MEMORANDUM FOR: DEPUTY DIRECTOR (PIANS)
 

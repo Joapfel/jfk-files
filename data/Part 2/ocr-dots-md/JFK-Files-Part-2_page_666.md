@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_666.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Carlos JURADO-Delmur
 

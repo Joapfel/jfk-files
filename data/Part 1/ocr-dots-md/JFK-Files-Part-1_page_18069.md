@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18069.png
-
-Convert to MarkdownD. Effectiveness:
+D. Effectiveness:
 
 1. Project LIONION is considered by the Station to be highly effective and essential. In addition to providing the valuable photographic coverage cited above, LIONION-1 continues to provide interesting observations on the personalities and activities of the personnel working in the targets. LIONION-1 reporting is being incorporated into the recruitment operations targeted against LIRING-2 and LIRING-16.
 

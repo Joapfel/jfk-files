@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7732.png
-
-Convert to Markdown8.06 When he first hears a name, he
+8.06 When he first hears a name, he
 Does nothing obvious to remember it
 Repeats it as he acknowledges the introduction
 Asks the introducer to repeat or verify it

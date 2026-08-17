@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11762.png
-
-Convert to MarkdownSECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 **[N. BUREAU-WIDE INFORMATION PROGRAM REGARDING MATTERS OF NATIONAL INTEREST**
 This program is coordinated by the External Affairs Division and is devoted

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17315.png
-
-Convert to Markdown2 October 1963
+2 October 1963
 
 MEMORANDUM FOR: Chief, Foreign Intelligence
 SUBJECT: TDY to Mexico City

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21723.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. CIA, which is sometime in '52?
 

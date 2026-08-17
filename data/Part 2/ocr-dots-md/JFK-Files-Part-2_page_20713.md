@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20713.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="3">REPORTING OFFICE</th>

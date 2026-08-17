@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1020.png
-
-Convert to MarkdownCIA Director Adm. Stansfield Turner.
+CIA Director Adm. Stansfield Turner.
 
 So when Adm. Stansfield Turner quickly fired 820 Clan-
 destine Services officers last year, my initial approval (some

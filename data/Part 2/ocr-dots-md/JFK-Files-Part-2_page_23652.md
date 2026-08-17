@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23652.png
-
-Convert to Markdownfair one. we have testified that Helms' disposition on this
+fair one. we have testified that Helms' disposition on this
 was very clear. When he signed the estimate it was his estimate
 and it really wasn't the board's estimate.
 

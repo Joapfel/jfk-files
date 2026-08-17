@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18792.png
-
-Convert to MarkdownNOTICE FORM NO. 64
+NOTICE FORM NO. 64
 
 Guate Men
 

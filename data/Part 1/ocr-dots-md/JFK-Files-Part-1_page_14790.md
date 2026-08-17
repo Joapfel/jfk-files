@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14790.png
-
-Convert to MarkdownUUIGUING MESSAGE
+UUIGUING MESSAGE
 
 <table><tr><td colspan="5">SIGNAL CENTER USE ONLY</td></tr><tr><td>DATE</td><td>CODE</td><td>SERVICE</td><td>TOGA</td><td>TYPE</td></tr><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr></table>
 

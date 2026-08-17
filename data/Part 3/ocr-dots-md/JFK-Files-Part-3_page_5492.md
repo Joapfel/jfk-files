@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5492.png
-
-Convert to MarkdownRe: Further Documents Pertaining to the FBI and Department of Justice
+Re: Further Documents Pertaining to the FBI and Department of Justice
 
 Policies and Procedures
 (Appendix B, Part I, Item 1.a.)

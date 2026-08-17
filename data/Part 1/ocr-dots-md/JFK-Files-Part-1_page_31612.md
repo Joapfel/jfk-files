@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31612.png
-
-Convert to MarkdownCOPY
+COPY
 
 MUNICH RFW 20 - JULY 20, 1963
 

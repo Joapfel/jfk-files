@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19959.png
-
-Convert to MarkdownLA 100-70701
+LA 100-70701
 
 appears as one of the JRB sponsors in the December 1967 issue of "La Wisp".
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_19784.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 New York will continue to make efforts to locate a source suitable for assignment and Boston and the Bureau will be advised if such an informant is located.

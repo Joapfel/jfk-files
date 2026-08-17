@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4049.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 VII
 APPENDIX

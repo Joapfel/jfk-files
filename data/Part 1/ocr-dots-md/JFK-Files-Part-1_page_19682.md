@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19682.png
-
-Convert to MarkdownABM: 13 SEPT 62
+ABM: 13 SEPT 62
 
 SECRET
 (When Filled In)

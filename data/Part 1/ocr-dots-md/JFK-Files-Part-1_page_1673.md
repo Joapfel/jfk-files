@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1673.png
-
-Convert to Markdown# OPERATIONS FAMILIARIZATION COURSE #24
+# OPERATIONS FAMILIARIZATION COURSE #24
 
 ## ROSTER (For Staff Use Only)
 

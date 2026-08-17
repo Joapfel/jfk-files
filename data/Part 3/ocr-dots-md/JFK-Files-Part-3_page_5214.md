@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5214.png
-
-Convert to Markdowna sports service at 225 Kearny Street, San Francisco. Investigation has determined that MATZA receives race results by calling either California Turf, Los Angeles, a horse race results business operated by FRANK MILANO, or J & K Sports Journal, North Hollywood, California, operated by GERALD KILLGORE.
+a sports service at 225 Kearny Street, San Francisco. Investigation has determined that MATZA receives race results by calling either California Turf, Los Angeles, a horse race results business operated by FRANK MILANO, or J & K Sports Journal, North Hollywood, California, operated by GERALD KILLGORE.
 
 5. Since the last inspection, the San Francisco Office has developed SF 2661-C-TE, who is a key operator within the ECKSTEIN bookmaking organization. SF 3036-PC, who was targeted at time of last inspection, has been developed to the point where he furnishes detailed information on a weekly basis regarding the LEAHY bookmak- ing organization. This target is a split bookmaker handling sports "action" for the LEAHY organization. As a result of information furnished by SF 3036-PC and SF 3237-C-TE, LEAHY was arrested by the San Francisco Police Department on 8/4/70 on charges of bookmaking and convict in possession of a weapon.
 

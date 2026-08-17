@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1188.png
-
-Convert to Markdown3. Request for black transport should include:
+3. Request for black transport should include:
 
 1. Request that RELEASE CONTINGENCY OPLAN 62-2 be implemented.
 

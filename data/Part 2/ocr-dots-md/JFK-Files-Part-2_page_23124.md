@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23124.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 but that didn't impact on my life at that particular time.
 

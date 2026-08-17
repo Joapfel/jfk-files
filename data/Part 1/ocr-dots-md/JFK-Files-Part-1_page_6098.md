@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6098.png
-
-Convert to MarkdownUNITED STATES OF AMERICA
+UNITED STATES OF AMERICA
 GENERAL SERVICES ADMINISTRATION
 
 National Archives and Records Service

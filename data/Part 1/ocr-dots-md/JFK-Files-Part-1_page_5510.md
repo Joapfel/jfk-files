@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5510.png
-
-Convert to Markdown14-0000
+14-0000
 
 HY-419-67
 Page 4

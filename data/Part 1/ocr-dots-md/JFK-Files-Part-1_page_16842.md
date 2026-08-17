@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16842.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>CIBPATCH SYMBOL AND NUMBER<br/>HIMMA-42,197</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>CIBPATCH SYMBOL AND NUMBER<br/>HIMMA-42,197</td></tr></table>
 
 collection effort being run securely and successfully against a sensitive target with a minimal expenditure of funds and case officer time.
 

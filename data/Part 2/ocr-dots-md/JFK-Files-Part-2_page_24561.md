@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24561.png
-
-Convert to Markdowncrisis for them to have authorized a Castro assassination. (Bundy, p. 95,
+crisis for them to have authorized a Castro assassination. (Bundy, p. 95,
 197-98).*
 
 Bundy further stated that he was never told by anyone that assassination

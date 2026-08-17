@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13240.png
-
-Convert to Markdowndirectly to Chief, FI/Division D, 1502 L Building. No other
+directly to Chief, FI/Division D, 1502 L Building. No other
 distribution is to be made without the specific approval in
 each instance of the Chief, FI/D." Paragraph 2 reads, "The
 above has been personally approved by the Deputy Director

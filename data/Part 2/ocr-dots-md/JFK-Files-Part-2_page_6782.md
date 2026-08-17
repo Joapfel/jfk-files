@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6782.png
-
-Convert to Markdown13-00000
+13-00000
 
 Statement of Admiral William O. Studeman, USN
 Deputy Director of Central Intelligence

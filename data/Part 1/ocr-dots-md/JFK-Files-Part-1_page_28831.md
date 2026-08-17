@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28831.png
-
-Convert to Markdown14-00000
+14-00000
 
 Robert T. Chew
 16 June 1925

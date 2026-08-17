@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28990.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. If, as a direct result of your detail to this organization, you are precluded from utilizing available military travel, transportation or storage facilities, this organization will advance or reimburse you funds to insure that you are not deprived of your military entitlements as set forth and limited in the Joint Travel Regulations and the regulations of your parent military service. Therefore, authority is hereby granted to advance or reimburse you funds for the following expenses:
 

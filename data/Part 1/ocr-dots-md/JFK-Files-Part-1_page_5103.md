@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5103.png
-
-Convert to MarkdownIN 122257
+IN 122257
 
 TDFR 08-315/12267-76
 

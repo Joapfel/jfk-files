@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25740.png
-
-Convert to Markdown15 August 1961
+15 August 1961
 
 MEMORANDUM FOR: Contract Personnel Division
 

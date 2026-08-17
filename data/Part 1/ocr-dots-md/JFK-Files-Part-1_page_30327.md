@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30327.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 760869 APR 19 67

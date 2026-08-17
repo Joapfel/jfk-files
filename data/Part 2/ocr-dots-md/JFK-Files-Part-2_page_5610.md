@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5610.png
-
-Convert to Markdown13-00000
+13-00000
 
 # Testimony of then Retired Do officer
 John SCELSO (pseudonym)

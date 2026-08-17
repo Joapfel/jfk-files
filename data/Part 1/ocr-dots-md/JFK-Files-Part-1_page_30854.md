@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30854.png
-
-Convert to Markdown14-00001
+14-00001
 
 RECORD OF LEAVE DATA TRANSFERRED
 

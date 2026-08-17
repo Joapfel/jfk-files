@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28903.png
-
-Convert to Markdownthe original document, of which this is a photocopy, appears to be genuine and unaltered and to have been made at the time purported.
+the original document, of which this is a photocopy, appears to be genuine and unaltered and to have been made at the time purported.
 
 Signature
 

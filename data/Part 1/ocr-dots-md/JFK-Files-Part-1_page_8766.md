@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8766.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">Отметки о продолжении паспорта. Реновелlement.<br/>Срок настоящего паспорта продлен</td>
    </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34920.png
-
-Convert to Markdown1-00000
+1-00000
 
 P. O. Box 761
 Bโต・ローザー・エドワーズ

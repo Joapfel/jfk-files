@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5883.png
-
-Convert to MarkdownDECLARATION OF MARY LOU CUMMINGS
+DECLARATION OF MARY LOU CUMMINGS
 
 I, MARY LOU CUMMINGS, hereby declare and say as follows:
 

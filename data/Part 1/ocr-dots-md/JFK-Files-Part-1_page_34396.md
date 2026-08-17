@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34396.png
-
-Convert to Markdown<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>UFGA 19537</td></tr></tbody></table>
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>UFGA 19537</td></tr></tbody></table>
 
 b. AMSCROLL optimistically sees the start of a counter offensive against the rampages of Communism in Latin America. Examples cited were Castello Branco's action in Goaiz Province, Brazil; Venezuelan Army operations in the Andes; Panamanian preparations to control agitation on the anniversary of the Canal riots; Argentine Foreign Minister Zavala's public denunciation of Soviet colonialism in Cuba; Jagan's defeat at the polls in Guiana; and "Operation Ayacucho," a seven-nation military maneuver against an "imaginary" target which has Latin American Communists screaming "foul!"
 

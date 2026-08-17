@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22275.png
-
-Convert to MarkdownVol. 1
+Vol. 1
 
 The United States Senate R 119
 COPY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11180.png
-
-Convert to Markdown10 SEP 65 93133
+10 SEP 65 93133
 
 SECRET
 NOC CITE MEXICO CITY 8513

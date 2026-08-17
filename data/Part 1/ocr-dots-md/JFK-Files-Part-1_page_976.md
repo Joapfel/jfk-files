@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_976.png
-
-Convert to MarkdownHSCA Chron, page 9
+HSCA Chron, page 9
 
 <table>
   <tbody>

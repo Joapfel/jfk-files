@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26137.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REPRODUCTION BY ANY MEANS PROHIBITED.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_647.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 231953Z CITE MEXICO CITY 7711
 

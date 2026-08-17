@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21701.png
-
-Convert to Markdown1962, which is approximately four months after
+1962, which is approximately four months after
 
 NOSENKO has stated he transferred to the Seventh
 Department.

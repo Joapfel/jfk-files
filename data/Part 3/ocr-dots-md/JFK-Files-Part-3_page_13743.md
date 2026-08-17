@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13743.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Office of Security - William D. Pawley
 Two volumes

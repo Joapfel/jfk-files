@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1800.png
-
-Convert to Markdown# Latin American Operations
+# Latin American Operations
 
 We urge that the Agency give high priority to supporting the expansion of activities of Latin America, and insure that the proper level of competence is assigned to these important posts.
 

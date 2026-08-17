@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14144.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: Reconnaissance of Cuba
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3338.png
-
-Convert to Markdown14-0000
+14-0000
 
 information that we had not divulged to him. AMBIDDY-1 then inquired if he could see the photographs. I replied that it was our feeling that it would serve no useful purpose other than to satisfy his own curiosity. Inasmuch as he had promised to take Adelaide out of the country, there was no sense in rubbing salt into the wound. Furthermore, we did not wish to reveal our sources to AMBIDDY-1. Lastly, both he and I know that photographs could be fabricated and we did not want to be falsely accused of doing just this. AMBIDDY-1 again asked that I inform BECKHOFF that he is interested in seeing the pictures. In order to drop the entire subject, I promised AMBIDDY-1 I would pass the message to BECKHOFF.
 

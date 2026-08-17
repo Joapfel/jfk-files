@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29530.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="4">THE AGENCY WILL REPORT COMPENSATION AS FOLLOWS (See Item 16 below)</td></tr><tr><td>COVERT (if cover only, omit rest of this item.)</td><td>FORM #1</td><td>FORM 1099</td><td></td></tr></table>
 

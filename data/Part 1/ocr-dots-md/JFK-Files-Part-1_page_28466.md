@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28466.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="2">STANDARD FORM 127<br/>APRIL 1981<br/>PRESCRIBED BY GENERAL<br/>SERVICES ADMINISTRATION<br/>REQ 3 IV 10.</td>
         <td>REQUEST FOR OFFICIAL PERSONNEL FOLDER</td>

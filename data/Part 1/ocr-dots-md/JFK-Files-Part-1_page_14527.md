@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14527.png
-
-Convert to MarkdownReport No. 261.
+Report No. 261.
 
 29 Jan 1970
 

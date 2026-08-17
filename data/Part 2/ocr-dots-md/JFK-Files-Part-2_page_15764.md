@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15764.png
-
-Convert to Markdownthey would talk about projection of a better
+they would talk about projection of a better
 life in this world including the United
 States, the media was silent. The reporters
 were there but their bosses never printed

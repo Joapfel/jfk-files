@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21310.png
-
-Convert to MarkdownMC 97-71
+MC 97-71
 
 SOURCES
 

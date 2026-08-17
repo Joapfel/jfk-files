@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_312.png
-
-Convert to MarkdownTres.- 118.- 8 noviembre 66.
+Tres.- 118.- 8 noviembre 66.
 
 que ella ya no trabaja aquí porque se está preparando para entrar a la Universidad.- Marcela que Chichay lo hizo un pidi do de libros para enviar a Cuba y que ya se los están cobran- do.---- 472.
 

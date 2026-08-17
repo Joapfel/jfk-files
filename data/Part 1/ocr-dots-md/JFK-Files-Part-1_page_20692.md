@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20692.png
-
-Convert to Markdown<table><thead><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td>DATE :<br/>200 HM/JM/BJ<br/>3 APR 57</td><td>200</td></tr><tr><td>TO : DIRECTOR</td><td rowspan="4" style="vertical-align: top;">SECRET</td></tr><tr><td>FROM : HAVANA</td></tr><tr><td>ACTION : WH 5</td></tr><tr><td>INFO : FI/OPS 2, FI/RI. 2, NEA 4, OP 2, S/C 2</td></tr></tbody></table>
+<table><thead><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td>DATE :<br/>200 HM/JM/BJ<br/>3 APR 57</td><td>200</td></tr><tr><td>TO : DIRECTOR</td><td rowspan="4" style="vertical-align: top;">SECRET</td></tr><tr><td>FROM : HAVANA</td></tr><tr><td>ACTION : WH 5</td></tr><tr><td>INFO : FI/OPS 2, FI/RI. 2, NEA 4, OP 2, S/C 2</td></tr></tbody></table>
 
 BOUTINO
 

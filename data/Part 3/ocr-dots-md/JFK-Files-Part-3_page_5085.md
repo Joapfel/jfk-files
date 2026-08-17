@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5085.png
-
-Convert to MarkdownRE: SENSTUDY 75
+RE: SENSTUDY 75
 
 # RECOMMENDATIONS:
 

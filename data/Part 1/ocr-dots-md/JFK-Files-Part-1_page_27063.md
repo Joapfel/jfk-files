@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27063.png
-
-Convert to MarkdownFILE NO. 242 369
+FILE NO. 242 369
 
 DATE 17 June 1965
 

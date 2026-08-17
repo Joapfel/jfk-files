@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10279.png
-
-Convert to Markdown14-00000
+14-00000
 
 jeto de actividades —biológicas o institu-
 tivas— que no rebasan su nivel meramente natural y que, por tanto, no podemos considerarlas como específicamente humanas.

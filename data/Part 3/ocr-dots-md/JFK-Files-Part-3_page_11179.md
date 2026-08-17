@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11179.png
-
-Convert to MarkdownLegal Counsel to Mr. Adams Memo
+Legal Counsel to Mr. Adams Memo
 RE: CONGRESSIONAL COMMITTEES
 REVIEW OF FBI OPERATIONS
 

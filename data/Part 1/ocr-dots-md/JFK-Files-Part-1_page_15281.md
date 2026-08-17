@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15281.png
-
-Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+# Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : William R. Caraway, SR/BOB
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31567.png
-
-Convert to MarkdownSeptember 18, 1953
+September 18, 1953
 
 Memorandum for Messrs. Joseph B. Phillips
 William Durkee

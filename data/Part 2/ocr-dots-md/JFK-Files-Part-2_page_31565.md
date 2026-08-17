@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31565.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 SF T-5 on December 17, 1965, furnished a copy of a "Dear Friend" letter, dated December 14, 1965, issued by the International Committee of the VDC. The letter informed the recipient there was "now" a serious danger that soon the Johnson Administration would further escalate the war in Vietnam by extending the bombing to the population centers of North Vietnam, Haiphong and possibly Hanoi.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11489.png
-
-Convert to MarkdownThis document is prepared in response to your request and is not for dissemination outside your Committee. I am required to official proceedings by your Committee and the control. This is a draft and is not final. It may be revised and disclosed to unauthorized personnel without the express approval of the FBI.
+This document is prepared in response to your request and is not for dissemination outside your Committee. I am required to official proceedings by your Committee and the control. This is a draft and is not final. It may be revised and disclosed to unauthorized personnel without the express approval of the FBI.
 
 62-116395
 

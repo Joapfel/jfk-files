@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16296.png
-
-Convert to Markdown1. CLASS
+1. CLASS
 
 We see that the key to truly understanding and improving our situation is to truly understand the nature of class society. We see that in America and in the world that those who have money control those who do not. WEALTH-POWER! We feel that the wealth of the world should be shared equally among all people. The workers or the masses of the people produce the wealth and they should control it. We see that our allies are those who have nothing and our enemies are those who have too much.
 

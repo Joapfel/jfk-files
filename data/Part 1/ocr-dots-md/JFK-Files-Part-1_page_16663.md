@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16663.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 NO FOREIGN DISSEN
 

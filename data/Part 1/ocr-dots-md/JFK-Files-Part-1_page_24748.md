@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24748.png
-
-Convert to MarkdownEL CASO LEONOV
+EL CASO LEONOV
 
 Nikolay Sergeyevich LEONOV arribó a Lima el día 23 de Abril de 1969. LEONOV, subdirector del servicio de prensa NOVOSTI en Latino-America, es experto en asuntos latino-americanos. Y también es alto oficial de la KGB, el servicio secreto de inteligencia de la Unión Soviética. Durante su estada de diez años en México, funcionaba como segundo secretario y agregado de prensa de la Embajada Soviética para dirigir el curso y financiamente del apoyo clandestino de la Unión Soviética a todos los partidos comunistas de Latino-America. Si estos años de actividad subversiva muestran indicios del papel que desempeñó como representante oficial del gobierno soviético (y así lo indican los contactos que tomó) se puede suponer que el propósito de su misión en Lima no consiste meramente en informar al pueblo soviético sobre el Peru y los Peruanos.
 

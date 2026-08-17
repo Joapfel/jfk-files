@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23764.png
-
-Convert to Markdown1. The support, both.
+1. The support, both.
 
 2. Mr. Aaron. Would that include supporting the Executive Order provision being in the law or just supporting?
 

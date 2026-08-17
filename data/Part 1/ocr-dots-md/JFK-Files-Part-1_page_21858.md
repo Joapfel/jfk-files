@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21858.png
-
-Convert to Markdown# C. Motivations and Intentions of NOSENKO
+# C. Motivations and Intentions of NOSENKO
 
 ## 1. Introduction
 

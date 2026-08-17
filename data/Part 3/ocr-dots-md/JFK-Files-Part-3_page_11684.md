@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11684.png
-
-Convert to MarkdownStudent National Coordinating Committee (SNCC)
+Student National Coordinating Committee (SNCC)
 
 already receiving extensive political education in communist
 ideology of Marx, Lenin and Stalin. The decision was made to

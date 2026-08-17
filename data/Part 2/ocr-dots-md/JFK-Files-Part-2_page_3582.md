@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3582.png
-
-Convert to MarkdownE. Czechoslovakia-Mali We have an intercepted message from the Malian ambassador in Prague reporting incidents between Czechs and Malians a week ago Sunday. There were, the ambassador notes, "only six wounded on the Malian side." (INTERCEPT)
+E. Czechoslovakia-Mali We have an intercepted message from the Malian ambassador in Prague reporting incidents between Czechs and Malians a week ago Sunday. There were, the ambassador notes, "only six wounded on the Malian side." (INTERCEPT)
 
 F. Japan Ikeda does not appear to be in any particular trouble in tomorrow's elections. The long-range trend toward the left in popular vote will probably be apparent, but Ikeda's Liberal Democratic Party should retain a safe majority in the next Diet. The leftists have tried to turn rising prices and last week's twin disasters into election ammunition, but without marked success.
 

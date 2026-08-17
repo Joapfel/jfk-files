@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18867.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : Mr. Tolson
 DATE: July 13, 1954

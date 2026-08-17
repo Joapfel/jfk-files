@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7075.png
-
-Convert to Markdownit outweighs the public interest, and such public disclosure would reveal--
+it outweighs the public interest, and such public disclosure would reveal--
 
 (A) an intelligence agent whose identity currently requires protection;
 

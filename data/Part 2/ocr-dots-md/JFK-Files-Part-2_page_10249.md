@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10249.png
-
-Convert to Markdown2 AUG 1972
+2 AUG 1972
 
 # Foreign Support for Activities Planned to Disrupt or Harass the Republican National Convention
 

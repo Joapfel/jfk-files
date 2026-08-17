@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21553.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 wasn't. But he was at a meeting when the bills were delivered, and Dr. Treichler came over to Colonel Edwards' office.
 

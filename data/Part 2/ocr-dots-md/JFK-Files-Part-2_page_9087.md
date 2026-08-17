@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9087.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 had maintained that if CIA was to operate effectively, it had to know what was going on in U.S. establishments. The implication was left that CIA was covering activities of other U.S. agencies through technical installations. Inquiries developed information indicating that CIA had installed a microphone in the Embassy in 1952 at the request of a State Department official. The Office of Security in State Department was contacted in an effort to pin this down in a more specific manner. We were told by State that their records did not contain any information concerning the microphone.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2327.png
-
-Convert to Markdownand soon I was invited to visit personnel department of MGB (Ministry of State Security). But MGB did not accept me. After that with the help of the father I began to deal with the personnel department of the intelligence of the ministry of military navy concerning my future work.
+and soon I was invited to visit personnel department of MGB (Ministry of State Security). But MGB did not accept me. After that with the help of the father I began to deal with the personnel department of the intelligence of the ministry of military navy concerning my future work.
 
 Passing state exams I failed Marxism-Leninism and with a group of fails I was passing state exams once more. In October 1950 I finished the institute and received a diploma.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28948.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="2">US DISTRICT OFFICE</td>
         <td colspan="3">DEPARTMENT OF HEALTH, EDUCATION, AND WELFARE<br/>SOCIAL SECURITY ADMINISTRATION<br/>PAYEE, ADDRESS CHANGE, OR HOLD CHECK REQUEST</td>

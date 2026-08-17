@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13952.png
-
-Convert to Markdown(6) That the DCI participate with the Bureau of the Budget in its review of the intelligence budgets of the various U. S. intelligence agencies.
+(6) That the DCI participate with the Bureau of the Budget in its review of the intelligence budgets of the various U. S. intelligence agencies.
 
 (7) That the DCI be responsible for (1) overseeing the preparation of national, intelligence estimates by the intelligence community, (2) assuring the timely flow of intelligence to the White House, and (3) providing intelligence briefings to the President and other White House officials as required.
 

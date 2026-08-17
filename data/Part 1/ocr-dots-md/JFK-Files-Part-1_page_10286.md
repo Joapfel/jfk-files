@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10286.png
-
-Convert to Markdown# LA PALMA DE LA MANO
+# LA PALMA DE LA MANO
 
 ## José Lezama Lima
 

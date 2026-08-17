@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29672.png
-
-Convert to Markdown# Classification: ____
+# Classification: ____
 
 (This form is to be used for non-CIA, unclassified documents from CIA-controlled documents.)
 

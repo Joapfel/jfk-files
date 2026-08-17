@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22109.png
-
-Convert to MarkdownAfter being told by CIA on 31 January 1965 that a lead cable had been found in the north wing, NOSENKO said: "I personally can assure you that nothing was done in that right wing. Nothing, absolutely nothing. There was nothing done there, so it must have been something else."
+After being told by CIA on 31 January 1965 that a lead cable had been found in the north wing, NOSENKO said: "I personally can assure you that nothing was done in that right wing. Nothing, absolutely nothing. There was nothing done there, so it must have been something else."
 
 No extensive counter-audio checks have yet been carried out in the north wing of the U.S. Embassy, and no wired microphones have been found there. Investigation of the microphones in the main section of the Embassy led, however, to the discovery of other Soviet technical equipment installed in the north wing. The USIB damage report stated: "Three-coaxial cables were discovered running parallel to the one-hundred-and-one pair audio cable from the North Annex roof area to the basement of the North Annex...[All three cables were severed by American technicians in 1964.] The cable runs were as follows:
 

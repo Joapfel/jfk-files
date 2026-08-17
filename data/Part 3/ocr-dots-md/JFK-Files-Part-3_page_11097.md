@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11097.png
-
-Convert to MarkdownLegal Counsel to Mr. Adams Memo
+Legal Counsel to Mr. Adams Memo
 RE: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
 
 Miller also advised on 4-2-75 that their review of the Ellison investigation showed justifiable concern for her being cleared for the staff, and he asked for any guidance we might give him. It was pointed out that the only real solution to the situation seemed to be that she not be added to the staff. Miller said he would appreciate any comments from the CIA also in this regard. This request was conveyed to CIA by Section Chief William Cregar of the Intelligence Division who subsequently advised that Charles Kane, Director of Security, CIA, had reviewed the file on Ellison and agreed there was sufficient cause to question her suitability for assignment to the Select Committee staff. Kane stated CIA Director Colby concurred in this observation.

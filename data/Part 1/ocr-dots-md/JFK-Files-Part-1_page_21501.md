@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21501.png
-
-Convert to Markdownthe preparation of this summary. It will be commented on in part and this summary will include conclusions correlated with the seven primary conclusions set forth on page 358 of the above summary.
+the preparation of this summary. It will be commented on in part and this summary will include conclusions correlated with the seven primary conclusions set forth on page 358 of the above summary.
 
 Remarks concerning certain errors, inconsistencies, omissions and unsupported conclusions in the previous summary in regard to specific cases or sub-areas will be included in this summary. However, this summary will not include a point-by-point comparison of all areas of agreement or disagreement with information contained in the previous summary.
 

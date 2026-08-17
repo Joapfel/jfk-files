@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30296.png
-
-Convert to MarkdownI U P O L Y H E L I
+I U P O L Y H E L I
 
 36
 

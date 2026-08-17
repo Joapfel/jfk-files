@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6684.png
-
-Convert to Markdown13-00000
+13-00000
 
 HK U6 '94 03:17PM USGOVERNMENT
 

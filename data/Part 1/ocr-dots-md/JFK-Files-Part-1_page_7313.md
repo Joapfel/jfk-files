@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7313.png
-
-Convert to Markdown**Collecting** (What does he collect? Guns, stamps, coins, books, butterflies, etc.)
+**Collecting** (What does he collect? Guns, stamps, coins, books, butterflies, etc.)
 
 As a collector, is he Avid ______ Moderately dedicated ______ Only casual ______
 

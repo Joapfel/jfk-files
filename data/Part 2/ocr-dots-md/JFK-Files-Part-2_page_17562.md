@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17562.png
-
-Convert to Markdown2 - Mr. S. F. Phillips
+2 - Mr. S. F. Phillips
 
 April 30, 1975
 

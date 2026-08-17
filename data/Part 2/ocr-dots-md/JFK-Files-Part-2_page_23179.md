@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23179.png
-
-Convert to Markdowna day, seven days a week, and a lot of this is a blur to me.
+a day, seven days a week, and a lot of this is a blur to me.
 
 So when you say do you remember McCone coming, yes, I do remember that. Can you put it in a time frame of 7 to 8 December, no, I can't.
 

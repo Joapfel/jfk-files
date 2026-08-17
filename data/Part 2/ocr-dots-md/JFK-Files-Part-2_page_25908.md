@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25908.png
-
-Convert to MarkdownSUNDAY, JUNE 1, 1975
+SUNDAY, JUNE 1, 1975
 
 Daily 10c—Sunday 25c
 

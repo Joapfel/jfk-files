@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23234.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and that if securely feasible it would be a good idea for the two men
 to meet there. Mr. Crozier stated that he thought that it could be

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2486.png
-
-Convert to MarkdownThe following comments are concerned with several specific cases in which, according to NOSENKO, there was an approach by the KGB, interesting information was developed, or in which at least a considerable amount of specific work was carried out by NOSENKO, KOSOLAPOV and GRYAZNOV.
+The following comments are concerned with several specific cases in which, according to NOSENKO, there was an approach by the KGB, interesting information was developed, or in which at least a considerable amount of specific work was carried out by NOSENKO, KOSOLAPOV and GRYAZNOV.
 
 The first case, (James STORSBERG) is covered on pages 166 - 177 of the previous summary. Little additional comment is considered necessary on this case since there does not appear to be any adequate reason to question the general story of NOSENKO in regard to the KGB effort against STORSBERG.
 

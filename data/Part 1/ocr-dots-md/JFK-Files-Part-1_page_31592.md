@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31592.png
-
-Convert to Markdown21 July 1953
+21 July 1953
 
 MEMORANDUM FOR: DIRECTOR OF CENTRAL INTELLIGENCE
 SUBJECT: Meeting with PSS

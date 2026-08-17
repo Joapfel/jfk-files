@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5885.png
-
-Convert to Markdown**CIA-IR-10 IG Reports**
+**CIA-IR-10 IG Reports**
 
 On 3 August 1998, the DCI area/IRO informed HRG that OIG does not maintain an index or inventory of IG cases. All reports and material prepared by the IG on the JFK assassination were turned over to the Office of External Affairs (OEXA). There is no indication that a report on the handling of Oswald was ever prepared.
 

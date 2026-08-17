@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11541.png
-
-Convert to Markdown(j) In reporting activities of a subject since January 1, 1949, a greater percentage of repetitious and cumulative items and in most instances all such items should be specifically reported.
+(j) In reporting activities of a subject since January 1, 1949, a greater percentage of repetitious and cumulative items and in most instances all such items should be specifically reported.
 
 It will be particularly incumbent upon the reporting Agent to report specifically such items in those cases in which there is little information[indicating]subversive activity of a subject since January 1, 1949. In those cases in which there is an enormous number of such items, you may be more liberal in the selection of those items to be reported specifically.
 

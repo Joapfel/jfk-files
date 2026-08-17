@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31608.png
-
-Convert to Markdown1907-07-26
+1907-07-26
 
 Czechoslavsky
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19140.png
-
-Convert to Markdown**Women's Bail Fund**
+**Women's Bail Fund**
 
 The following are reflections carried under the sub-caption "Questions We Are Facing Right Now".
 

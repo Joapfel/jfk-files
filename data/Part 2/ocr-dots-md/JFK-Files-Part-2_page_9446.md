@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9446.png
-
-Convert to MarkdownPOSITIONS IN FIRING:
+POSITIONS IN FIRING:
 
 There are various positions in firing (shown) on. Each one is used for a different battle condition. The prone position is for when you are being shot at and you have no cover, lay down as shown below making yourself as small a target as possible. The kneeling position is when you can get behind a car or something, in making yourself as small a target as possible, and your standing position can be held in defense (for making yourself a small target) or for use in pursuit or offense. You should learn and become comfortable in each of the positions, because you never know what a variation might dictate.
 

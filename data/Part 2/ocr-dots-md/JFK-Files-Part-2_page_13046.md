@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13046.png
-
-Convert to MarkdownSAC, NEW YORK (100-111180)
+SAC, NEW YORK (100-111180)
 
 8/30/62
 

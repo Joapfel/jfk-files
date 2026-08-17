@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15811.png
-
-Convert to MarkdownParis, 24 March
+Paris, 24 March
 
 Hi kid,
 

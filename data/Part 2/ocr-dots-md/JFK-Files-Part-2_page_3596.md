@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3596.png
-
-Convert to Markdownc. The Betancourt government has struck back hard. Its new unified command over the security forces, set up at US urging, passed this initial test with flying colors.
+c. The Betancourt government has struck back hard. Its new unified command over the security forces, set up at US urging, passed this initial test with flying colors.
 
 d. At least 500 extremists were arrested and the round-up is still going on. Their removal will hamper the Communist drive against elections in major cities like Caracas.
 

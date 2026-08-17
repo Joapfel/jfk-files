@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34022.png
-
-Convert to MarkdownAMERICAN MARITIME ENGINEER March, 1967 p. - 19
+AMERICAN MARITIME ENGINEER March, 1967 p. - 19
 
 who have been employed 25 years or more be established at $100.
 

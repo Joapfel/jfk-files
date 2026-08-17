@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23637.png
-
-Convert to MarkdownNow as a practical matter. I think it's fair to say that
+Now as a practical matter. I think it's fair to say that
 he goes pretty far in getting his way at the present time, but
 on some of these requirements on a national basis, this would
 give him the clear authority to ask them to do things.

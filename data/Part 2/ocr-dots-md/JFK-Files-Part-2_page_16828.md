@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16828.png
-
-Convert to MarkdownThe following specimens were examined for the presence of glass, gypsum board and plaster:
+The following specimens were examined for the presence of glass, gypsum board and plaster:
 
 (1) Q211, Q213 and Q214 - glass found on or in these specimens.
 

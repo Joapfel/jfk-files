@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34466.png
-
-Convert to MarkdownEMERGENCY INSTRUCTIONS
+EMERGENCY INSTRUCTIONS
 
 (Continued)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12013.png
-
-Convert to Markdown4. Currency and security
+4. Currency and security
 
 All indices shall be maintained in a current status at all times in a manner which provides tight security of the information and yet makes it easily available to Agents having a need thereof.
 

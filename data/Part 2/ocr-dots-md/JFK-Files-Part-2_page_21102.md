@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_21102.png
-
 to Colonel KING, MALONE wrote that HERBERT had informed him that CIA had separated the section in CIA which deals solely with Cuban matters. MALONE wrote in his memorandum that HERBERT reported to him that he, HERBERT, did not agree with the general opinion of Vice President LYNDON JOHNSON relative to the lack of plans by President KENNEDY relative to Cuba. HERBERT told MALONE that he believed that President JOHN F. KENNEDY would act in the event of a crisis in Cuba and he believed that the opinion expressed by LYNDON B. JOHNSON with ROBERT KLEBERG on 3/15/62, was true as of many months ago.
 
 MALONE wrote in his memorandum to KLEBERG that HERBERT was of the opinion that within the next two to three months, a favorable and appropriate climate will be created inside Cuba which would be favorable to some type of activity to overthrow the CASTRO Government.

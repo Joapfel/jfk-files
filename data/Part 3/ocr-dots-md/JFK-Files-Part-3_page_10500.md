@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10500.png
-
-Convert to MarkdownMAR 26 1975
+MAR 26 1975
 
 NR Ø09 LA CODE
 

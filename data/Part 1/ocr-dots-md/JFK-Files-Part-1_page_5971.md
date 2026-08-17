@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5971.png
-
-Convert to Markdown2 FEB 1960
+2 FEB 1960
 
 TO: Director
 Federal Bureau of Investigation

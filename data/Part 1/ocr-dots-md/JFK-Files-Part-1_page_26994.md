@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26994.png
-
-Convert to Markdown# Corporate Setup
+# Corporate Setup
 
 The HEADQUARTERS for his. T work, the former Dobbs estate, is on Highway 360 just outside of Powder Springs in a remote section of Cobb County. Actually, corporate headquarters is in Washington, in a firm called Environmental Industries, Inc.—a neat euphemism for a company dedicated to killing people. Environmental Industries, WerBell says, is bankrolled by some of the East's most prominent investment houses; he is its director of international operations. He is also president of a subsidiary called Military Armaments Co., Inc., and because he is in Powder Springs, Military Armaments is there, too. (Behind Environmental Industries, WerBell says, is "a third shadow of which E.I. is a subsidiary"—another tantalizing hint of the CIA.)
 

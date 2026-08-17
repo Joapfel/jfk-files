@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35638.png
-
-Convert to MarkdownNo. 3 (FARA J.L.V.F.)
+No. 3 (FARA J.L.V.F.)
 
 Los pueblos de América Latina tienen corazón de sus necesidades y aspiran a desarrollar su próspera economía, a fortificar su próspero riqueza.
 

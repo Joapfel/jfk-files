@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15898.png
-
-Convert to MarkdownIn Reply, Please Refer to
+In Reply, Please Refer to
 File No. CG 157-1291
 
 Title BLACK PANTHER PARTY

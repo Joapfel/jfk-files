@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24054.png
-
-Convert to Markdownb. The Setting In Which the Assassination Plots Occurred Explains, But Does Not Justify Them
+b. The Setting In Which the Assassination Plots Occurred Explains, But Does Not Justify Them
 
 The Cold War setting in which the assassination plots took place does not change our view that assassination is unacceptable in our society. In addition to the moral and practical problems discussed elsewhere, we find two principal defects in any contention that the tenor of the period justifi ed the assassination plots:
 

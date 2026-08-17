@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13897.png
-
-Convert to MarkdownC P S : M I D . A L L O A G E
+C P S : M I D . A L L O A G E
 
 <table>
    <tr>

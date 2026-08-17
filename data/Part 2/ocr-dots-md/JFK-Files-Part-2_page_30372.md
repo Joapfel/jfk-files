@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30372.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 ALDERSON REPORTING COMPANY, INC.
 

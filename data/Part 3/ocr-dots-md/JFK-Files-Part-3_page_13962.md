@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13962.png
-
-Convert to Markdown(13) That the Signals Intelligence Panel of the President's Board, in the course of its review of National Security Agency operations, determine whether significant intelligence gathered by NSA intercept stations in the field is being furnished to U. S. intelligence agency consumers (and to field consumers) in timely fashion.
+(13) That the Signals Intelligence Panel of the President's Board, in the course of its review of National Security Agency operations, determine whether significant intelligence gathered by NSA intercept stations in the field is being furnished to U. S. intelligence agency consumers (and to field consumers) in timely fashion.
 
 (14) That the U. S. Intelligence Board review (1) the adequacy of criteria used for the selection of a particular Military Crypto-logic Service or the CIA for Communications Intelligence and Electronics Intelligence intercept operations in a given country; and (2) the grounds for selecting targets for such operations in a given foreign country.
 

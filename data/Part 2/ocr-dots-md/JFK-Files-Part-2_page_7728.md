@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7728.png
-
-Convert to Markdownthat Subject had been sentenced to death
+that Subject had been sentenced to death
 by the KGB. An article regarding this
 sentence appeared in The Chekist sometime after
 1964.

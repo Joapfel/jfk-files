@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22547.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On 8 August 1963, Wiley verbally reported information he had received regarding Cuban activities.
 

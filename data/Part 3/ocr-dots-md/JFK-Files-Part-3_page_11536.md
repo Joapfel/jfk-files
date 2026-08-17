@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11536.png
-
-Convert to MarkdownPage
+Page
 
 Suggestion Memorandum (Continued)
 

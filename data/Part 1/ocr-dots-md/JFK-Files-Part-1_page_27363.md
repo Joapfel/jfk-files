@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27363.png
-
-Convert to Markdown<table>
+<table>
     <caption>QUALIFICATIONS CODE SHEET</caption>
     <tbody>
         <tr>

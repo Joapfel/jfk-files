@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13421.png
-
-Convert to MarkdownLegal Counsel to Adams Memo
+Legal Counsel to Adams Memo
 
 Re: SENSTUDY 75
 

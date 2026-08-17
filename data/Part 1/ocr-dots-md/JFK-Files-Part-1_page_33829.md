@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33829.png
-
-Convert to Markdown24 April 1952
+24 April 1952
 
 MEMORANDUM FOR: CHIEF LATIN EUROPE
 ATTENTION: Mr. O'Meara

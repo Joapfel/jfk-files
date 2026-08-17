@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16995.png
-
-Convert to Markdown# CYNTHIA HOWELL, PAMELA HANNAH
+# CYNTHIA HOWELL, PAMELA HANNAH
 
 Photographers of and are both of HOWELL. HOWELL allegedly took identification of HANNAH with HANNAH's knowledge when he (HOWELL) went to California, alleged to have a baby.
 

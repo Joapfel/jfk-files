@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5238.png
-
-Convert to MarkdownStatistical Accomplishments and Administrative Handling of Cases
+Statistical Accomplishments and Administrative Handling of Cases
 
 As of 9/30/70, you had 1,873 origin Selective Service matters (1,799 active and 74 inactive). Between March and September 1970 you received 1,186 Selective Service Act matters for investigation, an average of 169 (1,186 - 7) per month. As of 10/23/70, 1,163 of the origin cases were completed. 749 cases are awaiting the United States Attorney's (USA) prosecuting decision, and 414 cases involve indictments of subjects and are awaiting trial. The case load is split about in half between Headquarters City and Resident Agents. 17 Agents are assigned to Squad 6 who handle only Selective Service Act (SSA) matters and their informants. One Agent has been on extended sick leave. Approximately 18 Resident Agents spend between 60 to 100% of their time on Selective Service Act matters. During the fiscal year 1970, ending 6/30/70, you recorded 74 convictions and for the first four months of fiscal year 1971, ending 9/30/70, you have recorded 9 convictions.
 

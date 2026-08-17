@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14384.png
-
-Convert to Markdown14-0000
+14-0000
 
 Report No. 350
 

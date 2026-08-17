@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17654.png
-
-Convert to MarkdownREPORT OF PROJECT LIFAT TO
+REPORT OF PROJECT LIFAT TO
 ACCORDING TO NEW STANDARDS
 
 # 1. Product of the Project

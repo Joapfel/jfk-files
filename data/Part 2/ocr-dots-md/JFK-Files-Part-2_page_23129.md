@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23129.png
-
-Convert to Markdown1 because the CIA did have responsibility and certainly the capability to collect information from foreign countries.
+1 because the CIA did have responsibility and certainly the capability to collect information from foreign countries.
 
 3 Mr. Wallach. Well, we had no reason at the particular time to feel that there was any kind of a case, hard information, that the Cubans were behind the assassination.
 

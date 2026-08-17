@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_890.png
-
-Convert to Markdownproposition that §605 applies uniformly to state and federal officers.
+proposition that §605 applies uniformly to state and federal officers.
 
 Indeed, the very same day the Court decided *Benanti*,
 it also decided in *Rathbun v. United States*, 355 U.S. 107

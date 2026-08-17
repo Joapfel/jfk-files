@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6157.png
-
-Convert to Markdowntherefore, is whether an agency that seeks to protect an individual, regardless
+therefore, is whether an agency that seeks to protect an individual, regardless
 of the quality of the information provided, can substantiate the claim that harm
 will come to that person as a result of revealing her name. When an agency has
 failed to do so, the Board has released the name. n168 The record of events

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32473.png
-
-Convert to MarkdownCampesino Strike Scheduled in Bolivia
+Campesino Strike Scheduled in Bolivia
 
 A planned Campesino (peasant) strike in Bolivia today could lead to violence if it occurs. The Government reportedly plans to block all entrances into La Paz, and campesinos loyal to the government are assembling and arming to counter the strikers who are led by pro-Communist Torribio Salas. A government spokesman claims that the Cuban and Czechoslovak Embassies are financing the strike and that the Cubans are training campesino militia in other areas as well.
 

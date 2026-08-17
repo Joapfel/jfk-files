@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22102.png
-
 s, we heard. For example, when they returned from a trip and discussed what they had seen or when they were preparing for a trip.... But we heard nothing about agents."
 
 Later on this occasion the following dialogue took place:

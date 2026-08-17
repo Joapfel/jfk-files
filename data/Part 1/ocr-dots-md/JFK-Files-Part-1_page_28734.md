@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28734.png
-
-Convert to MarkdownCA-12771
+CA-12771
 
 4. COMMUNICATIONS 2. Formal and informal communication channels. The grapevine. How to read better and faster. How to write more effectively. Testing your own writing.
 

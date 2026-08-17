@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_10697.png
-
-Convert to MarkdownNY 52-10018-G
+NY 52-10018-G
 
 On August 27, 1971, POMMERSHEIM was arraigned before United States Magistrate GERARD L. GOETTEL, United States Courthouse, Foley Square, New York City, and released in his own recognizance, with the provision that he return Monday, August 30, 1971, and present himself to the United States Marshal for fingerprinting. A hearing was set for 2:30 p.m. on Wednesday, September 1, 1971.

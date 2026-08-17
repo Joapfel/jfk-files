@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_242.png
-
-Convert to MarkdownCrypt request- from Leslie Wizelman
+Crypt request- from Leslie Wizelman
 
 2/15/78
 

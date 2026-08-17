@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27888.png
-
-Convert to MarkdownRESUME
+RESUME
 
 NAME: Denise L. McCray
 ADDRESS: 2515 R Street, S.E. #327

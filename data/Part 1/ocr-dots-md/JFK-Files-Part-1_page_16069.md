@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16069.png
-
-Convert to Markdown# II. PREPARATION FOR FIGHTING TERROR
+# II. PREPARATION FOR FIGHTING TERROR
 
 To be continued on next page.
 

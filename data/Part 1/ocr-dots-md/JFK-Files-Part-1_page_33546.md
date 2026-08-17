@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33546.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>08-0908</td></tr><tr><td style="border-bottom: 1px solid black;"></td></tr><tr><td style="border-bottom: 1px solid black;"></td></tr><tr><td style="border-bottom: 1px solid black;">■</td></tr><tr><td style="border-bottom: 1px solid black;">■</td></tr><tr><td style="border-bottom: 1px solid black;">■</td></tr></table>
 

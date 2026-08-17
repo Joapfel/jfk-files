@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2882.png
-
-Convert to Markdownyou yourself said, and I would be more comfortable with a
+you yourself said, and I would be more comfortable with a
 third party making a judgment as to whether the intrusion is
 warranted by the particular circumstance. But I do understand
 your position.

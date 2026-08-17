@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7431.png
-
-Convert to Markdown3 AUG 1965
+3 AUG 1965
 
 MEMORANDUM FOR : Office of General Counsel
 ATTENTION : Norman Block

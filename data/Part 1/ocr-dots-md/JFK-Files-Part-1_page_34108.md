@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34108.png
-
-Convert to MarkdownFor example, I was in Havana in July after hurricane "Irm" hit Western Cuba last June, a number of buildings and houses had to be repaired all over the city of Havana. Debris from demolitions and subsequent constructions was piled on the streets. Time passed, but the streets were still full of debris that gave the city the looks of a bomber target. This caused considerable disgust among the population of Havana.
+For example, I was in Havana in July after hurricane "Irm" hit Western Cuba last June, a number of buildings and houses had to be repaired all over the city of Havana. Debris from demolitions and subsequent constructions was piled on the streets. Time passed, but the streets were still full of debris that gave the city the looks of a bomber target. This caused considerable disgust among the population of Havana.
 
 Another example is that the food quota on the ration book is largely a "paper" reality. What I mean is that the food on the book is rarely available, and whole months pass without any meat, lard, oil, rice, beans, being distributed. At this precise time, in Havana, there are no seasoning ingredients available to the consumer. When the product is available again, the meager book quota is what each one gets, without any compensation for the time during which he could not even get that.
 

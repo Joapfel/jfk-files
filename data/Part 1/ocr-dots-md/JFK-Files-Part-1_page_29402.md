@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29402.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 ORIG: C/JMWAVE-BATHRICK/DCP
 EXT:

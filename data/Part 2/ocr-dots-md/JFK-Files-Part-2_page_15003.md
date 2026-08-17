@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15003.png
-
-Convert to MarkdownSHORTAGES OF U. S. DISTRICT JUDGES
+SHORTAGES OF U. S. DISTRICT JUDGES
 
 AND
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3063.png
-
-Convert to MarkdownNRØ33 WA CODE
+NRØ33 WA CODE
 
 4:47PM 9/4/75 NITEL AJN
 

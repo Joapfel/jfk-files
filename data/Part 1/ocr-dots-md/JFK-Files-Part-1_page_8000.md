@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8000.png
-
-Convert to MarkdownReport Not HKH-1177, Page 2
+Report Not HKH-1177, Page 2
 Date 6 May 1957
 
 not accomplished anything, they will be more amenable to suggestions to prepare for the elections in 1958.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15303.png
-
-Convert to Markdown-5-
+-5-
 
 made by taxi: father had to make many rounds. They got an one-family house with a garden of about 1000 square meters. David and his brother went to the "Lycée Hloche".
 

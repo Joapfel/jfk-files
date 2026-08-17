@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18455.png
-
-Convert to Markdown### 3. Surveillance of Dr. Martin Luther King
+### 3. Surveillance of Dr. Martin Luther King
 
 This investigation examines the authorization for, conduct and termination of, and deliberations regarding the surveillance of Dr. King. This case may involve specific allegations of abuses and other controversial matters where there is reason to believe improprieties may have occurred.
 

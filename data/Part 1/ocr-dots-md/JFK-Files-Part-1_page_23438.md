@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23438.png
-
-Convert to MarkdownSECRET KAPOU
+SECRET KAPOU
 
 -3-
 

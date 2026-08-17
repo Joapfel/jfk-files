@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4046.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 always acted from a principle of love for my country and this same principle actuated my conduct on September 20, 1963, however inappropriate or incomprehensible it may appear. God and I, and also the FBI, know that I am not guilty.
 

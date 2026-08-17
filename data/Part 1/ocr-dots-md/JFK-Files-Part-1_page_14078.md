@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14078.png
-
-Convert to Markdown2 March 1965
+2 March 1965
 
 LX-2480.
 

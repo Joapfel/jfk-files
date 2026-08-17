@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24568.png
-
-Convert to MarkdownRusk testified that he had never been informed of any Castro assassination plans or undertakings and had no knowledge of any such activity. (Rusk, p. 52).
+Rusk testified that he had never been informed of any Castro assassination plans or undertakings and had no knowledge of any such activity. (Rusk, p. 52).
 
 Rusk further testified that he found it "very hard to believe" that President Kennedy or Robert Kennedy would have, in the course of urging action against Castro, sanctioned the use of any measure against Castro.*/ Rusk said that, while it was "possible" that a person, in good faith, might have thought specific courses of action were authorized from the emphasis given to taking action against Castro, nevertheless Rusk testified that with respect to a Castro assassination,
 

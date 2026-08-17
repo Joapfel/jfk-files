@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2714.png
-
-Convert to Markdown1910
+1910
 
 1 exercises, and this is what hangs some of us up.
 

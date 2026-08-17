@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22145.png
-
-Convert to MarkdownThe CIA interviewer then read to him the report which fixed the date of the approach as 5 January 1962, the date contained in NOSENKO's notes, and indicated that NOSENKO used the name NIKOLAYEV (see below). Acknowledging that "maybe" he had used the name Georgiy Ivanovich NIKOLAYEV with JOHNSON, NOSENKO said: "I don't know why I made this mistake with the dates. I think it (the approach) was the first or second day that I was in the Seventh (Tourist) Department. I saw myself that he had (homosexual) intercourse... Your date is absolutely right, but this reminded me that it was soon after I had come in the Seventh (Tourist) Department. Is this important?"
+The CIA interviewer then read to him the report which fixed the date of the approach as 5 January 1962, the date contained in NOSENKO's notes, and indicated that NOSENKO used the name NIKOLAYEV (see below). Acknowledging that "maybe" he had used the name Georgiy Ivanovich NIKOLAYEV with JOHNSON, NOSENKO said: "I don't know why I made this mistake with the dates. I think it (the approach) was the first or second day that I was in the Seventh (Tourist) Department. I saw myself that he had (homosexual) intercourse... Your date is absolutely right, but this reminded me that it was soon after I had come in the Seventh (Tourist) Department. Is this important?"
 
 Question: How long had you been in the Seventh Department?
 

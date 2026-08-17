@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_888.png
-
-Convert to Markdownfor the purposes of obtaining evidence -- wiretapping which was in the Court's view "illicit". Divulgence was held to include use in obtaining evidence and was comprehended by the statute. solely because the Court determined that such a construction was necessary to discourage officers from wiretapping to obtain evidence.
+for the purposes of obtaining evidence -- wiretapping which was in the Court's view "illicit". Divulgence was held to include use in obtaining evidence and was comprehended by the statute. solely because the Court determined that such a construction was necessary to discourage officers from wiretapping to obtain evidence.
 
 In the case at bar, the wiretap was not for the purpose of obtaining evidence but rather for the purpose of obtaining foreign intelligence information. The "broad considerations of morality and public well-being" deemed relevant to the former purpose are not mutatis mutandis translatable to the latter purpose. If those considerations are not so translatable then the exclusionary rule forged by the Court in Nardone II is not so translatable. As the Court makes clear, the derivative use of intercepted messages is prohibited not because of the statutory language but solely to preclude illicit wiretapping.
 

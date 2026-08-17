@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14831.png
-
-Convert to MarkdownJanuary 18, 1960
+January 18, 1960
 
 MACK CHARLES PARKER
 

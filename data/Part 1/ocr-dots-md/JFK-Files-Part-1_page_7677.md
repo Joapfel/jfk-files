@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7677.png
-
-Convert to MarkdownSubject has apparently been taking English lessons since early 1966 at the Instituto de Interpretes y Traductores, which is located at Tiberi, 113 very near the U.S. Embassy. He seems to have made friends with a number of people through these classes. (1). (Cf. under Contacts.)
+Subject has apparently been taking English lessons since early 1966 at the Instituto de Interpretes y Traductores, which is located at Tiberi, 113 very near the U.S. Embassy. He seems to have made friends with a number of people through these classes. (1). (Cf. under Contacts.)
 
 In February 1966 it was reported that Subject's wife had bought a tape recorder (1). In June 1967 Subject himself ordered a Grundig tape recorder (1).
 

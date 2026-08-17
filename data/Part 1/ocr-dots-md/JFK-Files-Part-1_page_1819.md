@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1819.png
-
-Convert to Markdownhandling State communications, etc. In these areas we recommend
+handling State communications, etc. In these areas we recommend
 close liaison be maintained with State on Congressional matters and
 that whenever possible State be given a helping hand with the appro-
 priate Congressional committees on these matters.

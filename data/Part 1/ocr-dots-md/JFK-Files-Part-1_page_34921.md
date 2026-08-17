@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34921.png
-
-Convert to MarkdownJanuary 5, 1967
+January 5, 1967
 
 Distinguished Sirs:
 

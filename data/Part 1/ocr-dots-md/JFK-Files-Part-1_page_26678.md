@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26678.png
-
-Convert to MarkdownAPLICACIÓN
+APLICACIÓN
 
 Pagantila de Olarte, Voz, abril 20 de 1959
 

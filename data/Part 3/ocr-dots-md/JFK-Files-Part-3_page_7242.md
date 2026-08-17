@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7242.png
-
-Convert to MarkdownAssistant to the President H. R. Haldeman; Assistant to the
+Assistant to the President H. R. Haldeman; Assistant to the
 President for Domestic Affairs John D. Ehrlichman and Robert H.
 Finch, Secretary of the Department of Health, Education and
 Welfare.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27865.png
-
-Convert to MarkdownSECRET - ROGER CHANNEL
+SECRET - ROGER CHANNEL
 
 important contribution to the morale and well-being of the Embassy family and American community. Both he and his family have invariably been forthcoming with regard to community projects, and they will be sorely missed.
 

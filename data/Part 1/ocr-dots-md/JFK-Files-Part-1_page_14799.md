@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14799.png
-
-Convert to Markdown14-00000
+14-00000
 
 OF THE U.S. PUBLIC AND OF YOUR FAREWELL EVENTS IN VIETNAM?
 

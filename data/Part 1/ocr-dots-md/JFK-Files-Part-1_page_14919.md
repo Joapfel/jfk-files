@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14919.png
-
-Convert to Markdown<table><tr><td>14-00000</td></tr></table>
+<table><tr><td>14-00000</td></tr></table>
 
 <table><tr><td>SIGNATURE<br/>Sle</td><td>DATE OF CREATION<br/>11.28.1939</td><td>CLASSIFICATION<br/>SECRET</td></tr></table>
 

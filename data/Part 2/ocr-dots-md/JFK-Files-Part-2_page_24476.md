@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24476.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Bissell said circumlocution would have been used "to protect the President" in accord with the concept of "plausible deniability".*
 

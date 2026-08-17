@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33918.png
-
-Convert to Markdown-4-
+-4-
 
 CONCEPTION, MISSOURI
 

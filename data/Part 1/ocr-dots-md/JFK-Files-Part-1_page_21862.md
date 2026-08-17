@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21862.png
-
-Convert to Markdownor of the degree of this cooperation was never raise aga n.
+or of the degree of this cooperation was never raise aga n.
 At the very start of the second meeting, on 11 June, he said:
 "I am tortured all the time by a single thought. Everything
 now depends upon you, only on you. The slightest careless move

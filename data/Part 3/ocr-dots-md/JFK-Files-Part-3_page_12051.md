@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12051.png
-
-Convert to MarkdownThese are just two of many contacts we have made during recent years in the Satellite field.
+These are just two of many contacts we have made during recent years in the Satellite field.
 
 In the Soviet field we have been particularly anxious to develop Defectors-in-place and have made numerous contacts. During 1970 we had an Agent meet clandestinely on three occasions with Balentin P. Nizhelskiy, third Secretary at the Soviet Embassy, who is a known KGB officer and we had several brush meetings with him. He returned to the Soviet Union on normal home leave in late September, 1970, but prior to his departure arrangements were made for subsequent meetings with him when he returned. He has not returned and information recently received indicates this is due to serious illness of his wife in the USSR. While the reported illness of his wife may be only a cover by the KGB to keep us from knowing he reported his contacts, the illness of his wife may be very real and if so and he returns to this country subsequently we have excellent ground work already laid.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24085.png
-
-Convert to Markdownassassination to have been authorized. Although those officials were remiss in not seeking express authorization for their activities, their superiors were also at fault for giving vague instructions and for not explicitly ruling out assassination. No written order prohibiting assassination was issued until 1972, and that order was an internal CIA directive issued by Director Helms.
+assassination to have been authorized. Although those officials were remiss in not seeking express authorization for their activities, their superiors were also at fault for giving vague instructions and for not explicitly ruling out assassination. No written order prohibiting assassination was issued until 1972, and that order was an internal CIA directive issued by Director Helms.
 
 ## Schneider
 

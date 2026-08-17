@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6865.png
-
-Convert to MarkdownList of Exhibits
+List of Exhibits
 
 Statement of T. Jeremy Gunn
 

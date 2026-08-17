@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8.png
-
-Convert to Markdown# OCI quickly put together an experimental President's
+# OCI quickly put together an experimental President's
 covering the period 4-9 January. This was taken by
 **Intelligence Review**, which Richard Lehman, the Assistant for Special
 Projects, brought to Gen. Clifton on 9 January. Clifton thought the

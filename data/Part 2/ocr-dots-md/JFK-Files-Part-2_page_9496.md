@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9496.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 611 Continental,
 Detroit, Michigan

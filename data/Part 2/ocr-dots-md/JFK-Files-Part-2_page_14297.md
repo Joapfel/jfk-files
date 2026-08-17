@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14297.png
-
-Convert to Markdown20. A list of any COINTELPRO type activities as documented in the prepared statement of Attorney General Saxe辩the House Judiciary Committee on November 26, 1975, were engaged in by the FBI subsequent to April 20, 1975.
+20. A list of any COINTELPRO type activities as documented in the prepared statement of Attorney General Saxe辩the House Judiciary Committee on November 26, 1975, were engaged in by the FBI subsequent to April 20, 1975.
 
 III. Other Specific FBI Practices and Programs
 

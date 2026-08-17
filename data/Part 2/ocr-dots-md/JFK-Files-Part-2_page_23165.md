@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23165.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. should provide basis for decision.*
 

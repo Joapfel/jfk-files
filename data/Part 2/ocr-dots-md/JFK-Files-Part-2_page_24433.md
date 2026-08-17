@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24433.png
-
-Convert to Markdown". . . what had happened was that SAS had contrived to put B-1 and AMLASH together in such a way that neither of them knew that the contact had been engineered by CIA. The thought was that B-1 needed a man inside and AMLASH wanted a silenced weapon, which CIA was unwilling to furnish to him directly. By putting the two together, B-1 might get its man inside Cuba and AMLASH might get his silenced weapon -- from B-1." (I.G., p. 101)
+". . . what had happened was that SAS had contrived to put B-1 and AMLASH together in such a way that neither of them knew that the contact had been engineered by CIA. The thought was that B-1 needed a man inside and AMLASH wanted a silenced weapon, which CIA was unwilling to furnish to him directly. By putting the two together, B-1 might get its man inside Cuba and AMLASH might get his silenced weapon -- from B-1." (I.G., p. 101)
 
 A report of a meeting between a case officer and B-1 states that B-1, in his initial contacts with AMLASH-1, discussed plans for assassinating Castro. AMLASH-1 suggested that guerrilla raids against Cuba should be stepped up one month before the "attempt on Fidel Castro" to "prepare the public and raise the morale and resistance spirit of the people." B-1 reported that AMLASH-1 believed that the only solution to the problems in Cuba would be
 

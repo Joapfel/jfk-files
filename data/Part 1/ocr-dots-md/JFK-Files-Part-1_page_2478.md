@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2478.png
-
-Convert to Markdownthis, NOSENKO himself has stated that it did not occur to him to tell us because the stake out had long since been dropped, it had revealed nothing suspicious on the part of ABIDIAN or anyone else, and therefore he had regarded it as insignificant.
+this, NOSENKO himself has stated that it did not occur to him to tell us because the stake out had long since been dropped, it had revealed nothing suspicious on the part of ABIDIAN or anyone else, and therefore he had regarded it as insignificant.
 
 This is not implausible. Another possible explanation, however,
 derived from the already noted inability of NOSENKO to pin down a date

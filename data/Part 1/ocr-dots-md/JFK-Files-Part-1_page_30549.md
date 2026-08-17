@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30549.png
-
-Convert to Markdown13 May 1948
+13 May 1948
 
 I certify that on 6 March 1948, I, Newton Scott Miller, U.S. citizen,
 was married, in accordance with United States State Department regulations

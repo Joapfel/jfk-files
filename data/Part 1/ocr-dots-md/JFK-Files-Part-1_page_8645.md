@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8645.png
-
-Convert to Markdowngirls he can find in the Hotel Geneva and report to A his findings. F pointed out that we demand from him to stall as much as possible. On S remark that he should have something to report to A when he sees him on Sept. 10. F commented that he will have no objection that S report his findings.
+girls he can find in the Hotel Geneva and report to A his findings. F pointed out that we demand from him to stall as much as possible. On S remark that he should have something to report to A when he sees him on Sept. 10. F commented that he will have no objection that S report his findings.
 
 11. S really stalled all he was able in connection with the Chinese Embassy; he did not go there at all, because he still did not obtain the ad from the restaurant Luau.
 

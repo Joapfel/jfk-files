@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18446.png
-
-Convert to MarkdownNEW YORK TIMES
+NEW YORK TIMES
 
 24 JUNI 1976
 

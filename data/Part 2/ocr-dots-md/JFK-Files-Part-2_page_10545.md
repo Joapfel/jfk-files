@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10545.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ## VIII. Coordination
 

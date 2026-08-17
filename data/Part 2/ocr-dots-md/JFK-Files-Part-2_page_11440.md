@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11440.png
-
-Convert to MarkdownII. Mark canceled across face of each card being retained and file in the reserve index, [section B.]
+II. Mark canceled across face of each card being retained and file in the reserve index, [section B.]
 
 III. [Deleted]
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5849.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SUBJECT: (AIUO) Inadvertent Destruction of Records
 

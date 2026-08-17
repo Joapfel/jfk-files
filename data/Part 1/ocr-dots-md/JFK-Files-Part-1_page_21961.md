@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21961.png
-
-Convert to Markdowncover. NOSENKO was unable to recall how the car was ac-
+cover. NOSENKO was unable to recall how the car was ac-
 quired, whether it was a KGB or Inturist vehicle, who the
 driver was, whether he was in the employ of the local KGB,
 or other details.

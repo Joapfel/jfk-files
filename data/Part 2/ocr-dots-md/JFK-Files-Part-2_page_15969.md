@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15969.png
-
-Convert to MarkdownMarch 26, 1969, Roosevelt University,
+March 26, 1969, Roosevelt University,
 Chicago, Illinois.
 (3/28/69)
 

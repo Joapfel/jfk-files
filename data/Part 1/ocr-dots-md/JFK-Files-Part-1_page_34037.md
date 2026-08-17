@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34037.png
-
-Convert to MarkdownCHART NO.4
+CHART NO.4
 CUBAN IMPORTS
 1959-1966
 

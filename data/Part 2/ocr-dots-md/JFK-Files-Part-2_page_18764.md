@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18764.png
-
-Convert to MarkdownNY 134-new
+NY 134-new
 
 personnel. His sphere of operations is in the Asian group. However, in his work with the US UN, he is involved on disarmament matters. In such employment he has come in contact with ~~the~~, mentioned above, who has a similar position with the Soviet UN Delegation. ~~has been helpful and friendly to~~ and ~~looks on him as a friend, in~~ opinion.
 

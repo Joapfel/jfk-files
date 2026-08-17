@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12001.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">DISPATCH</th></tr></thead><tbody><tr><td>NO</td><td>CRC'D</td></tr><tr><td>BECF.</td><td>AENICN C.A. REGISTERED</td></tr><tr><td>FROM</td><td>Chief, Latin America Division</td></tr><tr><td>SUBJCT</td><td>Ricardo Morales Navarette (201-285923)</td></tr><tr><td>ACTION REQUIRED</td><td>REFERENCES</td></tr></tbody></table>
 

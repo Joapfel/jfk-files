@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24235.png
-
-Convert to Markdownrarely has a minute or two late, and in recent meetings—presumably because he feels that Rodigast's never-failing appearance on the precise second of the meeting must mean that this is required KUBARK practice— he has been even more precise. Rodigast is always ready with a suggested solution to a security or other problem which will be faced by Q in carrying out a new assignment.
+rarely has a minute or two late, and in recent meetings—presumably because he feels that Rodigast's never-failing appearance on the precise second of the meeting must mean that this is required KUBARK practice— he has been even more precise. Rodigast is always ready with a suggested solution to a security or other problem which will be faced by Q in carrying out a new assignment.
 
 On the other hand, part of Q's satisfaction with KUBARK might derive from a feeling that KUBARK is a "soft touch". Rodigast does not recommend that anything be done to change Q's opinion (if he really does hold it); Rodigast feels that we are going to pay Q as much whether he likes us or doesn't, and for the same money we might as well make sure he likes us and will do his utmost for the organization rather than simply be a timeserver keeping up appearances. If given cause for resentment, his behavior is unpredictable, for he hasn't much to lose—reputation for loyalty, good name, etc. One solution would be to give him enough so that he would indeed stand to lose much.
 

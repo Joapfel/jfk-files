@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4738.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>OUTGOING &nbsp; MESSAGE</td></tr><tr><td>7-9</td></tr><tr><td>0 0 0 0 0 0 0</td></tr><tr><td>SECRET</td></tr><tr><td>STAFF</td></tr><tr><td>COMP: 695</td><td>INFO. FILE: 1PLAN</td></tr><tr><td></td><td>DIRECTOR</td></tr><tr><td></td><td>864725</td></tr><tr><td colspan="2">DISTRIBUTED BY:</td></tr><tr><td>0</td><td>0</td></tr><tr><td>0</td><td>PER</td></tr><tr><td>0</td><td>@ (1)</td></tr></table>
 

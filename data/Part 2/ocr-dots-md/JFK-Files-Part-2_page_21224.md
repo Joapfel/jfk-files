@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21224.png
-
-Convert to Markdown~~Section, 1st Department, had requested NOSENKO's (7th Department) assistance in obtaining a hotel room for a homosexual agent who was acquainted with [HOFFMAN]; ~~1st Section desired to obtain photographs through the infrared process of the meeting between the agent and [HOFFMAN]~~S~~
+~~Section, 1st Department, had requested NOSENKO's (7th Department) assistance in obtaining a hotel room for a homosexual agent who was acquainted with [HOFFMAN]; ~~1st Section desired to obtain photographs through the infrared process of the meeting between the agent and [HOFFMAN]~~S~~
 
 8. [MELVIN (MARVIN) KANTOR]
 

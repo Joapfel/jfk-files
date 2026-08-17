@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15862.png
-
-Convert to MarkdownV. ACTIVITIES
+V. ACTIVITIES
 
 Source advised a political orientation class was held at the Precious Bloor Church, Western and Congress Parkway, Chicago, on October 29, 1969. The major discussion centered on arguments to counter classic racists arguments that all whites are evil by nature and cannot be saved, except by extermination. The counter argument was that a multiplicity of reasons are responsible for the white racist technological advantage over the non-white races, but it is his system of economics which makes him the monster he is.
 

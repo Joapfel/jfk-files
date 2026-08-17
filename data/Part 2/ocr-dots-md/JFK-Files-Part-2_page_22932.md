@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_22932.png
-
 of mine at the time with special responsibilities for Cuban affairs, and perhaps more widely in Latin America. He was at that time a foreign service officer secunded to the White House.
 
 Mr. Kelley. Did he have any responsibility for covert actions?

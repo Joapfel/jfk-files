@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14951.png
-
-Convert to MarkdownThe Acting Attorney General
+The Acting Attorney General
 
 the Manhattan and Brooklyn Sections of the American Labor Party but outside of New York City they have been unable to win control."
 

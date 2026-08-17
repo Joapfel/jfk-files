@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29788.png
-
-Convert to MarkdownOctober 23, 1975
+October 23, 1975
 
 Mr. David Murphy
 1537 Forest Villa Drive

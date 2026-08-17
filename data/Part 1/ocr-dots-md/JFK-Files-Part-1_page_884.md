@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_884.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EX-9816
 1 March 1972

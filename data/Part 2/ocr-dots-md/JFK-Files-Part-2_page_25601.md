@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25601.png
-
-Convert to MarkdownCERTIFICATE OF SERVICE BY MAIL
+CERTIFICATE OF SERVICE BY MAIL
 
 I, JUNE S. TOKUYAMA, declare:
 

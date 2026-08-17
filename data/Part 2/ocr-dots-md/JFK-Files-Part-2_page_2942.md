@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2942.png
-
-Convert to MarkdownSECRET
+SECRET
 
 22 January 1962
 McCone meets with House Sub-Committee on CIA.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12991.png
-
-Convert to MarkdownSECRET
+SECRET
 
 S E C R E T 062243Z MAY 68 CITE SANTO DOMINGO 5472
 

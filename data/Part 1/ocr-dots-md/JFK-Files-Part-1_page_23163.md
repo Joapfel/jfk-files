@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23163.png
-
-Convert to Markdownautoridades comunistas cubanas que dirigen la salud pública. En segundo lugar, importando profesionales extranjeros de Países Comunistas o Socialistas, o bien de Países Democráticos, pero que son militantes o simpatizantes ocultos de los partidos comunistas locales. Todos estos profesionales son habilitados inmediatamente, incluso para ejercer la profesión médica, por un simple decreto rectoral.
+autoridades comunistas cubanas que dirigen la salud pública. En segundo lugar, importando profesionales extranjeros de Países Comunistas o Socialistas, o bien de Países Democráticos, pero que son militantes o simpatizantes ocultos de los partidos comunistas locales. Todos estos profesionales son habilitados inmediatamente, incluso para ejercer la profesión médica, por un simple decreto rectoral.
 
 Así como un examen ínturno de este profesorado, nos permite afirmar su baja calidad, y por una razón muy sencilla; por ser todos con rarísimas excepciones profesores improvisados, sin ninguna historia o experiencia médica-pedagógica. Y aquellos rarísimos, repetimos, que pueden poseer alguna, por haber sido anteriormente profesores de la facultad, no tienen la libertad de enseñanza propia del carácter liberal de la Medicina, sino que están sujetos a la férrea disciplina colectiva propia de los sistemas marxistas-leninistas.
 

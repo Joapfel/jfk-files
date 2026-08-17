@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8122.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 Memorandum
 
 TO : Mr. J. A. Mintz

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5574.png
-
-Convert to MarkdownMr. MURPHY. Well, the pattern before was one of pretty much permitting Nosenko to call the shots. In other words, we wanted his cooperation and we wanted to discuss these things in a reasonable manner, but his preference was not to sit still for a full day's briefing, to want to go out socially all the time, which made it difficult the next day to continue to work. And the most important aspect, I think, of the change was the decision to confront him with inconsistencies as opposed to taking what he said and passing it on.
+Mr. MURPHY. Well, the pattern before was one of pretty much permitting Nosenko to call the shots. In other words, we wanted his cooperation and we wanted to discuss these things in a reasonable manner, but his preference was not to sit still for a full day's briefing, to want to go out socially all the time, which made it difficult the next day to continue to work. And the most important aspect, I think, of the change was the decision to confront him with inconsistencies as opposed to taking what he said and passing it on.
 
 Mr. KLEIN. What about the day-to-day living conditions, were they changed?
 

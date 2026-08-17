@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6079.png
-
-Convert to MarkdownAffidavit
+Affidavit
 
 Kermit L. Hall, being duly sworn, hereby states that he has read and signed the foregoing Statement on Biographical and Financial Information and that the information provided therein is, to the best of his knowledge, current, accurate, and complete.
 

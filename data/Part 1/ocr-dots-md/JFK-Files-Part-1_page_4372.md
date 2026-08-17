@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4372.png
-
-Convert to MarkdownPANEL
+PANEL
 
 ntal. Se llama "La llogueta Feliz". Pones a Juana de Arco en la actualidad y, por supuesto, Juana de Arco llevada por su espiritualismo combate contra el Communismo.
 

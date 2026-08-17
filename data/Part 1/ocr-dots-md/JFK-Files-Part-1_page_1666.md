@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1666.png
-
-Convert to MarkdownMiami to New Orleans by Laureano BATISTA in response to a request
+Miami to New Orleans by Laureano BATISTA in response to a request
 by DAVIS for men to work in a lumber business with which he was
 connected in Guatemala. The men stayed at a home near Lacombe,
 Louisiana. When the FBI seized dynamite and other explosives

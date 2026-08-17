@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21990.png
-
-Convert to Markdownof no contacts between OSWALD and Cubans or representatives of the Cuban Government there or elsewhere.
+of no contacts between OSWALD and Cubans or representatives of the Cuban Government there or elsewhere.
 
 (v) **NOSENKO's Comments on Possible KGB Involvement in the Assassination**
 

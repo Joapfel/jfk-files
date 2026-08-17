@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18644.png
-
-Convert to MarkdownTELETYPE TO LONDON
+TELETYPE TO LONDON
 
 RE: SENATE SELECT COMMITTEE
 

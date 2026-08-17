@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11906.png
-
-Convert to Markdownhas virtually fallen apart and there is practically
+has virtually fallen apart and there is practically
 no organized activity. Membership is approximately
 180, but individuals remain violence prone.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8771.png
-
-Convert to MarkdownSLIPSTREAM-1 in Nov 71 said that ALONSO was a Cuban Gov't agent. He had high USG contacts back then (in 60/61) and knowledge of U.S. Government/CIA cover for activities. ALONSO was used as a cut-out, or intermediary, supposedly unwittingly, in sensitive Agency operations, in the late 60's and early 70's.
+SLIPSTREAM-1 in Nov 71 said that ALONSO was a Cuban Gov't agent. He had high USG contacts back then (in 60/61) and knowledge of U.S. Government/CIA cover for activities. ALONSO was used as a cut-out, or intermediary, supposedly unwittingly, in sensitive Agency operations, in the late 60's and early 70's.
 
 ZRRIFLE Project Job # 69-S-551 - No File Number
 

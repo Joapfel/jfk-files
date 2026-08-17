@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10918.png
-
-Convert to MarkdownThe FBI was cited as one of the four members of
+The FBI was cited as one of the four members of
 the Interdepartmental Intelligence Conference (IIC), created
 by the NSC, approved by the President 3/23/49, to coordinate
 "the investigation of all domestic espionage, counterespionage,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7582.png
-
-Convert to Markdown<table>
+<table>
    <tbody>
     <tr>
      <td>COUNTRY</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12164.png
-
-Convert to MarkdownQ. From 1965 until 1971 was there any electronic surveillance of any other individual or organization in addition to King, SCLC, and SNCC?
+Q. From 1965 until 1971 was there any electronic surveillance of any other individual or organization in addition to King, SCLC, and SNCC?
 
 A. To the best of my recollection there were none except as may have pertained to some strictly criminal investigations with which I had no connection.
 

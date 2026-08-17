@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30547.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of Posada's involvement
 in a plot to kill Castro

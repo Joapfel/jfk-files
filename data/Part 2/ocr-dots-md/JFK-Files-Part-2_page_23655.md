@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23655.png
-
-Convert to Markdown1
+1
 
 Mr. Quanbeck.
 

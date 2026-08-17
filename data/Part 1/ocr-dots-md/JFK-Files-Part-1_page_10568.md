@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10568.png
-
-Convert to MarkdownEL COLO DE SECRET
+EL COLO DE SECRET
 
 ATTACHMENT TO UFGA-28655
 

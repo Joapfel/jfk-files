@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_7180.png
-
 s as it deems necessary or appropriate,
 
 6. but it may not exceed the normal Senate salary schedules;

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5326.png
-
-Convert to Markdown104-10331-10320
+104-10331-10320
 
 9 November 1995
 

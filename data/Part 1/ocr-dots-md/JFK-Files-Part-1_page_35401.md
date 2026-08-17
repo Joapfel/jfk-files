@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35401.png
-
-Convert to Markdown-14-
+-14-
 
 Again he emphasized his view that the students sent to Latin American countries on propaganda missions should be indoctrinated by people in the Council to prepare them for the cross examining that they would undergo, and thereby prepare them against trans and foolish statements; and to insure that no Batista supporters were sent out. He emphasized that one of the first questions asked of these propaganda emissaries would be "With what money do you come here?" "What Yankee organization is behind you." He added, "The people have to be well prepared to answer; just as I had to undergo a succession of penetrating questions when I first went into exile in Argentina and could answer them without hesitation because of a clean record."
 

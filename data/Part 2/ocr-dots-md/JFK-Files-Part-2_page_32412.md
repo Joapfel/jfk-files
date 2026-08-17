@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32412.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 CUBA
 

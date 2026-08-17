@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11849.png
-
-Convert to Markdown120733 01 PEREZ ALAMO
+120733 01 PEREZ ALAMO
 
 EMILIO T 11 29 BIRTH MO YR
 

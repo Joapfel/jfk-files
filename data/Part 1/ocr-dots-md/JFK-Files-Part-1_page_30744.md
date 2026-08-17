@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30744.png
-
-Convert to Markdown31-07-1957
+31-07-1957
 
 REORDER FROM: Secretary, (SOS Board)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9645.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 2. Will determine if this area is possibly related to extremist activities, bank robberies or possible "training grounds" for the NRA.
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_21936.png
-
 came
 out a few times and told me that Bogdan Zakharovich is very,
 very busy, but that he would give me an escort. Some senior

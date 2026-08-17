@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24923.png
-
-Convert to Markdownindicated his displeasure about the lack of consultation
+indicated his displeasure about the lack of consultation
 on the impropriety of the attempt itself.* There is no
 evidence that the Attorney General told the CIA that it must
 not engage in assassination plots.

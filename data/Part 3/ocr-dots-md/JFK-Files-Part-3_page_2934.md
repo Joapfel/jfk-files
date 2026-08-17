@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2934.png
-
-Convert to Markdown occasion, be a designation of a special task force made up,
+occasion, be a designation of a special task force made up,
 perhaps, of division heads. That is most unlikely, but it is
 handled internally at present.
 

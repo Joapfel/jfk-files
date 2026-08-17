@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8767.png
-
-Convert to MarkdownSTATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+STATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 RE: INTERVIEW OF RETIRED FBI SA BY SSC
 
 "Set forth below are questions asked by Seidel (unless otherwise indicated) and the writer's answers. These questions and answers are not set forth chronologically.

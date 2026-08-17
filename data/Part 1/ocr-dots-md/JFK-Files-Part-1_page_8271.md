@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8271.png
-
-Convert to Markdown# MEMO FOR THE RECORD
+# MEMO FOR THE RECORD
 
 SUB Meeting of Cuadro Consular de Mexico, 17 July 69 (ide:)
 

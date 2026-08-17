@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8884.png
-
-Convert to Markdown- [ ] UNCLASSIFIED
+- [ ] UNCLASSIFIED
 
 - [ ] CONFIDENTIAL
 

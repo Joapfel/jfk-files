@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9992.png
-
-Convert to Markdownwork out similar procedures with the Civil Service Commission and other interested agencies with respect to Executive Order 10450.
+work out similar procedures with the Civil Service Commission and other interested agencies with respect to Executive Order 10450.
 
 3. In reference to the problem of the responsibility of conducting investigations abroad, the Departments of State and Army were requested by letter dated June 5, 1953, to continue the same arrangement under Executive Order No. 10450 for investigations abroad as existed under Executive Order No. 9835. The letter stated that in the absence of any indication of disagreement with this plan, it would be assumed that the existing arrangement would remain in effect. To date no expressions of disagreement have come from either Department.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1707.png
-
-Convert to MarkdownAD No. 963
+AD No. 963
 12 April 1964
 
 Kennedy for Chief, W/A/Arsenic

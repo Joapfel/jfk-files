@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2969.png
-
-Convert to Markdown1907
+1907
 
 do something about it, it was not always acted upon, as he
 indicated.

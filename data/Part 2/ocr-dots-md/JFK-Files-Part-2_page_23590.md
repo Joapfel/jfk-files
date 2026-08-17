@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23590.png
-
-Convert to Markdown14 August 1962
+14 August 1962
 
 MEMORANDUM FOR: Deputy Director (Plans)
 

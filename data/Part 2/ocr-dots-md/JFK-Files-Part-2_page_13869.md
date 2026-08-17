@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_13869.png
-
-Convert to Markdown(12) Miss Gandy refers to the fact that questions were raised concerning Mr. Hoover's back door entrance. The questions concerning this back door were to determine just who used this back door entrance and its purpose. In addition to explaining it was immediately adjacent to the elevators at 9th and Pennsylvania Avenue which Mr. Hoover used to enter and exit the building, they were also advised that this was Mr. Hoover's private and personal entrance and that persons wishing to see Mr. Hoover were not brought through this back door.
+(12) Miss Gandy refers to the fact that questions were raised concerning Mr. Hoover's back door entrance. The questions concerning this back door were to determine just who used this back door entrance and its purpose. In addition to explaining it was immediately adjacent to the elevators at 9th and Pennsylvania Avenue which Mr. Hoover used to enter and exit the building, they were also advised that this was Mr. Hoover's private and personal entrance and that persons wishing to see Mr. Hoover were not brought through this back door.
 
 The foregoing is submitted for information purposes and as an auxiliary record of Miss Gandy's appearance before the Staff of the Senate Select Committee on May 15, 1975, accompanied by me, John P. Mohr.

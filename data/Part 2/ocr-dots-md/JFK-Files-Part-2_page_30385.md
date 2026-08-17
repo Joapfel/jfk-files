@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30385.png
-
-Convert to Markdown1 '58 and '63?
+1 '58 and '63?
 
 2 Mr. Tovar. No.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11518.png
-
-Convert to Markdown23 December,1968
+23 December,1968
 
 Subject: LIRING/3 Report of Contact by "Pavel" of FAR.
 

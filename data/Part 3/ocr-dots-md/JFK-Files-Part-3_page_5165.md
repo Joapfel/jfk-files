@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5165.png
-
-Convert to Markdown4. In order to maintain stability of your program and to insure CIs and PCIs are not "turned over" for turnovers sake, do you require Agents to submit a newly developed CI or PCI at time closing or discontinuing memoranda are submitted on old ones?
+4. In order to maintain stability of your program and to insure CIs and PCIs are not "turned over" for turnovers sake, do you require Agents to submit a newly developed CI or PCI at time closing or discontinuing memoranda are submitted on old ones?
 
 5. What administrative procedures do you have to insure your substantive supervisors are aware of and participate in informant program? Do they approve both opening and closing memoranda? Are they aware of productivity of CIs and PCIs handled by Agents assigned to their squads? How? Do you maintain a record of productivity by desk?
 

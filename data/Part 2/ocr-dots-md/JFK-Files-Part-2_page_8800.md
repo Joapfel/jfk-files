@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8800.png
-
-Convert to Markdownbe given certain concessions in Cuba in the future. The American claimed he did not represent the U.S. Government but had good contacts with the government. It was not known what he meant by the term concessions - whether that was with reference to gambling concessions, business franchises or possible business contracts with the Cuban Government. ALVAREZ concluded that the American was completely unreliable. The American was described as white, male, about 45 years old, 5 ft. 10 inches, 180 lbs., well-dressed, businessman type who spoke a little Spanish and obviously had been in Havana at one time. The American indicated that he was from Chicago.
+be given certain concessions in Cuba in the future. The American claimed he did not represent the U.S. Government but had good contacts with the government. It was not known what he meant by the term concessions - whether that was with reference to gambling concessions, business franchises or possible business contracts with the Cuban Government. ALVAREZ concluded that the American was completely unreliable. The American was described as white, male, about 45 years old, 5 ft. 10 inches, 180 lbs., well-dressed, businessman type who spoke a little Spanish and obviously had been in Havana at one time. The American indicated that he was from Chicago.
 
 WAVE 1013 (IN 78067) dated 11 July 1963 (Box 29)
 Concerns activities of Cuban Committee for Liberation (CCL) sparked by Guillermo ALONSO Pujol 21 May 1963.

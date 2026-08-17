@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5810.png
-
-Convert to MarkdownSECURITY IN
+SECURITY IN
 
 TO: Director,
 Federal Bureau of Investigation

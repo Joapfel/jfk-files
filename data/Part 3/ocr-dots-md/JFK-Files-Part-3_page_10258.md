@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10258.png
-
-Convert to MarkdownAmbassadors or heads of permanent missions
+Ambassadors or heads of permanent missions
 to the United Nations are not investigated.
 
 No surveillances are conducted at the

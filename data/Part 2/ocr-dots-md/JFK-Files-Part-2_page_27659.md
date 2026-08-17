@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27659.png
-
-Convert to Markdown# III. PROFESSIONAL
+# III. PROFESSIONAL
 
 A. Passed February 1968 Maryland Bar Examination - Grade $232\frac{1}{2}$.
 

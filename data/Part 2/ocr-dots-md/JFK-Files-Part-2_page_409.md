@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_409.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>ORIG:</td><td>J. MOUGHAN:2ph</td></tr><tr><td>UNIT:</td><td>WH/C/CA/EW</td></tr><tr><td>EXT:</td><td>2601</td></tr><tr><td>DATE:</td><td>31 OCTOBER 1966</td></tr></table>
 

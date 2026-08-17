@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15689.png
-
-Convert to Markdownthat we see that might look like pigs.
+that we see that might look like pigs.
 We don't relate to that. But we say
 anything that brings about liberation for
 black people is justified. If you're

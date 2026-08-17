@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15261.png
-
-Convert to Markdown| Country | Actual | Potential |
+| Country | Actual | Potential |
 |---|---|---|
 | Sudan | 0 | 1 |
 | Syria | 2 | 1 |

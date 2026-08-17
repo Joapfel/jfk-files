@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1493.png
-
-Convert to Markdown18. Page 99 beginning with "disrupting" on line 5 through "display" on line 27 and including the footnote on page 99.
+18. Page 99 beginning with "disrupting" on line 5 through "display" on line 27 and including the footnote on page 99.
 This passage describes specific CIA operations in Tokyo targeted against China and as such are not only damaging to current detente efforts but are also disruptive to liaison relationships with the Japanese. (Page 169 line 23 through page 170, line 22, including footnote.)
 
 19. Page 102 beginning with "Despite" on line 6 through "returned" on line 10. This should be deleted because it describes a specific and sensitive CIA operation including code materials. (Page 175, lines 10-15.)

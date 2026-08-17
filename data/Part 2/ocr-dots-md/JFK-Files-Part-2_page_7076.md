@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7076.png
-
-Convert to Markdowngovernment's investigation into that assassination, the more serious must be the need to continue to withhold the information for classification to be maintained.
+government's investigation into that assassination, the more serious must be the need to continue to withhold the information for classification to be maintained.
 
 b. HR 70-14.e(2) states the reviewers of information advocating continued classification of information will bear the burden identifying any damage that disclosure could reasonably be expected to cause to the national security. The Act defines that burden as one of "clear and convincing evidence." Further, the Act changes "reasonably could be expected to cause" to "demonstrably." Therefore, unless a showing is made by clear and convincing evidence that release of the information would demonstrably impair the national security, the information must be declassified.
 

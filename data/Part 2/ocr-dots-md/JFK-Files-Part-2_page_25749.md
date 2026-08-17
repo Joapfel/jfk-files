@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25749.png
-
-Convert to MarkdownCopy
+Copy
 
 Lyndon B. Johnson Library
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5377.png
-
-Convert to Markdown# CONTROLLED DISSEM
+# CONTROLLED DISSEM
 
 CONFIDENTIAL NO DISSEM ABROAD
 

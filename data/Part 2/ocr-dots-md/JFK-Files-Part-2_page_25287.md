@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25287.png
-
-Convert to MarkdownSurrounded by his soldiers, Castro enters Havana in triumph after ousting the Batista government.
+Surrounded by his soldiers, Castro enters Havana in triumph after ousting the Batista government.
 
 (Continued from page 6)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10346.png
-
-Convert to MarkdownSUBJECT: Contacts With Other U.S. Government Agencies Which Could or Have Resulted In Use of CIA-Developed Technology in Addressing Domestic Problems
+SUBJECT: Contacts With Other U.S. Government Agencies Which Could or Have Resulted In Use of CIA-Developed Technology in Addressing Domestic Problems
 
 <u>Proposed Use of NASA ERTS Satellite (Agency association would be SECRET)</u>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4014.png
-
-Convert to Markdown# Meetings with AMJAVA-4 in Washington, 27-28 June 1965
+# Meetings with AMJAVA-4 in Washington, 27-28 June 1965
 
 Subject: Proposed Agency Programs
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18003.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="3">CLASSIFIED MESSAGE</td></tr><tr><td>DATE: 20 JUN 60</td><td>SUBJECT: CIVILIAN</td><td>RATING: <br />1 | 2 | 3</td></tr><tr><td>DIRECTOR</td><td></td><td>JUL 1 2139Z 60</td></tr><tr><td>MEXICO CITY</td><td></td><td>ROUTING</td></tr><tr><td>C/WH 7</td><td></td><td></td></tr><tr><td>DDP, COP, ADDP/A, S/C 2*</td><td></td><td>IN 19430</td></tr></table>
 

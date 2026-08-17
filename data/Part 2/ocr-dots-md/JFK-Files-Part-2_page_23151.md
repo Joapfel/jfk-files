@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23151.png
-
-Convert to MarkdownNWH: 55510 Doeld: 32420455
+NWH: 55510 Doeld: 32420455
 
 TOP SECRET
 

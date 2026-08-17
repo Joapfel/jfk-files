@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7281.png
-
-Convert to Markdown(b) Document Security
+(b) Document Security
 
 1) Committees should select and identify a single location/and specific personnel authorized to sign acknowledgement of receipt of classified materials provided ~~by~~ to the committees.
 

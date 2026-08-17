@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11055.png
-
-Convert to MarkdownJanuary 29, 1960
+January 29, 1960
 
 MANUAL OF RULES AND REGULATIONS
 Revision Number 87

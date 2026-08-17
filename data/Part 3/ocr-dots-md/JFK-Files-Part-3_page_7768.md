@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7768.png
-
-Convert to Markdownof the Weatherman organization that Presidential directives have instructed the FBI to take charge of investigative work relating to espionage, sabotage and subversive activities and that Executive Order 10450 provides additional authority.
+of the Weatherman organization that Presidential directives have instructed the FBI to take charge of investigative work relating to espionage, sabotage and subversive activities and that Executive Order 10450 provides additional authority.
 
 (6) Unaffiliated individuals who are a part of the New Left Movement. Revolutionary Activities Section notes that although the New Left Movement has no definable ideology of its own, it does have strong Marxist, existentialist, nihilist and anarchist overtones. In some instances there are individuals without any organizational affiliation who by their revolutionary activities and statements, establishing a rejection of law and order, reveal the individual to be a potential threat to the security of the U.S. Such individuals do, in fact, engage in violence or unlawful activities and their potential dangerousness to the internal security is clearly demonstrated by their statements, conduct and actions. According to Revolutionary Activities Section, specific authority to conduct our investigations of unaffiliated individuals is derived from Presidential directives of September 6, 1939, through December 15, 1953.
 

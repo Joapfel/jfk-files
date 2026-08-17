@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17798.png
-
-Convert to Markdowncont...
+cont...
 
 JUDY: De pasada le mandó un trágito de Tequila como recuerda de este hermoso páso.
 

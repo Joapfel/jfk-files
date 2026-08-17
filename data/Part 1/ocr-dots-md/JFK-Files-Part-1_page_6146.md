@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6146.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 5. One more document (not indexed into the 201 file or any other records of this office) has become available: Transmittal Manifest 599888, dated 28 August 1969, forwarded by COS, Ottawa. This manifest lists Subject among passengers arriving in Canada from Cuba. No covering dispatch was used and no source is given, but the information may be presumed to have been provided by foreign liaison (Canadian). The material is thus probably exempt under (b)(1), 5(B)(1) (foreign liaison), and is certainly exempt under (b)(3) (intelligence methods). The format and the nature of the information do not make it feasible to segregate and release it to Subject without making it possible for him to adduce the Agency had access to the passenger manifest of a Cuban controlled ship.
 

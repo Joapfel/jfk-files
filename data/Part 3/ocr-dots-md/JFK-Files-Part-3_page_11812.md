@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11812.png
-
-Convert to Markdown# ADEQUACY OF PERSONNEL
+# ADEQUACY OF PERSONNEL
 
 August 20, 1971. Letter acknowledging resignation has not been received.
 

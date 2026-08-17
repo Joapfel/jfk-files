@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31635.png
-
-Convert to MarkdownSF 14 - 207
+SF 14 - 207
 
 force and put all political opposition---Communist and anti-Communist--in jail. By 1959 it was clear that there weren't going to be any elections, and the guerillas known as the Viet Cong began to fight back. By 1963 our government was fed up with Diem, but still wasn't willing to risk elections. Our CLA helped a group of Vietnamese generals to over-throw Diem and kill him. Since then there have been a series of "better" military dictators. General Ky---the man who admires Hitler---is the latest one.
 

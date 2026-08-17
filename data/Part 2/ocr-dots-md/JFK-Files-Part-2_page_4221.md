@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4221.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Having reached this point, the Soviets have at least three
 alternatives:

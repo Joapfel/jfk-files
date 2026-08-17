@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24519.png
-
-Convert to MarkdownPost and Telecommunications of Peru
+Post and Telecommunications of Peru
 
 Mr. Khachaturov H. A. [as given]
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9535.png
-
-Convert to MarkdownSEC. 12. EDUCATION
+SEC. 12. EDUCATION
 
 <table><tr><td>ELEMENTARY SCHOOL</td><td colspan="3">ADDRESS NYC Bronx New York</td></tr><tr><td>DATES ATTENDED</td><td>1926-1932</td><td>City State Country</td><td>GRADUATE? Yes</td></tr><tr><td>HIGH SCHOOL</td><td>De Witt Clinton</td><td>ADDRESS Bronx, N.Y.</td><td></td></tr><tr><td>DATES ATTENDED</td><td>1932-1935</td><td>City State Country</td><td>GRADUATE? Yes</td></tr><tr><td>COLLEGE</td><td>City College of NY</td><td>ADDRESS N.Y.C.</td><td></td></tr><tr><td>DATES ATTENDED</td><td>1935-1939</td><td>City State Country</td><td>DEGREE U.S.S.</td></tr><tr><td>COLLEGE</td><td>Univ. of Michigan</td><td>ADDRESS Ann Arbor, Mich.</td><td></td></tr><tr><td>DATES ATTENDED</td><td>1939-1940</td><td>City State Country</td><td>DEGREE M.A.</td></tr></table>
 

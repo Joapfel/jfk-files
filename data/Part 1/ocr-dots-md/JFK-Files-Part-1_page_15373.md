@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15373.png
-
-Convert to MarkdownWILLIAM SCOTT PIPER, M.D.
+WILLIAM SCOTT PIPER, M.D.
 
 2506 FONCE DE LION DELTA
 C/O: C.B.R., T'OP'A

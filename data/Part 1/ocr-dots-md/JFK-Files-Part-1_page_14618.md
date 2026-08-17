@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14618.png
-
-Convert to Markdown locate both of you." Mrs. C mentions having a daughter, that her husband was a pilot and that she is a Spaniard, adding she is not too old. R replies that in all honesty he does not remember her. She insists on seeing him to have a chat, and R suggests she come to his office at her convenience. She prefers talking with him alone, without his secretary or anyone else present, and suggests a bar at some hotel like the Palace, Ritz or Hilton. He is agreeable to any place she may desire; they agree to meet that night at 9:30 in the lobby of the Hilton Hotel. She will be dressed all in black.
+locate both of you." Mrs. C mentions having a daughter, that her husband was a pilot and that she is a Spaniard, adding she is not too old. R replies that in all honesty he does not remember her. She insists on seeing him to have a chat, and R suggests she come to his office at her convenience. She prefers talking with him alone, without his secretary or anyone else present, and suggests a bar at some hotel like the Palace, Ritz or Hilton. He is agreeable to any place she may desire; they agree to meet that night at 9:30 in the lobby of the Hilton Hotel. She will be dressed all in black.
 
 RUIZ calls FERNANDO. F is to meet R outside the latter's home about 9 o'clock dressed in coat and tie.
 

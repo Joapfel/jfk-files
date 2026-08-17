@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25273.png
-
-Convert to Markdown# American Mata Haji Who Duped Castro
+# American Mata Haji Who Duped Castro
 
 Its clandestine operations are undergoing a sometimes painful official scrutiny, the Central Intelligence Agency maintains, as always, a tight lip. Last from interviews with the agents who worked out to do the CIA's clock-and-dagger work, News reporter Paul Meshil told here for the first time of the intrigue that surfaced in the Cuban missile crisis, a confirmation that pushed the U.S. to the brink of war with the Soviet Union. First of a series.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5289.png
-
-Convert to Markdownthe agencies and/or individuals to whom
+the agencies and/or individuals to whom
 the information was disseminated.
 
 D. Materials pertaining to any jurisdictional agree-

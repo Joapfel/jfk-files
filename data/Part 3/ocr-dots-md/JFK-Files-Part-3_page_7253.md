@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7253.png
-
-Convert to Markdownwas to consist of representatives from the Department of
+was to consist of representatives from the Department of
 Defense, Department of Justice, Central Intelligence Agency,
 Federal Bureau of Investigation, Secret Service, and National
 Security Agency and "when necessary, representatives of other

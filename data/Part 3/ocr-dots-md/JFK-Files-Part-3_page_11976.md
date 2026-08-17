@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11976.png
-
-Convert to MarkdownDESECO PROGRAM
+DESECO PROGRAM
 
 4-H
 

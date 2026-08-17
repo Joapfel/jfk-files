@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23964.png
-
-Convert to Markdownor to continue
+or to continue
 
 ~~The Cliché group~~ mentioned the group and it produced a news letter. He had promised them money, they put out one issue, and he never got any money. I heard that they were in contact with the Clichy group down ~~Stavelize~~ and were seeking some sort of recognition there, and/along the things that they had promised & they did a self-criticism admitting that they had done wrong to have accepted a 3 supervision and ~~I think~~ saying that they will ~~never do this again.~~
 

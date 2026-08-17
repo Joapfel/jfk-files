@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34260.png
-
-Convert to Markdownby the government shipping concern "Yazticas" to give Rua all possible cooperation in the fulfillment of his functions. Rua then came to see me and asked, among other things, that I surrender to him the incoming and outgoing mail of certain specific crewmen who were suspected of being against the government.
+by the government shipping concern "Yazticas" to give Rua all possible cooperation in the fulfillment of his functions. Rua then came to see me and asked, among other things, that I surrender to him the incoming and outgoing mail of certain specific crewmen who were suspected of being against the government.
 
 Another instance of ill-treatment which Cuban seamen resent is the discrimination to which we are subject by the Cuban Customs as compared to the preferential treatment they accord to foreign sailors, particularly those from behind the iron curtain. Most everything we bring from abroad to alleviate the scarcity suffered by our families is confiscated at the Customs House.
 

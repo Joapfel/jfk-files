@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20249.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 WE HAVE VESTED INTERESTS TOO!...OUR HOMES AND OUR FAMILIES. They are being destroyed by these strawmen who do nothing to end this insane war, and do nothing to take care of the neglect of human needs at home..
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10179.png
-
-Convert to MarkdownMr. W. R. Wannall
+Mr. W. R. Wannall
 
 J. G. Deegan
 

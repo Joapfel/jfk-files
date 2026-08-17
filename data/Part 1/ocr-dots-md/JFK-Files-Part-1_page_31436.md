@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31436.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, IO Division
+MEMORANDUM FOR: Chief, IO Division
 
 SUBJECT: NCFE-GE Division Conference on Rumanian Refugee Situation
 

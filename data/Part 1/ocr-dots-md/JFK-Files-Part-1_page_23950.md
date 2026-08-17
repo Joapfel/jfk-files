@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23950.png
-
-Convert to Markdowntown, claimed, had lost their way. They said, no you're a member of the
+town, claimed, had lost their way. They said, no you're a member of the
 Klan in this town. They wanted to kill him or hold him as hostage.
 Williams said, bring these people in my house and you know I won't let
 them go. He called the Sheriff and said, "Look, I have these people here

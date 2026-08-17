@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26965.png
-
-Convert to Markdown# AFFIDAVIT
+# AFFIDAVIT
 
 STATE OF GEORGIA:
 SS

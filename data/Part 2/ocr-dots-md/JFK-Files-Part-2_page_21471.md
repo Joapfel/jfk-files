@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21471.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MONTHLY REVIEW
 

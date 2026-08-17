@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26504.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. The guerrillas committed themselves to field operations prematurely in 1962 and, denied support or sympathy by the peasantry who are strongly pro-Betancourt, were rounded up or dispersed. A total of 139 were tried by special military courts last fall following the Puerto Cabello and Carupano revolts. More than 110 were given substantial prison sentences. Four at the most are believed to have been in Cuba long enough to receive training.
 

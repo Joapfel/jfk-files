@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25544.png
-
-Convert to MarkdownNOTE: GERENDE'S lawyer advised him not to make a counter proposal. His comments on the above terms are as follows (heyed to above):
+NOTE: GERENDE'S lawyer advised him not to make a counter proposal. His comments on the above terms are as follows (heyed to above):
 
 1. OK
 

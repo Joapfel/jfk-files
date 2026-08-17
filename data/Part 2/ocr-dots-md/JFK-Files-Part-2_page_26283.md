@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26283.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Members of the Task Force were asked for their reactions to the paper. There was a rather surprising degree of agreement that something along this line must be done or it will be virtually impossible to deal with the situation in South Viet Nam. (There was no State Department representative present at the time except Cottrell himself.) The ICA member and the representative of Jack Bell's office did raise questions as to whether political and economic action by the Diem regime was not a more important precondition to solution in Viet Nam than military action in Laos.
 

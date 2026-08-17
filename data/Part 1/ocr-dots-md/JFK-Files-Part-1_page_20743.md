@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20743.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # Fitness Report - David A. Phillips
 

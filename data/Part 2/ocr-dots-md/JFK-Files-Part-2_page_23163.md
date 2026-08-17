@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23163.png
-
-Convert to MarkdownSpringfield '03 rifle, that probably would have struck me as being unusual, but I did not see the inventories of all the caches.
+Springfield '03 rifle, that probably would have struck me as being unusual, but I did not see the inventories of all the caches.
 
 Mr. Johnston. Would you commonly or routinely use cables from the Director, especially on the AMFLASH operation?
 

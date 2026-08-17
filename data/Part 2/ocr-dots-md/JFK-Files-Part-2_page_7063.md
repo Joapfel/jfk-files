@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7063.png
-
-Convert to MarkdownCHAPTER 5: THE STANDARDS FOR REVIEW: REVIEW BOARD "COMMON LAW"
+CHAPTER 5: THE STANDARDS FOR REVIEW: REVIEW BOARD "COMMON LAW"
 
 The CIA, however, was reluctant to produce name-specific evidence and, on occasion, CIA failed to furnish evidence when it promised to do so. CIA's initial refusal to supply evidence on individual names was met, not with the wholesale release of names by the Board, but with a firm insistence that the Agency meet the requirements of the Act. The Review Board released the names of a few individuals who were of central importance to the assassination story early in the process, but gave the Agency a number of additional opportunities to provide specific evidence on other names.
 

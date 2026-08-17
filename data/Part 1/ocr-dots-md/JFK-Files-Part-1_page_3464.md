@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3464.png
-
-Convert to Markdown**RYBAI**
+**RYBAI**
 **SECRET**
 
 Report # DD-837.

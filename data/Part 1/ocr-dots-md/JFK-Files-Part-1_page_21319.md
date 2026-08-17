@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21319.png
-
-Convert to MarkdownSECRET CONTROL
+SECRET CONTROL
 U.S. OFFICIAL ONLY
 
 FROM: London, England REPORT TO: WPL-28265 10MAR93 11:07

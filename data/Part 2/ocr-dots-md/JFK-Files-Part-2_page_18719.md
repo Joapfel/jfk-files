@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18719.png
-
-Convert to MarkdownSubject, Samuel Adas? is CBS news
+Subject, Samuel Adas? is CBS news
 reporter. He has had official newsgroups since 1951. He gathering contacts with on concerning
 has been furnishing ... separated from
 Soviets at UN since ... his wife 1-30-59. On 7-7-59 he advised his wife threatened to tell Soviets of his relationship with Bureau. In view of his official contacts with Bureau, we recommended NY be allowed to maintain contact with subject. On 7-17-59 subject's wife advised NYO she will never tell Soviets or any one else of her husband's relationship to FBI.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4016.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 three times in the Korean War. He stated that he made the major mistake of his life when he did not re-enlist and continue in the Army. Besides combat duty in the Infantry, he worked as an Investigator in the Counter Intelligence Corps.
 

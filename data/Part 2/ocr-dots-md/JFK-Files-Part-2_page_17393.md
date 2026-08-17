@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17393.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 8:30 p.m. at which time talks were made by two or three individuals, trying to stimulate interest in a Black Panther organization. advised that the meeting at the Illini Union broke up at approximately 9:30 p.m., at which time three Negro males and one Negro female, who were Black Panthers from Chicago, Illinois, left the meeting to go to some location to meet a fourth Black Panther from Chicago.
 

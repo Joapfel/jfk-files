@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29149.png
-
-Convert to Markdown<table><thead><tr><th>Name as shown on Form 540 or 540NR</th><th>Social Security Number</th></tr></thead><tbody><tr><td>Samuel and Phyllis Ruby</td><td>[Social Security Numbers]</td></tr></tbody></table>
+<table><thead><tr><th>Name as shown on Form 540 or 540NR</th><th>Social Security Number</th></tr></thead><tbody><tr><td>Samuel and Phyllis Ruby</td><td>[Social Security Numbers]</td></tr></tbody></table>
 
 ## SHORT-TERM—ASSETS HELD NOT MORE THAN 6 MONTHS
 

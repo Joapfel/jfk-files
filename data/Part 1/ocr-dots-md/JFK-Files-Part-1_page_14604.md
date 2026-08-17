@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14604.png
-
-Convert to Markdown## II. Financial Matters
+## II. Financial Matters
 
 a. Before 1950, he had no regular income. In 1952 he was a teacher at the University of Havana, and from 1954 on he was a member of the Executive Committee of the Communist Party of Cuba.
 

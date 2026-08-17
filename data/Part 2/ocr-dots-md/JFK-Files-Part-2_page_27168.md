@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27168.png
-
-Convert to MarkdownNational Police Officer in high frequency communications. No communications instructions were provided to the Miami police.
+National Police Officer in high frequency communications. No communications instructions were provided to the Miami police.
 
 Finance
 

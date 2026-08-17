@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34366.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CONTINUATION OF<br>DISPATCH</td><td>CLASSIFICATION<br>SECRET</td><td>DIPATCH SYMBOL AND NUMBER<br>SEPARATE COVER ATTACHMENT NO. 1 TO UFGA 21797</td></tr><tr><td colspan="3">IDENTITY: Reinaldo MIYARES Lopez</td></tr></table>
 

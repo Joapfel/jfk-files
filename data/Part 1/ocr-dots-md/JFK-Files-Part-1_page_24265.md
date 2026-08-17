@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24265.png
-
-Convert to MarkdownSECRET/RYBAT
+SECRET/RYBAT
 
 take part in some M-L study groups but didn't say what exactly would be studied. The following are some general comments QRPHONE provided about Bergman. Bergman doesn't like Newark, he has been mugged several times and would like to go back to California; however, that is not possible at this time, so Bergman will instead move to New York City. Bergman is pleased with the current development of the RU. He said that the recent trip to China by several RU members was successful and that the trip had been pleasant for them. QRPHONE commented that it appears that Bergman does not have the same control of the RU that he formerly had, although he is regarded as the "guru" of the RU.
 

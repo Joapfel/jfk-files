@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19113.png
-
-Convert to Markdown0-20 (Rev. T2-14-64)
+0-20 (Rev. T2-14-64)
 
 Tolson
 Belmont

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18572.png
-
-Convert to MarkdownJuly 21, 1975
+July 21, 1975
 
 LEGAL COUNSEL DIVISION
 

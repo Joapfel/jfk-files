@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16715.png
-
-Convert to Markdown# REPORT
+# REPORT
 of the
 IDENTIFICATION DIVISION
 LATENT FINGERPRINT SECTION

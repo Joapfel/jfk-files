@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8334.png
-
-Convert to MarkdownNo luck with business. Gloria seems very enthusiastic about working for me. Not so much to help me, but to give herself an excuse to get out and do something. Further, she wants to determine whether she can actually do something other than raise children. She was married when very young and has never worked. She hopes eventually to start some business of her own. She probably wants to have a shop of some kind. Working for me is a trial for herself. She hopes to prove to herself that she can succeed in business and meeting people.
+No luck with business. Gloria seems very enthusiastic about working for me. Not so much to help me, but to give herself an excuse to get out and do something. Further, she wants to determine whether she can actually do something other than raise children. She was married when very young and has never worked. She hopes eventually to start some business of her own. She probably wants to have a shop of some kind. Working for me is a trial for herself. She hopes to prove to herself that she can succeed in business and meeting people.
 
 The approach she has been taking with my business has been unsuccessful so far. I have given her the one which is most time-consuming and one which I would not have been able to do by myself. There are other approaches, but I have not outlined these to her as yet.
 

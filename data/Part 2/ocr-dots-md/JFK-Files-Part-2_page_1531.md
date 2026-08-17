@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1531.png
-
-Convert to Markdown# NARRATIVE EVALUATION REPORT
+# NARRATIVE EVALUATION REPORT
 
 **Naro:** JS-14 **Period Covered:** 1 June 1953 to 1 June 1954
 

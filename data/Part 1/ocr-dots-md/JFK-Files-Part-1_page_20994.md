@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20994.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE: 26 December 1974
 CTC NO.: 345

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7163.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 Central Intelligence Agency
 Operations in the United States (S)

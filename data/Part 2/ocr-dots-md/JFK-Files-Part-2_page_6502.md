@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6502.png
-
-Convert to Markdown13-00000
+13-00000
 
 (5) Blow up ammunition inside the base; start fires.
 

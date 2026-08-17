@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11835.png
-
-Convert to MarkdownINTERNAL SECURITY SECTION
+INTERNAL SECURITY SECTION
 
 Subversive Individuals Unit
 

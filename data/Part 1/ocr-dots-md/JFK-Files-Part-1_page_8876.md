@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8876.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>ACTIVITY</th><th>LOCATION</th><th>DATES</th></tr></thead><tbody><tr><td>US Army Medical Corps 1942-1943<br/>Attorney, specialising in trial work<br/>Subject active in California state politics; ran unsuccessfully for Secretary of State, 1958</td><td>Lov. A., Calif.</td><td>1949-57</td></tr><tr><td colspan="3">9. DESCRIPTION (HEIGHT) (WEIGHT) (EYES) (HAIR) (RACE) (OTHER)</td></tr><tr><td colspan="3">10. SPOUSE (IF WIFE, GIVE MAIDEN NAME)</td></tr><tr><td>Mildred McGregor born Lexington, Kentucky<br/>11. OTHER MEMBERS OF IMMEDIATE FAMILY AND ASSOCIATES<br/><br/>Three minor children, two sons and a daughter SUCH AS "DEROGATORY" MAY RESULT IN A SEARCH THAT DOES NOT FULLY MEET REQUIREMENTS.)<br/><br/>See Green List 077832 April 1959<br/>116322 July 1961</td></tr></tbody></table>
 

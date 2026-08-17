@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6168.png
-
-Convert to Markdown1 - Liaison
+1 - Liaison
 
 1 - Mr. Rushing
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_31670.png
-
 lean to occupy his present quarters until the termination of the lease on the entire property instead of requiring him to vacate the quarters this summer; the elimination for the time being of a proposed small apartment building to accommodate visiting professors and officials; post-payment of certain landscaping expenses and the elimination of a proposed enlargement of the dining hall now felt to be unnecessary since a limit of 200 has been fixed for next year's enrollment.
 
 In order to complete new construction by Oct. 1, 1953, work should start not later than March 15, 1953, and in view of the time necessary for the preparation of working plans, opening of bids, and signature of contracts, it is of the greatest importance that the necessary funds be made promptly available."

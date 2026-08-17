@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3351.png
-
-Convert to Markdown-4-
+-4-
 
 struggle, most ideological reservations ought be subordinated.
 Regarding this fundamental issue he and KUBARK may be at odds.

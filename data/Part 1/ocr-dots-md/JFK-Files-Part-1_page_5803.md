@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5803.png
-
-Convert to Markdown<table><tr><td>9 JUNE 1953</td></tr></table>
+<table><tr><td>9 JUNE 1953</td></tr></table>
 
 CLASSIFIED MESSAGE
 

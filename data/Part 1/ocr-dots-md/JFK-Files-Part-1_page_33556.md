@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33556.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr></table>
 

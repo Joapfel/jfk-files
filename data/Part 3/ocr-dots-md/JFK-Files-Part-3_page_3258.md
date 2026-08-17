@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3258.png
-
-Convert to Markdown2. to take only such investigative measures as are sanctioned by rule of law, procedure, or judicially recognized or accepted investigative practices, and are not in violation of state or federal law;
+2. to take only such investigative measures as are sanctioned by rule of law, procedure, or judicially recognized or accepted investigative practices, and are not in violation of state or federal law;
 
 3. to seek legal advice from the Attorney General or his designee whenever a proposed action may be perceived, with reason, to unfairly affect the rights of citizens, provided that this responsibility to seek legal advice is the duty of both the FBI as an institution and FBI agents as individuals;
 

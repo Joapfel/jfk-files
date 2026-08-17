@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26031.png
-
-Convert to MarkdownCan you go in and get them to start doing
+Can you go in and get them to start doing
 things right, as a friend of theirs?" rather
 than going ~~and~~ trying to scold them and
 something and getting the backs up of people,

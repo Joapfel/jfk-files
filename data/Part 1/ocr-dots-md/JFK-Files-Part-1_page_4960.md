@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4960.png
-
-Convert to MarkdownIN 069101
+IN 069101
 
 TDFR DB-715/302SL-76
 

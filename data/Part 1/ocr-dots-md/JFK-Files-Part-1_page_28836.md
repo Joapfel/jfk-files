@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28836.png
-
-Convert to MarkdownAll le ve tra sferred. 1150 forwarded. CC3 7/20/54
+All le ve tra sferred. 1150 forwarded. CC3 7/20/54
 
 E. Kathryn McCallum
 E. Kathryn Allow, Chief

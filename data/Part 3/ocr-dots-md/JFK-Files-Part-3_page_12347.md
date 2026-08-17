@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12347.png
-
-Convert to Markdownvarious districts, indicating which method was
+various districts, indicating which method was
 tested in which district, and list the dates each
 alternative system was tested in each district.
 

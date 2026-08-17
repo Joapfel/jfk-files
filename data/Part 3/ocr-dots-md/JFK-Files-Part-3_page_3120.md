@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3120.png
-
-Convert to MarkdownRevelations of abuse of power do not threaten domestic security. These hearings do not weaken the FBI. What weakens it is its failure to adhere to the proper role of law enforcement. Somehow it forgot that this was its job. It began to use its energy to spy on Americans whose only offense was an expressing opinions that some in the FBI did not like. It confused talk of violence with acts of violence, and all too often paid more attention to the talk than to the act.
+Revelations of abuse of power do not threaten domestic security. These hearings do not weaken the FBI. What weakens it is its failure to adhere to the proper role of law enforcement. Somehow it forgot that this was its job. It began to use its energy to spy on Americans whose only offense was an expressing opinions that some in the FBI did not like. It confused talk of violence with acts of violence, and all too often paid more attention to the talk than to the act.
 
 The answer, of course, is that violence justifies prosecution, not surveillance. Our security is not improved by watching those who commit crimes. Security from violence lies in active and vigorous law enforcement of those who are committing crimes. Security fram dangerous ideas, if we need any security, should come not from the FBI but from the merit of better ideas, in the good sense of the American people.
 

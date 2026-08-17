@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_904.png
-
-Convert to Markdown104-10075-10232
+104-10075-10232
 
 <table><tr><td>SECRET</td></tr></table>
 

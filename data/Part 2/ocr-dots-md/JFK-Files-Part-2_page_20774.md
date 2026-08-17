@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20774.png
-
-Convert to MarkdownTELETYPE
+TELETYPE
 
 NR004 WF CODE
 322 PM IMMEDIATE 10-10-72 SAT

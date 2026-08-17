@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19066.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 KOCHAN, LIONEL. The struggle for Germany, 1914-1945. Edinburgh, University Press; Chicago, Aldine Pub. Co., 1963. 150p. DD240.K57 DLC; D443.K7 CIA.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23722.png
-
-Convert to MarkdownSecretary of Defense are connected to attend or whether they're all supposed to be designees.
+Secretary of Defense are connected to attend or whether they're all supposed to be designees.
 
 I don't know what the protocol is but is it likely that the Secretary of Defense would attend if it were a designee of the Secretary of State?
 

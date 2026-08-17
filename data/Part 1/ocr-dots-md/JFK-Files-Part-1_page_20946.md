@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20946.png
-
-Convert to Markdown16 June 1956
+16 June 1956
 
 Chief, Contract Personnel Division
 ATTN: Mary Kay Spitz

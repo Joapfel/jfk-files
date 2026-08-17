@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17790.png
-
-Convert to Markdown14-00000
+14-00000
 
 ... Guatemala, pero en la página 128 te mencionan y dice sobre una forma brillante de las actuaciones de MORENO o sea que dice: "el Coronel MARCO ANDRÉCIO JORGE MORENO fué relevado de la - Victoria después de haber derrotado a más de cinco mil presos políticos y que eso le coste que lo encaran de allí", oí que quiere decir que tu nombre está para la historia ya porqué figuras en un libro. MORENO se alegra de saber eso y dice que al rato se verán. HU vino con GALLARZA con su esposa e hijos y después irán a buscar a DIUTRO para verse todos juntos. - 77-
 

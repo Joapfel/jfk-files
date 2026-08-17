@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23100.png
-
-Convert to MarkdownF. C. Redlich, M.D.
+F. C. Redlich, M.D.
 
 made arrangements that will assure tickets for all via Mexico, Praga or Madrid.
 

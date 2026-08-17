@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12285.png
-
-Convert to MarkdownSECRETÓ
+SECRETÓ
 
 la finalizacion final sera despues que el Voluntario hayn sido regresado a
 los Estados Unidos y so hayn convenido una accion mutua y aceptable.

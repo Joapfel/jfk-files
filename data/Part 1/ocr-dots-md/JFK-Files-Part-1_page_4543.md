@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4543.png
-
-Convert to Markdown<table><tr><td>ORDER ☐ YES ☐ NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>B-REP TO FILE NO.</td></tr><tr><td>FILE RID ☐ RET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ DIS.</td></tr><tr><td>FROM JMWAVE</td></tr><tr><td>ACTION SAB 6</td></tr><tr><td>ADVANCE COPY ☑ RID COPY ☐</td></tr><tr><td>UNIT</td><td>TIME</td><td>BY</td></tr></table>
+<table><tr><td>ORDER ☐ YES ☐ NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>B-REP TO FILE NO.</td></tr><tr><td>FILE RID ☐ RET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ DIS.</td></tr><tr><td>FROM JMWAVE</td></tr><tr><td>ACTION SAB 6</td></tr><tr><td>ADVANCE COPY ☑ RID COPY ☐</td></tr><tr><td>UNIT</td><td>TIME</td><td>BY</td></tr></table>
 
 SECRET 301717Z
 

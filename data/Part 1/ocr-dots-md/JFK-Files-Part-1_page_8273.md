@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8273.png
-
-Convert to MarkdownMemo for the Records
+Memo for the Records
 
 SUBJECT: First Sistone and Ferelem Cover JGB Outing with Consular Corps
 Brief Initial Exposure to Soviets Loginov and G. Loukov

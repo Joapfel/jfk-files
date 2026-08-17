@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9844.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>ING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>LIRING-3</td></tr><tr><td>AUGUST</td></tr><tr><td>FEBRUARY</td></tr><tr><td>SIGNATURE</td></tr></tbody></table>
 

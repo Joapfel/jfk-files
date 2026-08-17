@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22523.png
-
-Convert to MarkdownTAIWAN AND FAR EAST TRIP - 1964
+TAIWAN AND FAR EAST TRIP - 1964
 
 According to a memorandum dated 27 October 1964 from Morse Allen to Chief, SRS, the "Chinat" government offered Wiley a two week, all expense paid, round trip to Taiwan as a result of Wiley's American Legion magazine article on Tibet. Wiley will lecture and talk in Taiwan, and his planned departure was on or about 5 November 1964.
 

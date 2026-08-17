@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8832.png
-
-Convert to MarkdownSECRET
+SECRET
 
 S E C R E T 080108Z
 

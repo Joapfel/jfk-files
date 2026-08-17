@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8087.png
-
-Convert to Markdown-3-
+-3-
 
 usage sense and not necessarily in the technical sense unless Justice Department or the FBI. Thus, words such as "other materials" refer to all documents relating to matter requested and are to include (but are not limited to) letters, correspondence, airtels, LHMs, inserts, executive memos, etc.
 

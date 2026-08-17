@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25897.png
-
-Convert to MarkdownAn Extract From Kennedy's Address to Press
+An Extract From Kennedy's Address to Press
 
 Washington Post, Tuesday, November 19, 1963, p. A15
 

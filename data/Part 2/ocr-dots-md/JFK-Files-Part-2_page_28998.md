@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28998.png
-
-Convert to Markdown# PART I — Renter's Credit — All questions must be answered
+# PART I — Renter's Credit — All questions must be answered
 
 35 Did you, on March 1, 1975, live in rented property which was your principal residence? [ ] Yes [x] No If no, you may not claim this credit
 36 Was the property you rented exempt from property tax? [ ] Yes [ ] No If yes, you may not claim this credit

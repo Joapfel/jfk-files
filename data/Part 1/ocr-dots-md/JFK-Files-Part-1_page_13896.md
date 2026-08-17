@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13896.png
-
-Convert to MarkdownR. W. HERBERT
+R. W. HERBERT
 AC/WHD
 
 TO : MEXICO CITY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7789.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (h) OCOA-13493, dated 27 September 1968; is a report forwarded by (SMABOVE) a Canadian service; exempt under (b)(1)(5)B(1).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26725.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Ward & Paul
 

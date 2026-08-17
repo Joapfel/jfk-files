@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26531.png
-
-Convert to MarkdownSECRET
+SECRET
 
 JLM - PBM/1
 February 18, 1964

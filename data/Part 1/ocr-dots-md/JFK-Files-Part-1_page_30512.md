@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30512.png
-
-Convert to Markdown12 December 1951
+12 December 1951
 
 AG 201-AGM
 

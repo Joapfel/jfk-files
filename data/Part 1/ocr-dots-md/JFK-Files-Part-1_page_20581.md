@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_20581.png
-
-Convert to Markdown<table><thead><tr><th>Contract Sanc - Termination & Exchange (P)</th><th>Date</th></tr></thead><tbody><tr><td>6/5</td><td>4 July 65</td></tr><tr><td>Civl Service Retirement, LPIs and PSIs.</td><td>10 Oct 65</td></tr><tr><td>8</td><td>3 July 66</td></tr><tr><td>19,850</td><td>17 Sept 66</td></tr><tr><td>GS-15/7</td><td>20,595</td></tr><tr><td>GS-15/7</td><td>21,192</td></tr><tr><td>GS-15/7</td><td>21,192</td></tr></tbody></table>
+<table><thead><tr><th>Contract Sanc - Termination & Exchange (P)</th><th>Date</th></tr></thead><tbody><tr><td>6/5</td><td>4 July 65</td></tr><tr><td>Civl Service Retirement, LPIs and PSIs.</td><td>10 Oct 65</td></tr><tr><td>8</td><td>3 July 66</td></tr><tr><td>19,850</td><td>17 Sept 66</td></tr><tr><td>GS-15/7</td><td>20,595</td></tr><tr><td>GS-15/7</td><td>21,192</td></tr><tr><td>GS-15/7</td><td>21,192</td></tr></tbody></table>

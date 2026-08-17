@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23951.png
-
-Convert to Markdown14-0000
+14-0000
 
 Verges wanted somebody from Pakistan on the board. He said "I'm certain that the Mulana Bashani Kaan will agree".
 

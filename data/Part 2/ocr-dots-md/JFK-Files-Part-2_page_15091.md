@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15091.png
-
-Convert to Markdown# TION CHART
+# TION CHART
 
 <table>
   <thead>

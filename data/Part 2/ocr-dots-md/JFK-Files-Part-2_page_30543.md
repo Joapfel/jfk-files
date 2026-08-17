@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30543.png
-
-Convert to MarkdownSECRET
+SECRET
 
 He worked, what he did, etc.
 If an agent, it would have a POA for each project the agent was involved in.

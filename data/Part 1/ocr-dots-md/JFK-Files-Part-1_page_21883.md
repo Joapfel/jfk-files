@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21883.png
-
-Convert to MarkdownSoviet queries concerning the requested interview and the
+Soviet queries concerning the requested interview and the
 means of NOSENKO's departure from Switzerland.
 
 The Swiss Embassy asked for a meeting with NOSENKO in order to obtain assurance that the defection had been voluntary. Arrangements were made to have NOSENKO meet with Swiss and Soviet representatives in Washington as soon as possible.

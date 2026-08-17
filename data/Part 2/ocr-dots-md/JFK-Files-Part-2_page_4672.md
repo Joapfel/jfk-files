@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4672.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to. And sometimes they did, like the Cuban missile crisis. And the President
 stopped the distribution all across. Completely.

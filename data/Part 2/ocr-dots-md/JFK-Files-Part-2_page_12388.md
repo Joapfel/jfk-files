@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12388.png
-
-Convert to Markdown(1) Connect, full name
+(1) Connect, full name
 
 (2) All aliases, code names, and symbol numbers
 

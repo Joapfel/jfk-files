@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1197.png
-
-Convert to Markdown8. From VARONA file:
+8. From VARONA file:
 
 a. Memorandum For: OS/AAS from WH/4/Political Action, 14 June 1960
 Subject: Planned Travel Outside United States of JMARC Members in Miami

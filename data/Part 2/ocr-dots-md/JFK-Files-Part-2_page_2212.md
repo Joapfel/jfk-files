@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2212.png
-
-Convert to Markdown# ATTACHMENT D
+# ATTACHMENT D
 
 The following information is provided in response to Item 7, Page 1 of Applicant's questionnaire and Affidavit:
 

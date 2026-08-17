@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23467.png
-
-Convert to MarkdownSECRET - EYES ONLY
+SECRET - EYES ONLY
 
 4. Cuba
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28383.png
-
-Convert to Markdown6. **Status.** You are not an employee of the United States Government under this agreement and are not entitled to any benefits normally incident to an employee status.
+6. **Status.** You are not an employee of the United States Government under this agreement and are not entitled to any benefits normally incident to an employee status.
 
 7. **Instructions.** Instructions received by you from the Government in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2313.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 Durham further advised that Patrick Shea had informed him that Senate investigators maintained direct contact with AIM Attorney Kenneth Tilsen and talked to Tilsen prior to Durham's interview in Washington, D. C., on May 7, 1975.
 

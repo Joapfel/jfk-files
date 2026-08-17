@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9498.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REMITTANCE OF READING
 

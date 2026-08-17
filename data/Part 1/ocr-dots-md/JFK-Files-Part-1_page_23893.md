@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23893.png
-
-Convert to Markdownall these movements diminishing in size and importance.
+all these movements diminishing in size and importance.
 
 He may be going to Brussels. He is in contact with Grippa. I don't know about it. He is unhappy with Ma political line of Maspero's publication
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24212.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. Not applicable. The Agent is not in the status of a tour of assignment but will be exploited in his current operational role as long as it is viable.
 

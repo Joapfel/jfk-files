@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5279.png
-
-Convert to MarkdownSECRECY AGREEMENT
+SECRECY AGREEMENT
 
 1. I acknowledge the fact that because of the confidential relationship between myself and the U.S. Government, I will be the recipient of information which, in itself, or by the implications to be drawn therefrom, will be such that its unlawful disclosure or loose handling may adversely affect the interest and the security of the United States. I realize that the methods of collecting and of using this information, as well as the identity of persons involved, are as secret as the substantive information itself and, therefore, must be treated by me with an equal degree of secrecy.
 

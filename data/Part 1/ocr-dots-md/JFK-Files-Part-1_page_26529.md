@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26529.png
-
-Convert to MarkdownSECRET
+SECRET
 (Men Filled In)
 
 <table><thead><tr><th colspan="6">DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr></thead><tbody><tr><td colspan="2">SUBJECT OF DOCUMENT</td><td colspan="4">DOCUMENT IDENTIFICATION</td></tr><tr><td colspan="2"></td><td>2.<br/>RI FILE NO:</td><td colspan="3"></td></tr><tr><td colspan="2"></td><td>3. DISPATCH OR SOURCE DOC. SYMBOL NO.</td><td colspan="3"></td></tr><tr><td colspan="2"></td><td>7. SOURCE CRYPTOVM</td><td>8. DATE OF INFO.</td><td>9. EVALUATION</td><td></td></tr><tr><td>9. ANALYST</td><td>9. DATE PROCESSED</td><td>10. DISSEMINATED IN</td><td>11. DATE</td><td colspan="2"></td></tr><tr><td colspan="2"></td><td colspan="3">DOCUMENT DISPOSITION</td><td></td></tr><tr><td colspan="2">12. CROSS REFERRED TO THIS FILE</td><td colspan="2">13. TRANSFERRED TO<br/>RI FILE NO.</td><td colspan="2"></td></tr><tr><td colspan="6">PERTINENT INFORMATION</td></tr><tr><td colspan="6">14.</td></tr><tr><td colspan="2">RICO GALAN, VICTOR<br/>201-336474<br/>SEX M DOD ?<br/><br/>CIT ?<br/>OCC ?<br/>MEXICAN POLITICAL PRISONERS</td><td colspan="4">050-009-008<br/>MEXI-02201<br/>03 JAN 70</td></tr><tr><td colspan="6">FILE THIS FORM IN FILE NO. R 7001271816</td></tr><tr><td colspan="6">FILE IN 201-336474</td></tr><tr><td colspan="6">887 on previous form</td></tr><tr><td colspan="6">SECRET (2'00)</td></tr></tbody></table>

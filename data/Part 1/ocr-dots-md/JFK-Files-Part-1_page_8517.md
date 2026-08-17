@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8517.png
-
-Convert to MarkdownJanuary 24, 1968.
+January 24, 1968.
 
 Valentin Sergeyevich LOGINOV P-11712
 

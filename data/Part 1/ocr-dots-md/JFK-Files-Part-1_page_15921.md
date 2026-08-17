@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15921.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">TO : DIRECTOR</td></tr><tr><td>FROM : GENEVA</td><td></td></tr><tr><td>ACTION: C/EE 3</td><td></td></tr><tr><td>INFO : ADDP, C/CI, C/FI 2, RI/AN DUNNG:</td><td>C/NF.3, C/FE.6, RF.2<br/>per CS# 43-49</td></tr></table>
 

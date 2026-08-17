@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_8743.png
-
-Convert to Markdownlanded there from Dallas on 22 November 1963 reporting engine trouble and then proceeded on to Mexico City. The FBI advised it was making no investigation of the matter in the absence of further information from CIA.
+landed there from Dallas on 22 November 1963 reporting engine trouble and then proceeded on to Mexico City. The FBI advised it was making no investigation of the matter in the absence of further information from CIA.
 
 COMMENT: There is no name trace record of APIAGAS (fnu), Walter SIMON or his widow. Since [SIMON's] widow had been willing to provide information in the first interview, a subsequent interview after her husband's death might have yielded results. In view of vagueness of original report, its receipt a year after the assassination, and lack of CIA assets in Tijuana, Headquarters decided not to follow-up. /

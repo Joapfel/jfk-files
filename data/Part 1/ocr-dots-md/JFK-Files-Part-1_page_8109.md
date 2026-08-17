@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8109.png
-
-Convert to MarkdownCABLE BY: DIBSEM BY: PFR
+CABLE BY: DIBSEM BY: PFR
 
 TOTAL COPY RUN BY:
 SECRET

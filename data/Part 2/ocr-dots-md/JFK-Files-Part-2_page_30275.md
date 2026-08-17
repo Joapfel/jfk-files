@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30275.png
-
-Convert to MarkdownMr. Klein. Instead they elected to allow him to stay indefinitely in the Soviet Union and they have to worry about him every single day, what an unstable American would do, is that correct?
+Mr. Klein. Instead they elected to allow him to stay indefinitely in the Soviet Union and they have to worry about him every single day, what an unstable American would do, is that correct?
 
 Mr. Nosenko. They didn't allow, KGB didn't allow. Soviet government allowed.
 

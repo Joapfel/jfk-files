@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27454.png
-
-Convert to MarkdownDecember 27, 1976
+December 27, 1976
 
 MEMORANDUM FROM: Sprague
 FOR: File on future appointments (Billie)

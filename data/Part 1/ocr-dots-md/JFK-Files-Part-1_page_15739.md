@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15739.png
-
-Convert to Markdown1. Occupational Specialty: Mechanical Electrical Engineering
+1. Occupational Specialty: Mechanical Electrical Engineering
 
 Cine or Portrait Photography
 

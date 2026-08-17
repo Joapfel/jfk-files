@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7181.png
-
-Convert to Markdown12 May 1966
+12 May 1966
 
 SUBJECT: Contact Report/LICOY-5
 11 May 1200, Subj's office

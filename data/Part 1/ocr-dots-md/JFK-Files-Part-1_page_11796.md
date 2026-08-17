@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11796.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **D. SUBSIDY OR PROPRIETARY PAYMENTS**
 

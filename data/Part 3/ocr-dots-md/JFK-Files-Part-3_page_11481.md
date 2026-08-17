@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11481.png
-
-Convert to MarkdownThirty-four days before Dr. King was to fly to Norway to receive the highest honor an American can earn, the Nobel Prize for Peace, the Federal Bureau of Investigation even sent him a message urging him to take his own life. The unsigned note read:
+Thirty-four days before Dr. King was to fly to Norway to receive the highest honor an American can earn, the Nobel Prize for Peace, the Federal Bureau of Investigation even sent him a message urging him to take his own life. The unsigned note read:
 
 King, there is only one thing left for you to do. You know what it is. You have just 34 days in which to do it. (This exact number has been selected for a specific reason.) It has definite practical significance. You are done. There is but one way out for you.
 

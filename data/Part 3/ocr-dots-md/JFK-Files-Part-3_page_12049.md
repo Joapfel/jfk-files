@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12049.png
-
-Convert to MarkdownBureau Agents. To our knowledge, Fedora is still a viable
+Bureau Agents. To our knowledge, Fedora is still a viable
 source, and if he will not be reassigned in the United States,
 certainly we can anticipate contact with him at scientific
 symposiums elsewhere in the Western world.

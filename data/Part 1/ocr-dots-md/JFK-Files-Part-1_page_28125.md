@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28125.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Continuation of Section C Fitness Report F. C. Randall
 

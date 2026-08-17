@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5227.png
-
-Convert to MarkdownAll Agents are to be reminded that in dealing with informants, they are to be particularly alert and not leave themselves open for criticism or false accusations. The importance of having an alternate contacting Agent or another Agent along during the course of certain interviews is advisable in case any compromising situation is attempted.
+All Agents are to be reminded that in dealing with informants, they are to be particularly alert and not leave themselves open for criticism or false accusations. The importance of having an alternate contacting Agent or another Agent along during the course of certain interviews is advisable in case any compromising situation is attempted.
 
 With the recent enactment of Senate Bill 30 you should concentrate on increasing your informant coverage in the areas covered by this legislation. Also in regard to the passage of Senate Bill 30 dealing with gambling, which you are aware does not now require interstate activity, you should not overlook the utilization of your racial informants to furnish information to your office concerning gambling activities. Other divisions of the Bureau have been particularly successful in coordinating the information from racial informants in to the CIP and IGA programs.
 

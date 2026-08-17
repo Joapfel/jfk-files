@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11995.png
-
-Convert to Markdown4-H
+4-H
 
 Current program requires only an annual letter with deletions or additions being made by separate letter as subjects involved qualify for elimination or inclusion. Substantive desk supervisors review field submissions to verify need for inclusion of individuals on list.
 

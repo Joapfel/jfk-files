@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14062.png
-
-Convert to Markdown2025 Release under the John F. Kennedy Assassination Records Collection Act of
+2025 Release under the John F. Kennedy Assassination Records Collection Act of
 1992
 
 MINUTES

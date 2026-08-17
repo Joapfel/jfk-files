@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_343.png
-
-Convert to Markdown14-00000
+14-00000
 
 KYOH! SAKI or SASAKI
 26 Condon Court

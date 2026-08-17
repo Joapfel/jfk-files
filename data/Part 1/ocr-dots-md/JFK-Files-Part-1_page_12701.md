@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12701.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ADYANC. COPY ISSUED SLOTTED</td>
     <td>AY AT 2</td>

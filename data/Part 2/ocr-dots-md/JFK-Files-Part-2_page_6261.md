@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6261.png
-
-Convert to Markdown- Office of Personnel files
+- Office of Personnel files
 Office of Security files
 
 - Hand-written notes prepared by HSCA staffers

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9588.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 Both THARP and BOHMER are subjects of investigation in the San Diego Division on the basis of their activities in the New Left Movement.
 

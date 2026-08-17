@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17818.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (COLLECTOR/EVALUATOR)
 

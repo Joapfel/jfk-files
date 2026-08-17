@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25914.png
-
-Convert to Markdown-2-
+-2-
 
 Inspector General's Report states that Maheu was instructed to tell Roselli that Maheu represented businesses (Wall Street) who had interests in Cuba and who wanted to eliminate Castro and were willing to pay $150,000.
 

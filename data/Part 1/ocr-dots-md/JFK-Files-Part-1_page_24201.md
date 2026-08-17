@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24201.png
-
-Convert to MarkdownMonsieur et Madame GIBSON
+Monsieur et Madame GIBSON
 30, Stockleigh Hall
 Prince Albert Road
 LONDON N.W.8 -(Grando Bretagne).

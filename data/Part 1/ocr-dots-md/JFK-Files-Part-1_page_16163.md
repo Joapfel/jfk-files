@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16163.png
-
-Convert to MarkdownTHURSDAY, JANUARY 23, 1975
+THURSDAY, JANUARY 23, 1975
 
 # U.S. Aide Was Briefed on Assassination Techniques
 

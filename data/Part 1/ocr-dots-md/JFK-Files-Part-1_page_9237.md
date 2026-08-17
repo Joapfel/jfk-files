@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9237.png
-
-Convert to MarkdownNov. 17, 1950
+Nov. 17, 1950
 
 LUNSON FIRED FROM NY., 10 a.m.
 

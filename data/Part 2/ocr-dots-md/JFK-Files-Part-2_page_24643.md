@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24643.png
-
-Convert to MarkdownBy this point, Hedgman had conducted his "exploratory conversation" with the agent who was his best candidate for gaining access to Lumumba (Hedgman, 8/21/75, p. 60). Hedgman testified that the subject he "explored" was the agent's ability to find a means to inject poison into Lumumba's food or toothpaste (Hedgman, 8/21/75, p. 60):
+By this point, Hedgman had conducted his "exploratory conversation" with the agent who was his best candidate for gaining access to Lumumba (Hedgman, 8/21/75, p. 60). Hedgman testified that the subject he "explored" was the agent's ability to find a means to inject poison into Lumumba's food or toothpaste (Hedgman, 8/21/75, p. 60):
 
 I believe that I queried the agent who had access to Lumumba, and his entourage, in detail about just what that access, what access he actually had, as opposed to speaking to people. In other words, did he have access to the bathroom, did he have access to the kitchen, things of that sort.
 

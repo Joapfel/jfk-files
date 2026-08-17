@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23343.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 301 HM/RFL/MR
 

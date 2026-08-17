@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23661.png
-
-Convert to MarkdownCommittee. I believe the record reflects that Mr. Schlesinger was the only former DCI who was in favor of separating the Agency from the Director and all those who were still alive to testify who were former directors favored it, most notably Mr. McCone and also Mr. Helms, Mr. Helms characterizing the director as ending up with a disembodied spirit if he were deprived of this analytical vehicle.
+Committee. I believe the record reflects that Mr. Schlesinger was the only former DCI who was in favor of separating the Agency from the Director and all those who were still alive to testify who were former directors favored it, most notably Mr. McCone and also Mr. Helms, Mr. Helms characterizing the director as ending up with a disembodied spirit if he were deprived of this analytical vehicle.
 
 So I think as far as the record goes. I think the record is against divesting the director of the Agency, although there is certainly evidence from those who felt that he should be.
 

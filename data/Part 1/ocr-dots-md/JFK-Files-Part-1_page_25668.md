@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25668.png
-
-Convert to Markdown14-0000.
+14-0000.
 
 MACHADO, Antonio Mendonça
 MENDONÇA, Cátelinga Adelaida

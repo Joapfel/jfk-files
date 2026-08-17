@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26993.png
-
-Convert to Markdown Mitch WerBell: Gunsmith to the 'Right' Side
+Mitch WerBell: Gunsmith to the 'Right' Side
 
 By Roger Williams
 

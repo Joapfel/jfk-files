@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8525.png
-
-Convert to Markdown13-00000
+13-00000
 
 16 APR 1977
 

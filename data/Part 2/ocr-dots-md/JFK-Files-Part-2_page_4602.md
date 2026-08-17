@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4602.png
-
-Convert to Markdownb. Continue to funnel sanitized arrest lists affecting CASTRO security personnel to the FRD.
+b. Continue to funnel sanitized arrest lists affecting CASTRO security personnel to the FRD.
 
 c. Monitor FRD security service activities in Cuba.
 

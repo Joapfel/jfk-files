@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10000.png
-
-Convert to MarkdownC O P Y
+C O P Y
 
 INDEPENDENT AGENCIES: (Continued)
 

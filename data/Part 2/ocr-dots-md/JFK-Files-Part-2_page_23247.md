@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23247.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Baron. This was sent from the Congo to--
 

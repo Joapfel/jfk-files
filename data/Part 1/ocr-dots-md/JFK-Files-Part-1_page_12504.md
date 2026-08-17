@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12504.png
-
-Convert to MarkdownSUBJ: CIFLUTE Operational Report for Period November thru December 1970
+SUBJ: CIFLUTE Operational Report for Period November thru December 1970
 
 HVCA-18070, 20 February 1971, FILED: 75-2-16/3
 

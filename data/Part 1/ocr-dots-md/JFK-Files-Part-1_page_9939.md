@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9939.png
-
-Convert to Markdown<table><tr><td>08: J. Stewart/sas</td></tr><tr><td>VRI: WH/1</td></tr><tr><td>E3: 6954/9041</td></tr><tr><td>DATE: 21 August 1967</td></tr></table>
+<table><tr><td>08: J. Stewart/sas</td></tr><tr><td>VRI: WH/1</td></tr><tr><td>E3: 6954/9041</td></tr><tr><td>DATE: 21 August 1967</td></tr></table>
 
 <table><tr><td colspan="2">MESSAGE FORM<br>TOTAL COPIES: 71</td><td>BOUTINEG A/B C2 MENS - SEEN BY</td></tr><tr><td>SECRET</td><td></td><td></td></tr></table>
 

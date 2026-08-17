@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7773.png
-
-Convert to MarkdownMr. D. J. Brennan, Jr.
+Mr. D. J. Brennan, Jr.
 
 S. J. Papich
 

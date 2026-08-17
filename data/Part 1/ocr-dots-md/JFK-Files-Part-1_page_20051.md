@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20051.png
-
-Convert to Markdown<table><thead><tr><th colspan="6">AUTOMATED PSI RECORD ADJUSTMENT</th></tr><tr><th>SERIAL NO.</th><th>LEI<br/>YR MO DA</th><th>PSI DUE DATE<br/>YR MO DA</th><th>ORGANIZATION CODE<br/>OFFICE DIVISION</th><th>CURRENT<br/>GRADE STEP</th><th></th></tr></thead><tbody><tr><td>G</td><td>• 62 | 07 | 08</td><td>• 64 | 07 | 05</td><td>DDP/ SR</td><td>GS-14</td><td>6</td></tr></tbody></table>
+<table><thead><tr><th colspan="6">AUTOMATED PSI RECORD ADJUSTMENT</th></tr><tr><th>SERIAL NO.</th><th>LEI<br/>YR MO DA</th><th>PSI DUE DATE<br/>YR MO DA</th><th>ORGANIZATION CODE<br/>OFFICE DIVISION</th><th>CURRENT<br/>GRADE STEP</th><th></th></tr></thead><tbody><tr><td>G</td><td>• 62 | 07 | 08</td><td>• 64 | 07 | 05</td><td>DDP/ SR</td><td>GS-14</td><td>6</td></tr></tbody></table>
 
 <table><tr><th colspan="3">PROJECTED</th><th rowspan="2">NAME (LAST-FIRST-MIDDLE) MAX. 20 CHARACTERS</th></tr><tr><th>GRADE</th><th>SSTEP</th><th></th></tr><tr><td>GS-14</td><td>7</td><td>Lilliard, J.L. (last name)</td><td></td></tr></table>
 

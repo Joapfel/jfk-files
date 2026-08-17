@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4030.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 : Mr. W. C. Sullivan
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18604.png
-
-Convert to Markdown2:04 p. m.
+2:04 p. m.
 
 August 34, 1965
 

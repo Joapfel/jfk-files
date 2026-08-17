@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11360.png
-
-Convert to Markdown(g) Possible violations of state or Federal tax laws.
+(g) Possible violations of state or Federal tax laws.
 (h) Disbursements and collections of the "Reserve Fund"
 (i) Receipt of any money from abroad
 

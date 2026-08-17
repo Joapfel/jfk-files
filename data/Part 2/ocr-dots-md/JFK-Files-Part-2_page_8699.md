@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8699.png
-
-Convert to Markdownlearned that Mario SALABARRIA Aguiar was one of the principal planners. When the case officer told MILANES that the US Government did not condone such actions, MILANES replied that in view of our lack of support of this undertaking, he considered it not prudent to reveal further details, but added that he actually did not know the names of any other possible participants and had only a general idea of the scheme which was to waylay CASTRO as he was leaving an apartment.
+learned that Mario SALABARRIA Aguiar was one of the principal planners. When the case officer told MILANES that the US Government did not condone such actions, MILANES replied that in view of our lack of support of this undertaking, he considered it not prudent to reveal further details, but added that he actually did not know the names of any other possible participants and had only a general idea of the scheme which was to waylay CASTRO as he was leaving an apartment.
 
 UFGA 13794 dated 28 January 1964 (JMWAVE to Hqs.)
 

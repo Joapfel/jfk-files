@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28396.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. <u>Instructions</u>. Instructions received by you from CIA in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the 'or so hereof.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7681.png
-
-Convert to Markdown14. NON-INTELLIGENCE ACTIVITY:
+14. NON-INTELLIGENCE ACTIVITY:
 
 In Mexico, Subject has consistently been reported performing consular duties. He issues visas and sees visitors to the Soviet Embassy in one of the reception rooms (21). He makes travel reservations for PCS and visiting Soviets. He is responsible when either PCS or visiting Soviets become ill and have to be sent to a hospital. He has often attended to the needs of Soviet ships in Mexican ports. He has done considerable house-hunting for the Soviets, such as looking for a new school building and for houses in Cuernavaca that would be suitable as a dacha. Subject had to sign the dacha contract in both 1966 and 1967. Subject also regularly attends the;xx functions of the Consular Corps Association, and on 16 Feb 1967 he had the Association to the Soviet Embassy for a Russian evening. (1). In Sep 1966 Subject was reported as having become the
 

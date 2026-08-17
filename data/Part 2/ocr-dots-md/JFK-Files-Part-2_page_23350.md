@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23350.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Baron. This would have restricted all traffic from
    yourself to Chief of Station, is that correct?

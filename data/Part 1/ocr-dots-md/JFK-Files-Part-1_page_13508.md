@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13508.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 were in a position to sabotage the electrical plant in Havana. (I did not ask, neither did he specify which plant.) He did not promise immediate action, adding that he wanted to assure himself of the details of the planned operation and the safety-odds of the man involved. A-1 then indicated that he would certainly be in a position to accomplish this mission and others in the future and would be most grateful for any materiel we could put in place. I left the matter with him with the understanding that if it were possible we would proceed with caching the high explosives in the general area of Havana. He assured me of their capability to service and retrieve the cache.
 

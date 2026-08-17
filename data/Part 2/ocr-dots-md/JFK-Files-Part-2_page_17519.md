@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17519.png
-
-Convert to MarkdownSTEWART was removed from the Security Staff
+STEWART was removed from the Security Staff
 because he was always unavailable and did not function
 properly.
 

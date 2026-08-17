@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15771.png
-
-Convert to MarkdownCS-1236 (Coolidge)
+CS-1236 (Coolidge)
 
 22 September 1960
 

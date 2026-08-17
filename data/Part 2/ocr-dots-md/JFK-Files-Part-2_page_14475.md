@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14475.png
-
-Convert to Markdown# ROUTE IN ENVELOPE
+# ROUTE IN ENVELOPE
 
 UNITED STATES GOVERNMENT
 

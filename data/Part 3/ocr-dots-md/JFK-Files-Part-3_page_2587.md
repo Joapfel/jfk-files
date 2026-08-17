@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2587.png
-
-Convert to MarkdownG. "Notional Organizations"
+G. "Notional Organizations"
 
 Partial Response
 

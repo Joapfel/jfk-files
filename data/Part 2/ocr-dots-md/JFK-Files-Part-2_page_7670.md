@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7670.png
-
-Convert to MarkdownMr. HOOVER. Thank you.
+Mr. HOOVER. Thank you.
 
 Mr. RANKIN. Mr. Hoover, I hand you Exhibit 863 and ask you to examine that and state whether or not that is the letter that you referred to in which you answered questions of the Commission concerning the National Enquirer magazine or newspaper?
 

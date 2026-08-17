@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15865.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG:</td><td>D. HESCATUR</td></tr><tr><td>UNIT:</td><td>AF/W/1</td></tr><tr><td>EXT:</td><td>3969</td></tr><tr><td>DATE:</td><td>16 November 1960</td></tr></table>
 

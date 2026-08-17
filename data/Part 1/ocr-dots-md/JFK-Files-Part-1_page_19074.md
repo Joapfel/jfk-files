@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19074.png
-
-Convert to Markdown1937 AARTS
+1937 AARTS
 
 Information about: 7-20 November 1984
 Release date: 5 September 1984

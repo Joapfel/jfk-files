@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16196.png
-
-Convert to Markdown219 South Dearborn Street
+219 South Dearborn Street
 Chicago, Illinois 60604
 
 March 6, 1970

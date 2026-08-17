@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27402.png
-
-Convert to Markdown22 March 1975
+22 March 1975
 
 Mr. James B. Weidner
 Counsel.

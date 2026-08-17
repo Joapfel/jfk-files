@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11883.png
-
-Convert to MarkdownPage 5 - Why not leave in Saldeman and Mardian as they are acting in an official capacity?
+Page 5 - Why not leave in Saldeman and Mardian as they are acting in an official capacity?
 
 Page 7 Pz. Congressmen's names deleted here but not on page 2 TP1. Why?
 

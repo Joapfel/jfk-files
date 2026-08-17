@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24286.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. **Mobility.** QRPHONE can be viewed as essentially possessive; here are, however, qualifications on this. He move small children and an unwitting, anti-US, white, hagish wife, who would only be willing to leave her Iceland if the overt job to which QRPHONE was going was clearly a step upward in his career.
 

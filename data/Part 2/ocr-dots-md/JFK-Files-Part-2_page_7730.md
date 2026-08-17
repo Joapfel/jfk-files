@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7730.png
-
-Convert to Markdown13-00000
+13-00000
 
 .1950-1951: Desk officer, Operation SK Case Officer, supervising SK activities in China, assigned to the SK Section, Eastern Department, First Directorate of the MGB Headquarters in Moscow, the SK functions having reverted from the KI to the MGB in 1949.
 

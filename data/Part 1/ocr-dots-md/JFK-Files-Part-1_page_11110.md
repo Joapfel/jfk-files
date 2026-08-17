@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11110.png
-
-Convert to Markdown4 April 1967
+4 April 1967
 
 MEMORANDUM FOR: CI/GPS/Rughe
 

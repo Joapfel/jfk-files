@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16319.png
-
-Convert to MarkdownFREE CHAIRMAN FRED
+FREE CHAIRMAN FRED
 
 FREE CHAIRMAN FRED
 

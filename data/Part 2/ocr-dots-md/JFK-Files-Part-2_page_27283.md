@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27283.png
-
-Convert to MarkdownOFFICE OF SECURITY - FILES MATERIAL
+OFFICE OF SECURITY - FILES MATERIAL
 
 A. Administrative Files (undated) SECRET
 

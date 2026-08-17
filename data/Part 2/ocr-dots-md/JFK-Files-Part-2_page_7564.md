@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7564.png
-
-Convert to MarkdownUSSR
+USSR
 
 Yuriy Ivanovich MOSKALEV
 

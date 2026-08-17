@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34669.png
-
-Convert to Markdownh. Bohemia Libre, weekly magazine of over 170,000 UN circulation.
+h. Bohemia Libre, weekly magazine of over 170,000 UN circulation.
 
 ### 5. Tours and Travel - Cuban Group Representation
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27120.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 issues involving Soviet strategic disinformation and our defense posture go to the heart of national security insofar as they relate to estimates affecting the world balance of power. Additionally, we believe it to be most misleading for one to assume that estimates derived from technical collection alone justify the negotiation of finite disarmament and other treaties with the Soviet Bloc governments unless there is corresponding high-level covert intelligence production which supplements and confirms the findings of technical collection.
 

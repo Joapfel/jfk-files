@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22221.png
-
-Convert to Markdown# NO OBJECTION
+# NO OBJECTION
 ## NATIONAL SECURITY COUNCIL
 
 <table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>William Harvey<br/>Gen. Lansdale<br/>Walter Elder<br/>DCI</td><td>Nov. 21, 1962<br/><u>(handwritten: 10/30/68)</u></td><td>Special Group Augmented<br/>Operation Mongoose<br/>Cuba</td></tr></tbody></table>

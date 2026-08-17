@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10606.png
-
-Convert to MarkdownNR 015 WF CODED
+NR 015 WF CODED
 
 940 PM NITEL JUNE 16, 1975 WWC
 

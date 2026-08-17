@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9250.png
-
-Convert to MarkdownBill: This is not what I want. I want Shub to be told that we are paying hi to complete his picture book, but we bear that he is merely promoting The Choice. What are the facts? When will the picture book be finished? I also want you to devise a system whereby we can check Shub's progress. Lastly, we could never allow a letter like this one to go through the mails. In the wrong hands, it would be TNT.
+Bill: This is not what I want. I want Shub to be told that we are paying hi to complete his picture book, but we bear that he is merely promoting The Choice. What are the facts? When will the picture book be finished? I also want you to devise a system whereby we can check Shub's progress. Lastly, we could never allow a letter like this one to go through the mails. In the wrong hands, it would be TNT.
 
 JB3
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22161.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>CARD 3</td><td></td><td>Cad 3 of 3</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>CARD 3</td><td></td><td>Cad 3 of 3</td></tr></table>
 
 **OCCURRENCE:** (continued from Memo for the Special Group re: Cuba Project, Jan. 24, 1962
 detectives and foreign police officials." (00106)

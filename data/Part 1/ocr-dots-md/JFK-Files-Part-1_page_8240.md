@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8240.png
-
-Convert to MarkdownFor Secretary of State
+For Secretary of State
 # HANK LOPEZ
 
 OFFICIALLY ENDORSED DEMOCRAT

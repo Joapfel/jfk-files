@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7515.png
-
-Convert to MarkdownHarold Robert ISAACS with aliases
+Harold Robert ISAACS with aliases
 LO SAW (pannane used in China)
 
 Harold Robert ISAACS was born in New York City on 13 September 1910 of Amer- ican parents. His father has been reported as "decidedly of the commercial type," ISAACS has been described as intelligent, critical, deft, and nervously organized.

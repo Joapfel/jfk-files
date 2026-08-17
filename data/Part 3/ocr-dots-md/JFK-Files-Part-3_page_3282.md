@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3282.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 to Inspector John B. Notis of this office dated November 26,
 1975, which requested additional information, we are gathering

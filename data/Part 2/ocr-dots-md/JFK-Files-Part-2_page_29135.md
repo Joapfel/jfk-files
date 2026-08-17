@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29135.png
-
-Convert to MarkdownSCHEDULE
+SCHEDULE
 D
 
 FORM 540

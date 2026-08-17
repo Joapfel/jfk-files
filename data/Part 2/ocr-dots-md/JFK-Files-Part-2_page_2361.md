@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2361.png
-
-Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+CENTRAL INTELLIGENCE AGENCY
 Washington 25, D. C.
 
 Office of the Director

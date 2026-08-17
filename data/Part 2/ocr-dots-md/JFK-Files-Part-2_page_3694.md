@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3694.png
-
-Convert to MarkdownNOTES
+NOTES
 
 A. South Vietnam Plans are now afoot to shuffle South Vietnam's Corps commanders so that General Khanh, considered by General Harkins to be the best of the lot, will take over in the crucial delta (IV Corps) area. General Dinh, the ambitious Minister of Security, is still resisting pressure to relinquish command of the III Corps area, and is not involved in the current shuffle.
 

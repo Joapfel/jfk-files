@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5420.png
-
-Convert to Markdownsome extent, discussed and, to some extent, publicized.
+some extent, discussed and, to some extent, publicized.
 
 I am convinced that in these matters where there might be
 some criticism, there is an underlying intent to do that

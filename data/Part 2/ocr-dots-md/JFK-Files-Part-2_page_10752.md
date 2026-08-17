@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10752.png
-
-Convert to MarkdownPH 100-5264:
+PH 100-5264:
 
 PH 52-7165-20B S
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8405.png
-
-Convert to MarkdownProvocative Slogans
+Provocative Slogans
 
 <table>
    <tr>

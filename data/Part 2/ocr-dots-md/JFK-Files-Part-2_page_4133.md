@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4133.png
-
-Convert to Markdown5. The probable position of the Nenni Socialists at their July Congress was discussed.
+5. The probable position of the Nenni Socialists at their July Congress was discussed.
 
 ACTION: CIA was requested to explore the possibility of political action at this time designed to influence a favorable decision by the Congress concerning the Party's support of NATO and the West as contrasted with the taking of a neutral position. As an alternate possibility, it was suggested that the Party might be influenced to refrain from making support of NATO an issue on which the Government might be brought down. Such a course would make it possible for the Christian Democratic Party to conduct its support of NATO even though the CD are closely associated with the Nenni Socialists.
 

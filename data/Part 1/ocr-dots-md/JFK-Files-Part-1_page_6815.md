@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6815.png
-
-Convert to Markdown# Ex-OSS Official Works For Reds in Moscow
+# Ex-OSS Official Works For Reds in Moscow
 
 By VICTOR LASKY
 North America Newspaper Alliance

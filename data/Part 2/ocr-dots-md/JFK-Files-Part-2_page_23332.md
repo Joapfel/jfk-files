@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23332.png
-
-Convert to Markdown1 up in connection with our interrogation on Castro will be reviewed. We're not interested in any kind of entrapment. We want you to be fully aware of whatever documentation we have so you can help enlighten us of your understanding of the policy at the time.
+1 up in connection with our interrogation on Castro will be reviewed. We're not interested in any kind of entrapment. We want you to be fully aware of whatever documentation we have so you can help enlighten us of your understanding of the policy at the time.
 
 2
 3

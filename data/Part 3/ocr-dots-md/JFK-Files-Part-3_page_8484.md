@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8484.png
-
-Convert to MarkdownMemorandum for Mr. Callahan
+Memorandum for Mr. Callahan
 
 Re: SENATE SELECT COMMITTEE ON
 INTELLIGENCE ACTIVITIES

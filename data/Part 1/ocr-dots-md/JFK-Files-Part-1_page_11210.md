@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11210.png
-
-Convert to MarkdownLa Habana, 15 de octubre de 1965
+La Habana, 15 de octubre de 1965
 
 Sr. Donato R. Román, Consejero
 De la Sección de la M.P. do

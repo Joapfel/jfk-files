@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7127.png
-
-Convert to Markdown2.
+2.
 
 the manager or complete the study of the office's requirements, but that he is
 having going to have it done. On his personal affairs, Subject said he was

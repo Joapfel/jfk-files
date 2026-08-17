@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27137.png
-
-Convert to MarkdownDISPATCH
+DISPATCH
 
 CLASSIFICATION
 SECRET

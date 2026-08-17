@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2332.png
-
-Convert to MarkdownSECRET
+SECRET
 
 葉（反面）的文書，被貼在牆上。
 

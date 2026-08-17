@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35633.png
-
-Convert to MarkdownPrograma racial "El lodeco y Ud."
+Programa racial "El lodeco y Ud."
 
 Diciembre, 1964
 

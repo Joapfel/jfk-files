@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12310.png
-
-Convert to MarkdownU. PANEL SOURCES
+U. PANEL SOURCES
 
 1. Definition
 

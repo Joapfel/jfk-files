@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16772.png
-
-Convert to MarkdownGroup "B" blood was identified in specimen Q30.
+Group "B" blood was identified in specimen Q30.
 
 No blood was identified in specimen Q25.
 

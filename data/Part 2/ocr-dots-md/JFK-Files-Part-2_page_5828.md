@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5828.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OIM 98-0081
 30 July 1998

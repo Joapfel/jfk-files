@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31224.png
-
-Convert to Markdown9 FEB 1978
+9 FEB 1978
 
 SECRET
 

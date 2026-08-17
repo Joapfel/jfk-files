@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33253.png
-
-Convert to Markdown2 May 1968
+2 May 1968
 
 MEMORANDUM FOR: CI/OA
 

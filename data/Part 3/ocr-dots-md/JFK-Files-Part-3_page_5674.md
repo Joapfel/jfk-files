@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5674.png
-
-Convert to MarkdownUNITED STATES
+UNITED STATES
 Memorandum
 
 TO : Mr. Belmont

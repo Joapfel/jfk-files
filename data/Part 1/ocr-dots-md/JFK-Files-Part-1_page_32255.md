@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32255.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled In)
 
 SEA 021078

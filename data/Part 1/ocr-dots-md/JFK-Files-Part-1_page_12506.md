@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12506.png
-
-Convert to MarkdownSee HVCA 17828, 26 October 70, re CIPENCE belief that CIGRAPE/2 is working
+See HVCA 17828, 26 October 70, re CIPENCE belief that CIGRAPE/2 is working
 was told to
 for CIA. CIPENCE/L advised the station of this, and will do what he can
 to initiate a full-scale CIPENCE investigation of CIGRAPE/2, under his own

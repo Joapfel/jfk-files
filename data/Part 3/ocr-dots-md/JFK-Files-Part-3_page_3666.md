@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3666.png
-
-Convert to MarkdownAttorney General Edward H. Levi
+Attorney General Edward H. Levi
 
 Page three
 

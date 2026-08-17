@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19957.png
-
-Convert to MarkdownNW 88321 DocId:32989545 Agent in Charge
+NW 88321 DocId:32989545 Agent in Charge
 
 Approved: ________ Sent ________ M Per ________
 

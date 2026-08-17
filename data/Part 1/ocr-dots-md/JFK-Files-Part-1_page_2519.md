@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2519.png
-
-Convert to Markdownthat the KGB had reasons to consider the activities of
+that the KGB had reasons to consider the activities of
 BOWDEN with suspicion.
 
 It is not believed that the listed failures of NOSENKO to identify CIA officers are of particular significance in establishing that he was or was not Deputy Chief of the First Section. There are too many unknown factors which would need to be considered. Despite our assumptions as to what the KGB knows, it is possible that (a) the KGB did not know of the CIA affiliation of these people, (b) the information known to the KGB was not available at the First Section, First Department, level, or (c) information available to the Chief of the First Section or to a specific case officer was of no official concern to NOSENKO and was not made available to him. The last of these possibilities is suggested in spite of claims by NOSENKO that he had to have known whatever was known in the Section regarding CIA identifications; a propensity on the part of NOSENKO to exaggerate the area of his own knowledgeability has been seen elsewhere in this case.

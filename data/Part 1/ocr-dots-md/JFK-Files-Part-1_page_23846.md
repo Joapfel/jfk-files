@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23846.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: Chief, WE
 FROM: Chief of Station, London

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_782.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NOTIFICATION OF ESTABLISHMENT OR CANCELLATION<br/>OF OFFICIAL COVER BACKSTOP</td><td colspan="2">DATE: 6 Sept. 1974</td></tr><tr><td>X CHIEF, CONTROL DIVISION, OP</td><td colspan="2">SS NUMBER 102-22-0185</td></tr><tr><td rowspan="2">TO:<br/>(Check)<br/>X CHIEF, CONTRACT PERSONNEL DIVISION, OF</td><td colspan="2">EMPLOYER NUMBER 017074</td></tr><tr><td colspan="2">ID CARD NUMBER</td></tr><tr><td>ATTN:</td><td colspan="2">CHIEF SUPPORT STAFF</td></tr><tr><td>REF:</td><td>RETIREMENT</td><td>OFFICIAL<br/>COVER</td><td>ESTABLISHED<br/>X DISCONTINUED</td></tr><tr><td>SUBJECT</td><td colspan="3">FOX, Jerome</td></tr></table>
 

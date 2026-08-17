@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5698.png
-
-Convert to Markdown NW 88614 DocId:32989673 Page 195
+NW 88614 DocId:32989673 Page 195
 
 <table>
     <tbody>

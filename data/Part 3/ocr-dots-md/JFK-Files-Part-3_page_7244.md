@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7244.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (D) Clarification of NSA's role in targeting against communication traffic involving U. S. revolutionary leaders and organizations. (S)
 

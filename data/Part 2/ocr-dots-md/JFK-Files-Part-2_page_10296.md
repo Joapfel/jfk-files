@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10296.png
-
-Convert to Markdown# Sensitive Projects (Continued)
+# Sensitive Projects (Continued)
 
 | OJCS Project Identificat | Project Officer Organization, & Telephone | Nature of Project | OJCS Reason for Listing |
 |---|---|---|---|

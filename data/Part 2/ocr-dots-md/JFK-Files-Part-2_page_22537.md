@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22537.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In April 1966, Wiley prepared a report concerning George Freyman of Bellingham, Washington; and concurrently a report captioned, "Tourists Going to the USSR and Iron Curtain in Summer of 1966," specifically mentioning Stephen Talbott and Richard Bocklet.
 

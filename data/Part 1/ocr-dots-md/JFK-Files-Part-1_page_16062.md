@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16062.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr><td>1. Organization and Management</td><td>3</td></tr>
     <tr><td>&nbsp;&nbsp;&nbsp;&nbsp;A. Planning, Preparation</td><td>6</td></tr>

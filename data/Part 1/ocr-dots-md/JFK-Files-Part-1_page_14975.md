@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14975.png
-
-Convert to Markdownwife also lives in Cap. They are the only Georgians living
+wife also lives in Cap. They are the only Georgians living
 there. Artchil was in the French Army until 1943 and is a
 French citizen. He is a graduate in architecture from the Ecole
 des Beaux Arts, and is a successful architect in Cap. He is

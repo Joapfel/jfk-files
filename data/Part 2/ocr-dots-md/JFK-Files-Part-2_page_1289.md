@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1289.png
-
-Convert to MarkdownSEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
+SEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
 
 U.S. Army corporal
 

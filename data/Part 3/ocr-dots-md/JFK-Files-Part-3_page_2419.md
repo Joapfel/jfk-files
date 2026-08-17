@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2419.png
-
-Convert to MarkdownThey produced a new breed of revolutionaries whose main preoccupation with communism is that it has produced men like Mao Tse-tung, Ho Chi Minh, and Che Guevarra, whom they hope to emulate in the overthrow of a system they deem oppressive.
+They produced a new breed of revolutionaries whose main preoccupation with communism is that it has produced men like Mao Tse-tung, Ho Chi Minh, and Che Guevarra, whom they hope to emulate in the overthrow of a system they deem oppressive.
 
 From the inception of these movements, the FBI has been aware of the fact that their increasingly revolutionary communist imprint posed new and unique problems for the internal security of this nation.
 

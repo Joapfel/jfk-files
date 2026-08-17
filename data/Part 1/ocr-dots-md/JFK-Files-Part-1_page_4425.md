@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4425.png
-
-Convert to Markdownde elementos expectativos para iniciar una ofensiva propagandística de defensa.
+de elementos expectativos para iniciar una ofensiva propagandística de defensa.
 
 El tena cel nuevo contrato cel Canal, será uno de los tres primeros planes de la campaña de agitación. Los muchachos nuestros becados, tienen instrucciones de observar e informar ul respecto.
 

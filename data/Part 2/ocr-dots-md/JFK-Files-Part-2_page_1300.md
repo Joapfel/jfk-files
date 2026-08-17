@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1300.png
-
-Convert to Markdown**EDUCATION:**
+**EDUCATION:**
 
 Entered Harvard University, Sept. 1940, completed requirements for degree,
 cum laude, in history, government and economics, Feb. 1943, awarded degree

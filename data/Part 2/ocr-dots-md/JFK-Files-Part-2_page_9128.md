@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9128.png
-
-Convert to Markdown# To: Prospective Members Of The
+# To: Prospective Members Of The
 SECRET ARMY ORGANIZATION
 
 CONFIDENTIAL

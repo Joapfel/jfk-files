@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23239.png
-
-Convert to Markdown<table><tr><td>DATE: 31 MAR 86</td></tr><tr><td>TO: DIRECTOR</td></tr><tr><td>FROM: HAVANA</td></tr><tr><td>ACTION: WH 5</td></tr><tr><td>INFO: COP, CI, CI/OPS, S/C 2</td></tr></table>
+<table><tr><td>DATE: 31 MAR 86</td></tr><tr><td>TO: DIRECTOR</td></tr><tr><td>FROM: HAVANA</td></tr><tr><td>ACTION: WH 5</td></tr><tr><td>INFO: COP, CI, CI/OPS, S/C 2</td></tr></table>
 
 CLASSIFIED MESSAGE
 

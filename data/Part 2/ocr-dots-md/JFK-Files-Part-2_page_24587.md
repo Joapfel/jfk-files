@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24587.png
-
-Convert to Markdowntestified that, after reading Martin's report in the press, he told Martin "your first sentence is not only completely untrue, but there is not a single thing in your story that says it is true." (Lansdale, p. 65)
+testified that, after reading Martin's report in the press, he told Martin "your first sentence is not only completely untrue, but there is not a single thing in your story that says it is true." (Lansdale, p. 65)
 
 As discussed above (see p. __), Lansdale testified that on his own initiative he had originated the request to Harvey without discussing the matter with anyone and that a Castro assassination plan never came up in his discussions with Robert Kennedy (or with President Kennedy).
 

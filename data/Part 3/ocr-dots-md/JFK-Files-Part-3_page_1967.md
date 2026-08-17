@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1967.png
-
-Convert to MarkdownAT 66-2242
+AT 66-2242
 
 | Case Agent | Period assigned | Division, Section, or Squad of Assignment | Nature of Agent's Assignment prior to involvement in KING and SCLC investigations |
 |---|---|---|---|

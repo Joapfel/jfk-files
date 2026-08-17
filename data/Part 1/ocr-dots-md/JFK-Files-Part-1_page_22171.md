@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22171.png
-
-Convert to Markdown**Question:** When did you first have any personal conversation with him?
+**Question:** When did you first have any personal conversation with him?
 
 **NOSENKO:** I don't remember. He gathered groups of people. Maybe I was with him with KOZLOV and others in Tourist Department [i.e., between 1955 and 1960].
 

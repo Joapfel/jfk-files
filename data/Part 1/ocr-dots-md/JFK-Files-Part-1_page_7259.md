@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7259.png
-
-Convert to Markdown14 October 1966
+14 October 1966
 
 SUBJECT: CONTRACT FOR LICOY-5
 14 Oct 1200-1245, Subj's office

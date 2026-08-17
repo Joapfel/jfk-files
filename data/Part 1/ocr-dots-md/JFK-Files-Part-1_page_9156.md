@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9156.png
-
-Convert to Markdown# "DO" RECORD MATERIAL
+# "DO" RECORD MATERIAL
 
 FORM 610 USE PREVIOUS EDITIONS
 SECRET

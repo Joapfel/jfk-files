@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12606.png
-
-Convert to Markdown13 September 1968
+13 September 1968
 
 MEMORANDUM FOR: CI/OPS
 

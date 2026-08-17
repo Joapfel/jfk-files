@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24536.png
-
-Convert to MarkdownRusia, Venezuela a las guías de Colombia y Venezuela
+Rusia, Venezuela a las guías de Colombia y Venezuela
 
 CARACAS — (P)— Hay su- flecientes pruebas de que el pa- triotista Mario Renato Mená- dez Rodríguez, ex-Director de la revista "Sucesos", y de su nueva publicación subversiva "(Por qué)", se entrevistó con agentes roviéticos y recibió los 50.000 dólares de que ha infor- mado la prensa internacional, dirigidos a las guías de Colombia y Venezuela.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3460.png
-
-Convert to MarkdownSECRET SENSITIVE NOFORN
+SECRET SENSITIVE NOFORN
 
 contained evidence of a penetration of CIA, this clearly was
 of vital importance. If, on the other hand, they did not,

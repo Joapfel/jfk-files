@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3191.png
-
-Convert to MarkdownNWW 8614 DocId:32989543 Page 80
+NWW 8614 DocId:32989543 Page 80
 
 1803
 

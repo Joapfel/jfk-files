@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6350.png
-
-Convert to Markdown2. Following are comments on specific sections of the Assassination Records Review Board's interpretive regulations, as published in the Federal Register, February 8, 1995.
+2. Following are comments on specific sections of the Assassination Records Review Board's interpretive regulations, as published in the Federal Register, February 8, 1995.
 
 a. Section 1400.1 Interpretation of Assassination Record
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32581.png
-
-Convert to Markdown<table><tr><td>NAME</td><td>SERIAL ORGN. FUNDS GR-STEP</td></tr><tr><td>WILLIAMSON EARL J</td><td>060389 51 550 CF GS 15 6</td></tr></table>
+<table><tr><td>NAME</td><td>SERIAL ORGN. FUNDS GR-STEP</td></tr><tr><td>WILLIAMSON EARL J</td><td>060389 51 550 CF GS 15 6</td></tr></table>
 
 NEW
 SALARY

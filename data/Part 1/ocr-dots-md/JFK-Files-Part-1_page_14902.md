@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14902.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">402/GHS/HES/<br/>DATE : 11 DECEMBER 1958</td>
     <td colspan="3">CLASSIFIED MESSAGE 5<br/>SECRET</td>

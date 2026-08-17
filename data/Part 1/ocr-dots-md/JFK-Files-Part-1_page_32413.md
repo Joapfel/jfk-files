@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32413.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th>SERIAL NO.</th><th>LAST<br>(Print)</th><th>FIRST</th><th>MIDDLE</th></tr></thead><tbody><tr><td>1-8<br>036130</td><td>FLORES</td><td>DANIEL</td><td></td></tr></tbody></table>

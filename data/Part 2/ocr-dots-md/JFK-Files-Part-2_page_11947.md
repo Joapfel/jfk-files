@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11947.png
-
-Convert to Markdown8. Persons being considered for use in espionage and foreign nationality cases many times present special problems which limit or govern the scope of the initial investigation. (See instructions re contact cases and derecense program, section 103K, 6b and 6h, volume IV, this manual.)
+8. Persons being considered for use in espionage and foreign nationality cases many times present special problems which limit or govern the scope of the initial investigation. (See instructions re contact cases and derecense program, section 103K, 6b and 6h, volume IV, this manual.)
 However, where practical the above items should be considered.
 
 9. Leads to obtain background data must be handled by military offices within 30 days.

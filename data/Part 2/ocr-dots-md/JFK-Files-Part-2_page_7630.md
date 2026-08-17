@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7630.png
-
-Convert to MarkdownTO: Chief, CI
+TO: Chief, CI
 
 Re your remarks on a report to DDO for DCI and other DD's on the
 declassification exercise, it will include the following:

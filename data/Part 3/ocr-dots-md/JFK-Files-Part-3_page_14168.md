@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14168.png
-
-Convert to Markdown(75. 8/31/62 Continues)
+(75. 8/31/62 Continues)
 
 "regime. That supposition, which our Government has never openly admitted or discussed, is a source of serious concern to the people of all the Americas. It should be fully aired. The dangers inherent in the situation should be known and appreciated by all the people of this hemisphere, and particularly by those nations which so far have actively blocked measures to combat the menace of Castroism.
 

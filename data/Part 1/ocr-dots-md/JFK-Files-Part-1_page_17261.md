@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17261.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, FI
+MEMORANDUM FOR: Chief, FI
 
 SUBJECT: Project LIEMPTY
 Renewal

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15600.png
-
-Convert to Markdown10 mars 1951
+10 mars 1951
 
 ATTESTATION...
 

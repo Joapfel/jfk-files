@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25613.png
-
-Convert to Markdown<table><tr><td colspan="2">MESSAGE FORM<br>TOTAL COPIES: 11-1</td></tr><tr><td>SECRET</td><td></td></tr></table>
+<table><tr><td colspan="2">MESSAGE FORM<br>TOTAL COPIES: 11-1</td></tr><tr><td>SECRET</td><td></td></tr></table>
 
 <table><thead><tr><th>KIOSK AND CIRCUITS - STUDY BY</th><th></th></tr></thead><tbody><tr><td>I</td><td>5</td></tr><tr><td>II</td><td>6</td></tr><tr><td>III</td><td>7</td></tr><tr><td>IV</td><td>8</td></tr></tbody></table>
 

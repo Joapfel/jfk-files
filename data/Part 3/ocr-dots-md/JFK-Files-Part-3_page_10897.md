@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10897.png
-
-Convert to Markdown(1) Undertake such basic research and analysis of intelligence and counterintelligence as may in his opinion be required.
+(1) Undertake such basic research and analysis of intelligence and counterintelligence as may in his opinion be required.
 
 (2) Act as the executive agent of this authority (NIA) in coordinating and in supervising all Federal foreign intelligence activities.
 

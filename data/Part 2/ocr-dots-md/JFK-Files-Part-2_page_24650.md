@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24650.png
-
-Convert to MarkdownNonetheless, Hedgman said he had no "desire to carry out these instructions" (Hedgman, 8/21/75, p. 106). Whether or not he felt there was authority to attempt an assassination without seeking final confirmation, he said that he would have checked with headquarters before taking action:
+Nonetheless, Hedgman said he had no "desire to carry out these instructions" (Hedgman, 8/21/75, p. 106). Whether or not he felt there was authority to attempt an assassination without seeking final confirmation, he said that he would have checked with headquarters before taking action:
 
 > I think probably that I would have gone back and advised that I intended to carry out and sought final approval before carrying it out had I been going to do it, had there been a way to do it. I did not see it as ... a matter which could be accomplished practically, certainly. (Hedgman, 8/21/75, pp. 51-52.)
 

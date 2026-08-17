@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30786.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>INSTRUCTIONS CAREFULLY BEFORE COMPLETING, TYPE OR PRINT, AVOID USING LIGHT COLORED INKS</td></tr><tr><td>This form is designed for the periodical updating of a matter of computer record. It must be periodically updated. This is done automatically for much information; however, some must be entered directly from you. This form is for that purpose.</td></tr><tr><td>Section I must be completed in all cases. You need provide this statement only if there have been chances since you submitted your Form 444, "Qualifications Supplement" to the Personnel History Statement, or a previous update form. If you are in doubt whether information has been previously submitted, enter it in the appropriate section. The signed and dated form should be returned through administrative channels to the File Room, Office of Personnel, Room SE-13 Headquarters, whether information is added or not.</td></tr><tr><td>Additionally, a qualifications update may take place at any time there is information to be added or changed simply by completing and returning an update form on your initiative.</td></tr></table>
 

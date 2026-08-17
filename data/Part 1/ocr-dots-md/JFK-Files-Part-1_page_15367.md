@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15367.png
-
-Convert to MarkdownASSIFIED MESSAGE TOTAL COPIES
+ASSIFIED MESSAGE TOTAL COPIES
 
 <table><thead><tr><th>FROM</th><th>ACTION</th><th>INFO</th></tr></thead><tbody><tr><td>Jm WAVE</td><td>D/MS 2</td><td>VR. FILE DDP, WH/C1, SOD6, AFC, C/OP.</td></tr><tr><td colspan="3"><table><tr><td>ADVANCE COPY</td><td>ISSUED</td><td>ELOTTED</td><td>TORPED</td></tr></table></td></tr><tr><th>UNIT</th><th>TIME</th><th>BY</th></tr></tbody></table>
 

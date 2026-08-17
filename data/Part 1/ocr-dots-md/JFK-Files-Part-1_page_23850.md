@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23850.png
-
-Convert to MarkdownTO: Chief, W.B.
+TO: Chief, W.B.
 FROM: Chief of Staff, on,
 London
 Attachment No. 2 to

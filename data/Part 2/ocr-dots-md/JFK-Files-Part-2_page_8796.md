@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8796.png
-
-Convert to MarkdownWAVE 8316 (IN 70529) dated 30 Nov 1963 19-6-68/3 Folder #4
+WAVE 8316 (IN 70529) dated 30 Nov 1963 19-6-68/3 Folder #4
 
 Para 1 gave translation of WAVE 8279 (IN 69695) Mge. 45
 from AMWEE-1 to Case Officer: "Our condolences on death

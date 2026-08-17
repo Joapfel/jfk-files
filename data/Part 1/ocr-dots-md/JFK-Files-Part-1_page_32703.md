@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32703.png
-
-Convert to Markdown# DECLARATION OF APPOINTEE
+# DECLARATION OF APPOINTEE
 
 This form is to be completed before entrance on duty. Answer all questions. Any false statement in this declaration will be grounds for cancellation of application or dismissal after appointment. Impersonation is a criminal offense and will be prosecuted accordingly.
 

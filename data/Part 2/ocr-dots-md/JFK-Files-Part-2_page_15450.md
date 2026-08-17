@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15450.png
-
-Convert to MarkdownAttachment A
+Attachment A
 
 The following technical surveillances are being maintained at the present time with the approval in each instance of the State Department. (Heretofore, in connection with periodic evaluations of this program, we have listed only tesurs requested specifically by State Department. Hereafter, we plan to list all tesurs covering non-Soviet bloc establishments, regardless of whether they were initiated in response to State request or were prompted by our own intelligence requirements. It is felt this is more realistic approach and will more comprehensively show the scope of our coverage.)
 

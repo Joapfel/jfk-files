@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32225.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Secretary CSCS Panel, Section D
 SUBJECT : Recommendation for the Promotion of Mr. Daniel Flores From GS-05 to GS-06.

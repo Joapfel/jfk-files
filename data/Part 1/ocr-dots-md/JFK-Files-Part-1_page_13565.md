@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13565.png
-
-Convert to MarkdownEMBASADA DE CUBA.-
+EMBASADA DE CUBA.-
 
 K 11, L 11. Tbl. 14-42-37.-
 

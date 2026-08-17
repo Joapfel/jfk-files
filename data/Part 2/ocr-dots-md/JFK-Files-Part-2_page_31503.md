@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31503.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/evs
 
 DOROTHY HEALEY generally agreed with HALLINAN but pointed out the Communist Party's specific obligation to the working class to provide good leadership. She said the CP had only one chance of acting as a vanguard of the working class and that was to be right in its support of political candidates. HEALEY also said the people should support the Supreme Court and particularly the Court's recent decision to reapportion state legislature.

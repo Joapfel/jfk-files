@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21988.png
-
-Convert to Markdownbasic review work on Cuba." FitzGerald pushes for re-institution of CIA-directed covert program.
+basic review work on Cuba." FitzGerald pushes for re-institution of CIA-directed covert program.
 
 28. Memo, R.C. Bowman to Bundy, 12 November 1964, with JCS attachment dated 30 October 1964. Subject: SQUARE DANCE.
 

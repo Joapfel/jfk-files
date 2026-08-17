@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26511.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DRAFT BRIEFING NOTES
 

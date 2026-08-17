@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1500.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Subject: Name Trace - Henry L. Britton and Praetor Publishing Corporation (Con't)
 

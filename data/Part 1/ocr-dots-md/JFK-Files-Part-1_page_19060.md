@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19060.png
-
-Convert to Markdown... in Berlin,
+... in Berlin,
 
 Preußien, Tennelsal... str. 23
 

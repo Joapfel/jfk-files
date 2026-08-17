@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7182.png
-
-Convert to Markdown2. the Hotel Del Prado on 15, 14 and 15 May, and he had asked Gobernación for Secret Service protection. Arad told Subj that eight persons had come to Mexico, brought by the Soviets. He didn't know where they came from or who they were. Arad was happy that some newspapers were defending the Congress.
+2. the Hotel Del Prado on 15, 14 and 15 May, and he had asked Gobernación for Secret Service protection. Arad told Subj that eight persons had come to Mexico, brought by the Soviets. He didn't know where they came from or who they were. Arad was happy that some newspapers were defending the Congress.
 
 After Loginov's visit Subj called Arad to advise him of the Soviet's interest in the Congress. Subj said that Arad would be dining at his home that evening (11 May).
 

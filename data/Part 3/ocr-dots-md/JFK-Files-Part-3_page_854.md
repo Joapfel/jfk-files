@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_854.png
-
-Convert to MarkdownThe Justice Department, in the words of Deputy Assistant Attorney General Kevin J. Maroney before the Senate Subcommittee on Administrative Practice and Procedure on June 29, 1972, stated that it understands "significant connection" to mean that the domestic organization must be substantially financed by, or in active collaboration with a foreign power for the purpose of committing unlawful activities against the United States Government.
+The Justice Department, in the words of Deputy Assistant Attorney General Kevin J. Maroney before the Senate Subcommittee on Administrative Practice and Procedure on June 29, 1972, stated that it understands "significant connection" to mean that the domestic organization must be substantially financed by, or in active collaboration with a foreign power for the purpose of committing unlawful activities against the United States Government.
 
 ## 2. Guidelines and Procedures Currently Used by the FBI and the Department of Justice in Determining Whether a Proposed National Security Electronic Surveillance Falls Within/Without the Keith Decision
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23789.png
-
-Convert to Markdown1. academic, like you say, that teaches the student directly,
+1. academic, like you say, that teaches the student directly,
 2. but a businessman who happens to have elected going into the
 3. business of running a newspaper or a magazine, to be singled
 4. out and say you as a patriotic American are proscribed against

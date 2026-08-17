@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3591.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:</td></tr><tr><td>☐ FILE AND<br/>☑ INDEXED<br/>☐ 60 indexs<br/>☐ FILE IN CS FILE NO.</td></tr></table>
 

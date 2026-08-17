@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23924.png
-
-Convert to MarkdownNow Sinet...
+Now Sinet...
 
 Sinet is listed ~~as~~ with Strelkoff as Secretaire de la Redaction, which sounds like he had something to do with the editorial side of it but has nothing to do with that. He is of course the partner of Verges, at least on paper. Whether the 2000 thousand francs in his name actually represent his money I doubt. I think it is probably all Verges' money. I think that Verges needed at least another person to go into the ... He is the lay-out, make-up (man), When-Verges went into the layout, art work, cartoons, he handle photos, too??) Well, yes, just send them around to see where they can get them. But as they have no money now, it's just a matter of begging. They used to buy almost exclusively from Magnum... that's why they had so many Cartier-Dresson. except Magnum has made beautiful photos, but they are expensive. And then they couldn't pay them.
 

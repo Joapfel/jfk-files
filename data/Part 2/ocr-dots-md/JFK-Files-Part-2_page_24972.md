@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24972.png
-
-Convert to Markdownany recollection of such a report nor do I have any other recol-
+any recollection of such a report nor do I have any other recol-
 lection of learning by another source of any of the substance
 of the discussion at that meeting.
 

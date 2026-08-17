@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8224.png
-
-Convert to Markdown**Henry P. Lopez**
+**Henry P. Lopez**
 
 Birthdate: May 28, 1920
 

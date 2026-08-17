@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16960.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>S SECRET<br/>DISP. CHG. 573</td></tr></table>
 

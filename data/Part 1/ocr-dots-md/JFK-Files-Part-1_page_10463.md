@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10463.png
-
-Convert to Markdown6. The organization will also invite to join any person who has served under the Autists Administration, and who was a soldier or an officer in the forces of the Republic after the Revolution. Also, such officers as are eligible to the civil service, like Colonia de Canete, Josefa Nduela, Rosario Garcia Echevarria, etc., will be admitted. Any member who is not a citizen of Colombia and his group shall not be invited because they are nonRESIDENTS.
+6. The organization will also invite to join any person who has served under the Autists Administration, and who was a soldier or an officer in the forces of the Republic after the Revolution. Also, such officers as are eligible to the civil service, like Colonia de Canete, Josefa Nduela, Rosario Garcia Echevarria, etc., will be admitted. Any member who is not a citizen of Colombia and his group shall not be invited because they are nonRESIDENTS.
 
 7. If this works out, the new organization will be formed by a five-man board selected by a general assembly of all the existing personalities. The membership of the board will be restricted partially.
 

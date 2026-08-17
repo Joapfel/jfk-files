@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_31019.png
-
 filing in the writing of operation. The staff officer or asset involved in.
 
 REPRODUCTION PROHIBITED

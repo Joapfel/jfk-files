@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22800.png
-
-Convert to Markdown15
+15
 
 that it was the latter, but I cannot exclude that.
 

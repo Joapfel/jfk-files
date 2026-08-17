@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21567.png
-
-Convert to MarkdownServices had compiled a list of twenty suspects, including VASSALL.
+Services had compiled a list of twenty suspects, including VASSALL.
 
 Even though it may be presumed that investigation of the twenty suspects would ultimately have resulted in a determination that VASSALL was the agent on whom GOLITSYN had furnished certain information, the information from NOSENKO in June 1962 resulted in the earlier termination by the British Services of a still valuable productive KGB agent.
 

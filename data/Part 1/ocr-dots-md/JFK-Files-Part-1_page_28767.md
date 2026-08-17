@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28767.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">Designation of Beneficiary</td>
         <td>IMPORTANT<br/>Read Instructions<br/>on back of duplicate<br/>before filling in this form</td>

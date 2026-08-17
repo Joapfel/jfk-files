@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22105.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>SANCHEZ Samuel HALPERN<br/>AMLASH<br/>Dr. Edward GUNN</td><td>Nov. 20, 1963</td><td>Castro</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>SANCHEZ Samuel HALPERN<br/>AMLASH<br/>Dr. Edward GUNN</td><td>Nov. 20, 1963</td><td>Castro</td></tr></table>
 
 **OCCURRENCE:**
 

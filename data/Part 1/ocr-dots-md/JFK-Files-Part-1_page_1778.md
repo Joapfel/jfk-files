@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1778.png
-
-Convert to MarkdownMarch 29, 1962
+March 29, 1962
 
 MEMORANDUM FOR THE RECORD
 

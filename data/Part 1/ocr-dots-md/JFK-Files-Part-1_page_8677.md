@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8677.png
-
-Convert to Markdown4.07 Dientes
+4.07 Dientes
 
 4.07.01 Forma Regular ____ Procedio ✓____
 Saliente ____ Desusada____.

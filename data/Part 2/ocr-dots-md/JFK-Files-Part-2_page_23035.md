@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23035.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1. Mr. Halley. I do not recall that kind of a conversation taking place with FitzGerald in this timeframe that we are talking about.
 2.

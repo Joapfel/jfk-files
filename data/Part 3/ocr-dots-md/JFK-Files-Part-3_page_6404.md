@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6404.png
-
-Convert to MarkdownMr. J. Walter Yeagley
+Mr. J. Walter Yeagley
 Assistant Attorney General
 
 July 9, 1963

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21770.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Vol. 3 of 3
 Cuba

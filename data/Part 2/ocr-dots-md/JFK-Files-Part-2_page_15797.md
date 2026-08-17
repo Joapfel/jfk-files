@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15797.png
-
-Convert to MarkdownSource advised, however, that the BPP is now claiming that both BELL and WINTERS were upstanding BPP members and are attempting to obtain their photographs and will publish the story concerning the incident in the BPP newspaper in the near future.
+Source advised, however, that the BPP is now claiming that both BELL and WINTERS were upstanding BPP members and are attempting to obtain their photographs and will publish the story concerning the incident in the BPP newspaper in the near future.
 
 , 11/13/69)
 

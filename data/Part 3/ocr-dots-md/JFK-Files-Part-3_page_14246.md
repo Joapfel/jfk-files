@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14246.png
-
-Convert to Markdownhas been attached to Castro's security service since Castro came to power, and who is in the process of being interviewed concerning the structure of Castro's intelligence organization (the defector being primarily knowledgeable of Cuban external intelligence activities in other Latin American countries).
+has been attached to Castro's security service since Castro came to power, and who is in the process of being interviewed concerning the structure of Castro's intelligence organization (the defector being primarily knowledgeable of Cuban external intelligence activities in other Latin American countries).
 
 Mr. Fitzgerald said that there is still the problem of getting agent photography out of Cuba for examination in the U. S. At present the photographs are delivered by agents inside Cuba to a friendly foreign diplomatic mission which forwards them to the CIA in the U. S.
 

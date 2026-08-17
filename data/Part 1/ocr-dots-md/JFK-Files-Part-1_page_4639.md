@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4639.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">CABLE SEC NO.</th><th>TOTAL COPIES</th><th>NUM B'S</th></tr></thead><tbody><tr><td></td><td></td><td></td><td style="text-align: center;">SECURITY</td><td></td><td></td></tr><tr><td colspan="2">PERMANENT</td><td colspan="2"></td><td></td><td>Copia #</td></tr></tbody></table>
+<table><thead><tr><th colspan="4">CABLE SEC NO.</th><th>TOTAL COPIES</th><th>NUM B'S</th></tr></thead><tbody><tr><td></td><td></td><td></td><td style="text-align: center;">SECURITY</td><td></td><td></td></tr><tr><td colspan="2">PERMANENT</td><td colspan="2"></td><td></td><td>Copia #</td></tr></tbody></table>
 
 STAFF
 

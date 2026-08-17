@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17093.png
-
-Convert to MarkdownLIEMPTY facilities and in surveillance activities directed at the primary Soviet target. Some of these agents are used also in dark room photographic processing, letter drop, and, on occasion, moving surveillance activities.
+LIEMPTY facilities and in surveillance activities directed at the primary Soviet target. Some of these agents are used also in dark room photographic processing, letter drop, and, on occasion, moving surveillance activities.
 
 3. This project is only part of the complex of Mexico City Station instruments for meeting requirements from a number of U.S. agencies, including the FBI. It is clearly an effective, well-managed support operation serving important needs.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17935.png
-
-Convert to MarkdownDATE : 09 AUGUST 1957
+DATE : 09 AUGUST 1957
 
 TO : DIRECTOR
 FROM : MEXICO CITY-

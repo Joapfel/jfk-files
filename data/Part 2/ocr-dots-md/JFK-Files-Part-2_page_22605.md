@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22605.png
-
-Convert to Markdown1. Germans, we were getting the Soviets.
+1. Germans, we were getting the Soviets.
 
 But the penetrations and the operations which we ran during the military phase began to take on a character of their own in the civilian phase in the very long term Soviet objectives against the U.S. in particular, and against the allies.
 

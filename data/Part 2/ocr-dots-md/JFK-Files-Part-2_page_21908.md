@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21908.png
-
-Convert to Markdownby the Inspector General's office leaves this question open. The report concludes with the statement that "WIROGUE/1 spent most of his time trying to develop contacts and was not directly involved in any particular operation." (I.G. Memorandum, 3/14/75.) But, when the report was circulated in the Inspector General's office, the following comment was handwritten by Scott Breckinridge, one of the principal authors of the 1967 report on CIA involvement in assassination attempts: "ROGUE'S pitch is too clear to be dis carded out of hand as 'exceeding instructions.'" (I.G. Memorandum, 3/14/75)
+by the Inspector General's office leaves this question open. The report concludes with the statement that "WIROGUE/1 spent most of his time trying to develop contacts and was not directly involved in any particular operation." (I.G. Memorandum, 3/14/75.) But, when the report was circulated in the Inspector General's office, the following comment was handwritten by Scott Breckinridge, one of the principal authors of the 1967 report on CIA involvement in assassination attempts: "ROGUE'S pitch is too clear to be dis carded out of hand as 'exceeding instructions.'" (I.G. Memorandum, 3/14/75)
 
 # 6. The Question of Whether the CIA Was Involved in Bringing About Lumumba's Death in Katanga
 

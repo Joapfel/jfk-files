@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14671.png
-
-Convert to Markdown<table><thead><tr><td>CLASSIFICATION</td><td>DISPATCH SYMBOL AND NUMBER</td></tr></thead><tbody><tr><td>SECRET</td><td>OSMA - 25530</td></tr></tbody></table>
+<table><thead><tr><td>CLASSIFICATION</td><td>DISPATCH SYMBOL AND NUMBER</td></tr></thead><tbody><tr><td>SECRET</td><td>OSMA - 25530</td></tr></tbody></table>
 
 CONTINUATION OF
 DISPATCH

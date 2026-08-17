@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32033.png
-
-Convert to Markdown# FORM 7019-4
+# FORM 7019-4
 ## DETACHES FOR ATTACHING TO JOT'S
 
 ### For Supervisors:

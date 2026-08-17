@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8992.png
-
-Convert to Markdownassigned to the writer, the writer recalled such assignment was in the early part of 1965; that it was now the writer's recollection this assignment was made in May, 1965.
+assigned to the writer, the writer recalled such assignment was in the early part of 1965; that it was now the writer's recollection this assignment was made in May, 1965.
 
 "Set forth below are questions asked by Seidel (unless otherwise indicated) and the writer's answers. These questions and answers are not set forth chronologically.
 

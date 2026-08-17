@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3727.png
-
-Convert to Markdownwas used by the DDO in his appearance before the Senate Select Committee on 28 October. Both of these papers were excellent and have withstood critical scrutiny."
+was used by the DDO in his appearance before the Senate Select Committee on 28 October. Both of these papers were excellent and have withstood critical scrutiny."
 
 Mr. Kent has now left the Agency after 26 years of distinguished service as an operations officer and as a manager both in the field and at Headquarters. On the occasion of his retirement, it is appropriate that Mr. Kent's career achievements be suitably recognized. It is recommended that he be awarded the Career Intelligence Medal in recognition of his long and distinguished service.

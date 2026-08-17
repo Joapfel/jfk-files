@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20465.png
-
-Convert to Markdownwill be made in the discretion of certain Congressional leaders and/or Capitol Police. The exception are allowed on "ocassions of national interest becoming the congnizance and entertainment of Congress."
+will be made in the discretion of certain Congressional leaders and/or Capitol Police. The exception are allowed on "ocassions of national interest becoming the congnizance and entertainment of Congress."
 
 The petition of the Jeannette Rankin Brigade apparently does not become "the entertainment of Congress" and arrests were threatened. Therefore the suit which was filed prays for the convening of a three-judge Federal District Court which is requested to enjoin the operation and enforcement of the statute and to declare it unconstitutional. We have asked the Federal District Court for the District of Columbia to grant us this relief on an emergency basis prior to January 15th. Our request was denied. The same request was made to the District of Columbia Court of Appeals and was likewise denied. As it was then impossible to obtain relief prior to January 15th the Brigade's attorneys are continuing the appeal on a non-emergency basis in the Court of Appeals and have every confidence of ultimate victory.
 

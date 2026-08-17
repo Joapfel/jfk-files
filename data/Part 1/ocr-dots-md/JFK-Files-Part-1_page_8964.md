@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8964.png
-
-Convert to MarkdownTRANSCRIPTION
+TRANSCRIPTION
 
 I would like to go into several of the things that I have previously covered in my report. First of all, I am happy to say that the radio schools started by DURON'S Group seemed to have gotten off to a very good start. There have been about 100 sets distributed so that there are about now something like 10,481 students enrolled in 1,000 of the radio schools. It's apparently had very good success. They publish books that go along with the radio classes. As you probably will remember, there was a literacy campaign that was fashioned after the idea that was promulgated by Father SALCEDO in Columbia. Interesting to me is the fact that the radio schools have received about 1,300 letters with suggestions and praise and various other commentaries. One of the problems they are having right now is there isn't a transmitter powerful enough to get much beyond the capital. I understand that a transmitter is on route and it would certainly be a big boon to them. It seems to me that the radio is probably the most effective way of getting out to the groups in the outlying areas. There are no newspapers to speak of, and once you get the listeners hocked on the radio, then of course, you can go from literacy campaigns into various other things we have in mind. Incidentally, these radios as you probably realize are on a fixed frequency, and the program is lead by a priest, named Father Manuel MOLINA SIERRA.
 

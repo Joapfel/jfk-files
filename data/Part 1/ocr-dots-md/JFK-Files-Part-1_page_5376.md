@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5376.png
-
-Convert to MarkdownThis material contains information affecting the National Defense of the United States when the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+This material contains information affecting the National Defense of the United States when the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
 
 <table><tr><td>INFORMATION REPORT</td></tr></table>
 

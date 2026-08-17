@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11514.png
-
-Convert to Markdown(10) Submit semiannual letters March 1 and September 1 under caption "Communist Infiltration of Mass Organizations," Bufile 100-3-106. Set forth desired data utilizing following topical outline and headings:
+(10) Submit semiannual letters March 1 and September 1 under caption "Communist Infiltration of Mass Organizations," Bufile 100-3-106. Set forth desired data utilizing following topical outline and headings:
 
 (a) I. Data concerning Communist Party program
 Set forth details of data received concerning Communist Party's program, both nationally and locally, to infiltrate mass organizations; steps taken to carry out program; and success being achieved by party.

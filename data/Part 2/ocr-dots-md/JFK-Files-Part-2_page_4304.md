@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4304.png
-
-Convert to MarkdownSteakley explained that the mission of the ship is to obtain information on hydrographic "stations" located 12 miles out and that the restriction suggested would not enable the vessel to accomplish this. Mr. Johnson then concurred.
+Steakley explained that the mission of the ship is to obtain information on hydrographic "stations" located 12 miles out and that the restriction suggested would not enable the vessel to accomplish this. Mr. Johnson then concurred.
 
 Colonel Steakley briefed the Group on certain sensitive reconnaissance operations.
 

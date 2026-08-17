@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12676.png
-
-Convert to Markdownf. Letter requesting Bureau authority for interview
+f. Letter requesting Bureau authority for interview
 
 (1) In absence of special circumstances, include following statement in first paragraph of letter.
 

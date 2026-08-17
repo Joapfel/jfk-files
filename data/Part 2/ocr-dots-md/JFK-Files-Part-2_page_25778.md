@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25778.png
-
-Convert to MarkdownAs this belief spreads, Western European and other free world countries eager to trade with Cuba will come to feel that they may safely ignore and evade, to an even greater extent than they do now, U.S. appeals for the economic and political isolation of Cuba. An important additional economic effect would be the release into normal economic activity of manpower and funds now tied up in defense against raids.
+As this belief spreads, Western European and other free world countries eager to trade with Cuba will come to feel that they may safely ignore and evade, to an even greater extent than they do now, U.S. appeals for the economic and political isolation of Cuba. An important additional economic effect would be the release into normal economic activity of manpower and funds now tied up in defense against raids.
 
 Finally, and most important, this development in time is bound to have a severe denoralizing effect on the internal resistance against Castro. The Cuban exile community and particularly its militant and articulate elements would be acutely sensitive to a cessation of raids and can be expected to react vociferously. Judging from past experience, we can expect a new surge of domestic political agitation on the part of the numerous Cuban exiles who have political connections within the U.S.
 

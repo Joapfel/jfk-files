@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29223.png
-
-Convert to MarkdownKENNEDY
+KENNEDY
 
 008822
 

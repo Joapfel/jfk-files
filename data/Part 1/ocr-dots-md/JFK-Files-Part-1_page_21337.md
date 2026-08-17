@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21337.png
-
-Convert to Markdownand assassinate. Three months ago at the Puerto de Somiedo, they machine-
+and assassinate. Three months ago at the Puerto de Somiedo, they machine-
 
 gunned a bus with travelers in it and the Civil Guard retreated. They are assisted by the discontented peasants and their families. If they came to Franco, with their hands free of blood, he would pardon them*.
 

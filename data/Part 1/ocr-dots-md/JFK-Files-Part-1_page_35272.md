@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35272.png
-
-Convert to MarkdownContinuation
+Continuation
 
 In reviewing the above-mentioned vouchers one can observe certain irregularities more in form than in funds. For example, check # 124 has not been justified with the corresponding receipts, invoices, etc., but with a list of expenses signed by Mr. Manuel Artime. Check # 126 does have the justifying receipts, but in some cases they are not signed by the persons who received the amounts consigned but were signed by Mr. Jose Arriola. Instructions were also issued to prevent this in the future.
 

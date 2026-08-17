@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3860.png
-
-Convert to MarkdownTERMINATION SECRECY OATH
+TERMINATION SECRECY OATH
 
 I, Manuel Flarime Buezo, am about to terminate my association with the Organization. I realize that, by virtue of my duties with the Organization, I have been the recipient of information and intelligence which concerns the present and future security of the United States. I am aware that the unauthorized disclosure of such information is prohibited by the espionage laws of the United States Government which specifically requires the protection of intelligence sources and methods from unauthorized disclosure. Accordingly, I SOLEMNLY SWEAR, WITHOUT MENTAL RESERVATION OR PURPOSE OF EVASION, AND IN THE ABSENCE OF DURESS, AS FOLLOWS:
 

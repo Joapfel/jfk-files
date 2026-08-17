@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9370.png
-
-Convert to MarkdownThe interest in the Flint branch of the NCCF is continuing to decrease, only about five children are showing up for the Breakfast Program, this is probably due to the preparation of the food, which is very bad.
+The interest in the Flint branch of the NCCF is continuing to decrease, only about five children are showing up for the Breakfast Program, this is probably due to the preparation of the food, which is very bad.
 
 DE T-1
 

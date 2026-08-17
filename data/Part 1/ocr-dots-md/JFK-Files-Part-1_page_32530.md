@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32530.png
-
-Convert to MarkdownSECRET
+SECRET
 
 19 DEC 1957
 

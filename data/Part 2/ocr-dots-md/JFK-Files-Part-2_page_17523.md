@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17523.png
-
-Convert to Markdown6/9/69
+6/9/69
 
 ANN CAMPBELL, FRED HAMPTON
 CAMPBELL is now 3 months pregnant by HAMPTON.

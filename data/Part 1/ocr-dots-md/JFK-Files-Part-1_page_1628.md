@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1628.png
-
-Convert to MarkdownGENTlemen OF VIRGINIA:
+GENTlemen OF VIRGINIA:
 
 TO: W. R. FLORCR
 W. C. LARKIN BAKE

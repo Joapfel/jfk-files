@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31089.png
-
-Convert to Markdown180-10145-10302
+180-10145-10302
 
 Central Intelligence Agency
 has no Objection to Release

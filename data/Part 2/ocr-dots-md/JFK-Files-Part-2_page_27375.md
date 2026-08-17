@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27375.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A. Memo for Inspector General, from Paul V. Walsh - 3 Mar 75
 

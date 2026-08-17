@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11569.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 ## COMMUNIST PARTY, USA, UNIT
 
 The major accomplishment of this Unit evolves from the case entitled, "Solo, IS - C." Due to the sensitive nature of this case, it will be orally discussed with the Inspector.

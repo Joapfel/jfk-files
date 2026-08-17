@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20444.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">STANDARD FORM 52<br/>PROPOSED BY THE<br/>U. S. AIR FORCE COMMISSION<br/>BOARD FOR A FURTHER RESEARCH</td>

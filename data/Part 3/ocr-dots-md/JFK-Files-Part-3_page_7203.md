@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7203.png
-
-Convert to Markdownfor warning us of imminent attack by a hostile power, these
+for warning us of imminent attack by a hostile power, these
 days it must also look into the future and warn of the research
 and development of new weapons systems which, unless countered
 or negotiated away, would affect the security of our citizens

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21238.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SECTION C</td></tr><tr><td>NARRATIVE COMMENTS</td></tr><tr><td>Indicate significant strengths or weaknesses demonstrated in current position keeping in mind a perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give recommendations on improving. Comment on foreign language competence, if required for current position. Apply or explain ratings given in Section D to provide best basis for determining future personnel action. Manner of performance of managerial or supervisory duties must be described, if applicable.</td></tr><tr><td>MAY<br/>MAIL ROOM</td></tr><tr><td>In the six months that Mr. Wilcott was assigned to the Staff Agents Accounts Section, he demonstrated the ability to accept responsibilities and responded well to all work assignments. Mr. Wilcott was a great help in reconciling and analysing Payroll, Tax, and Retirement accounts. He worked well with his associates and had a good disposition. Mr. Wilcott is very cooperative and dependable.<br/><br/>This employee did not have any supervisory responsibilities and, therefore, is not being rated on Cost Consciousness.</td></tr></table>
 

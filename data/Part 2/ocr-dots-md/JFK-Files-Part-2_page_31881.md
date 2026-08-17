@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31881.png
-
-Convert to MarkdownUSAPSG
+USAPSG
 
 MEMORANDUM FOR RECORD:
 

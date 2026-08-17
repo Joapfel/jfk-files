@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13388.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CANCELLATION TO DIVISION
 

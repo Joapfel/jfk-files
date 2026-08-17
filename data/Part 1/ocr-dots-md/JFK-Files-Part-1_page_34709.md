@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_34709.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th></th><th>FORM 10-93</th><th>CLASSIFICATION</th><th>PAGE NO.</th></tr></thead><tbody><tr><td></td><td>53d</td><td>SECRET</td><td>16</td></tr></tbody></table>

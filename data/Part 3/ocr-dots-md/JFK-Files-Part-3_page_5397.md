@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5397.png
-
-Convert to Markdown1 - Mr. Bassett
+1 - Mr. Bassett
 1 - Mr. Wannall
 1 - Mr. Mintz
 1 - Mr. Cregar

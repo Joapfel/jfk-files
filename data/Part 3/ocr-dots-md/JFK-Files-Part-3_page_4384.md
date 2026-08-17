@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4384.png
-
-Convert to Markdown# Memorandum for the Attorney General
+# Memorandum for the Attorney General
 
 could possibly furnish us plans of the White Panther Party - Youth International Party to engage in terrorist activities or to violate Federal statutes as noted above.
 

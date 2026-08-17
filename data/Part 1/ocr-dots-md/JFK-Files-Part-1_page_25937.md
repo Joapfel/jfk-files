@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25937.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CITE SANTIAGO 33948
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5117.png
-
-Convert to MarkdownSTATE CABLE
+STATE CABLE
 
 FROM SECSTATE WASHDC (STATE 303401)
 

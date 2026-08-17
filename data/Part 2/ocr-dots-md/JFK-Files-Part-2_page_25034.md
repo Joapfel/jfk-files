@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25034.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 said. So I think that whatever records there are of NSC meetings before that, that they may not have kept such records in detail. And that meeting -- if you can find any meeting that Mr. Johnson took the notes of just prior to that, that is probably the meeting.
 

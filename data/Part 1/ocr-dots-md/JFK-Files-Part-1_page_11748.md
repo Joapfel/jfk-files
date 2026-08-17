@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11748.png
-
-Convert to Markdown# ANTOFAGASTA
+# ANTOFAGASTA
 
 THE retiring British Ambassador, Sir Bertrand Jerram, K. C. M. G., arrived at Antofagasta in the M. V. "Sarmiento" on November 13th en route to England. His Excellency was met by the British Consul, Mr. Thomas Bates, O. B. E. As the vessel was to load minerals at Mejillones on the following day, Sir Bertrand accepted the invitation of Mr. L. V. Duff to stay overnight at Antofagasta. This allowed him sufficient time to enjoy a motor run towards the pampa, visit the Auto Club and to call upon the Intendente of the Province.
 

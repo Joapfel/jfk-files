@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24100.png
-
-Convert to MarkdownWith respect to assassination, my position is clear. I just think it is wrong. And I have said so and made it very clear to my subordinates. (5/21/75, p. 89)
+With respect to assassination, my position is clear. I just think it is wrong. And I have said so and made it very clear to my subordinates. (5/21/75, p. 89)
 
 Colby's predecessor, Helms, although himself involved in an earlier plot, said he had concluded assassination should be ruled out for both moral and practical reasons:
 

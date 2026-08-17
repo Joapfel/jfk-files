@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7838.png
-
-Convert to MarkdownAdministrative - Internal Use Only
+Administrative - Internal Use Only
 
 15 July 1976
 

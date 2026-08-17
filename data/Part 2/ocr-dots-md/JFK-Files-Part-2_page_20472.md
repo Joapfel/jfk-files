@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20472.png
-
-Convert to Markdown# YOUNG POLITICAL EXPLORERS LEAGUE (YFEL)
+# YOUNG POLITICAL EXPLORERS LEAGUE (YFEL)
 
 A source stated REE ANN HALONEN, daughter of OIVA HALONEN, who was then the Chairman of the Communist Party's Industrial Section at Seattle, had said on July 29, 1957, that the youth group in Seattle was considering adoption of the name Young Political Explorers.
 

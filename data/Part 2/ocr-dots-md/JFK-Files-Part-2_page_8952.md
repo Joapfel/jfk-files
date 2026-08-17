@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8952.png
-
-Convert to Markdown# ANNEX A
+# ANNEX A
 
 ## STATEMENTS OF SOVIET OFFICIALS ABOUT NOSENKO
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4248.png
-
-Convert to Markdownconclusion that the capability can be maintained at an
+conclusion that the capability can be maintained at an
 acceptable degree of readiness without having the helium
 tanks on hand. In the event utilization is desired, the
 Department of Defense would be able to provide the helium

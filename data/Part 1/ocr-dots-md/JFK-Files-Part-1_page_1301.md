@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1301.png
-
-Convert to MarkdownSECRET
+SECRET
 
 m. Another officer, Seymour Young, wrote in 1965:
 

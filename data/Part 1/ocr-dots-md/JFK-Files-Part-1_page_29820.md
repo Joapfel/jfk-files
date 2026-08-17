@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29820.png
-
-Convert to Markdown17 September 1953
+17 September 1953
 
 LEITER GALENS
 Number 2-12

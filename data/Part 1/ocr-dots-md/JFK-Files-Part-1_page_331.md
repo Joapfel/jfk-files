@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_331.png
-
-Convert to Markdown14-00000
+14-00000
 
 T A D A T O S H I   I Z U M O T O
 1998 Shimosaku - Nobi

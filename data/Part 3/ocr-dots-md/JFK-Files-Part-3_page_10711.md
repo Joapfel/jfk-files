@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10711.png
-
-Convert to MarkdownUNITED STATES GC
+UNITED STATES GC
 
 RNMENT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_973.png
-
-Convert to MarkdownHSCA Chron, page 6
+HSCA Chron, page 6
 
 6 Mar 78
 Blakey Request: any and all reports/documents/member lists

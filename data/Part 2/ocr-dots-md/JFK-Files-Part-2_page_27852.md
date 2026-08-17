@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27852.png
-
-Convert to Markdown<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Rebecca Wheeler Martin</td><td>11/9/76</td></tr><tr><th colspan="2">Employee Social Security Number</th></tr><tr><td>518 56 7099</td><td><input type="checkbox" checked disabled/> Appointment<br><input type="checkbox" disabled/> Salary Adjustment<br><input type="checkbox" checked disabled/> Termination (At close of business on effective date)</td></tr><tr><th colspan="2">Employing Office or Committee</th></tr><tr><td>Select Committee on Assassinations</td><td></td></tr></tbody></table>
+<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Rebecca Wheeler Martin</td><td>11/9/76</td></tr><tr><th colspan="2">Employee Social Security Number</th></tr><tr><td>518 56 7099</td><td><input type="checkbox" checked disabled/> Appointment<br><input type="checkbox" disabled/> Salary Adjustment<br><input type="checkbox" checked disabled/> Termination (At close of business on effective date)</td></tr><tr><th colspan="2">Employing Office or Committee</th></tr><tr><td>Select Committee on Assassinations</td><td></td></tr></tbody></table>
 
 (If type of action is an Appointment or Salary Adjustment, complete the following information.)
 

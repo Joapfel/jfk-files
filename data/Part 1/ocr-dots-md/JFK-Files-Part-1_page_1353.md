@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1353.png
-
-Convert to MarkdownSECRET
+SECRET
 SENSITIVE
 
 2. Assist State in the development of post-Castro concepts, leaders, and political groups.

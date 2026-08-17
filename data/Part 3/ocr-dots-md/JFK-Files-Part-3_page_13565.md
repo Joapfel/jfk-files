@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13565.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. get deeply involved in the program activities and budget of all
 2. of the Departments and agencies of government, once in the

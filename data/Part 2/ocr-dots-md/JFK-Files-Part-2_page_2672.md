@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2672.png
-
-Convert to MarkdownSEC. 9:
+SEC. 9:
 
 **MOTHER IN LAW-**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2483.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SAM SUREVEY
 

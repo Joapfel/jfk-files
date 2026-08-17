@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12216.png
-
-Convert to MarkdownSECRET
+SECRET
 
 COPY
 

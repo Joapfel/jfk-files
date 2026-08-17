@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22034.png
-
-Convert to MarkdownNo OBLIGATION, AS TO ANY
+No OBLIGATION, AS TO ANY
 NATIONAL SECURITY COUNCIL
 
 NO OBJECTION, as exonerated

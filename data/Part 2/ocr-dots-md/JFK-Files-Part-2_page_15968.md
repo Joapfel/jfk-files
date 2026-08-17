@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15968.png
-
-Convert to MarkdownFebruary 17, 1969, University of Illinois,
+February 17, 1969, University of Illinois,
 Chicago Circle Campus, Chicago, Illinois.
 
 February 17, 1969, Crane Junior College, 2250 West

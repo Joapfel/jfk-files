@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8819.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>ORIG:</td><td>L. MESTRES/mvb</td></tr><tr><td>UNIT:</td><td>C/SB/X/WH</td></tr><tr><td>EXT:</td><td>6412</td></tr><tr><td>DATE:</td><td>7 MARCH 1969</td></tr></table>
 

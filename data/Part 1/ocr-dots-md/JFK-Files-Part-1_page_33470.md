@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33470.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><thead><tr><th colspan="2">STAFF</th></tr></thead><tbody><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr></tbody></table>
 

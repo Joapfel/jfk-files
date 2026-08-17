@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_818.png
-
-Convert to Markdowncooperate with the DSE, as AMFAUNA-1 had briefed her to do in such a situation.
+cooperate with the DSE, as AMFAUNA-1 had briefed her to do in such a situation.
 
 15. ABAD began by telling her that she was in a very serious situation, because he knew that she had had very close connections with a KUBARK agent. ABAD asked whether AMFAUNA-1 was identical with "Julio." AMFAUNA-14 said that AMFAUNA-1 had been known as "Julio." ABAD then wanted to know whether NEGRET had been working with "Julio." AMFAUNA-14 denied this. ABAD asked whether NEGRET had known "Julio." AMFAUNA-14 denied this too, but volunteered the information that "Julio" had provided NEGRET with mail facilities, and that AMFAUNA-14 had been the outwit between them. Did NEGRET know of "Julio's" existence, ABAD wanted to know. AMFAUNA-14 said that he did not, that she had brought NEGRET mail and money which she had gotten from "Julio," and had picked mail up from him and delivered it to "Julio," but that NEGRET had never known "Julio's" identity.
 

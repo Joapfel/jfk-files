@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1271.png
-
-Convert to MarkdownPHYSICAL QUALIFICATION RECORD
+PHYSICAL QUALIFICATION RECORD
 
 <table><tr><td>NAME</td><td>NATURE OF ACTION</td></tr><tr><td>Smith, Joseph E.</td><td>SOD</td></tr><tr><td>TITLE OF POSITION</td><td>GRADE</td></tr><tr><td>I.O.</td><td>GS-9</td></tr><tr><td>DEPARTMENT OR FIELD</td><td></td></tr><tr><td>Department</td><td></td></tr></table>
 

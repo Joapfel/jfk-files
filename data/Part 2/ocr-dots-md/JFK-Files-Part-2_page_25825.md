@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25825.png
-
-Convert to Markdownam alarmed that no witness has pointed a finger of blame at the Central Intelligence Agency Act of 1949. It is the Magna Charta of CIA's Domestic Intelligence Division. This act specifically provided cover for CIA. It effectively repealed CIA's restriction to foreign operations intended by Congress to prevent a police state.
+am alarmed that no witness has pointed a finger of blame at the Central Intelligence Agency Act of 1949. It is the Magna Charta of CIA's Domestic Intelligence Division. This act specifically provided cover for CIA. It effectively repealed CIA's restriction to foreign operations intended by Congress to prevent a police state.
 
 The 1949 act authorized CIA to conceal huge portions of its budget and personnel within the budgets and personnel roster of domestic agencies of government. These especially include employees on Capitol Hill, in the White House, in the Department of Justice, in the Federal Aviation Administration and in the Civil Aeronautics Board. Until the act is repealed Congress will remain part of the problem, not part of the solution.
 

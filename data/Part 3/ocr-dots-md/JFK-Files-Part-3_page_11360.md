@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11360.png
-
-Convert to Markdown62-116395-56
+62-116395-56
 
 NEW 88608 DocID:32989628 Page 378
 

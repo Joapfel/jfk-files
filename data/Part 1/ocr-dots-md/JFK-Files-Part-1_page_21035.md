@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21035.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Section 3 - Comments by Reviewing Official
 

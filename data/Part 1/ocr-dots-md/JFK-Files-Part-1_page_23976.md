@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23976.png
-
-Convert to MarkdownMichel
+Michel
 Chertain xin, you know. He is secretary general of the Partie Social-
 iste de Quebec and is of course very much connected with the Cubans. And
 has had a great deal of contact with American Negro groupsx of the Left.

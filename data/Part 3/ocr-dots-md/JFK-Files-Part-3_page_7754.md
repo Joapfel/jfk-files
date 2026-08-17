@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7754.png
-
-Convert to Markdowndirective of 1941 instructing that the FBI set up a Special
+directive of 1941 instructing that the FBI set up a Special
 Intelligence Service covering the Western Hemisphere to handle
 and coordinate all intelligence work within the hemisphere.
 There are many other examples, but a more recent one is the fact

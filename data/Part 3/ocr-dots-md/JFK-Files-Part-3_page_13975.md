@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13975.png
-
-Convert to Markdown(2) That U. S. intelligence agencies make it a major goal to discover the terms of Soviet/Cuban agreements and the programs to carry out such agreements.
+(2) That U. S. intelligence agencies make it a major goal to discover the terms of Soviet/Cuban agreements and the programs to carry out such agreements.
 
 (3) That intensified efforts be made for substantial improvement in U. S. clandestine espionage coverage of Cuba -- because human-resource espionage operations continue to be important in spite of noteworthy results obtained by the United States in using scientific and technical intelligence techniques against Cuba.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8258.png
-
-Convert to Markdown13 March 1951
+13 March 1951
 
 Operational Clearance issued to permit the use of DIMITROV's services
 as "a contractual agent in Greece engaged in political, psychological,

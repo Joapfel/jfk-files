@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33324.png
-
-Convert to Markdownaccentuation of the class struggle. At the same time that appeals were made to the pocketbooks of the lower-class Chileans, there was also to be an effort to increase their class consciousness (concienciación) through government publications and the use of the media to remove the elements of "false consciousness" instilled by "bourgeois" propaganda. Expressing the diametric opposite of a claim often voiced by his predecessor, Eduardo Frei, Allende said in a press conference just after his installation, "I am not president of all Chileans." And in his first "State of the Nation" message to the Congress he asserted:
+accentuation of the class struggle. At the same time that appeals were made to the pocketbooks of the lower-class Chileans, there was also to be an effort to increase their class consciousness (concienciación) through government publications and the use of the media to remove the elements of "false consciousness" instilled by "bourgeois" propaganda. Expressing the diametric opposite of a claim often voiced by his predecessor, Eduardo Frei, Allende said in a press conference just after his installation, "I am not president of all Chileans." And in his first "State of the Nation" message to the Congress he asserted:
 
 > ... the People's Government (Gobierno Popular) is inspired in its policy by a premise that is artificially denied by some—the existence of classes and social sectors with antagonistic and opposing interests."
 

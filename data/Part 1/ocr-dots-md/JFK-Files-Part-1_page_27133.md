@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27133.png
-
-Convert to MarkdownFELIPE VIDAL, 2293 N. W. 7th Street — Miami,
+FELIPE VIDAL, 2293 N. W. 7th Street — Miami,
 Florida, an individual who formerly held a responsible
 position in the Cuban Navy, had accompanied an individual
 identified as JACK CANNON, a United States citizen, on an

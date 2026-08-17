@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22325.png
-
-Convert to Markdownthe Pushkin Street dead drop, i.e., until late March 1962, and by his insistence that he had returned to the Tourist Department by the time GOLITSYN defected; he placed this on 15 January 1962 and refused to believe the correct date of 15 December 1961.
+the Pushkin Street dead drop, i.e., until late March 1962, and by his insistence that he had returned to the Tourist Department by the time GOLITSYN defected; he placed this on 15 January 1962 and refused to believe the correct date of 15 December 1961.
 
 ## D. Remarks
 

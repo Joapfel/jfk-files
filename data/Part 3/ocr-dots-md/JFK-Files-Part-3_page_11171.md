@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11171.png
-
-Convert to MarkdownATTACHMENT
+ATTACHMENT
 
 1. The report furnished to the President by Director Colby in January 1961.
 

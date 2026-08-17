@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23234.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 to proceed without reference to anybody else he would presumably go ahead and do so.
 

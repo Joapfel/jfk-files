@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27308.png
-
-Convert to MarkdownMEMORANDUM FOR: Director of Personnel
+MEMORANDUM FOR: Director of Personnel
 
 SUBJECT: Fitness Report - Mr. William V. Broe (35-1)
 

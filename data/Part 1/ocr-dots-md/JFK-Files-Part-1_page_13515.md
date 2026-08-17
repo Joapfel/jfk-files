@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13515.png
-
-Convert to Markdownthe JURE as a responsible, intelligent and dispassionate group
+the JURE as a responsible, intelligent and dispassionate group
 which is capable of bringing to Cuba all that the revolution promised.
 
 Alfonso Rodriguez

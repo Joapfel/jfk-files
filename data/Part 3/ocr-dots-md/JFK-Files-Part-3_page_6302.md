@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6302.png
-
-Convert to MarkdownCommissioner
+Commissioner
 
 REC-114
 

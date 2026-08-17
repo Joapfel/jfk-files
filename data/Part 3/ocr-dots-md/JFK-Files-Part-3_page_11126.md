@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11126.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # SURVEY REPORT
 

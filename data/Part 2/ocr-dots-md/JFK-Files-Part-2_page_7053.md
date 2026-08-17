@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7053.png
-
-Convert to MarkdownSUBJECT: The JFK Declassification Experience
+SUBJECT: The JFK Declassification Experience
 
 been co-opted. Both the DO team and HRG were seen, at times, as "the enemy." That kind of in-house idiocy needed instant quashing.
 

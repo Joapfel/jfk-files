@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27222.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>WHITE, Alan P.</td>

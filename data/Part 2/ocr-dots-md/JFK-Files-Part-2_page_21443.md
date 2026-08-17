@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21443.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REVOLUTIONARY UNION,
 ALSO KNOWN AS

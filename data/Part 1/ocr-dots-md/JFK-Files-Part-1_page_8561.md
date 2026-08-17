@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8561.png
-
-Convert to MarkdownContact Report
+Contact Report
 
 Subject: LIEbeck-1 (=-4805)
 Date of Meeting July 30 at Restaurant Firense at 1630

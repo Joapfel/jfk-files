@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4608.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>10 July 1962</td></tr></table>
 

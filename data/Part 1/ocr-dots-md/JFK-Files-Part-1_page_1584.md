@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1584.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 10 April 1963
 

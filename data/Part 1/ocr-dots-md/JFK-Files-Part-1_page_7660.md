@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7660.png
-
-Convert to MarkdownCUERPO CONSULAR EN MEXICO
+CUERPO CONSULAR EN MEXICO
 MEXCO, D. F.
 
 Honorable

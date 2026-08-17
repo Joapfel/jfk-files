@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31536.png
-
-Convert to Markdown16 December 1963
+16 December 1963
 
 MISCELLANEOUS FORUM: DEPARTMENT OF PUBLIC RELATIONS
 SUBJECT: Conversation with Edward W. Barrett

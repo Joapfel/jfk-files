@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15912.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr><tr><td>DATE : 2 FEB 63</td><td>SECRET</td><td>ROUTING</td></tr></thead><tbody><tr><td>TO : DIRECTOR</td><td rowspan="4" colspan="2"></td><td>1 5</td></tr><tr><td>FROM : BONN</td><td>2 5</td></tr><tr><td>ACTION: EE 6</td><td>3 6</td></tr><tr><td>INFO : CI, CIO/OPS, FI, CDC, TSO 5, AF 4, SR 6, S/C 2</td><td>Routine</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr><tr><td>DATE : 2 FEB 63</td><td>SECRET</td><td>ROUTING</td></tr></thead><tbody><tr><td>TO : DIRECTOR</td><td rowspan="4" colspan="2"></td><td>1 5</td></tr><tr><td>FROM : BONN</td><td>2 5</td></tr><tr><td>ACTION: EE 6</td><td>3 6</td></tr><tr><td>INFO : CI, CIO/OPS, FI, CDC, TSO 5, AF 4, SR 6, S/C 2</td><td>Routine</td></tr></tbody></table>
 
 FRITY FRAN INFO DIR BRLN CITE BOMN 4139
 

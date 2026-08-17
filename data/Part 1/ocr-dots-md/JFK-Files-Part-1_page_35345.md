@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35345.png
-
-Convert to MarkdownSTATEMENT "II"
+STATEMENT "II"
 
 BALANCE sheet per Bank Statement on December 31, 1961 $ 55,249.85
 

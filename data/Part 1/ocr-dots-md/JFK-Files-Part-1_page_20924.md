@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20924.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FILE TITLE/NUMBER/VOLUME: Phillips, DAVID A.
 

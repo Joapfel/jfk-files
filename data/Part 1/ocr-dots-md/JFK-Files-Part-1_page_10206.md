@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10206.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>DATE : ? APR 62</td><td>TO : DIRECTOR</td><td>FROM : MEXICO CITY</td></tr><tr><td colspan="3">ACTION : TFW 10*</td></tr><tr><td colspan="3">INFO : CO/P, COP, CA 2, CA/PRG, CA/PROP, CI, CI/OPS, FI, S/C 2</td></tr></table>
 

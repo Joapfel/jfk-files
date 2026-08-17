@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24654.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM</td></tr></table>
+<table><tr><td>MESSAGE FORM</td></tr></table>
 
 **BOUTING AND/OR INITIALS - SEE BY**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6932.png
-
-Convert to Markdown<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>SECRET</td><td>SECRET (AND NO)</td></tr><tr><td>TO<br/>NPO</td><td>IPM-A-11154<br/>REORDER FROM NO</td></tr><tr><td>FROM<br/>SUN</td><td>50-4-120-1<br/>1 October 1958</td></tr><tr><td>SUBJECT</td><td>RE 43 - [CHECK 1] ONE</td></tr><tr><td>ACTION REQUIRED</td><td>X MARKED FOR INDOERING<br/>NO INDICING REQUIRED</td></tr><tr><td></td><td>INDICING CAN BE JUDGED<br/>BY QUALIFIED NO DEEM ONLY</td></tr></table>
+<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>SECRET</td><td>SECRET (AND NO)</td></tr><tr><td>TO<br/>NPO</td><td>IPM-A-11154<br/>REORDER FROM NO</td></tr><tr><td>FROM<br/>SUN</td><td>50-4-120-1<br/>1 October 1958</td></tr><tr><td>SUBJECT</td><td>RE 43 - [CHECK 1] ONE</td></tr><tr><td>ACTION REQUIRED</td><td>X MARKED FOR INDOERING<br/>NO INDICING REQUIRED</td></tr><tr><td></td><td>INDICING CAN BE JUDGED<br/>BY QUALIFIED NO DEEM ONLY</td></tr></table>
 
 I. Lini Fuhr STOUMEN - reported to have been detained but this was never verified.
 

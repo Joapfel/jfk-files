@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17239.png
-
-Convert to Markdown<table><thead><tr><td colspan="2">DISPATCH</td></tr><tr><td>CLASSIFICATION</td><td>PROCESSING</td></tr></thead><tbody><tr><td>SECRET</td><td></td></tr><tr><td colspan="2">Chief of Station, Mexico City</td></tr><tr><td>INFO</td><td></td></tr><tr><td>DATE</td><td>X NO INDICATION REQUIRED<br/>ONLY QUALIFIED HEADQUARTERS DES CAN BE JUDGED INCREASING<br/>ABSTRACT<br/>MICROFILED</td></tr><tr><td>SUBMITTER</td><td>LIEUTENANT/Project Renovation</td></tr><tr><td>ACTION REQUIRED</td><td>REFERENCES</td></tr></tbody></table>
+<table><thead><tr><td colspan="2">DISPATCH</td></tr><tr><td>CLASSIFICATION</td><td>PROCESSING</td></tr></thead><tbody><tr><td>SECRET</td><td></td></tr><tr><td colspan="2">Chief of Station, Mexico City</td></tr><tr><td>INFO</td><td></td></tr><tr><td>DATE</td><td>X NO INDICATION REQUIRED<br/>ONLY QUALIFIED HEADQUARTERS DES CAN BE JUDGED INCREASING<br/>ABSTRACT<br/>MICROFILED</td></tr><tr><td>SUBMITTER</td><td>LIEUTENANT/Project Renovation</td></tr><tr><td>ACTION REQUIRED</td><td>REFERENCES</td></tr></tbody></table>
 
 The LIEUTENANT Project will expire on 30 November 1961. It is requested that your recommendation for removal be pouched to reach Headquarters by 1 November 1961.
 

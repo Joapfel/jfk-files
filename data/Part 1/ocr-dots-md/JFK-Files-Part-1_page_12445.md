@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12445.png
-
-Convert to Markdown- terio de Fomento son prácticamente inutilizables.
+- terio de Fomento son prácticamente inutilizables.
 
 Se dabaía precisar en el Arancel de Aduanas las preciosas y las semi preciosas; y dentro de las primeras si se trata de brillantes, esme- raldas, rubias, zafiros u otros. El actual Arancel mezcla los varios - conceptos.
 

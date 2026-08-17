@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7338.png
-
-Convert to MarkdownEl Jr. de octubre de 1966, CARLOS BLANCO reclama a su hijo el Vice-Ministro LOGUINOV que en la actualidad es al que hace tiempo no se ven para bitácoras. LOGUINOV informa que acaba de regresar do un viaje a Málaga. BLANCO tiene a su espalda todavía un poco dolida y también está fuera de la ciudad, pero el microcoque próximo por la noche tiene tiempo para verse y para ello le puede llamar al 47-28-01 que es un socio de su hermano y allí puede dejar el piso o bien en su oficina que es el 35-11-27 ext.112.
+El Jr. de octubre de 1966, CARLOS BLANCO reclama a su hijo el Vice-Ministro LOGUINOV que en la actualidad es al que hace tiempo no se ven para bitácoras. LOGUINOV informa que acaba de regresar do un viaje a Málaga. BLANCO tiene a su espalda todavía un poco dolida y también está fuera de la ciudad, pero el microcoque próximo por la noche tiene tiempo para verse y para ello le puede llamar al 47-28-01 que es un socio de su hermano y allí puede dejar el piso o bien en su oficina que es el 35-11-27 ext.112.
 LOGUINOV ofrece llamarle al microcoke por la mañana.
 
 (NOTAR: El teléfono 47-28-01 corresponde a una tinapalería ubicada en la Calzada Nogalejo (338-D).

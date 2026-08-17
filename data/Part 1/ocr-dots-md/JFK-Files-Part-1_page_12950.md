@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12950.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>MEMORANDUM FOR: Chief,<br/>WH/SA/IOS - W. ULLERY</td><td><table><tr><td>Number</td><td>201-204658</td></tr><tr><td>Signed</td><td>PICO Ramon, Reinaldo</td></tr><tr><td>REFERENCE: Your Memorandum, Date!</td><td>2 June 1964</td></tr></table></td></tr><tr><td colspan="2">A Provisional Operational Approval is granted for the use of this Subject as set forth below.</td></tr><tr><td colspan="2">A Provisional Operational Approval issued by CI Staff grants the same authority, on a temporary basis, for the use of an individual as the authority granted in an Operational Approval unless otherwise specified by CI/OA. It is based, however, only on preliminary file checks and investigation and is subject to a further final review when all investigation is completed.</td></tr></table>
 

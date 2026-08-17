@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11317.png
-
-Convert to Markdownshould be completely filled out just as if a first
+should be completely filled out just as if a first
 recommendation is being made, and submitted with a
 current report. If not, the Bureau should be advised
 of the reasons for not reactivating his security index

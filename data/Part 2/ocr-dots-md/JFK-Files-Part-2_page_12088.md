@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12088.png
-
-Convert to Markdown(2) Residence and employment (If no change since last justification letter, merely state "no change.")
+(2) Residence and employment (If no change since last justification letter, merely state "no change.")
 
 
 

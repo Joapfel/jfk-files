@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30272.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Nosenko. Mr. Klein, I would like you to ask when Americans who were working for this Exhibition left Moscow.
 

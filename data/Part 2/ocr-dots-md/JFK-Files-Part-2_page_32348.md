@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32348.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 October 9, 1963
 

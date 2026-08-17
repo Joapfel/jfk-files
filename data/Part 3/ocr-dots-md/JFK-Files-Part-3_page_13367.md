@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13367.png
-
-Convert to MarkdownOLSEN: When was this, by the way? (interrupting)
+OLSEN: When was this, by the way? (interrupting)
 
 STURGIS: '72, I believe.
 

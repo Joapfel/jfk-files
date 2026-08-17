@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14812.png
-
-Convert to Markdownhowever, Winston's arrest. John Abt, said he was being dropped from the committee of contracting the necessary information from prison authorities and because the time required would detract from Winston's public activities.
+however, Winston's arrest. John Abt, said he was being dropped from the committee of contracting the necessary information from prison authorities and because the time required would detract from Winston's public activities.
 
 Winston recorded, "subatters from some influence of his metabeliss which calls to have attacks or prieups resisting for several days."
 

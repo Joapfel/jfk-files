@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13882.png
-
-Convert to MarkdownDepartment of State
+Department of State
 
 47
 

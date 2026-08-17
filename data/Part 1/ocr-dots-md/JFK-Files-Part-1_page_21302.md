@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21302.png
-
-Convert to Markdown5 October 1960
+5 October 1960
 
 SUBJECT: Luis TEDESCHI
 

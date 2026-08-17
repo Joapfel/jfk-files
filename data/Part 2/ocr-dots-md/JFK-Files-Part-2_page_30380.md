@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30380.png
-
-Convert to MarkdownIUP SECRET
+IUP SECRET
 
 1 Staff of the Directorate of Operations.
 

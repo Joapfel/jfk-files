@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29165.png
-
-Convert to MarkdownTHIS NUMBER WHEN SUBMITTING PAYMENT, OR IN CORRESPONDENCE WITH THE Mailing Address.
+THIS NUMBER WHEN SUBMITTING PAYMENT, OR IN CORRESPONDENCE WITH THE Mailing Address.
 
 <table><tr><td>Calendar Year</td><td colspan="2">1976</td></tr><tr><td colspan="3">OR FISCAL YEAR</td></tr><tr><td>Beginning</td><td colspan="2">19</td></tr><tr><td>Ending</td><td colspan="2">19</td></tr></table>
 

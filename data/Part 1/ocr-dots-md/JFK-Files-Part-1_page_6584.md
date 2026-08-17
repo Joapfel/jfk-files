@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6584.png
-
-Convert to Markdown14 January 1957
+14 January 1957
 
 Chief, Contact Division
 ATTN : Alice and Support Branches

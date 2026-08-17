@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22184.png
-
-Convert to Markdown<table><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>SANCHEZ<br>FITZGERALD<br>AMLASH</td><td>Oct. 29, 1963<br>Nov. 13, 1963</td><td>Castro<br>Carl 2 of 2</td></tr></table>
+<table><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>SANCHEZ<br>FITZGERALD<br>AMLASH</td><td>Oct. 29, 1963<br>Nov. 13, 1963</td><td>Castro<br>Carl 2 of 2</td></tr></table>
 
 **OCCURRENCE:** (CARD 2)
 

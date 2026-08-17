@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11232.png
-
-Convert to Markdown(2) Investigations should be handled most discretely by experienced Agents.
+(2) Investigations should be handled most discretely by experienced Agents.
 
 (3) Advise Bureau promptly under caption "Cominfil (name of organization)" when one of the following exists and include your recommendation for instituting an investigation:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6067.png
-
-Convert to MarkdownO Primeiro encontro Nacional de Produção
+O Primeiro encontro Nacional de Produção
 
 No sistema comunista implantado em Cuba por Fidel Castro e seus camaradas, seguem-se ao pé da letra as práticas dos partidos comunistas de todo o mundo. Uma das consistências nas reuniões de autocracia entre todos os membros participantes de uma determinada atividade do Estado comunista.
 

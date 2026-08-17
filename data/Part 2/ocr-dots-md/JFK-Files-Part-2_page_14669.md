@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14669.png
-
-Convert to MarkdownMemorandum to Mr. Cale
+Memorandum to Mr. Cale
 Re: Milton Daniel Korman
 
 Abernethy (Dem.), Mississippi, and Joel T. Broyhill (Rep.), Virginia.

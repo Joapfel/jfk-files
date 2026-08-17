@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15122.png
-
-Convert to Markdown1970
+1970
 NUMBER & DATE
 (69) - 5/25/70
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14761.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th colspan="10">MESSAGE REFERENCE NUMBER</th></tr><tr><th>DATE</th><th>TIME</th><th>GROUP</th><th>CIA</th><th>NAME</th><th>PHONE NO.</th><th>BRIEF DESCRIPTION</th><th>ASSISTANT</th><th>DIRECTOR</th><th>STATUS</th></tr></thead><tbody><tr><td>02-947</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>DISSEMINATED BY: 4/4</td></tr><tr><td>0</td><td>MOE*</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>0</td><td>NOMNO*</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>0</td><td>RETURN TO</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>PER</td></tr><tr><td>0</td><td>PURS</td><td>*</td><td></td><td></td><td></td><td></td><td></td><td></td><td>#</td></tr></tbody></table>
 

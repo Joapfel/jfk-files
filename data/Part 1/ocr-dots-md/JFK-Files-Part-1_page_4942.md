@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4942.png
-
-Convert to Markdown14-00000
+14-00000
 
 Let us cite as last example a CIA proxy which bears the initial letters B.I.A., considered
 to be the alias of the Chilean military junta and whose last known village is the

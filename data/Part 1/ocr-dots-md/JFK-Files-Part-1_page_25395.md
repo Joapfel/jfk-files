@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25395.png
-
-Convert to Markdown## 5. Security Evaluation.
+## 5. Security Evaluation.
 
 In the unlikely event of compromise, LIHUFF/I could continue to claim that he was not doing anything that hundreds of other businessmen, U.S. and Mexican, aren't doing as commonly-accepted practice: trying to influence the politico-economic climate in Mexico for their own benefit. Whatever the extent of the compromise, there would be no repercussion insofar as other operations or activities per se were concerned except that there might be some tightening of the general operational climate for a while. If, somehow, LIHUFF/I's true role were disclosed, he could probably be backstopped with a minimum of publicity through high-level Station contacts with the Government (explaining the Station interest in right-wing circles as attempting to follow what they were up to in case they became a threat to the stability of the present government).
 

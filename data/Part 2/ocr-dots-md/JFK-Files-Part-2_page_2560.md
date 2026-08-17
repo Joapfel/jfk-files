@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2560.png
-
-Convert to Markdownc. (1) Subject to the priorities of work you are herein authorized twenty-one (21) work days vacation with pay per contract year to be taken only at times and places approved in advance by the Authorized Government Representative. Vacation time is not accruable and will not be carried over from year to year. Payment for unused vacation time will not be authorized.
+c. (1) Subject to the priorities of work you are herein authorized twenty-one (21) work days vacation with pay per contract year to be taken only at times and places approved in advance by the Authorized Government Representative. Vacation time is not accruable and will not be carried over from year to year. Payment for unused vacation time will not be authorized.
 
 (2) If incapacitated for work due to illness, injury and the like, your compensation may be continued for periods not to exceed a total of thirteen (13) working days per contract year. Periods of absence in excess of three (3) consecutive days will require a doctor's certificate. Like vacation time, this benefit is not accruable and will not be carried over from year to year. Cash payment in lieu of this benefit will not be authorized.
 

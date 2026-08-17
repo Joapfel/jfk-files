@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13331.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 As a digression, Stein commented that, to the extent that CI staff may have gotten into "gray" areas, this may well have been as a result of an effort to restrict knowledge of a particular incident to the smallest possible number of people. Thus, rather than going to the Bureau, where control over the dissimulation of the subject information would not be possible, the staff might go to another Agency component such as the Office of Security. Similarly, where an investigation proved fruitless, continued maintenance of relevant files by the CI staff, rather than by the Agency or the Bureau generally, constituted part of an effort to avoid prejudicing the particular subject of the investigation.
 

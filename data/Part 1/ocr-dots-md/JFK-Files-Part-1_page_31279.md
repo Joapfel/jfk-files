@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31279.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>1. ID</td>
     <td>2. EMPLOYEE NO.</td>

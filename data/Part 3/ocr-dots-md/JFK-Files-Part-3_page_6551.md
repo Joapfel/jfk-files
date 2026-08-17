@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6551.png
-
-Convert to Markdown100-3.7771
+100-3.7771
 
 Date: July 25, 1968
 

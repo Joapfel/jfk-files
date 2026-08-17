@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7.png
-
-Convert to MarkdownS-E-C-P-F-T
+S-E-C-P-F-T
 (When Filled In)
 
 MEMORANDUM FOR: DOCO/SA

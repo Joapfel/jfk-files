@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10169.png
-
-Convert to MarkdownUNITED STATES (AGERNMENT
+UNITED STATES (AGERNMENT
 
 Memorandum
 

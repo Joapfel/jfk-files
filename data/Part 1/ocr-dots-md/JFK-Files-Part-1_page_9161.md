@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9161.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Office of Chief, Intelligence
 

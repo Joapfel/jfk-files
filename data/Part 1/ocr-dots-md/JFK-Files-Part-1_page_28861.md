@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28861.png
-
-Convert to Markdown14-00000
+14-00000
 
 Contract Sguare? - Anahu R. Schlick Path (P)
 GS

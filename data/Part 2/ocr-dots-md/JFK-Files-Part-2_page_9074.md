@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9074.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In the same month, CIA inquired if the Bureau would reestablish technical surveillance coverage on [redacted] who CIA felt was a key figure in the transmission of scientific intelligence data to the [redacted] Intelligence Service. We declined to reinstitute the coverage. CIA considered the matter important because of its relationship to the [redacted] Crisis.
 

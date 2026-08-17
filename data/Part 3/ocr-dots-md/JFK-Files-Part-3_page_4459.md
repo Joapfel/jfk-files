@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4459.png
-
-Convert to Markdown4-31 (Rev. 6-2-63)
+4-31 (Rev. 6-2-63)
 
 DECODED COPY
 

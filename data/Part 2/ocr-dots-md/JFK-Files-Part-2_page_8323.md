@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8323.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 18 April 1951
 

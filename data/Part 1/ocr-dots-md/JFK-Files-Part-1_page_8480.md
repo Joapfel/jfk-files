@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8480.png
-
-Convert to Markdowncould be twin brothers. My wife overheard this performance and felt it was highly overplayed. My opinion was that this was a conversation starter, nothing more. Werner expected me to show interest in his having met a Russian. I did. Werner then told me about the book group. I had heard of it before through my lawyer and through Valentin. I had never before realized they were one and the same group. Werner spoke of only one occasion when Valentin was there—he did not say there were not other occasions. Valentin spoke of several occasions. Werner described Valentin as good-natured, narrow intellectually and curious.
+could be twin brothers. My wife overheard this performance and felt it was highly overplayed. My opinion was that this was a conversation starter, nothing more. Werner expected me to show interest in his having met a Russian. I did. Werner then told me about the book group. I had heard of it before through my lawyer and through Valentin. I had never before realized they were one and the same group. Werner spoke of only one occasion when Valentin was there—he did not say there were not other occasions. Valentin spoke of several occasions. Werner described Valentin as good-natured, narrow intellectually and curious.
 
 I did not acknowledge knowing Valentin but avoided the issue. I do not know who knew Valentin and first invited him to the group. I do not know how often the group meets or where.
 

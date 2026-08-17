@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3147.png
-
-Convert to Markdown1759
+1759
 
 time by headquarters, not by the field office agents.
 

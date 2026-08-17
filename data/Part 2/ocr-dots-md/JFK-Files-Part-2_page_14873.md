@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14873.png
-
-Convert to MarkdownDomestic Intelligence Division
+Domestic Intelligence Division
 
 that whichever means is used must be practical and not merely drawn up in
 a visionary manner in an attempt to satisfy the Supreme Court but end up

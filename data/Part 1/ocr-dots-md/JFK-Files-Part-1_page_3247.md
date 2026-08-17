@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3247.png
-
-Convert to MarkdownIrving Axon
+Irving Axon
 260 Marshall Court
 Long Branch, New Jersey
 

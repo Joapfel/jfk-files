@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9724.png
-
-Convert to Markdown# File #:
+# File #:
 62-116395
 
 ## Serial Scope:

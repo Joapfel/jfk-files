@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22687.png
-
-Convert to MarkdownHW 3095J
+HW 3095J
 
 Phone (Area 202) 544-6000
 NBR

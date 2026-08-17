@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16871.png
-
-Convert to Markdown3
+3
 
 Selective Service
 Number US 460 45 367

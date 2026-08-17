@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_576.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 The Indianapolis Division determined in late 1969 that the Indianapolis Black Panther Party (BPP) Chapter owed the Indiana Bell Telephone Company for several months of telephone service.
 

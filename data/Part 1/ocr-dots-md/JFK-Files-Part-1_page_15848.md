@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15848.png
-
-Convert to Markdown<table><tr><td>CLASSIFICATION</td></tr></table>
+<table><tr><td>CLASSIFICATION</td></tr></table>
 
 CONTINUATION OF
 DISPATCH

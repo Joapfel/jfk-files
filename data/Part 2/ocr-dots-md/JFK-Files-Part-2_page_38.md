@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_38.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 SECRET
 

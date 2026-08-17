@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3949.png
-
-Convert to MarkdownPresident Kennedy", p. 56, that Nagell was then still confined at Leavenworth, that he had been a highly decorated infantry captain in the Korean War, and that he claimed to have become a CIA agent thereafter. Ramparts shifted the plane crash in which Nagell was injured from 1954 and Maryland to 1957 and Cambodia. The article repeated the allegation that he staged a phony holdup in order to be under arrest when the assassination occurred.
+President Kennedy", p. 56, that Nagell was then still confined at Leavenworth, that he had been a highly decorated infantry captain in the Korean War, and that he claimed to have become a CIA agent thereafter. Ramparts shifted the plane crash in which Nagell was injured from 1954 and Maryland to 1957 and Cambodia. The article repeated the allegation that he staged a phony holdup in order to be under arrest when the assassination occurred.
 
 12. On 6 June 1968 the American Consulate in Zurich cabled Washington to say that Richard Case Nagell, passport J 543069, had appeared at the consulate on 4 June and had said that he was working for a secret U.S. Government agency on a mission to Geneva, where he was to meet some Japanese. He asked for money. He returned to the consulate the next day, was incoherent, and seemed psychotic. He claimed that on 14-16 May 1968 he had been interviewed by District Attorney Jim Garrison. He said that Garrison had warned him that he was in danger of being killed and that he wanted to inform CIA that he was in Zurich.
 

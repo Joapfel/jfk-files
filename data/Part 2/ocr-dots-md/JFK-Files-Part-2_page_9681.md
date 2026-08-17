@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9681.png
-
-Convert to MarkdownST 157-4275
+ST 157-4275
 
 stated that all sectors of the news media are controlled by Jews and that they directly control all newspaper publications either by direct ownership or by controlling the advertising that newspapers need for their survival. In addition, he pointed out that the three major radio-television networks are all headed by Jewish individual and as such they are able to direct public broadcasting to benefit their own views and the views of the Jewish segment of our society. DD/Cut further stated that this great influence exerted by Jews in this country will eventually lead to the degeration of our society unless their activities are stopped by actions from the right wing.
 

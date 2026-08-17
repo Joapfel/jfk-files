@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35674.png
-
-Convert to MarkdownArzo
+Arzo
 
 2 Lunes Dr. Maceo #45 Neuritis I
 

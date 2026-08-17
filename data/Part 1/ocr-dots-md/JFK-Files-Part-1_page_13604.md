@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13604.png
-
-Convert to Markdown13 December 1961
+13 December 1961
 
 # MEMORANDUM FOR THE FILE
 

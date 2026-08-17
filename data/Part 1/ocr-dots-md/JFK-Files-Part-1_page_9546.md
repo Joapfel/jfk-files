@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9546.png
-
-Convert to MarkdownDear ...
+Dear ...
 
 This letter will serve as an official invitation and credential
 as a delegate to the Congress for Cultural Freedom. The passport and

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28185.png
-
-Convert to Markdown17 NOV 1975
+17 NOV 1975
 
 MEMORANDUM FOR: Frederick Randall
 SUBJECT : Quality Step Increase

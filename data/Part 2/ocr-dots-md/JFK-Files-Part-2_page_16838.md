@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16838.png
-
-Convert to Markdown### Selective Service
+### Selective Service
 
 Number US 460 45 367
 Social Security

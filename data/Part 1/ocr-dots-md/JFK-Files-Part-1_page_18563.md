@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18563.png
-
-Convert to MarkdownCalvin Hicks
+Calvin Hicks
 
 SECRET
 

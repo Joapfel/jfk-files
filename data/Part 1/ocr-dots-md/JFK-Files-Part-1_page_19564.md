@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19564.png
-
-Convert to Markdownoffices and dates covering period of service in each:
+offices and dates covering period of service in each:
 Department of Justice - April 1940 to Nov 1944
 U. S. Navy 6 Jan 1945 to present date
 

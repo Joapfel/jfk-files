@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6201.png
-
-Convert to MarkdownFORBES
+FORBES
 
 G (continuation)
 

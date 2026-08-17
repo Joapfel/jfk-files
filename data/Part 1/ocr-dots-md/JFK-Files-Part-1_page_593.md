@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_593.png
-
-Convert to Markdown3. Request for black transport should in:
+3. Request for black transport should in:
 
 1. Request that RELEASE CONTINGENCY PLAN 62-2 be implemented.
 

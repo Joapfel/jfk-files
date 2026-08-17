@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5945.png
-
-Convert to Markdown15. HENTHAM was then fully briefed on developments and HOODINE gave certain operational information of a sensitive nature from subject to HENTHAM. After necessary analysis and discussion the following decisions were reached:
+15. HENTHAM was then fully briefed on developments and HOODINE gave certain operational information of a sensitive nature from subject to HENTHAM. After necessary analysis and discussion the following decisions were reached:
 
 a. We would endeavor to remove the family out of Frankfurt by commercial aircraft that day, i.e., Sunday, 17 December.
 

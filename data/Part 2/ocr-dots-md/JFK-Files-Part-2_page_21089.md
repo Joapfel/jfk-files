@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21089.png
-
-Convert to MarkdownMemo to Mr. Belmont
+Memo to Mr. Belmont
 
 Re: Central Intelligence Agency,
 Information Received from James

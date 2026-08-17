@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23860.png
-
-Convert to Markdown1
+1
 
 P R O C E D I N G S
 

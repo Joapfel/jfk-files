@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11017.png
-
-Convert to Markdown## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 4. One copy of the circular letter is to be filed. A list of addresses is to be attached. Upon the receipt of a reply, the addressee's name is to be checked to indicate this fact. Replies which are entirely negative should not be filed unless there is reason for doing so. Only negative replies are to be destroyed after handling in accordance with item 3 above. Sub-A files may be used when the number of replies to be filed is large.
 

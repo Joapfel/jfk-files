@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_305.png
-
-Convert to MarkdownF.D. (ov. 5-22-64)
+F.D. (ov. 5-22-64)
 
 F B I
 

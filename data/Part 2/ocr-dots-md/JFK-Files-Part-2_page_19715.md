@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19715.png
-
-Convert to MarkdownUNITED STATES OF AMERICA
+UNITED STATES OF AMERICA
 # Memorandum
 
 TO :ACTING DIRECTOR, FBI (100-472144)

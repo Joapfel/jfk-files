@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9247.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 Physical observation of the interior of the residence revealed that all furniture had been removed and that the house was not habitable.
 

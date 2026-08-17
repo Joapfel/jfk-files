@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33603.png
-
-Convert to MarkdownJanuary 21, 1952
+January 21, 1952
 
 American Consulate
 Munich

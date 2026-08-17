@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6081.png
-
-Convert to Markdowneffective fulfillment of the duties of a member of the ARRB as required under the statute.
+effective fulfillment of the duties of a member of the ARRB as required under the statute.
 
 2. What do you consider to be your primary responsibilities and priorities as an ARRB member?
 

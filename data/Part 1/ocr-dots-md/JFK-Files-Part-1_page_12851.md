@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12851.png
-
-Convert to MarkdownFBI Document
+FBI Document
 Date: 15 February 1977
 Classification: CONFIDENTIAL
 SUBJECT: COORDINATION OF UNITED REVOLUTIONARY ORGANIZATIONS (CORU)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31638.png
-
-Convert to MarkdownFSP:jal
+FSP:jal
 
 STEVE CHERKOSS
 DAVID FRIEDMAN

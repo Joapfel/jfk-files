@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17428.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## YOUNG SOCIALIST ALLIANCE-CHICAGO
 

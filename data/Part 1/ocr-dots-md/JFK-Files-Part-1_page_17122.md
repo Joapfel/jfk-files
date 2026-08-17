@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17122.png
-
-Convert to MarkdownSECT
+SECT
 
 individuals of operational interest, and to rent rooms, and apartments and perform other support activities. The fixed surveillance bases, LIMITED, LILYRIC and LICALLA, have been in operation for almost three years without having been in any compromising situations insofar as the Station knows. The LIPSTICK unit, a panel truck equipped with cameras, etc., is considered a particularly valuable asset by the Field. As a replacement for a staff agent, Wilfred O. CLOWER (p), who directed and trained the LIPSTICK surveillance team, the husband and wife team of CLACKATT and FORDALISI are proposed as qualified individuals to recruit, train, and direct the new LIEMPTY surveillance team and maintain its records. Appropriate notional cover was arranged for them while in their previous project, LINESA, as they reside in Mexico under true names. One of the principal agents, GERENDE, will have no contact with the new surveillance team, but will be used to conduct special investigations, counter-surveillance, and for other support activities.
 

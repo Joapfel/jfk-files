@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2934.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 (OTHER ASPECTS OF NOSENKO'S KGB CARFER)
 

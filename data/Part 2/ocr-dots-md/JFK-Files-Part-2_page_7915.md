@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7915.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 down the road to dictatorship", and "Eliminate the government's blacklist which has placed 10 million Americans, through 70 government agencies, on Security Suspect Lists. Restore Freedom of Speech to all".
 

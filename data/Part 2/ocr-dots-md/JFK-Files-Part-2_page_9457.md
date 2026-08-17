@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9457.png
-
-Convert to Markdown# PRESS RELEASE
+# PRESS RELEASE
 ## PANTHERS
 
 BEN W. FONDRON

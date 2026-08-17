@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18692.png
-
-Convert to MarkdownII. Materials to which the SSC staff has been given access; delivery requested by Friday, August 15, 1975:
+II. Materials to which the SSC staff has been given access; delivery requested by Friday, August 15, 1975:
 
 A. The following materials maintained in the so-called "Official and Confidential" files and designated "non-derogatory," previously examined by SSC staff:
 

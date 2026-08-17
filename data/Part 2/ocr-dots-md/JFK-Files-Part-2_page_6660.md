@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6660.png
-
-Convert to MarkdownMs. Laura Denk, Esquire
+Ms. Laura Denk, Esquire
 
 HRP/OIM: apd/(14 Sep 98)
 

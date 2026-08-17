@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32957.png
-
-Convert to Markdown# 062388
+# 062388
 2 June 1968
 
 Subject: Idon A

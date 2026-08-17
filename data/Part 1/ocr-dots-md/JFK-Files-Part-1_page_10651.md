@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10651.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>RCI 1</td>
         <td>☐ FILE RDT</td>

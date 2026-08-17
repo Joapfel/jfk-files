@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13231.png
-
-Convert to MarkdownSpecial Group (Augmented) meetings at which General Carter participated and discussions of Cuba and/or Cuban overflights during the period August 15 to November 14, 1962. This file contains a memorandum dated October 16, 1962, from General Carter to the Special Group Augmented, Subject: "Operation MONGODB Sabotage Proposals." Paragraph 1c of this memorandum contains a proposal that the CIA undertake a "grenade attack on the Chinese Communist Embassy in Havana, to be carried out by a recruited Cuban agent who has access to a roof overlooking the embassy garden and who has volunteered for this mission."
+Special Group (Augmented) meetings at which General Carter participated and discussions of Cuba and/or Cuban overflights during the period August 15 to November 14, 1962. This file contains a memorandum dated October 16, 1962, from General Carter to the Special Group Augmented, Subject: "Operation MONGODB Sabotage Proposals." Paragraph 1c of this memorandum contains a proposal that the CIA undertake a "grenade attack on the Chinese Communist Embassy in Havana, to be carried out by a recruited Cuban agent who has access to a roof overlooking the embassy garden and who has volunteered for this mission."
 
 The second file in this collection is entitled simply "MONGODB." This contains nothing relevant to the assassination inquiry.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13870.png
-
-Convert to MarkdownNW 88326 DocId:32989611 Page 125
+NW 88326 DocId:32989611 Page 125
 
 <table><tr><td>CLASSIFY AS APPROPRIATE</td></tr></table>
 

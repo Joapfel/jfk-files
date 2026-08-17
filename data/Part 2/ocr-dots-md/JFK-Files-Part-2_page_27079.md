@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27079.png
-
-Convert to Markdownf. "Our running account of the number of Soviet dry-cargo vessels making the voyage to Cuba since mid-July is now over 100. About 85 of these probably were carrying military hardware.
+f. "Our running account of the number of Soviet dry-cargo vessels making the voyage to Cuba since mid-July is now over 100. About 85 of these probably were carrying military hardware.
 
 "The Cuban Foreign Office on Tuesday ordered Western correspondents to put in for new credentials by today, telling them that all of Cuba beyond Havana's city limits is out of bounds except by special per-mission." (27 September)
 

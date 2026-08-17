@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17709.png
-
 </td><td style="text-align:right;">114.00</td></tr><tr><td>Christmas bonus and presents<br>(One month salary to each agent, in accordance local custom. Also special gifts in some cases)</td><td style="text-align:right;">3000.00<br>39,250.00</td></tr></tbody></table>
 
 c. Base house rentals, utilities and expenses

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_698.png
-
-Convert to Markdown7 August 1977
+7 August 1977
 
 Washington
 

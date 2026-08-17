@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29288.png
-
-Convert to Markdown05 DEC 1968
+05 DEC 1968
 
 MEMORANDUM OF AGREEMENT
 

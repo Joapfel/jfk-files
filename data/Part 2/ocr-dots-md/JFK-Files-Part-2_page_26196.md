@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26196.png
-
-Convert to Markdownbe able to explain, Well, if I stop doing
+be able to explain, Well, if I stop doing
 this, then this other thing won't work, and
 Washington wants us to have this happen.
 

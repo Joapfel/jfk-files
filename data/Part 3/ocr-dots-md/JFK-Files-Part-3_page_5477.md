@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5477.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5-140 (Rev. 1-21-74) FEDERAL
 

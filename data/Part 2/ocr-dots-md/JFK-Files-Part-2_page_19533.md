@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19533.png
-
-Convert to MarkdownFBI
+FBI
 
 Date: January 23, 1968
 

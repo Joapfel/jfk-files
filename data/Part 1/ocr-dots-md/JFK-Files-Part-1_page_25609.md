@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25609.png
-
-Convert to MarkdownRESTRICTED HAM:
+RESTRICTED HAM:
 
 I 522946 E14111
 

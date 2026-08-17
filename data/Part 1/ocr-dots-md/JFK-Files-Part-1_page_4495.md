@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4495.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="3">FOR: [ ] YES [ ] NO</td>
     <td>CLASSIFIED MESSAGE</td>

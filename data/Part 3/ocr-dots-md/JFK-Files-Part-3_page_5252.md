@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5252.png
-
-Convert to Markdown# CASE SUGGESTION WRITE-UP
+# CASE SUGGESTION WRITE-UP
 
 RAND N. DODD
 SSAN 548 62 8438 A

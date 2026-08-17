@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4173.png
-
-Convert to MarkdownAMWORLD Meeting in New York, 6 October 1964
+AMWORLD Meeting in New York, 6 October 1964
 
 SUBJECT: AMWORLD Contingency Plans
 

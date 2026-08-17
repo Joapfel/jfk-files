@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_871.png
-
-Convert to MarkdownThe issue of the legality of warrantless, Presidentially approved electronic surveillance in foreign national security cases has not yet been decided by the Supreme Court; this issue is now pending in two Circuit Courts of Appeals.
+The issue of the legality of warrantless, Presidentially approved electronic surveillance in foreign national security cases has not yet been decided by the Supreme Court; this issue is now pending in two Circuit Courts of Appeals.
 
 Thus the specific problems with regard to domestic national security electronic surveillance are that it produces information of value not obtainable by other means; it has been prohibited without prior judicial approval; there is no mechanism to obtain prior judicial approval. Consequently, we conduct no domestic national security electronic surveillances.
 

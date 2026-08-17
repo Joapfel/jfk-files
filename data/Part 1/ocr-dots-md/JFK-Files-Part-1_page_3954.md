@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3954.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 181509Z
 DIR C.ISS WAVE 8419

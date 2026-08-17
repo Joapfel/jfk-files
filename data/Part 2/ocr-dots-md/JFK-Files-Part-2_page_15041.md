@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15041.png
-
-Convert to Markdown**Gary Steven Krist; Ruth Eisemann-Schier; Barbara Jane Mackle -**
+**Gary Steven Krist; Ruth Eisemann-Schier; Barbara Jane Mackle -**
 Victim Kidnaping Mackle kidnaped from Atlanta, Georgia, motel 12-17-68 and $500,000 ransom demand made. FBI investigation resulted in her safe return and Krist and Eisemann-Schier identified as kidnappers. Krist apprehended and all-out investigation continuing to locate Eisemann-Schier. Krist will be tried by state and next appearance in court scheduled for 2-28-69.
 
 ## SPECIAL INVESTIGATIVE OPERATIONS

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13346.png
-
-Convert to MarkdownOLSEN: Now, in addition to those discussions that took place
+OLSEN: Now, in addition to those discussions that took place
 in Cuba early in 1959, when you were an officer of the Cuban Air Force,
 and the discussions that you had with Bernard Barker sometime in 1961
 about a possible assassination of some unnamed person at an unnamed

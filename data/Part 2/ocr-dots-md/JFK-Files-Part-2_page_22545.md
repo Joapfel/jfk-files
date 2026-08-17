@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22545.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INVOLVEMENT IN CUBAN EXILE ACTIVITIES
 

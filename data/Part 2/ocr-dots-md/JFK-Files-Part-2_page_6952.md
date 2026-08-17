@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6952.png
-
-Convert to Markdowncould not hire or detail experienced federal employees, but rather had to hire new employees who had to undergo background investigations and be cleared at the Top Secret level. Locating and renovating space that was suitable for the storage of classified materials was required. As a result, the Board could not begin an effective review of records until the third quarter of our first year.
+could not hire or detail experienced federal employees, but rather had to hire new employees who had to undergo background investigations and be cleared at the Top Secret level. Locating and renovating space that was suitable for the storage of classified materials was required. As a result, the Board could not begin an effective review of records until the third quarter of our first year.
 
 We are pleased and proud that the Review Board and staff have been able to overcome these obstacles, and that we have developed an efficient and effective process for the review of records. All involved in this process want to see that the job is done, and do not want to cease now with a reasonable conclusion in sight. We want to finish the job we began, and with one additional year we can.
 

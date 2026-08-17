@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_29581.png
-
-Convert to Markdownthat can not be covered here. I have had training in Intelligence units and allied subjects and have been an instructor in all the subjects covered here. I have also led my team on a six (6) month classified mission in South East Asia, where very valuable training was received in an actual area of operation.
+that can not be covered here. I have had training in Intelligence units and allied subjects and have been an instructor in all the subjects covered here. I have also led my team on a six (6) month classified mission in South East Asia, where very valuable training was received in an actual area of operation.

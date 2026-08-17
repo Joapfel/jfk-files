@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2633.png
-
-Convert to Markdown2477
+2477
 
 gsh13 Senator Huddleston. But that hasn't been the case in the past.
 

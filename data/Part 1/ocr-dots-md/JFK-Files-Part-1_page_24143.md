@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24143.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM 772 USE PREVIOUS
 1-62 EDITIONS.

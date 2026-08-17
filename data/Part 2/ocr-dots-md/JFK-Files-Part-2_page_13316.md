@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13316.png
-
-Convert to MarkdownCOMMUNICATIONS SECTION
+COMMUNICATIONS SECTION
 
 WJJO 5, 1975
 

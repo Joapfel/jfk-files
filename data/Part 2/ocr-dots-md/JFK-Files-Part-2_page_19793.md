@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19793.png
-
-Convert to MarkdownBLOOMINGTON ABORTION COALITION
+BLOOMINGTON ABORTION COALITION
 
 did send a statement which was to be read at the demonstration; however, due to difficulties, this statement was never read. According to source, between 15 and 20 persons actually attended the demonstration who were from Indiana University.
 

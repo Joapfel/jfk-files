@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23367.png
-
-Convert to MarkdownAll sorts of things were coming up from the field. I had commented on it here; in the end, I say, do not be discouraged because you do not see the probable channel we will use. I assume the colleague was Sid Gottlieb, because I guess he was still there.
+All sorts of things were coming up from the field. I had commented on it here; in the end, I say, do not be discouraged because you do not see the probable channel we will use. I assume the colleague was Sid Gottlieb, because I guess he was still there.
 
 Mr. Baron. The first time he had not arrived, but you had already cabled that his arrival was imminent?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22449.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q. And again with particular reference to the Miami area?
 

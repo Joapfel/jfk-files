@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_873.png
-
-Convert to MarkdownThe present policy is to support the legality of the President's authority to conduct this surveillance without warrant, to restrict disclosure of the existence or contents of such surveillances, and presumably, to support the argument that any evidence obtained from such surveillance is admissible in a criminal proceeding.
+The present policy is to support the legality of the President's authority to conduct this surveillance without warrant, to restrict disclosure of the existence or contents of such surveillances, and presumably, to support the argument that any evidence obtained from such surveillance is admissible in a criminal proceeding.
 
 These issues are discussed very well in the Government's petition for rehearing in U.S. v. Ivanov, attached. Also attached is a classified memorandum summarizing the case up to the petition for rehearing.
 

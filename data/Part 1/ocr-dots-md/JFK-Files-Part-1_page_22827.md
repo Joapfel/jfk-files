@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22827.png
-
-Convert to Markdown# American Student in China
+# American Student in China
 
 BLOKSBERG, Harry
 D.O.B.-6 JUNE 1937

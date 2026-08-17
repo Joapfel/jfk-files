@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11620.png
-
-Convert to MarkdownIn view of the increase in the number of contact cases mentioned above, Legat, Ottawa, has been requested to devise a form he can utilize in furnishing pertinent information to the Bureau. The present manner of submission of this data does cause some administrative problems here.
+In view of the increase in the number of contact cases mentioned above, Legat, Ottawa, has been requested to devise a form he can utilize in furnishing pertinent information to the Bureau. The present manner of submission of this data does cause some administrative problems here.
 
 During August, 1971, one of our sources began a trip scheduled to last almost three weeks during which he will contact a number of pro-Chicom individuals in the United States and Canada and will culminate in an effort to establish contact with Chicom intelligence officers in Ottawa. Travel to Canada is with the concurrence of RCMP, and RCMP will provide coverage in order that we can evaluate the results of the source's efforts.
 

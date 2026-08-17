@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6263.png
-
-Convert to MarkdownPlans to begin public hearing on defining an assassination record in Sept. Anna Nelson commented on the importance of identifying what is a record before beginning to address specific issues/documents.
+Plans to begin public hearing on defining an assassination record in Sept. Anna Nelson commented on the importance of identifying what is a record before beginning to address specific issues/documents.
 
 William Joyce reported that he had sent letters to 55 agencies asking about the quaintly of records still held by the agency and had received 20 responses several which had identified additional sources for documents (no specifics)
 

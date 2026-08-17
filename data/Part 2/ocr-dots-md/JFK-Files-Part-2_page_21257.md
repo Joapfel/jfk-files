@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21257.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SAC, WFO (100-18032) [SL]
 Director, FBI (100-357510) [S]

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21293.png
-
-Convert to MarkdownWFQ/65-8517
+WFQ/65-8517
 
 SECRET
 

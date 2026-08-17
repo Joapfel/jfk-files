@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6625.png
-
-Convert to MarkdownAT-T-4, 5/68
+AT-T-4, 5/68
 
 In early May, 1968, STANLEY LEVISION complained to WILLIAM A. RUTHERFORD it was imperative that ABERNATHY operate SCLC with a firm hand and not spend all his time making public appearances. LEVISION cautioned that if ABERNATHY did not do so, he would find HARRY DELAFONTE and himself reluctant to assist him and SCLC.
 

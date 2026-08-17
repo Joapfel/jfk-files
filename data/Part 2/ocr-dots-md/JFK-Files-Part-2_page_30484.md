@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30484.png
-
-Convert to Markdown1-59
+1-59
 
 and we sat and stood around that radio and I believe it was
 in Pat Johnson's office -- her name was something else in

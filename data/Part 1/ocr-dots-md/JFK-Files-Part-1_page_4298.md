@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4298.png
-
-Convert to MarkdownMOVIMIENTO de PREPARACIÓN Revolucionaria
+MOVIMIENTO de PREPARACIÓN Revolucionaria
 
 2212 N. E. 3rd COURT
 MIAMI, FLORIDA

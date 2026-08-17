@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17077.png
-
-Convert to MarkdownSECRET FUNDING
+SECRET FUNDING
 (When Filled In)
 
 NO. ~~2~~ (DOCUMENT # FOR THIS PROJECT)

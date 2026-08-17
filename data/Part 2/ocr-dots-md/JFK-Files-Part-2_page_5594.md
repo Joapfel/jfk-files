@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5594.png
-
-Convert to Markdown13-00000
+13-00000
 
 LEVEL 1 - 15 OF 80 STORIES
 

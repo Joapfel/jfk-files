@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3919.png
-
-Convert to MarkdownAtt. No. 42 to EFGA-21693
+Att. No. 42 to EFGA-21693
 
 SUBJECT: F. LLEIRA, Jorge C. B. S.
 

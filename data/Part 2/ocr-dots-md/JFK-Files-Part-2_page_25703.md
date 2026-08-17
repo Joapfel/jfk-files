@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25703.png
-
-Convert to MarkdownHW 50955 DocId:32423630 Page 436
+HW 50955 DocId:32423630 Page 436
 
 <table><tr><td colspan="2">I NO IND</td></tr><tr><td>12 Oct 1959</td><td>☐ FILE IN CS FILE NOS</td></tr><tr><td rowspan="2">SS COPY</td><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
 

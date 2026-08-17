@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26669.png
-
-Convert to MarkdownTRIGUEROS Y GINARD
+TRIGUEROS Y GINARD
 
 AGENTES EN GENERAL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29106.png
-
-Convert to Markdown# Itemized Deductions
+# Itemized Deductions
 
 Department of the Treasury
 Internal Revenue Service

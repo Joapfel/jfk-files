@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35412.png
-
-Convert to Markdownnounced PRIO's activities against the Council and its efforts to unify
+nounced PRIO's activities against the Council and its efforts to unify
 the anti-Castro elements. He said that the people should be given an
 opportunity to elect their chief of state after Castro's overthrow and
 reestablishment of order in the island.

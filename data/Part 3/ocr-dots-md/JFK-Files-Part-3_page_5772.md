@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5772.png
-
-Convert to MarkdownAll information contained
+All information contained
 HEREIN IS UNCLASSIFIED
 DATE N-13-00 BY S.P. 2-8/7/86
 

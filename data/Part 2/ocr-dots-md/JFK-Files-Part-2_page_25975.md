@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25975.png
-
-Convert to Markdownstage. I remember General (Lyman L.) Lemnitzer was sitting in the meeting. He was the chairman of the JCS (Joint Chiefs of Staff) at the time, and he backed up my urging them to get some military planning in on that. After that, we started a special section to plan along with the Central-Intelligence Agency on that. And who the hell headed that?
+stage. I remember General (Lyman L.) Lemnitzer was sitting in the meeting. He was the chairman of the JCS (Joint Chiefs of Staff) at the time, and he backed up my urging them to get some military planning in on that. After that, we started a special section to plan along with the Central-Intelligence Agency on that. And who the hell headed that?
 
 O'BRIEN: This is yet in the Eisenhower administration.
 

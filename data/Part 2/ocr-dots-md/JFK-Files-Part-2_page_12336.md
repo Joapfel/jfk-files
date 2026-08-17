@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12336.png
-
-Convert to MarkdownUnder each unit show approximate membership and symbol numbers and positions of informants affording coverage. Where no informant coverage exists or is provided by sources who are not members, so indicate.
+Under each unit show approximate membership and symbol numbers and positions of informants affording coverage. Where no informant coverage exists or is provided by sources who are not members, so indicate.
 
 Include any additional pertinent information that may be helpful in overall evaluation, such as informants in other divisions who are occasionally used and highly placed informants who furnish area-wide, national, or international information.
 

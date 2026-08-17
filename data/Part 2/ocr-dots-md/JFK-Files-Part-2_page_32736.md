@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32736.png
-
-Convert to Markdownactivities in Cuba in the interests of hemispheric security.
+activities in Cuba in the interests of hemispheric security.
 
 4. The continued presence of Soviet military personnel in Cuba constituted an unacceptable intervention of foreign military power in the Western Hemisphere. Efforts continued with the USSR to obtain their removal as agreed.
 

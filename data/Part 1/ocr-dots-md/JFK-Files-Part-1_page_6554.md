@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6554.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO: Chief, Contact Division
 FROM: Allister Branch (Upton)

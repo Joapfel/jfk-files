@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22740.png
-
-Convert to Markdown1 we were not penetrated in conducting investigations to see if
+1 we were not penetrated in conducting investigations to see if
 2 in fact we were, which seems to give the impression that we
 3 are defensively oriented, and that was your main priority.
 4 Mr. Angleton. Well, I think that how could you have it

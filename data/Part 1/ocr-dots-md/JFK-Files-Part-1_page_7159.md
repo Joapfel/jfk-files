@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7159.png
-
-Convert to Markdown2.
+2.
 
 Subj told Loginov about an upcoming trip to Copenhagen, which he is to undertake in behalf of the Chief of Mexican Tourism, Austin Salvat (see attached letter). Loginov asked Subj if he were in Paris, to look up Ginette Palacci Porter, wife of the British NATO official. Subj said he wasn't sure of being in Paris, but he would try to see her if he could there.
 

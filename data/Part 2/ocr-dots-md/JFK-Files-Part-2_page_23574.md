@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23574.png
-
-Convert to MarkdownSeptember 1, 1961
+September 1, 1961
 
 MEMORANDUM FOR THE PRESIDENT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9534.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 RONNIE IRWIN, Detroit NCCF, at a rock concert to raise money for the NCCF Defense Fund on November 10, 1970, Wayne State University, Student Center Building, made a speech regarding the shooting of the Detroit Police Officers on October 24, 1970, and stated that the white radicals should support the Detroit 16. He stated that the "pigs" came down on the community and the NCCF responded, and that if community leaders had not interceded, the NCCF members would have been killed.
 

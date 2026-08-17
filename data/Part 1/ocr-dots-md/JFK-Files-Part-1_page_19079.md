@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19079.png
-
-Convert to Markdownof the first five days in the month. First, then, is a reference to the second day of the week, and so on. This is called a week. In England, it is thought that by working seven days a week, one can do all the work of the world. It is believed that this was taken from the Greek word for workmen, which means eight hours a day.
+of the first five days in the month. First, then, is a reference to the second day of the week, and so on. This is called a week. In England, it is thought that by working seven days a week, one can do all the work of the world. It is believed that this was taken from the Greek word for workmen, which means eight hours a day.
 
 In France, they have nine days a week, but these are divided into three parts of four days each. The first part begins at six o'clock in the morning and ends at six o'clock in the afternoon. The second part begins at six o'clock in the afternoon and ends at two o'clock in the night. The third part begins at two o'clock in the morning and ends at six o'clock in the morning.
 

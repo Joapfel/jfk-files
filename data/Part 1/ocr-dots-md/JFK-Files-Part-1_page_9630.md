@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9630.png
-
-Convert to MarkdownWICETRICH, Alfonso Rudolph
+WICETRICH, Alfonso Rudolph
 
 Panama
 

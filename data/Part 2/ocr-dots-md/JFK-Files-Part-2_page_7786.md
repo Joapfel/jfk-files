@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7786.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 26 February 1968, exempt under (b)(6); EX-895, 7
 March 1968; exempt under (b)(6); Kingston-4004,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10695.png
-
-Convert to Markdownunish information that could be used in a campaign of anonymous telephone calls or notes to his family or employer.
+unish information that could be used in a campaign of anonymous telephone calls or notes to his family or employer.
 
 During interviews of members, inferences or slight hints could be dropped indicating another specific member of the klavern as the source of information.
 

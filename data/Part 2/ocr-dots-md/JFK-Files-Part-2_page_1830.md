@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1830.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 SECTION V: REPORT OF STUDENT ACHIEVEMENT
 

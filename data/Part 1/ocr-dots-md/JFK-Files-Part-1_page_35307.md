@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35307.png
-
-Convert to MarkdownHE RECIBIDO de "Judicatura Cubana Democrática" la canti-
+HE RECIBIDO de "Judicatura Cubana Democrática" la canti-
 dad de Cien to conseruta y siete collares círculos
 importe de la asignación correspondiente al presente mes.
 SON $ 147.05

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19339.png
-
-Convert to MarkdownForm No. 38-5
+Form No. 38-5
 April 1947
 
 INCOMING CLASSIFIED MESSAGE

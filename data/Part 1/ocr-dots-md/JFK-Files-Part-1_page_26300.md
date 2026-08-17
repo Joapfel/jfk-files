@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_26300.png
-
-Convert to MarkdownNoviembre 6 de 1966. México D.P.
+Noviembre 6 de 1966. México D.P.
 
 Habiendo tomado parte en las graves discusiones surgidas entre Fidel Castro y Che Quevaro antes del conflicto de Santo Domingo, a proposito de las tácticas, líneas y actores a seguir en América Latina y que ocasionaron la desaparición del Che Quevara, me considero autorizado a escribir un testimonio político que desenmascare a Fidel Castro ante los revolucionarios de la América Latina como a un agente del stalinismo. La derrota de Caаманo, el asesinato de Ucoda el líder peruano, el crimen de Turoios etc. han sido ejecutados por agentes castristas, encargados de asesinar y destruir a todo aquel que difiera de la línea castrista. Meinera, Cruz y yo mismo hemos sido entregados por agentes tales como Livalde, Menendez y otros, para callar una verdad que debe ser conocida por los latinoamericanos. La próxima víctima es Yon Sosa y muchos más que en estos momentos se esconden de los asesinos. Mi testimonio sería político e ideologico ya que yo mismo escribí muchos de los artículos de Quevara, sin escatimar todos los nombres y detalles necesarios para desemmarcar a Fidel Castro y sus agentes.

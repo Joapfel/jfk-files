@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5179.png
-
-Convert to Markdown# SAN MATEO RA
+# SAN MATEO RA
 
 The San Mateo RA covers a large metropolitan area, including the San Francisco International Airport. There is a large volume of work at this airport and SAs WAYNE J. MORRISON, JOHN F. BRESLIN and EDWARD C. SERNETT have been instructed specifically to develop informants providing coverage of criminal matters relating to it. In this regard, the following two informants have been developed:
 

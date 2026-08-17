@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30488.png
-
-Convert to Markdown1-63
+1-63
 
 my initials on it, but I doubt it.
 

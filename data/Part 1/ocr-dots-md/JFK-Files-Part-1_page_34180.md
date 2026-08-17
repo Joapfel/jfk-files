@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34180.png
-
-Convert to MarkdownMiami, June 13, 1966
+Miami, June 13, 1966
 
 Mr. Jaime Lozano
 President,

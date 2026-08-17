@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34963.png
-
-Convert to MarkdownMiami, Fla., May 15, 1967
+Miami, Fla., May 15, 1967
 
 Dear Sir:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14138.png
-
-Convert to Markdown1967
+1967
 
 WHD AGENT B.O.
 

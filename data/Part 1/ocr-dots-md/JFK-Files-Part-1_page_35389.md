@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35389.png
-
-Convert to Markdown-2-
+-2-
 
 Miro declared that internal propaganda and clandestine action in Cuba could not be delayed any longer. I agreed on the necessity, and that it was believed that measures are necessary to forestall in Cuba the opposition to Castro. "The people are against him!" declared Miro. "But increase it," I answered. Miro then stated "If this action doesn't stop from the Consejo (CRC) - not as an independent agency, but in close contact with you (the Agency), - what we forestall is a complete disorder in Cuba, and afterwards no government can succeed; secondly, if we do not have a central plan, and carry it out well in a more or less limited period of time, there will rarely be more shooting of people (prisoners) by Fidel."
 

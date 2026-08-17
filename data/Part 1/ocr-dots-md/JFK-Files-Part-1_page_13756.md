@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13756.png
-
-Convert to Markdown# INFORMATION REPORT
+# INFORMATION REPORT
 ## CENTRAL INTELLIGENCE AGENCY
 
 This material contains information affecting the National Defense of the United States within the meaning of the Espionage Law Title 18, U.S.C. Sections 703 and 704, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.

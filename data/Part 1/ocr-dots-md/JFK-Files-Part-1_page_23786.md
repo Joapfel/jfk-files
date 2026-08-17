@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23786.png
-
-Convert to MarkdownSECRET GFA-541
+SECRET GFA-541
 
 he can enrol it as a 'walking credential' in Algiers a unique way to suggest to himself is one of iden A's "bors". It would be better on the other hand that this situation provides iden A a unique means of monitoring STERENT/1's activities and contacts.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2053.png
-
-Convert to MarkdownCG0014 0052317
+CG0014 0052317
 
 RR HQ
 DE CG

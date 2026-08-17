@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29403.png
-
-Convert to Markdown# Classification: UUJ LIMITED
+# Classification: UUJ LIMITED
 
 (This form is to be used for material extracted from CIA-controlled documents.)
 

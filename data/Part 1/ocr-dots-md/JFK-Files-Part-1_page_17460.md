@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17460.png
-
-Convert to Markdown# SECRET
+# SECRET
 ## LIEBBOY Project Costs
 
 For the period 1 February 1962 through 31 January 1963, it is estimated that the LIENVOY project costs will be approximately $65,240. Of this total it is estimated that $26,350 will be spent in fiscal year 1962 and $18,890 will be spent in fiscal year 1963.

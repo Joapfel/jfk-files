@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9197.png
-
-Convert to MarkdownI asked whether MacKnight or anyone in State know of CIA's connection with Swen. He said he did not know, though he dared say Mac Knight might. He said he would be willing to call on MacKnight to discuss State Dept. assistance in getting Swen stuff disseminated, representing himself merely as a private citizen.
+I asked whether MacKnight or anyone in State know of CIA's connection with Swen. He said he did not know, though he dared say Mac Knight might. He said he would be willing to call on MacKnight to discuss State Dept. assistance in getting Swen stuff disseminated, representing himself merely as a private citizen.
 
 I said I hadn't and wouldn't make any mention of Swen to anyone at State.
 

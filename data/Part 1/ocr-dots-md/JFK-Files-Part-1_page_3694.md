@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3694.png
-
-Convert to MarkdownCABLE SECRETARIAT DISSEMINATION
+CABLE SECRETARIAT DISSEMINATION
 
 Clipped message * TOTAL COPIES
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18964.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">DURATION</th><th rowspan="2">POSITION</th><th rowspan="2">NAME AND ADDRESS OF EMPLOYER, OR REASON FOR UNEMPLOYMENT</th><th rowspan="2">STARTING AND FINAL SALARY PER ANNUM</th></tr><tr><td>FROM</td><td>TO</td></tr></thead><tbody><tr><td>Dec 1943</td><td>Jan 1944</td><td>Personal and Placement Clerk</td><td>Off/war Relocation Authority<br/>Washington, DC</td><td>$1620.<br/>1620.</td></tr><tr><td>Sept 1941</td><td>Jan 1942</td><td>Photographic Technic and (part time while in school)</td><td>Elko Photographic Finishing Co. (Oklahoma City, Oklahoma)<br/>approx 20.00 per wk</td><td>12.50 per wk</td></tr></tbody></table>
 

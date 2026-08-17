@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25345.png
-
-Convert to MarkdownY Mabou
+Y Mabou
 Rosselli
 Hartley
 O’Connell

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10165.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. L-7 provided the following list of telephones within the
 Cuban Embassy compound:

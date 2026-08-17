@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29305.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>REASON FOR CLEARANCE</td>

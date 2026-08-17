@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24189.png
-
-Convert to MarkdownTAB D
+TAB D
 Page 4
 
 MHIRONY This proprietary was established for the use of the insurance complex, but it was never activated. The corporate shell was sold in 1974 to the un-witting attorneys who served as resident agents. No agreement was made with the purchaser for the continued use of the entity, and, to date, no such use has been made of the entity.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13605.png
-
-Convert to Markdowncb 14
+cb 14
 
 2394
 

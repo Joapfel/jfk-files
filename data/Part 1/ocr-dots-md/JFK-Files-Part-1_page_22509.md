@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22509.png
-
-Convert to MarkdownSECRET-FILES ONLY
+SECRET-FILES ONLY
 
 Rafael Trujillo, the Dominican dictator, was assassinated at about ten p.m. on the night of 30 May 1961. It was Trujillo's custom to visit one of his mistresses at his ranch at San Cristobal about once a week. On most of his travels he rode in a Chrysler with bullet-proof glass and with security guards riding in accompanying cars. He departed from this practice on his periodic trips to San Cristobal and substituted a highly stereotyped pattern of action: after his nightly walk, he dismissed his companions; changed into a khaki uniform; and set out for San Cristobal in an unescorted 1957 Chevrolet, always driven by the same chauffeur.
 

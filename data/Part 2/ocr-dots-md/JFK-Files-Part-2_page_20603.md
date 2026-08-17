@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20603.png
-
-Convert to MarkdownRE: ABORTION PROJECT COALITION
+RE: ABORTION PROJECT COALITION
 CLEVELAND, OHIO
 
 On December 3, 1971 a second source, reliable,

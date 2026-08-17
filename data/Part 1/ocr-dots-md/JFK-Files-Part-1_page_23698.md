@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23698.png
-
-Convert to Markdown-4-
+-4-
 
 (3) Cdte. Raul Diaz Arguelles, Chief of Artillery of the Occidental Army.
 

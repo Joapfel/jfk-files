@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3301.png
-
-Convert to Markdown# Medical Journalist, Jr. Leopoldo
+# Medical Journalist, Jr. Leopoldo
 
 ## A.A.U.J.O. Leopoldo (continued)
 

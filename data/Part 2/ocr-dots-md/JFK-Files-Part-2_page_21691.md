@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21691.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 that is the only one he knows, was the Guaranty Trust. There
 was someone else, I don't know about it.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8833.png
-
-Convert to MarkdownS-E-C-E-T
+S-E-C-E-T
 
 NO FOREIGN DISSEH
 

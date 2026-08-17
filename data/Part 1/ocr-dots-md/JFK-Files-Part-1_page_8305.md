@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8305.png
-
-Convert to Markdown20 June 1969
+20 June 1969
 
 MEMORANDUM FOR THE RECORD
 

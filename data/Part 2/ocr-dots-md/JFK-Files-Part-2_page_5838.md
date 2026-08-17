@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5838.png
-
-Convert to Markdown# Attachment III
+# Attachment III
 
 ## Records Declassified and Released.
 

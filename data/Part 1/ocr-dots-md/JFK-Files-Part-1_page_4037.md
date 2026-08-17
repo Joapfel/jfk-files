@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4037.png
-
-Convert to Markdownyear of production, and to 22 in the third year.
+year of production, and to 22 in the third year.
 
 **Sundry the Balance of Payments:** The shrimpboat fleets in Nicaragua have expanded to some 10 to 15 boats annually. These boats are bought entirely equipped from Mexico and the United States. Their total value within a period of three years extends from a minimum of US$ 900,000 to a maximum of US$ 2,025,000. Our production during this period will be 10 shrimpboats at a value of US$ 560,000 which will remain in the country.
 

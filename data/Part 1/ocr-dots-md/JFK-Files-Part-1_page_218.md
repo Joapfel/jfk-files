@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_218.png
-
-Convert to MarkdownSECRET
+SECRET
 
 c. Item 17 - William Harvey -- Approximately 50 documents, virtually all of which concern the establishment, maintenance, and use of cover for Subject during his career with the Agency as a Staff Employee from 1947 to 1967.
 

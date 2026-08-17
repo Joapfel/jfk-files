@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16997.png
-
-Convert to Markdown# BPP GENERAL ORDERS
+# BPP GENERAL ORDERS
 
 Chicago area BPP leaders have warned all members that if they are arrested for any activity which they activated, they will be premantly expelled from the party. This order is allegedly good until canceled. It was made with the idea that Panthers should not ruin any chances to bring charges against the police officers conducting the raid at 2337 West Monroe on 12/4/69.
 

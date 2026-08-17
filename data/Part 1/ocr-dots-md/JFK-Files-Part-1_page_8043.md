@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8043.png
-
-Convert to MarkdownReport No: TKH-1510
+Report No: TKH-1510
 
 Date February 20, 1952
 

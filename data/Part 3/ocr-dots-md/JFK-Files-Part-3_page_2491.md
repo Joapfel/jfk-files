@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2491.png
-
-Convert to MarkdownLA 100-24345C
+LA 100-24345C
 
 4. Memorandum from SA EWING G. LAYHEW to SAC, Los Angeles, dated 11/26/62.
 

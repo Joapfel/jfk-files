@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26915.png
-
-Convert to Markdown14-0000
+14-0000
 
 CONFIDENTIAL
 (When filled in)

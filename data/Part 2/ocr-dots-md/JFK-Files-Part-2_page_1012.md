@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1012.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SECURITY INFORMATION
 

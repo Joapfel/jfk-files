@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3553.png
-
-Convert to Markdown6. to report civil disturbance information obtained from state and local law enforcement agencies to the Attorney General for the purpose of determining the need to use federal military force under 10 U.S.C. 331 et seq.;
+6. to report civil disturbance information obtained from state and local law enforcement agencies to the Attorney General for the purpose of determining the need to use federal military force under 10 U.S.C. 331 et seq.;
 
 7. to compile such lists of persons arrested or convicted for specific crimes as may be necessary for use in connection with the investigation of such crimes;
 

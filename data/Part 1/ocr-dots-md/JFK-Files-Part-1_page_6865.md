@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6865.png
-
-Convert to MarkdownSECRET-CONFIRM
+SECRET-CONFIRM
 CONTROLL CONTROL
 
 TO: Director

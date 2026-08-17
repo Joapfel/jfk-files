@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_578.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CLASSIFICATION</td></tr><tr><td>SECRET</td></tr></table>
 

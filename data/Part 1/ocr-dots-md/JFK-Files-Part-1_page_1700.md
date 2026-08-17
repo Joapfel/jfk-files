@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1700.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO. 33-27 (20-46)
 OCT 1951

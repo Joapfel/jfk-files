@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8082.png
-
-Convert to MarkdownT 351859 #14491
+T 351859 #14491
 
 TO:252203; OCT 76
 

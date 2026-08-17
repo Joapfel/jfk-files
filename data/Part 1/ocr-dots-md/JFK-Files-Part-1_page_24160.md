@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24160.png
-
-Convert to Markdownthe pad which contains the two remaining carbon sheets (No. 2 detached and inserted in the back of the pad, No. 3 still bound in the pad.) The 11 October message is clearly legible to the naked eye on carbon No. 2.
+the pad which contains the two remaining carbon sheets (No. 2 detached and inserted in the back of the pad, No. 3 still bound in the pad.) The 11 October message is clearly legible to the naked eye on carbon No. 2.
 
 4. Of greater concern to LCPIPIT, however, were the following additional comments of Paris Station TECHS regarding the 11 October message:
 

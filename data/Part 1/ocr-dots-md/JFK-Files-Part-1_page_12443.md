@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12443.png
-
-Convert to MarkdownCIRAS RECONSIDACIONES
+CIRAS RECONSIDACIONES
 
 Las recomendaciones que a continuación hacemos guardan relación -
 directa, aunque no aparente, con el objeto mismo de nuestro estudio

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1007.png
-
-Convert to Markdown14-00000
+14-00000
 
 HOWARD, Lawrence ("Mexican" Larry HOWARD, Larry HOWARD)
 

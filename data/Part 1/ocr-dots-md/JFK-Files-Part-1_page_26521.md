@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26521.png
-
-Convert to Markdownbulletin or even less circulate anything, and that we would have to go looking for them. With these tactics of delay and of not attending the meetings they are trying to pressure us, to see --- to make us feel, they think, the need we have of them.
+bulletin or even less circulate anything, and that we would have to go looking for them. With these tactics of delay and of not attending the meetings they are trying to pressure us, to see --- to make us feel, they think, the need we have of them.
 
 That is not the way the revolution is carried on; that is not the way the process can be advanced. But this we shall discuss up there.
 However, any decision you up there may want to make after discussion will be acceded to and respected by us.

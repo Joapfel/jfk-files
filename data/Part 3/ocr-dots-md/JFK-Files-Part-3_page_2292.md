@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2292.png
-
-Convert to MarkdownSEC. 3. Sections 4 through 12 of this Act are enacted --
+SEC. 3. Sections 4 through 12 of this Act are enacted --
 (1) as an exercise of the rulemaking power of the Senate, and
 as such they shall be considered as part of the Standing Rules of the
 Senate, and such rules shall supersede other rules only to the extent

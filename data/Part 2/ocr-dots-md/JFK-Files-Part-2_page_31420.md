@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31420.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>Reviewed By AFOSI<br/>For Public Disclosure<br/>In Accordance With<br/>JFKARCA, 1992</td>
    </tr>

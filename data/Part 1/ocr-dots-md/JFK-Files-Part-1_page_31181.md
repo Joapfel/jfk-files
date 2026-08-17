@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31181.png
-
-Convert to MarkdownSECRET
+SECRET
 CLASSIFICATION
 
 <table><tr><td>SECTION D</td></tr><tr><td>NARRATIVE COMMENTS</td></tr></table>

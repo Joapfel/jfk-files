@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33719.png
-
-Convert to MarkdownJanuary 23, 1952
+January 23, 1952
 
 Dear Allen:
 

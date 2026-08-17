@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29846.png
-
-Convert to Markdown5 April 1948
+5 April 1948
 
 TO : David Edmund Murphy
 FROM : David Edmund Murphy

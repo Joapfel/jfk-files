@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21761.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 ## SENSITIVE
 
 H. TV intrusion

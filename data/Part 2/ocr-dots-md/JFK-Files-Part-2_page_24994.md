@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24994.png
-
-Convert to MarkdownSHELBURNE: lynch
+SHELBURNE: lynch
 
 TOP SECRET
 

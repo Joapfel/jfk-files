@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7924.png
-
-Convert to MarkdownJames G. Beasley
+James G. Beasley
 Clay Blair
 David Calcutt
 Phil M. Canale

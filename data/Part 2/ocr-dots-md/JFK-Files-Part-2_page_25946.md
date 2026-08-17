@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25946.png
-
-Convert to MarkdownSeptember 19, 1976
+September 19, 1976
 
 # Could Rosselli Have Linked Castro Plot to JFK Death?
 

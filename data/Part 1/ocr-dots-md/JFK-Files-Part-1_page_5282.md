@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5282.png
-
-Convert to Markdown14-0000
+14-0000
 
 DEPT OF STATE TELEGRAMS
 FROM PORT AUPRINCE EMBTEL 1188

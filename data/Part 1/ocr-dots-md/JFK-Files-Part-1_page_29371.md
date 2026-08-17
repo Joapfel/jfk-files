@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29371.png
-
-Convert to MarkdownNOTE FOR FILE
+NOTE FOR FILE
 
 SUBJECT: Irving K. Devuono (P)
 

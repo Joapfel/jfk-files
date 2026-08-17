@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9593.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 spread of communism in the United States by use of guerrilla tactics. DE PUGH is currently incarcerated in a Federal penitentiary for violation of the Federal Firearms Act.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28603.png
-
-Convert to MarkdownNovember 15, 1976
+November 15, 1976
 
 Mr. Richard A. Sprague
 Chief Counsel and Staff Director

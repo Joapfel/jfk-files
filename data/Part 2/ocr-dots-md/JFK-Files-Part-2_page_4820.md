@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4820.png
-
-Convert to MarkdownSECRET
+SECRET
 
 that I had made in doing the study on DCS, that come what may
 with my report, whether it was a good report or a lousy report,

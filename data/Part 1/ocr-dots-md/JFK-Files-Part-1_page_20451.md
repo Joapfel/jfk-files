@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20451.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="4">STANDARD FORM 52<br/>Phone Number of the<br/>D. C. TELEPHONE NUMBER<br/>January 1, 1978<br/>NATIONAL CHAPTER #1</td>

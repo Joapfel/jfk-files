@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3.png
-
-Convert to MarkdownFor most employees of the Federal government, work continues unchanged when a new man moves into the White House.
+For most employees of the Federal government, work continues unchanged when a new man moves into the White House.
 
 Employees of the Bureau of Reclamation, the Labor-Management Services Administration, or the Commodity Exchange Authority
 

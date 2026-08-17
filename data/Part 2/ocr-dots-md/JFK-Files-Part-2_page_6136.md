@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6136.png
-
-Convert to Markdown# End Footnotes-
+# End Footnotes-
 
 Second, although the Commission had access to some high-quality intelligence information, it did not receive everything. The CIA, FBI, and Attorney General Robert F. Kennedy failed to reveal information that would have helped identify a motive for a conspiracy. n44 The failure to disclose all information to the Commission was particularly damaging because of the distinguished character of its seven members. n45 Its chairman was Chief Justice Earl Warren, a person noted for probity and fairness. n46 The Commission was really divided into two subgroups. Four of the members - Warren, Hale Boggs, Gerald Ford, and John Sherman Cooper - had relatively little experience with intelligence matters; however, the other three - Richard Russell, Allen Dulles, and John J. McCloy - were fully conversant with national security issues and the sources and methods used by the intelligence services. n47
 

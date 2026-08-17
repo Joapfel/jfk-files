@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10981.png
-
-Convert to Markdown3. We could endeavor to work out a division of responsibility and work in this area whereby the Bureau and CIA would each have certain primary areas of operation. For example, the FBI could make known its willingness to contribute more heavily in support of U. S. foreign intelligence collection efforts and propose this field be broken into two categories; namely, technical coverage (this would include Anagram operations) and live informant development among foreign diplomats. We could propose that the FBI continue to operate exclusively in the first category (technical coverage) with CIA continuing to stay entirely out of this field.
+3. We could endeavor to work out a division of responsibility and work in this area whereby the Bureau and CIA would each have certain primary areas of operation. For example, the FBI could make known its willingness to contribute more heavily in support of U. S. foreign intelligence collection efforts and propose this field be broken into two categories; namely, technical coverage (this would include Anagram operations) and live informant development among foreign diplomats. We could propose that the FBI continue to operate exclusively in the first category (technical coverage) with CIA continuing to stay entirely out of this field.
 
 In this regard, the Bureau is better equipped than CIA to handle technical surveillances and Anagram operations by reason of our long experience and expertise in this area.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11373.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. On Friday, 24 February, PARMERS spent most of the day visiting alone with LITAMIL-9 at the latter's apartment. By the end of the day LITAMIL-9 had softened a little and had revealed some of the personality traits mentioned below. LITAMIL-9 also agreed to communicate with his Case Officer through open code in letters to his brother in Mexico City. He also was willing to meet inside KUBARK, preferably if the contact was a diplomat but not Cuban. He agreed to take a set of cuff links as bona fides. As a suggestion, he mentioned that his friend, The Swiss Ambassador, now serving in Madrid, Spain, would be an ideal contact. In revealing how such a contact could be performed and in discussing LITAMIL-9 modus vivendi in Cuba, there was considerable discussions concerning operational Security and clandestine procedures LITAMIL-9 can apply while in Cuba.
 

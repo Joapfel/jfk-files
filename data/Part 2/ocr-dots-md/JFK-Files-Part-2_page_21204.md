@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21204.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 publicized in the Soviet press indicates that he had no
 intimate connection with this case

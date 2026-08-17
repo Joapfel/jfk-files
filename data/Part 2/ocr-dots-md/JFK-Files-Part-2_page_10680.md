@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10680.png
-
-Convert to MarkdownNK 89-56
+NK 89-56
 
 During the past two months numerous attempts have been made in person and telephonically to contact PHILIP TRACY, reporter, through the "Village Voice". On each occasion receptionist personnel of the "Village Voice" advised that TRACY was not there at the present time, that they had no idea as to how to contact him nor a telephone number where he could be reached, but they would take a message for him. On each occasion a message was left but never answered.
 

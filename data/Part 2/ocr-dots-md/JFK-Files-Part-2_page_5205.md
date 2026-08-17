@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5205.png
-
-Convert to MarkdownQuestions for Follow-up DO Records Briefing
+Questions for Follow-up DO Records Briefing
 
 April 1, 1997
 

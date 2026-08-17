@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_30146.png
-
-Convert to MarkdownNW 88326 DocId:32269709 Page 47
+NW 88326 DocId:32269709 Page 47

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4304.png
-
-Convert to Markdown(2)
+(2)
 
 Estancia en Ricarraya desde el 18 de agosto al 20. de Agosto-- $ 30.00
 (solo comida)

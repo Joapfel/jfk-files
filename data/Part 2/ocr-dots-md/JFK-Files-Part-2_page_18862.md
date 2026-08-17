@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18862.png
-
-Convert to MarkdownRe: Nonna Nikolacuna Fedoseeva
+Re: Nonna Nikolacuna Fedoseeva
 
 they have been told by the Russians they probably would be surveilled as a result of their contact with the Russians. (c)
 

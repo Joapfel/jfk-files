@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32096.png
-
-Convert to MarkdownINSTRUCTIONS TO EMPLOYING AGENCY
+INSTRUCTIONS TO EMPLOYING AGENCY
 
 1. Who must file.— All employees not excluded by law or regulation from insurance coverage, including those who have previously waived coverage, are required to complete and file Standard Form 176-T. Employees who are in the service on February 14, 1968, as well as those who are appointed after that date but before April 14, 1968, must file the form.
 

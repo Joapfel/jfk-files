@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22616.png
-
-Convert to Markdown1
+1
 
 For example, we had certain political overtones where
 we were used in an affirmative way under President Eisenhower.

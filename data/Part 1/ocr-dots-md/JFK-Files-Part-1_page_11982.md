@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11982.png
-
-Convert to MarkdownJohn," Branch mutters. "I figured we'd be in for some scrapes, but I never thought it would start before we even got there." Then he's all business. "I've got to give you a quick briefing on our main man while we have the chance. We may not have as much leisure time as we expected."
+John," Branch mutters. "I figured we'd be in for some scrapes, but I never thought it would start before we even got there." Then he's all business. "I've got to give you a quick briefing on our main man while we have the chance. We may not have as much leisure time as we expected."
 
 Branch pulls down their dinner trays and spreads out a pile of notes and news clippings. Then he pulls out a police mug shot. "Meet Orlando Bosch," he says.
 

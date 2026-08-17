@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31395.png
-
-Convert to MarkdownThe Honorable Jose H. Gru
+The Honorable Jose H. Gru
 
 October 31, 1952
 

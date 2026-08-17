@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17439.png
-
-Convert to MarkdownA. USE LIENVOY AS DESCRIBED.
+A. USE LIENVOY AS DESCRIBED.
 
 B. USE OF MP-4 WITH 4-LAYER DIODE.
 

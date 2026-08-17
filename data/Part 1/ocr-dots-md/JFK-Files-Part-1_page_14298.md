@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14298.png
-
-Convert to MarkdownS-E-C-R-E-I
+S-E-C-R-E-I
 
 0032 RUIZ
 SEX M DJB C17                  POD HOND

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21499.png
-
-Convert to Markdown# INTRODUCTION
+# INTRODUCTION
 
 The following summary and analysis is not intended to be all inclusive, that is to contain a specific comment on all organizational, operational, personality and case type information furnished by Yuriy Ivanovich NOSENKO. To attempt to do so would be repetitious and confusing to the reader and would not be of material benefit in the formation of logical conclusions concerning the rather limited areas of primary concern.
 

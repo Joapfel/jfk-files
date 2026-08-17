@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11094.png
-
-Convert to MarkdownMemorandum to Mr. Walsh
+Memorandum to Mr. Walsh
 Re: Senate Select Committee on
 Intelligence Activities
 

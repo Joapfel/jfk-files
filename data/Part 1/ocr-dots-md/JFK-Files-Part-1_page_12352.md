@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12352.png
-
-Convert to MarkdownSTATE
+STATE
 28 FEB 73
 
 UNCLASSIFIED

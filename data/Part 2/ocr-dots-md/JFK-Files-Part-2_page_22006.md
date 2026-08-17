@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22006.png
-
-Convert to Markdown438-3
+438-3
 
 INTERVIEW AND MEETING SUMMARY
 

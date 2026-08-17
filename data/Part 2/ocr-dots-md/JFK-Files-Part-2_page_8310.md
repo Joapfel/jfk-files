@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8310.png
-
-Convert to MarkdownSECURITY: CONFIDENTIAL
+SECURITY: CONFIDENTIAL
 
 5 HENS 588
 

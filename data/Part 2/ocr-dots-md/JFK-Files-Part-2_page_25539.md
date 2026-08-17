@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25539.png
-
-Convert to Markdown-39-
+-39-
 
 put it all in a box, right down to every piece. I
 ruined my rugs and everything. And Uncle Al would

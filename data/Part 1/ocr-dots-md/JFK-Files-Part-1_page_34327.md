@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34327.png
-
-Convert to MarkdownD.- Other trade operations.
+D.- Other trade operations.
 
 Bosidos the aid sugar purchases, Japan is very active in its trade relations with Communist Cuba; trade relations that totaled US$ 87 million for 1964, - such represented an increase of 24% over 1963.
 

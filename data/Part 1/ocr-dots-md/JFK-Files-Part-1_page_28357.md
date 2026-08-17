@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28357.png
-
-Convert to Markdown18 Oct 66
+18 Oct 66
 
 C/CPO:
 

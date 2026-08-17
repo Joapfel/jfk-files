@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34066.png
-
-Convert to Markdown<table><thead><tr><th>PROCESSING</th><th></th><th></th></tr><tr><td>PROPOSED</td><td>ACTION</td><td>ACCOMPLISHED</td></tr></thead><tbody><tr><td>X</td><td>MARKED FOR INDEXING<br/>NO INDEXING REQUIRED</td><td></td></tr><tr><td colspan="2">ONLY QUALIFIED<br/>HEADQUARTERS DESK<br/>CAN DOGE INDEXING</td><td></td></tr><tr><td colspan="2">ABSTRACT</td><td></td></tr><tr><td colspan="2">MICROFILM</td><td></td></tr></tbody></table>
+<table><thead><tr><th>PROCESSING</th><th></th><th></th></tr><tr><td>PROPOSED</td><td>ACTION</td><td>ACCOMPLISHED</td></tr></thead><tbody><tr><td>X</td><td>MARKED FOR INDEXING<br/>NO INDEXING REQUIRED</td><td></td></tr><tr><td colspan="2">ONLY QUALIFIED<br/>HEADQUARTERS DESK<br/>CAN DOGE INDEXING</td><td></td></tr><tr><td colspan="2">ABSTRACT</td><td></td></tr><tr><td colspan="2">MICROFILM</td><td></td></tr></tbody></table>
 
 <table><tr><td>DISPATCH</td></tr><tr><td>CLASSIFICATION</td></tr><tr><td>SECRET</td></tr></table>
 

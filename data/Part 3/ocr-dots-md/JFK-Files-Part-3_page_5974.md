@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5974.png
-
-Convert to MarkdownMr. W. G. Sullivam
+Mr. W. G. Sullivam
 
 11/12/64
 

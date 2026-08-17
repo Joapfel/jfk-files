@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16864.png
-
-Convert to MarkdownBox number two consisted of the following:
+Box number two consisted of the following:
 
 1. Man's black with white pin dot suit coat identified as FBI Laboratory number Q 32. Also included on the marking were two letter "Z's" to indicate that possibly the coat might have been examined by SA ROBERT ZIMMERS, FBI Laboratory, who did the balistics examinations in this case.
 

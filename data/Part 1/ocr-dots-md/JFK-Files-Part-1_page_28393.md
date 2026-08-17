@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28393.png
-
-Convert to MarkdownMr. Edward C. Tichborn
+Mr. Edward C. Tichborn
 
 Dear Mr. Tichborn:
 

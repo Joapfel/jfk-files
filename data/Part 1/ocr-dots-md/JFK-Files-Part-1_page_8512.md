@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_8512.png
-
-Convert to Markdown<table><tr><td>Flaca N° 461-17 - Ctyne Dodge Particular - modelo 1966 dado de alta en Mayo de 1966 a nombre de IGACIO MARTINEZ CARL INTEIRO con domicilio en las calles de Mirineos Nº 128 colonia cortales, zona postal 13 D. F. motor 605554 sedán.</td></tr><tr><td>Atentamente X-10</td></tr></table>
+<table><tr><td>Flaca N° 461-17 - Ctyne Dodge Particular - modelo 1966 dado de alta en Mayo de 1966 a nombre de IGACIO MARTINEZ CARL INTEIRO con domicilio en las calles de Mirineos Nº 128 colonia cortales, zona postal 13 D. F. motor 605554 sedán.</td></tr><tr><td>Atentamente X-10</td></tr></table>

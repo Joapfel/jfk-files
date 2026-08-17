@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22126.png
-
-Convert to Markdown285.
+285.
 
 F. <u>January 1962 to January 1964</u> (Tourist Department)
 

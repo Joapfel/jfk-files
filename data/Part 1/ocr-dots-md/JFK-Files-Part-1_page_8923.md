@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8923.png
-
-Convert to Markdown14-00000
+14-00000
 
 JOHN M. WHITTEN
 C/WH 3

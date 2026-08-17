@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34926.png
-
-Convert to Markdown6 OCT 1967
+6 OCT 1967
 
 NOTE FOR : Nancy Gratz
 

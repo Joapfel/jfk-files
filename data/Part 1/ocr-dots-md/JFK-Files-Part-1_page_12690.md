@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12690.png
-
-Convert to MarkdownSUBJECT: RLY/INDUSTRY/SOCIAL/LANIER>Status of Station Liaison Relationships
+SUBJECT: RLY/INDUSTRY/SOCIAL/LANIER>Status of Station Liaison Relationships
 
 REP: CARLIS 20841 dated 19 May 75
 

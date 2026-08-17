@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25441.png
-
-Convert to Markdown15 April 1970
+15 April 1970
 
 MEMORANDUM FOR THE RECORD
 

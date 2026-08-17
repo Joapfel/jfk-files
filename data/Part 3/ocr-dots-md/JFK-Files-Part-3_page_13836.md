@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13836.png
-
-Convert to Markdown**S-E-C-R-E-T**
+**S-E-C-R-E-T**
 **NO FOREIGN DISSEM**
 
 <table><tr><td>COUNTRY</td><td>Argentina/Cuba</td></tr><tr><td>SUBJECT</td><td>Training of Argentine Guerrillas in Cuba</td></tr><tr><td>DATE OF INFO.</td><td>July - December 1962</td></tr><tr><td>PLACE & DATE ACQ.</td><td>Spain, Madrid (7 January 1963)</td></tr></table>

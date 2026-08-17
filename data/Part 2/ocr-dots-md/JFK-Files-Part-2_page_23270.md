@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23270.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 and we will take that up at some point in the future. But you have obviously had a good deal of experience at the policy level in the Agency and we like to take advantage of that.
 

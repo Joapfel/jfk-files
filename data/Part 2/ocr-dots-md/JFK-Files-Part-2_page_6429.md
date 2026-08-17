@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6429.png
-
-Convert to Markdownb. **Concept:** This to be accomplished by introducing a known biological agent into jet fuel storage facilities. This agent flourishes in jet fuel and grows until it consumes all the space inside the tank.
+b. **Concept:** This to be accomplished by introducing a known biological agent into jet fuel storage facilities. This agent flourishes in jet fuel and grows until it consumes all the space inside the tank.
 
 9. Operation PHANTOM:
 

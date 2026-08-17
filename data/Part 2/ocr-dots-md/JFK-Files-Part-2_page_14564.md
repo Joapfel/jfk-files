@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14564.png
-
-Convert to Markdown# Office Memo Indum • UNITED STATES GOVERNMENT
+# Office Memo Indum • UNITED STATES GOVERNMENT
 
 TO : A. H. Belmont
 1 - Belmont

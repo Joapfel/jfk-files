@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23400.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 by a rifle, that would be the opening of the hunting season.
 

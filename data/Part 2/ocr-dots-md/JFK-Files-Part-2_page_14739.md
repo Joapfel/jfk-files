@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14739.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">FBI</th></tr></thead><tbody><tr><td>CONFIDENTIAL</td><td>Date: 10/10/68</td></tr><tr><td colspan="2">(Type in plaintext or code)</td></tr><tr><td>Transmit the following in</td><td>AIRTEL</td></tr><tr><td>Via</td><td>(Priority)</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">FBI</th></tr></thead><tbody><tr><td>CONFIDENTIAL</td><td>Date: 10/10/68</td></tr><tr><td colspan="2">(Type in plaintext or code)</td></tr><tr><td>Transmit the following in</td><td>AIRTEL</td></tr><tr><td>Via</td><td>(Priority)</td></tr></tbody></table>
 
 TO: DIRECTOR, FBI (105-174254)
 

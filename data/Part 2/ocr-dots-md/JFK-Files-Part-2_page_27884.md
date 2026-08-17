@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27884.png
-
-Convert to MarkdownTO WHOM IT MAY CONCERN
+TO WHOM IT MAY CONCERN
 
 Please consider this verification that
 Denise L. McCray began employment, permanent full-

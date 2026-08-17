@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35009.png
-
-Convert to MarkdownCUBIC DECIMAL arithm. print
+CUBIC DECIMAL arithm. print
 FINANCE DEPT. COMMITTEE
 GENERAL EXPENSES
 "TABLE AND SCHEMA"

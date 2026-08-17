@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28975.png
-
-Convert to Markdown<table><tr><td>REIDENT<br/>540</td></tr></table>
+<table><tr><td>REIDENT<br/>540</td></tr></table>
 
 INDIVIDUAL
 CALIFORNIA

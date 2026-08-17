@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19343.png
-
-Convert to MarkdownForm No. 33-8
+Form No. 33-8
 
 April 1967
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21846.png
-
-Convert to Markdown4.
+4.
 
 officer of his financial difficulties and repeated his offer to sell two items of information. He said that the need for money was his immediate motive for contacting CIA, although in the ensuing discussion he said also that he was dissatisfied with the Communist regime in the Soviet Union. NOSENKO emphasized, nevertheless, that he had no intention of becoming an American agent--this was to be a one-time transaction, and after that he would have no further contact with CIA,
 

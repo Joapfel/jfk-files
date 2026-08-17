@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11851.png
-
-Convert to Markdown# ADEQUACY OF PERSONNEL
+# ADEQUACY OF PERSONNEL
 CLERICAL
 
 The following comments are made concerning reduction of clerical personnel in the Internal Security and Research Branch.

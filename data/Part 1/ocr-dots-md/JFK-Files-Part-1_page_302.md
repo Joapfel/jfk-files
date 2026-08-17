@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_302.png
-
-Convert to Markdown14-00000
+14-00000
 
 3. DAVID U. GROVES
 8. John P. Dimmer, Jr. Retired

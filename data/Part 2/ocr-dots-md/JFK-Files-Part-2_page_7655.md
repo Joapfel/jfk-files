@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7655.png
-
-Convert to Markdowntion in recent years that might have been introduced in the Congress to make an attack upon the President a Federal offense?
+tion in recent years that might have been introduced in the Congress to make an attack upon the President a Federal offense?
 
 Mr. BELMONT. I do know that there is legislation presently pending.
 

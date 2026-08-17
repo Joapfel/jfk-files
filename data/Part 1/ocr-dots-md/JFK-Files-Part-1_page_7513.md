@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7513.png
-
-Convert to MarkdownGLASS
+GLASS
 
 1. Shanghai Muni Police files, filed, 16-4-2-37, p 2
 

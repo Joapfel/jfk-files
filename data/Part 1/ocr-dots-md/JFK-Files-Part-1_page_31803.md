@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31803.png
-
-Convert to Markdown21 OCT 1972
+21 OCT 1972
 
 MEMORANDUM FOR: Chairman, GS-12, CS Evaluation Board
 

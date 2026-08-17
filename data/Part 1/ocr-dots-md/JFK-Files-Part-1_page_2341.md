@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2341.png
-
-Convert to MarkdownSECRET
+SECRET
 
 as to whether NOSENKO held a certain claimed position on the basis
 of a comparison of his activities and responsibilities with that inherent

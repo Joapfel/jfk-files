@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5916.png
-
-Convert to Markdownthat these programs did generate such information
+that these programs did generate such information
 apparently came as a surprise to the Headquarters
 officials who ran the programs and the obvious
 questions are whether this was permitted or encouraged,

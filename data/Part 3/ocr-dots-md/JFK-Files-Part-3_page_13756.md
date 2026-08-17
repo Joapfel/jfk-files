@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13756.png
-
-Convert to MarkdownSECRET
+SECRET
 
 also been reported, but the evidence is unclear as to quantities shipped and the extent of Cuba's role in these transactions. We believe that there is an extensive agent net in Latin America directed from Havana.
 

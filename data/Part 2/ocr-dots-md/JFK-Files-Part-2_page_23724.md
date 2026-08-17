@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23724.png
-
-Convert to Markdownoperations and choices between overt and clandestine human
+operations and choices between overt and clandestine human
 collection.
 
 Mr. Kirbow. And Mr. Chairman, without going back and

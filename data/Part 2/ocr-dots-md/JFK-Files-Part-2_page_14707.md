@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14707.png
-
-Convert to Markdown# DOMESTIC INTELLIGENCE OPERATIONS
+# DOMESTIC INTELLIGENCE OPERATIONS
 
 ## New Left Movement
 

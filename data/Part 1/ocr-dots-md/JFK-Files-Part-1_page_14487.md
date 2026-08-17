@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14487.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="3">PERSON/UNIT IDENTIFIER</td>

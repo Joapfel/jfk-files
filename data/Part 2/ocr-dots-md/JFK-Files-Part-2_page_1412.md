@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1412.png
-
-Convert to Markdown14-00000
+14-00000
 
 A0 XETTENSTELLN PERIOD J
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8829.png
-
-Convert to Markdown# MESSAGE FORM
+# MESSAGE FORM
 TOTAL COPIES: 12.
 
 <table><tr><td>ORIG:</td><td>HENRY F. CONNOR</td></tr><tr><td>UNIT:</td><td>WII/B&F</td></tr><tr><td>EXT:</td><td>7763</td></tr><tr><td>DATE:</td><td>15 DEC 65</td></tr></table>

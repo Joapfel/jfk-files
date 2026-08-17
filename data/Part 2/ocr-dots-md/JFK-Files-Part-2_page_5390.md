@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5390.png
-
-Convert to Markdownbeen performed using only Agency personnel and with their full knowledge.
+been performed using only Agency personnel and with their full knowledge.
 
 ### Recommendation (27)
 

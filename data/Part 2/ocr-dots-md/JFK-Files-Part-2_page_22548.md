@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22548.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 On 26 December 1963, Wiley prepared a report on general Cuban matters based on information he received from Enrique Abascal. This matter was given to WH Division on 3 January 1964 by Morse Allen.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7648.png
-
-Convert to MarkdownMr. STERN. Specifically, the kind of information you were interested in, that is before the assassination?
+Mr. STERN. Specifically, the kind of information you were interested in, that is before the assassination?
 
 Mr. BELMONT. Yes. Specifically the kind?
 

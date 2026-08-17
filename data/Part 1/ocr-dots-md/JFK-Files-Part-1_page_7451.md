@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7451.png
-
-Convert to MarkdownEIR COMMUNIST ACTIVITIES FILES
+EIR COMMUNIST ACTIVITIES FILES
 
 Date: July 6, 1950
 

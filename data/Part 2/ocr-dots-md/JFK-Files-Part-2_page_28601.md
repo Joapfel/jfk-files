@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28601.png
-
-Convert to MarkdownRESUME
+RESUME
 
 Antoinette M. "Ty" Roberts
 (Mrs. Walter W.)

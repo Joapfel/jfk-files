@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14644.png
-
-Convert to MarkdownReport No. 2020
+Report No. 2020
 
 Item #10
 

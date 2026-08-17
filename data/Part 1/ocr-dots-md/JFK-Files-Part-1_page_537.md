@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_537.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. **How It Because an Incident:** But instead of returning to their ship of their own volition or being apprehended by the Shore Patrol, the four made contact with BEHEIREN leaders. Again, press reports indicate that this was just a coincidence, that there was no pre-planning by the four to contact BEHEIREN. There are no available overt nor covert reports that indicate otherwise. But, once the BEHEIREN people made contact, they recognized the potential immediately and moved fast for the kill. (Attachment 4 is a Yomiuri Newspaper clipping, 22 November 1967, that is both a representative and comprehensive account of this phase of the case. Even if this article should contain some minor inaccuracies, the basic line seems factual and has not been challenged elsewhere.)
 

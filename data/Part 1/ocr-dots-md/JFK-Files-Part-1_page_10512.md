@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10512.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## Internal (current) control
 

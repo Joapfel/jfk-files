@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12628.png
-
-Convert to Markdown1. TRACE'S DISEASE.
+1. TRACE'S DISEASE.
 
 2. ANY INDICATION HE MEMBER OF WKTANGO-1 GROUP?
 

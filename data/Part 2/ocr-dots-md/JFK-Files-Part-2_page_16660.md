@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16660.png
-
-Convert to MarkdownSection 2. (a) No person may acquire or possess any firearm or any firearm ammunition within this State without having his possession a Firearm Owner's Identification Card previously Issued in his name by the Department of Public Safety under the provisions of this Act.
+Section 2. (a) No person may acquire or possess any firearm or any firearm ammunition within this State without having his possession a Firearm Owner's Identification Card previously Issued in his name by the Department of Public Safety under the provisions of this Act.
 
 (b) The provisions of this Section regarding the possession of firearms and firearm ammunition shall not apply to:
 

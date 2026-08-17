@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19236.png
-
-Convert to Markdown# The Jeanette Rankin Brigade
+# The Jeanette Rankin Brigade
 ## Mass Women's Peace Action
 
 SANDERSON FRANCISCO — When Congress convenes in January, the opening session will be met with the demand that its first order of business must be ending the Vietnam war and the withdrawal of American troops from Southeast Asia.

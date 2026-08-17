@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6001.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 of the infiltrees since it has been our unfortunate experience that if those infiltrating must move about, the exposure to arrest is greater.
 

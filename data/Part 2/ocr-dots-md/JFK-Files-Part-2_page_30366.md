@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30366.png
-
-Convert to Markdown1 that he was passing through all cases, all questions, with me
+1 that he was passing through all cases, all questions, with me
 2 for the period almost two years.
 3 Mr. Edgar. Who other than Bruce Solie did you talk to about
 4 correcting your earlier statements?

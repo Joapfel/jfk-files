@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15543.png
-
-Convert to Markdown<table><tr><td>TELEGRAM</td></tr><tr><td>INFORMATION REPORT</td></tr></table>
+<table><tr><td>TELEGRAM</td></tr><tr><td>INFORMATION REPORT</td></tr></table>
 
 CENTRAL INTELLIGENCE AGENCY
 

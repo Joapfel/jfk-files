@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25746.png
-
-Convert to MarkdownOn 3 December, Headquarters furnished JMWAVE some details on the Amlash meeting including the fact that he had been promised "full U.S. support if he is successful in a real coup against the Castro regime." He was also promised arms which will have to be furnished through JMWAVE's operations.
+On 3 December, Headquarters furnished JMWAVE some details on the Amlash meeting including the fact that he had been promised "full U.S. support if he is successful in a real coup against the Castro regime." He was also promised arms which will have to be furnished through JMWAVE's operations.
 
 A series of confusing cables passed between Headquarters and JMWAVE on December 6, 7, and 8. Apparently, Headquarters first gave JMWAVE authority to drop a cache of arms in Cuba. Then Headquarters called off the operation. In DIR 87615 of 7 December, it is noted "major top level Cuban/Caribbean policy review scheduled early next week which should provide basis for decision."
 

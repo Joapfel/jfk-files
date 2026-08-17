@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23910.png
-
-Convert to Markdown((This points up the need for a continuing revolution, when the revolution is completed))
+((This points up the need for a continuing revolution, when the revolution is completed))
 
 Yes. You don't have jobs unless you're in the government. And that's a problem, too. In his case, he wasn't even a real revolutionary, just a bureaucrat in Rabat and other places.
 

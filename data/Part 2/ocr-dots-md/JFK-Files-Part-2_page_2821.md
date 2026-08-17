@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2821.png
-
-Convert to Markdown<table>
+<table>
   <caption>CONFIDENTIAL FUNDS PERSONNEL ACTION</caption>
   <tbody>
     <tr>

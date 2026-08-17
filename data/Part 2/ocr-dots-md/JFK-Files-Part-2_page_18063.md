@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18063.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 In respect to Items 14 and 15, we are delivering a document dated December 17, 1964. As indicated on page 2 of this document, it was approved for Mr. Sullivan by someone whose initials appear to the right of "WCS/." Although we cannot say with absolute certainty who that person might have been, the initials appear to be those of former FBI Special Agent (SA) Daniel J. Brennan, Former SA E. R. Clayton approved the communication for Mr. Tolson. Notations on page 2 indicate that Mr. Belmont approved it and also advised FBI Director Hoover of its contents on December 18, presumably 1964. No written approval by Mr. Hoover is noted.
 

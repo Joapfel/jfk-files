@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6317.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 any inter- or intra-agency collection or segregation of documents and other materials);
 

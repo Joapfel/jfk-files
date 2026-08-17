@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31646.png
-
-Convert to Markdown3 July 1953
+3 July 1953
 
 MEMORANDUM FOR: DIRECTOR OF CENTRAL INTELLIGENCE
 SUBJECT: D'Arcy Brophy and Louis Novins' Trip to Europe

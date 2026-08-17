@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9613.png
-
-Convert to MarkdownThe Secret Army Organization is a national organization of passive Americans who are preparing themselves as a last line of defense against communism. To exemplify the necessity of such an organization, we quote the 1960 Annual Report of the Committee on U-American Activities as follows:
+The Secret Army Organization is a national organization of passive Americans who are preparing themselves as a last line of defense against communism. To exemplify the necessity of such an organization, we quote the 1960 Annual Report of the Committee on U-American Activities as follows:
 
 "Events of the past year have provided convincing evidence that the American people cannot rely completely on this country's armed forces to protect themselves from communist domination and slavery. This is not because our military force lack the power or the will to defend this country, but rather because the nature of the attacks being made on the United States by its major and only significant enemy are so designed as to render conventional military forces as ineffective as possible for defense purposes."
 

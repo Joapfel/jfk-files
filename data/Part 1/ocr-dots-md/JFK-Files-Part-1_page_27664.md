@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27664.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 (when filled in)
 
 17 JUL 1967

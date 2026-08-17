@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33931.png
-
-Convert to Markdown(continued)
+(continued)
 
 "Hoping that you will comply with my request and the request of the
 Crusade for Freedom to remember at the Throne of Grace, those whose

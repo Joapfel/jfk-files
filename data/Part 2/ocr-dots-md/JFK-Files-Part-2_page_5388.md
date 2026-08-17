@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5388.png
-
-Convert to MarkdownSECRET
+SECRET
 
 agreed to protect true name and 201 file numbers of assets not previously released.
 

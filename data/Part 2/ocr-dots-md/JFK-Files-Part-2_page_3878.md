@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3878.png
-
-Convert to MarkdownYoung, said that he believed in Novel to determine whether McKeithen's phone had been dialed.
+Young, said that he believed in Novel to determine whether McKeithen's phone had been dialed.
 
 The Labor Management Board of Inquiries came into the picture to question Novel at the suggestion of Baton Rouge Teamsters boss Edward G. Partin. The board is investigating labor racketeering in the area.
 

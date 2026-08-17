@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8204.png
-
-Convert to Markdown19 SEP 1968
+19 SEP 1968
 
 SUBJECT: Stokely CARMICHAEL
 

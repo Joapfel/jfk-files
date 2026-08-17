@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6019.png
-
-Convert to Markdown## CONTINENTAL
+## CONTINENTAL
 
 ### COSTA RICA
 

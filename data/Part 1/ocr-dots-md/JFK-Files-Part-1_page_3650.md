@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3650.png
-
-Convert to Markdownhe was going to advise his associates in Nicaragua and the Miami area to forget about doing business in Honduras.
+he was going to advise his associates in Nicaragua and the Miami area to forget about doing business in Honduras.
 
 4. Artime lives in Miami and commutes often to Managua, always flying on Lanica Airlines (owned by Soroza). When in Managua he usually stays at the home of Jose Fernandez de la Torre (still another close friend of mine).
 

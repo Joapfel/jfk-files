@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24381.png
-
-Convert to Markdownrelating to that investigation was destroyed upon its
+relating to that investigation was destroyed upon its
 completion.*
 
 A final deficiency in the evidence stems from the

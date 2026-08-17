@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_390.png
-
-Convert to MarkdownDepartment of Justice
+Department of Justice
 Washington, D.C. 20530
 
 July 18, 1975

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12593.png
-
-Convert to MarkdownHVCA 10243
+HVCA 10243
 
 7 February 1969
 

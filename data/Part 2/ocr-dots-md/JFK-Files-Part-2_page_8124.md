@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8124.png
-
-Convert to Markdown13,000.00
+13,000.00
 
 SECRETARIAT DISSEMINATION
 

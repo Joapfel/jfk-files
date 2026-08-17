@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_116.png
-
-Convert to Markdown13-00000
+13-00000
 
 thinking about exposing the role of Miami attorney Alex E. *CARLSON, residing 145 Curtiss Parkway, Miami Springs, Florida, in the Bay of Pigs operation. AMCARBON-1 stated that, if CARLSON were of any current interest to REUTEMAN, then the Identity 3 would soft peddle the CARLSON angle. REUTEMAN advised AMCARBON-1 that he had no interest in CARLSON but knew of him and was of the opinion that CARLSON was a sound and honest attorney. The receipt of this operational intelligence enabled JMWAVE to brief CARLSON on the Identity 3's over-all interest in the role that CARLSON had played in the Bay of Pigs invasion. This briefing, in turn, enabled CARLSON to more adequately prepare himself for a meeting with AMCARBON-1. While AMCARBON-1 did attempt to pursue this Bay of Pigs story, he never did put anything into print as the story was overtaken by other developments before AMCARBON-1 could finish his research.
 

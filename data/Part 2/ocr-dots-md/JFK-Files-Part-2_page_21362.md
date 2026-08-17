@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21362.png
-
-Convert to MarkdownSECRET
+SECRET
 
 - Liaison
 1 - Mr. Mullins

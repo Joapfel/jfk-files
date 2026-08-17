@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29938.png
-
-Convert to Markdowninvolved even in routine liaison activity. Consequently, our relations during the past nine months with the French have improved considerably. This improvement can partially be attributed to a reawakening on the part of the French Government to the Communist and New Left threat (which was brought into focus by the May-June riots) but it was also in large measure due to Mr. Murphy's concerted efforts to cultivate selected officials, initiate substantive discussions and increase our own level of exchange with the Services.
+involved even in routine liaison activity. Consequently, our relations during the past nine months with the French have improved considerably. This improvement can partially be attributed to a reawakening on the part of the French Government to the Communist and New Left threat (which was brought into focus by the May-June riots) but it was also in large measure due to Mr. Murphy's concerted efforts to cultivate selected officials, initiate substantive discussions and increase our own level of exchange with the Services.
 
 5. Operations against the Communist Party have been re-activated with emphasis on the international aspects of the Party, particularly support of subversion abroad. Operations against the large Soviet and Chinese targets are beginning to move ahead. Production-wise, the take from both unilateral sources and liaison increased significantly during 1968. We expect further increase in 1969.
 

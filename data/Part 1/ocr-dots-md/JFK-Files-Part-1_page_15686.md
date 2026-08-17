@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15686.png
-
-Convert to MarkdownSECRET RYBAT
+SECRET RYBAT
 
 IB MEMO NO. 5238
 29 November 1960

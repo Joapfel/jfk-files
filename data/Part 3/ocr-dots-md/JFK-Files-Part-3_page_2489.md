@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2489.png
-
-Convert to MarkdownLA 100-24345C
+LA 100-24345C
 
 6. Bureau letter to Los Angeles dated 1/12/62.
 

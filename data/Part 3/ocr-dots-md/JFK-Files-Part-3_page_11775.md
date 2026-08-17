@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11775.png
-
-Convert to MarkdownAugust 15, 1968
+August 15, 1968
 
 MR. TOLSON:
 

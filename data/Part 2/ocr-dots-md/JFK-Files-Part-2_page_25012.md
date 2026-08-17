@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25012.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 remember him being there or saying anything. All I remember
 is the location, and the fact that the subject came up, and

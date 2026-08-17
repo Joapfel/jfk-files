@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2432.png
-
-Convert to Markdown03 7 12:58:43
+03 7 12:58:43
 
 SECRET 0219192 OCT 73 STAFF
 

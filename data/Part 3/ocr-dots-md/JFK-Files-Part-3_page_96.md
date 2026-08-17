@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_96.png
-
-Convert to MarkdownMEMPHIS:
+MEMPHIS:
 
 E. HUGO WINTERKOWD, 1550 NORTH PARKWAY, MEMPHIS, TENNESSEE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11742.png
-
-Convert to Markdownupon in months ahead to provide intelligence support in connection with the President's trip.
+upon in months ahead to provide intelligence support in connection with the President's trip.
 
 The step taken by President Nixon emphasizes the importance our Government places on the status of Red China as a world power. It is felt we should be in a position to provide the White House with as much intelligence as we can logically gather in the event such a request is levied upon us.
 

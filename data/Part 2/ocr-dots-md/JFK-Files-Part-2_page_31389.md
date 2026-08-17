@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31389.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 FOR COMDR, EGLIN AFB
 FOR DIR OSI

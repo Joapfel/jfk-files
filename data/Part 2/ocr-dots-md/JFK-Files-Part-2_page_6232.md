@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6232.png
-
-Convert to Markdown# Types of Questions for Follow-up DO Records Briefing
+# Types of Questions for Follow-up DO Records Briefing
 
 March 17, 1997
 

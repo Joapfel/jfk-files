@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26719.png
-
-Convert to MarkdownKeel 72-KICO-23
+Keel 72-KICO-23
 
 29 April 1965
 

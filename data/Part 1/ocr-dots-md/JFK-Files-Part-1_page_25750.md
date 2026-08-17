@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25750.png
-
-Convert to Markdown13 December 1960
+13 December 1960
 
 MEMORANDUM FOR: Finance Division
 VIA : Contract Personnel Division

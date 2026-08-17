@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21873.png
-
-Convert to Markdowntestimony could be attributed to his own lack of recall:
+testimony could be attributed to his own lack of recall:
 
 I really am having trouble with this. I had to
 be reminded of so many things. . . [T]he things

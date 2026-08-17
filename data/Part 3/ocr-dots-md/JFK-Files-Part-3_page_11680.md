@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11680.png
-
-Convert to Markdownhave been formed to operate food processing plants, acquire
+have been formed to operate food processing plants, acquire
 land in the U.S. and in Bermuda, and acquire and maintain a
 fleet of jet airplanes.
 

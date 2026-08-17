@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_827.png
-
-Convert to Markdownf. **Elsa DIAZ Biart:** Her family has been friendly with the AMCOG family for many years. They were school friends. She has a sister abroad and a brother who is in prison. Her father and mother seldom come to the house. A sister of her is a doctor of some farm. All she does is obtain medicines for the prisoners, thereby causing a lot of trouble for AMCOG-2, AMCOG-3 and the old man.
+f. **Elsa DIAZ Biart:** Her family has been friendly with the AMCOG family for many years. They were school friends. She has a sister abroad and a brother who is in prison. Her father and mother seldom come to the house. A sister of her is a doctor of some farm. All she does is obtain medicines for the prisoners, thereby causing a lot of trouble for AMCOG-2, AMCOG-3 and the old man.
 
 g. **Joaquin SANCHEZ and his wife Sara:** According to what I have heard, he is a travelling salesman for some laboratory. His wife is the sister of the wife of the old man's two nephews, Pancho and AMCOG-3 (sic). I have also heard that she is always trying to get medicine for her son who, from what I have heard, is abnormal.
 

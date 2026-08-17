@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_488.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 Douglas Paul Miranda was a successful leader and organizer of the Black Panther Party (BPP) during 1968 and 1970 in New Haven, Connecticut. An anonymous letter was sent to BPP Headquarters in San Francisco in March, 1970, using BPP slang alleging that Miranda had embezzled BPP funds and questioned whether his promiscuity was in the best interest of the BPP. There was no specific information known to the FBI that Miranda was, in fact, embezzling BPP funds, but allegations had been received that he was having sexual relations with numerous females in the New Haven area.
 

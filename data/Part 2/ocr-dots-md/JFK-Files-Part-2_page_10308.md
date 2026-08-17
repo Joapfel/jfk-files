@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10308.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 8 May 1973
 

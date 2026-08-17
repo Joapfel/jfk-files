@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9398.png
-
-Convert to MarkdownDETROIT
+DETROIT
 BLACK
 
 PANTHER PARTY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6825.png
-
-Convert to MarkdownSECRET
+SECRET
 HOCORN/COMMITTEE CONTROL
 
 1 APR 1960

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8753.png
-
-Convert to Markdownfailed, the plan to assassinate Carlos Rafael RODRIGUEZ. Reportedly one of the persons involved pulled the pin of the hand grenade prematurely, it exploded, one man was killed and another critically injured. MARTINEZ escaped, went into hiding, and later came to the U.S.
+failed, the plan to assassinate Carlos Rafael RODRIGUEZ. Reportedly one of the persons involved pulled the pin of the hand grenade prematurely, it exploded, one man was killed and another critically injured. MARTINEZ escaped, went into hiding, and later came to the U.S.
 
 MOVIMIENTO de RECUPERACION REVOLUCIONARIO (MRR) 19-300-11
 (Revolutionary Recovery Movement)

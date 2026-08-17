@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14446.png
-
-Convert to Markdown(d) Presidential directives dated 9/6/39 and 1/8/43 (President Roosevelt); 7/24/50 (President Truman); and 12/15/53 (President Eisenhower). The first of the Roosevelt directives designated the FBI as coordinator of all law enforcement in the U. S. regarding espionage, sabotage and neutrality matters; the second Roosevelt directive reiterated the first. The Truman directive was a reiteration of the prior Roosevelt directives. The Eisenhower directive expanded upon the previous directives to include Atomic Energy Act violations.
+(d) Presidential directives dated 9/6/39 and 1/8/43 (President Roosevelt); 7/24/50 (President Truman); and 12/15/53 (President Eisenhower). The first of the Roosevelt directives designated the FBI as coordinator of all law enforcement in the U. S. regarding espionage, sabotage and neutrality matters; the second Roosevelt directive reiterated the first. The Truman directive was a reiteration of the prior Roosevelt directives. The Eisenhower directive expanded upon the previous directives to include Atomic Energy Act violations.
 
 7. REQUESTER/DATE OF REQUEST: SSC. 3/19/75
 

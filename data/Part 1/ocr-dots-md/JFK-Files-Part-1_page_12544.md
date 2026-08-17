@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12544.png
-
-Convert to Markdown<table><thead><tr><td>SECRET</td></tr></thead><tbody><tr><td>132132Z FEB 70 CITE CARACAS/4472</td></tr><tr><td>DIRECTOR INFO WH/MIAMI</td></tr><tr><td>CIFLUTE CIFENCE</td></tr><tr><td>REFS: A. WH/MIAMI 6507 (IN02455-7)</td></tr><tr><td>B. DIRECTOR 009340</td></tr></tbody></table>
+<table><thead><tr><td>SECRET</td></tr></thead><tbody><tr><td>132132Z FEB 70 CITE CARACAS/4472</td></tr><tr><td>DIRECTOR INFO WH/MIAMI</td></tr><tr><td>CIFLUTE CIFENCE</td></tr><tr><td>REFS: A. WH/MIAMI 6507 (IN02455-7)</td></tr><tr><td>B. DIRECTOR 009340</td></tr></tbody></table>
 
 13FEB IN025395 m
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6807.png
-
-Convert to MarkdownCSI 1997-552
+CSI 1997-552
 10 December 1997
 
 NOTE FOR: Director, Center for the Study of Intelligence

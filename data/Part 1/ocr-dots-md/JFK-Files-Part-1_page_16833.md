@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16833.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CITE MEXICO CITY 22902 (ROSTEDT ACTING)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4535.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 MEMORANDUM
 
 TO : Director, Domestic Contact Services

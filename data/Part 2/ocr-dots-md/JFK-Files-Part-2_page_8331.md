@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8331.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>DECIPHERED BY:</td>
         <td></td>

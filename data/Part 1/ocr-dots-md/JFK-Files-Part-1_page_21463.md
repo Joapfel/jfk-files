@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21463.png
-
-Convert to Markdown14-0000
+14-0000
 
 Attachment to EFT-A-15927
 dated 22 November 1960

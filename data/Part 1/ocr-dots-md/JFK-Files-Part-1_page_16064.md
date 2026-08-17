@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16064.png
-
-Convert to Markdown14-00000
+14-00000
 
 In response, the Royal Thai Government has taken steps to neutralize the Communist terrorist group in Thailand. The voice of responsible members of the Royal Thai Government of Thailand.
 

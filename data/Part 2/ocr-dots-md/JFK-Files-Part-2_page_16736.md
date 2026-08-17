@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16736.png
-
-Convert to Markdown1
+1
 
 Date 1/14/70
 

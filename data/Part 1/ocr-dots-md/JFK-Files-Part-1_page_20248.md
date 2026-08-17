@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20248.png
-
-Convert to Markdown3-1 MAR 1970
+3-1 MAR 1970
 
 Mr. Balmees N. Hidalgo, Jr.
 403 :ilver Rock Road

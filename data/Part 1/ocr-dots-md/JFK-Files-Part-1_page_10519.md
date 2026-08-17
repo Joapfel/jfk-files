@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10519.png
-
-Convert to Markdownd. Vadim MEDISH - CIA Contract Agent in employ of SR Division stationed in Tokyo. In process of being terminated after identification as former NKVD agent, a former Abwehr agent, and subsequent agent activity in behalf of the Soviets while in DP camps.
+d. Vadim MEDISH - CIA Contract Agent in employ of SR Division stationed in Tokyo. In process of being terminated after identification as former NKVD agent, a former Abwehr agent, and subsequent agent activity in behalf of the Soviets while in DP camps.
 
 e. Kasua KANAZAWA - Cousin of Valentin HAHN; at one time was proposed for operational use by this Agency.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_267.png
-
-Convert to Markdown1. AMPHETROL (Project) N.R. No project - Fl Report and
+1. AMPHETROL (Project) N.R. No project - Fl Report and
 2. HUMAIL-1 [4414] - Eduardo Alfredo ESPINOSA de Los Monteres de Zulueta
 3. DTRACCOON -10740 International Institute of Labor Relations
 4. AMWAIL-5 -4166 - Manuel F. GOUDIE

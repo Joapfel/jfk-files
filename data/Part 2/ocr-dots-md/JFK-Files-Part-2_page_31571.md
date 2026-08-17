@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31571.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 A Special Agent of the FBI observed on October 14, 1965 that on October 14, 1965, the VDC held a press conference in San Francisco, at which time MORRIS HIRSCH, who identified himself as a "rank and file" member of the VDC, stated the march through Berkeley and Oakland would be held even though permits to do so were not issued.

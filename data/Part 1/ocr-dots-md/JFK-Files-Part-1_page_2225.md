@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2225.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td>PERSON. SERIAL NO.</td></tr><tr><td>005619</td></tr></table>

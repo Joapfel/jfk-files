@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2323.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee
 
 Mr. Conrad was cordial and said he understood fully that I was not in a position to furnish him legal advice. I suggested that he contact the Bureau prior to his appearance for the interview in order to be advised formally as to his release from the Bureau employment agreement concerning secrecy and he agreed.

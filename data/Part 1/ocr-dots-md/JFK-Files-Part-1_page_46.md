@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_46.png
-
-Convert to MarkdownSally
+Sally
 
 26 July 1963
 

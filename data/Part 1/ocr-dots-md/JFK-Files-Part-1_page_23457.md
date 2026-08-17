@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23457.png
-
-Convert to MarkdownIn connection with the information furnished on the following contract agent(s) regarding the taxability of Allowance Payments, the Contract Personal Division is requesting the following information in order to adjust the contract to provide additional compensation to offset the increased tax liability.
+In connection with the information furnished on the following contract agent(s) regarding the taxability of Allowance Payments, the Contract Personal Division is requesting the following information in order to adjust the contract to provide additional compensation to offset the increased tax liability.
 
 MARK
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23811.png
-
-Convert to MarkdownINP SELW1
+INP SELW1
 
 33
 

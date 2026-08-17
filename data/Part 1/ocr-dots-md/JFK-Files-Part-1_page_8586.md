@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8586.png
-
-Convert to Markdown19. Subject asked about the piece he was writing in here and said that this would be different from his other stories living in the press. She started the listing with confidentiality and source indicated by stating that the item had been confirmed how he got so know him. Source went on to say there is connection with the same job he got to know Macs.
+19. Subject asked about the piece he was writing in here and said that this would be different from his other stories living in the press. She started the listing with confidentiality and source indicated by stating that the item had been confirmed how he got so know him. Source went on to say there is connection with the same job he got to know Macs.
 
 Subject and wife connected that Macs had left PCS some time ago. Source said he 't not now it, because he told me thatMacs would remain here until he completed a year's stay and he did not believe that the 4 years surely wasn't long enough but were positive that he left PCS.
 

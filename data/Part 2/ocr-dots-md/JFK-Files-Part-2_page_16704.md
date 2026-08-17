@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16704.png
-
-Convert to Markdownto the back bedroom. The shot patterns are typical of those produced by buckshot. The area had been previously explored, but one-shot pellet remained at the time of the Laboratory examination of the scene, and it was removed for examination.
+to the back bedroom. The shot patterns are typical of those produced by buckshot. The area had been previously explored, but one-shot pellet remained at the time of the Laboratory examination of the scene, and it was removed for examination.
 
 All other holes appearing in the back bedroom have been logically associated by trajectories from shot sources fired elsewhere in the apartment.
 

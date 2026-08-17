@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29333.png
-
-Convert to MarkdownCOMMITTEE SENSITIVE
+COMMITTEE SENSITIVE
 
 Warren Commission staffers who were in Mexico wanted to talk to Duran. He said that he knew Clarence BOONSTRA well, that the last he heard he was in North Florida, but that he had never discussed the assassination or Oswald with him.
 

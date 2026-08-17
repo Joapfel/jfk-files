@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8817.png
-
-Convert to Markdownon the situation in Puerto Rico after the assassination
+on the situation in Puerto Rico after the assassination
 of President Kennedy. SANTOS, the agent who actually
 receives all messages transmitted to PAMELA was to
 contact AB--N (illegible) and have him report on the

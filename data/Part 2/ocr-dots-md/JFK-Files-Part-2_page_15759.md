@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15759.png
-
-Convert to Markdownsituation because first of all we're subject
+situation because first of all we're subject
 to the most inhumane hostilities up to this
 point in history. I think that the Indians
 are the only other nationality of people

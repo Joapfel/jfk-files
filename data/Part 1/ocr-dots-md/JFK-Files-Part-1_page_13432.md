@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13432.png
-
-Convert to MarkdownSECRET
+SECRET
 
 30 SEP 66 1:07300
 

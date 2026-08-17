@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7369.png
-
-Convert to MarkdownSince the National Security Act did not provide for an authority corresponding with the DCI's responsibility in this area, the Directive provides that the Members of the U.S. Intelligence Board are responsible for: "The supervision of the dissemination and security of intelligence material." The Director of Central Intelligence, acting with the advice of the U.S. Intelligence Board, has promulgated a number of directives, regulations and security manuals, related to the protection of foreign intelligence and foreign intelligence sources and methods, and applicable to the overall U.S. intelligence community.
+Since the National Security Act did not provide for an authority corresponding with the DCI's responsibility in this area, the Directive provides that the Members of the U.S. Intelligence Board are responsible for: "The supervision of the dissemination and security of intelligence material." The Director of Central Intelligence, acting with the advice of the U.S. Intelligence Board, has promulgated a number of directives, regulations and security manuals, related to the protection of foreign intelligence and foreign intelligence sources and methods, and applicable to the overall U.S. intelligence community.
 
 The fundamental security principle involved in the pro-
 tection of foreign intelligence and of its sources and methods

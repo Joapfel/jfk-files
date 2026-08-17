@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13843.png
-
-Convert to Markdown(14-0000)
+(14-0000)
 
 661) Juan and Subject are cus their friends. (LISBON: 12 .oct. 64.)
 

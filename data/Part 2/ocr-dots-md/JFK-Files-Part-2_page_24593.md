@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24593.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 general, the 1963 covert action program and pressure was less
 intense than it had been in 1962.

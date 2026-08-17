@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31174.png
-
-Convert to MarkdownT4-00000
+T4-00000
 
 <table><tr><td>CONFIDENTIAL</td></tr><tr><td>CLASSIFICATION</td></tr><tr><td>NARRATIVE COMMENTS</td></tr></table>
 

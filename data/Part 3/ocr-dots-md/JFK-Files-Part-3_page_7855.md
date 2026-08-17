@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7855.png
-
-Convert to MarkdownA: Yes.
+A: Yes.
 
 Q: Is this the only monitoring work you have done outside of the Washington Field Office?
 

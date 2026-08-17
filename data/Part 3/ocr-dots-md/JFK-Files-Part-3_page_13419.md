@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13419.png
-
-Convert to Markdownamt 20
+amt 20
 
 1 that are at work in this field.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21741.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Baron. But, with anything that was published in
 English, the United States citizenry would become a likely

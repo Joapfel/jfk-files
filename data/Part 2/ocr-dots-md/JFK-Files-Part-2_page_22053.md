@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22053.png
-
-Convert to MarkdownNO OBJECTION
+NO OBJECTION
 NATIONAL SECURITY COUNCIL
 
 <table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Gen. Lansdale<br/>William K. Harvey</td><td>8/7/62</td><td>SPECIAL GROUP AUGMENTED<br/>OPERATION MONGOOSE</td></tr></tbody></table>

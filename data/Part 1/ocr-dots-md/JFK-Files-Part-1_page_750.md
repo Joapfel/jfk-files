@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_750.png
-
-Convert to MarkdownSEPARATE COVER ATTACHMENT
+SEPARATE COVER ATTACHMENT
 
 to HMMA-34792
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6669.png
-
-Convert to Markdownbegin review for declassification immediately of this material. And, indeed, as I speak, the reviewers are going through a substantial number of documents, and I anticipate that many of these will be released shortly.
+begin review for declassification immediately of this material. And, indeed, as I speak, the reviewers are going through a substantial number of documents, and I anticipate that many of these will be released shortly.
 
 As we carry out our program to declassify Kennedy assassination documents, our goal will be to release as many as possible. In fact, I recently approved a new CIA declassification guideline for our Historical Review Program which specifically directs a presumption in favor of declassification. I believe we can be very forward leaning in making these documents available to the public, and I have instructed the Historical Review Group to take this attitude to heart.
 

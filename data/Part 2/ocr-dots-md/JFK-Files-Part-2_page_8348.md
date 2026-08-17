@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8348.png
-
-Convert to MarkdownEnclosure
+Enclosure
 
 SE/PC/2-LT-1f
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18932.png
-
-Convert to MarkdownForm approved,
+Form approved,
 Budget Bureau No. 80-20172
 
 REPORT OF

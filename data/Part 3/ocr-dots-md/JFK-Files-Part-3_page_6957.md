@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6957.png
-
-Convert to MarkdownJ. A. Mintz
+J. A. Mintz
 - Mr. J. B. Hotis)
 W. R. Wannall
 W. O. Cregar

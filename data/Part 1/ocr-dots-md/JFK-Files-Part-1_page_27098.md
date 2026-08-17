@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27098.png
-
-Convert to MarkdownCABLE SEC DISSENT BY
+CABLE SEC DISSENT BY
 
 TOTAL COPIES 46 -
 RUN BY

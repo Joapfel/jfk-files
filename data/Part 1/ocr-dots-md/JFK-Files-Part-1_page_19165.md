@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19165.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C-2532 (Biladeau)
 

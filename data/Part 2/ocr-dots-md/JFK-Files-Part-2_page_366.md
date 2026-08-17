@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_366.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 5 MEXICO CITY 9371 SECRET
 

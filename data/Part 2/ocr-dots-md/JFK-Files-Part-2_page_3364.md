@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3364.png
-
-Convert to MarkdownAppendix G
+Appendix G
 
 Memorandum for DCI
 

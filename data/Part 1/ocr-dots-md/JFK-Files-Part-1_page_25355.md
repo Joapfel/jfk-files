@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25355.png
-
-Convert to MarkdownName: Valeriya Ivanovna LEONOVA
+Name: Valeriya Ivanovna LEONOVA
 
 Born: Unknown
 

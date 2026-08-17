@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9832.png
-
-Convert to Markdown3.
+3.
 
 collusion, Rowton suggested that L/4 see L/2 again and ask for Rowton's telephone number, which she could allege she could not find at home and which she preferred not to ask L/3 for, in order not to arouse his suspicions. Once she obtained the number she could allege that she telephoned Rowton on some pretext (provided if possible by LIKING/2 himself) and managed to see him at lunch a few days later. She could then report to L/2 that Rowton had told her that his telephone was actually an answering service and hence only messages were taken around the clock. He had no need of an office since he traveled in and out so often and his business did not require an office with the accompanying headaches. L/4 would continue that Rowton confided that he was working on sensitive deals to purchase Mexican sulphur (an expensive and difficult item to procure anywhere in the world at this time) and that his principal business connection was with Stavros Niarcos, the wealthy shipowner. His interest in Cuba stemmed from Niarcos' desire to study the shipping possibilities there in the event the North American embargo was lifted.
 

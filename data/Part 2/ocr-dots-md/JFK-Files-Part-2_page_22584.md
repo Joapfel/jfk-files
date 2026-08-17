@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22584.png
-
-Convert to MarkdownNational Committee for Responsible Patriotism (NCRP):
+National Committee for Responsible Patriotism (NCRP):
 as its Executive Director and one of its founders in 1967,
 he has been its principal member and has been involved
 with managing its office, raising funds, and charting its

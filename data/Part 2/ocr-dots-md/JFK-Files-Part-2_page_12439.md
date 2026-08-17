@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12439.png
-
-Convert to Markdown"SECRET - NO FOREIGN DISSEMINATION"
+"SECRET - NO FOREIGN DISSEMINATION"
 
 6. Development of personnel of foreign diplomatic establishment or international organization
 Whenever it becomes desirable to develop an official or employee of a foreign diplomatic establishment or government, or of a public international organization of a governmental or quasi-governmental nature, who is not a national of a hostile country, e.g., Canadian, Argentinian, or U. S. United Nations Secretariat (UNSEC) employee to target against Soviet-bloc UNSEC employee, FBIHQ asks for authorization from State Department to conduct background investigation. FBIHQ must inform State Department of the proposed asset's name, rank or position, nationality, current place of assignment, and, generally, the type of use we intend to make of the asset. After authorization has been received and background investigation completed, if individual offers asset potential, submit results of background investigation in LHM and in cover communication request authority to interview. FBIHQ will then request authorization from State Department to interview.

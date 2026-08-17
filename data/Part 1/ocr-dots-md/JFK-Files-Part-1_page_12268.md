@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12268.png
-
-Convert to Markdownn Carte 1309, Hospital Jackson Memorial, 7:10 P.M., Miércoles Diciembre 4 de 1968.
+n Carte 1309, Hospital Jackson Memorial, 7:10 P.M., Miércoles Diciembre 4 de 1968.
 
 Yo. JULIO ATON CONSTANZO PALAU, del 52 S.W., Carta calle, Miami, Florida, casado con María Consarce, la cual estímase en presente, declaro lo siguiente: Nació en Palma Soriano, Oriente, en Cuba, el 22 de Mayo de 1936. Yo tengo 32 años de edad. Me case el 10 de Marzo de 1963 en Miami, Florida.
 

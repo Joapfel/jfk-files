@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10866.png
-
-Convert to Markdown<table><tbody><tr><td rowspan="9">PROJECT / NP<br>SOURCE LITANIL-9</td><td>DATE OF INFORMATION<br>Late March 64</td><td></td><td>FIELD NO.<br>REPORT EMM-3706<br>CABLE<br>IN<br>RE NO.</td></tr><tr><td>DATE ACQUIRED<br>1 Apr 64</td><td></td><td></td></tr><tr><td colspan="2">FIELD DISTRIBUTION</td><td></td></tr><tr><td>DATE<br>14 Apr 64</td><td></td><td></td></tr><tr><td>GRADE<br>DME2</td><td></td><td></td></tr><tr><td colspan="2">TO<br>PLS/jet</td><td></td></tr><tr><td>WASH DISTRIBUTION</td><td>CS<br>H.D.</td><td>EVAL REQUESTED</td></tr><tr><td>DATE<br>10</td><td></td><td>AREA<br>Mexico/Cuba/Algeria</td></tr></tbody></table>
+<table><tbody><tr><td rowspan="9">PROJECT / NP<br>SOURCE LITANIL-9</td><td>DATE OF INFORMATION<br>Late March 64</td><td></td><td>FIELD NO.<br>REPORT EMM-3706<br>CABLE<br>IN<br>RE NO.</td></tr><tr><td>DATE ACQUIRED<br>1 Apr 64</td><td></td><td></td></tr><tr><td colspan="2">FIELD DISTRIBUTION</td><td></td></tr><tr><td>DATE<br>14 Apr 64</td><td></td><td></td></tr><tr><td>GRADE<br>DME2</td><td></td><td></td></tr><tr><td colspan="2">TO<br>PLS/jet</td><td></td></tr><tr><td>WASH DISTRIBUTION</td><td>CS<br>H.D.</td><td>EVAL REQUESTED</td></tr><tr><td>DATE<br>10</td><td></td><td>AREA<br>Mexico/Cuba/Algeria</td></tr></tbody></table>
 
 COMMENTS: (REASON FOR REJECTION: CUSTOMERS AND DESK EVALUATIONS; SPECIAL DISTRIBUTION OR LOAN NOTES: COMMENTS TO FIELD, ETC.)
 

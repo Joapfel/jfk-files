@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28062.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      STANDARD FORM 52

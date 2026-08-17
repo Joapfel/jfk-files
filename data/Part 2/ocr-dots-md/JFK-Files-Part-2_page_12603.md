@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12603.png
-
-Convert to Markdownother action taken to neutralize their activities is handled, if possible, in such manner as to not destroy the opportunity to penetrate an active espionage network. When submitting FD-122 regarding such individual, the words "Special Interest" should be typed in upper right portion and the abbreviation "ESP" should be shown in the space provided after "Miscellaneous."
+other action taken to neutralize their activities is handled, if possible, in such manner as to not destroy the opportunity to penetrate an active espionage network. When submitting FD-122 regarding such individual, the words "Special Interest" should be typed in upper right portion and the abbreviation "ESP" should be shown in the space provided after "Miscellaneous."
 
 (2) U. S. Government employees
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6779.png
-
-Convert to Markdown# 4.- Perspectivas de aumento aparente del PBN
+# 4.- Perspectivas de aumento aparente del PBN
 
 Ha llegado el momento de preguntarnos, ¿cuál es el significado de los cálculos oficiales mencionados anteriormente? ¿Qué desarrollo y que tipo de desarrollo fue el alcanzado durante este histórico "florecimiento óptimo" de la economía de Latinoamérica? Comenzaremos aceptando en su valor nominal la cifra de 2.5% como promedio anual de incremento por cápita del PBN de la región. Como ya vimos, el PBN alcanzó en 1957 su cifra más alta de todos los tiempos: $835$ dólares. Si Latinoamérica pudiera recuperarse y mantener ininterrumpidamente su ritmo de desarrollo de 1945 a 1957, a partir del momento en que se produjera esta recuperación, tardaría alrededor de 55 años para alcanzar el PBN per cápita de Francia o Inglaterra en 1957 que fue de 1300 dólares. Alcanzar el PBN per cápita de los Estados Unidos en 1957, que era de 2600, dólares, demandaría cerca de 85 años.
 

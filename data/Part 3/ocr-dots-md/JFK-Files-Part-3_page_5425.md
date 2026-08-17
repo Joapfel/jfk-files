@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5425.png
-
-Convert to Markdown**QUESTION:**
+**QUESTION:**
 Is that in the foreign field, Mr. Kelley. Is that limited to the foreign field when you say such activity?
 
 **ANSWER:**

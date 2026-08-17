@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9643.png
-
-Convert to Markdown# NK 157-2011
+# NK 157-2011
 
 ## INFORMANTS
 

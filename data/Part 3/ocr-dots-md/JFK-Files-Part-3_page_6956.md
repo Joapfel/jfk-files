@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6956.png
-
-Convert to MarkdownSan Francisco
+San Francisco
 
 Excision (known to be Kevin Crowley) agent of
 California Alcoholic Beverage Control Board asked

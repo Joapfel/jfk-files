@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_575.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>010: Will Kerber-Bas<br/>011: WH/1<br/>012: 6954/9041<br/>013: 10 January 1968</td></tr></table>
 

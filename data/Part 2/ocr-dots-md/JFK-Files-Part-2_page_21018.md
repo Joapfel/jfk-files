@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21018.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in the Spanish language.
 

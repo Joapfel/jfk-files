@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6857.png
-
-Convert to MarkdownMEXI 3532 (IN 34979), 21 MARCH 1959
+MEXI 3532 (IN 34979), 21 MARCH 1959
 
 On 18 March 1959, Anna Sparer SEBORER told Mrs. Albert MALTZ that she had written Mrs. Maurice HALPERIN telling her not to bother answering but "just to leave the information for me." MALTZ had heard from HALPERIN and had "the address" for Anna. SOURCE: LIFEAT (B), 23 Feb to 18 Mar.
 

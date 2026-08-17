@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7783.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Herbert Garfinkel; Black Man's America, (EX-3208) by Simeon Booker; Staff Study by The Committee on Internal Security, (EX-4866) dated 1970; Testimony of Gerald Wayne Kirk, Hearings of the Committee on the Judiciary, (EX-7044) 1970; Hearings Before the Committee on Un-American Activities, (EX-2131) 1968; Riots, Civil and Criminal Disorders, Hearings before the Sub-Committee on Investigations, (EX-2169) June 20 and 21, 1968; The New Left, Memorandum prepared for the Committee on the Judiciary, (EX-3535), 9 October 1968; National Review, 3 May 1967; The Rebel (published in Exile), May-June 1967; The New World of Negro Americans, (EX-3571) by Harold R. Isaacs.
 

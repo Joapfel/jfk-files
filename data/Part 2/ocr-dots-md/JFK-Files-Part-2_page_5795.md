@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5795.png
-
-Convert to Markdown09/16/98 WED 12:59
+09/16/98 WED 12:59
 
 Assassination Records Review Board
 600 E Street NW • 2nd Floor • Washington, DC 20530

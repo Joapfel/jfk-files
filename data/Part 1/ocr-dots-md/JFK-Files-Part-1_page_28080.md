@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28080.png
-
-Convert to MarkdownNARRATIVE COMMENTS - cont'd
+NARRATIVE COMMENTS - cont'd
 
 cursory, and from the beginning there has been a high premium on both technical accuracy and sound substantive judgment. As Mr. Randall himself noted in a report on his deputy, we have an enviable record as far as "flaps" are concerned; in a situation fraught with danger of inappropriate release of information we have had only five cases where release has led to embarrassment -- out of 7,000 "possibles." Mr. Randall, with typical modesty, uses the statistic in praise of others; I choose to use it to praise him. The Group's record to date is nothing short of astonishing, and Mr. Randall can take great pride in his team's accomplishments.
 

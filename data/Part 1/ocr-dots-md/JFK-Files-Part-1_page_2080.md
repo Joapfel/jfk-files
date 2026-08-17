@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2080.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="7" style="text-align:center;">POSITION CONTROL REGISTER</th>

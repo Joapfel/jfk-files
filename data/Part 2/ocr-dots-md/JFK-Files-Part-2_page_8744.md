@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8744.png
-
-Convert to MarkdownMISCELLANEOUS - Cuba 19-500
+MISCELLANEOUS - Cuba 19-500
 
 DBF 54461 Dated 4 August 1960 (FBI)
 

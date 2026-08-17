@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8015.png
-
-Convert to MarkdownNational Bank in Miami, the bank through which Bernard Barker channeled funds for the Watergate crime.
+National Bank in Miami, the bank through which Bernard Barker channeled funds for the Watergate crime.
 
 ## The Teamsters Again
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30226.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8 March 1961
 File No. K-3030

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18802.png
-
-Convert to Markdown# Mr. Chester J. Botticelli
+# Mr. Chester J. Botticelli
 Payroll Section
 
 Staffs I and III, SI

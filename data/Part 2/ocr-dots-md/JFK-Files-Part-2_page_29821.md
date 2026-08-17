@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29821.png
-
-Convert to MarkdownD - car rental at the Airport because that is where friends friends brother, Sully, I think it was Sully that runs it
+D - car rental at the Airport because that is where friends friends brother, Sully, I think it was Sully that runs it
 
 M - what airport, do you know?
 

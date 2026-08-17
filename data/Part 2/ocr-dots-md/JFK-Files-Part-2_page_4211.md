@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4211.png
-
-Convert to Markdown6. At 12:30 I went to the President's office in the Executive Office Building to tell him of the information received from Mexico City. In attendance was Mr. Bundy. Following this I had a brief exchange with President Eisenhower who was visiting with President Johnson at the time.
+6. At 12:30 I went to the President's office in the Executive Office Building to tell him of the information received from Mexico City. In attendance was Mr. Bundy. Following this I had a brief exchange with President Eisenhower who was visiting with President Johnson at the time.
 
 7. This evening I called Secretary Rusk and reviewed with him the information received from Mexico City, most particularly the holding of a Mexican employee of the Cuban Embassy by Mexican officials for interrogation concerning Lee Oswald. I explained to Rusk the information that we had transmitted to the FBI and to the authorities in Dallas. Rusk had not known of these developments prior to my communication with him.
 

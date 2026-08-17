@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_826.png
-
-Convert to MarkdownPSC: 17 MARCH 1961
+PSC: 17 MARCH 1961
 
 SECRET
 (When filled in)

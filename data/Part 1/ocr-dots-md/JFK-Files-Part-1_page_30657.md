@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30657.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Newton Scott MILER (012773)
 Reporting Period 1 February 1973 - 31 January 1974

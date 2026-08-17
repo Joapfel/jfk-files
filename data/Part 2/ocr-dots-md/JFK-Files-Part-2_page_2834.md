@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2834.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4 MAR 1975
 

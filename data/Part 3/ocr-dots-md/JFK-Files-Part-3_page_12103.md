@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12103.png
-
-Convert to MarkdownSuggestion Memorandum
+Suggestion Memorandum
 Articles Concerning Activities of
 Racial Extremists
 Research Section

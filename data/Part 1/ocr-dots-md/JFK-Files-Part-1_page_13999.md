@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13999.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIO: DARYL GEISLER:ak</td></tr><tr><td>UNIT: WH/COG/OPS</td></tr><tr><td>EXT: 5061 R. 1457</td></tr><tr><td>DATE: 24 APRIL 1969</td></tr></table>
 

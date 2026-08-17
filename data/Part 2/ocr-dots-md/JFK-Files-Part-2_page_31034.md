@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31034.png
-
-Convert to MarkdownBetsy Palmer
+Betsy Palmer
 
 Page 2
 Office of Security/Sergio Arcacha Smith

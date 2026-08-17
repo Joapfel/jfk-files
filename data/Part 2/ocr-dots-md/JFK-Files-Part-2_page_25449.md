@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25449.png
-
-Convert to MarkdownI, Frank Sturgis, have today personally delivered
+I, Frank Sturgis, have today personally delivered
 to the Senate Select Committee on Intelligence the
 following materials:
 

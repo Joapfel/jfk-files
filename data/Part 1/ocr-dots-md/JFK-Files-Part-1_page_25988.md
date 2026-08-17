@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25988.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="5">SECTION XVIII</th></tr><tr><td colspan="5">BROTHERS AND SISTERS</td></tr><tr><th rowspan="2">FULL NAME</th><th colspan="2">YEAR OF BIRTH</th><th rowspan="2">PLACE OF BIRTH</th><th rowspan="2">NATIONALITY AT BIRTH*</th></tr><tr><th>MALE</th><th>FEMALE</th></tr></thead><tbody><tr><td>Maria Conterelli, second</td><td></td><td></td><td></td><td>Hispanic</td></tr><tr><td>Sergio (see previous line)</td><td></td><td></td><td></td><td>Hispanic</td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24591.png
-
-Convert to Markdowndiscussed above in section ______, however, it was the testimony of all witnesses except Helms that such statements did not include assassination.
+discussed above in section ______, however, it was the testimony of all witnesses except Helms that such statements did not include assassination.
 
 Lansdale's statements to O'Leary and Martin appear consistent with his sworn testimony that it was his own idea to request an assassination plan from Harvey and that he did not discuss this idea with anyone except Harvey.
 

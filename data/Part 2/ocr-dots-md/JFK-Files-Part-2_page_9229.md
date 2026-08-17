@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9229.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 C. Connections with BPP National Headquarters
 ---

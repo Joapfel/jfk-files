@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7346.png
-
-Convert to MarkdownSECRET
+SECRET
 
 27 FEB 1974
 

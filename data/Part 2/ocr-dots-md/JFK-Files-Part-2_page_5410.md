@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5410.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: (S) Protection of IJDECANTER Cryptonym
 

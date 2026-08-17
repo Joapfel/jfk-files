@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1688.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 BG: 19 SEPT 73

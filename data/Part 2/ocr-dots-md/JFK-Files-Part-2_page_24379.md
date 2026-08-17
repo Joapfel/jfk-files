@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24379.png
-
-Convert to MarkdownThe hearing record includes some ____ pages of sworn testimony from ____
+The hearing record includes some ____ pages of sworn testimony from ____
 witnesses* during ____ hearing days as well as numerous staff interviews.
 The documents which the Committee obtained included raw files from the
 agencies and departments, from the White House, and from the Presidential

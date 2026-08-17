@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13326.png
-
-Convert to MarkdownSECRET
+SECRET
 
 S E C R E T 282207Z CITE: JMWAVE 8997 (STEADMAN ACTING)
 

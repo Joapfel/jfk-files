@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19150.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><caption>REQUEST FOR PERSONNEL ACTION</caption><thead><tr><td colspan="7">5 June 1959</td></tr><tr><th rowspan="2">1. Serial No.</th><th colspan="3">8. Name (Last, First, Middle)</th><th rowspan="2">3. Date Of Birth<br/>Mo. Da. Yr.<br/>11 02 03</th><th rowspan="2">4. Vet. Pred. Code<br/>None-0 5 Pt-1 10 Pt-8 1 M</th><th colspan="3">5. Sex</th><th rowspan="2">6. CS-CD<br/>Mo. Da. Yr.<br/>02 20 56</th></tr><tr><th>Yes - 1<br/>No - 2</th><th>Code</th><th>No.</th><th>Yr.</th><th>Yes - 1<br/>No - 2</th><th>Code</th></tr></thead><tbody><tr><td>7. SCD</td><td colspan="3">8. CSC Retired</td><td colspan="5">9. CSC Or Other Legal Authority</td></tr><tr><th>Mo.</th><th>Do.</th><th>Yr.</th><th></th><th>10. Aprt. Affidav.</th><th>11. FEGLI</th><th>12. LCD</th><th colspan="3"></th></tr><tr><td></td><td></td><td></td><td></td><td>Mo. Da. Yr.</td><td>Yes - 1<br/>No - 2</td><td>Code</td><td>Mo.</td><td>Da.</td><td>Yr.</td><td>Yes - 1<br/>No - 2</td><td>Code</td></tr></tbody></table>
 

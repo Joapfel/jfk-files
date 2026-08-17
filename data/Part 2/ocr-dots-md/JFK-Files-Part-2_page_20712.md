@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20712.png
-
-Convert to MarkdownTeletype to Detroit
+Teletype to Detroit
 
 Re: DE 2831-S
 134-22865

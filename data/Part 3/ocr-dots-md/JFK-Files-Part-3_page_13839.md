@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13839.png
-
-Convert to Markdownby the Cuban Revolution.
+by the Cuban Revolution.
 
 10. Even after the reports were submitted the rule against leaving the building continued in effect, so they then talked with the political commissar who went to see about the matter. When he returned he said that he had not been able to put the case before higher authorities.
 

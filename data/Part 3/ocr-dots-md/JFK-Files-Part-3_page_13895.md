@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13895.png
-
-Convert to Markdownthrough audiosurveillance coverage and was able to thwart the ChicomS and spirit the defector out of Burundi to the U. S.
+through audiosurveillance coverage and was able to thwart the ChicomS and spirit the defector out of Burundi to the U. S.
 
 In answer to Mr. Clifford's inquiry, Mr. Helms said that one major lesson learned from the Moscow penetra on incident is simply that such penetrations are just being invited when the host country controls construction of the premises and supplies the maintenance employees.
 

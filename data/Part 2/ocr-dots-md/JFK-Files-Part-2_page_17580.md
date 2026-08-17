@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17580.png
-
-Convert to Markdown# Routing Slip
+# Routing Slip
 (Copies to Services Checked)
 0 Rev. 12-17-73)
 

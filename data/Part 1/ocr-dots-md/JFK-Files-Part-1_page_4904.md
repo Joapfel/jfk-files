@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4904.png
-
-Convert to MarkdownIN: 081640
+IN: 081640
 
 TERRI
 

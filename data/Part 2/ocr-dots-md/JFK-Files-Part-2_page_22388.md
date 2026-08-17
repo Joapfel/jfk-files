@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22388.png
-
-Convert to MarkdownSECRET
+SECRET
 
 executives of these American companies and ask them to tell
 their foreign subsidiaries not to provide the spare parts

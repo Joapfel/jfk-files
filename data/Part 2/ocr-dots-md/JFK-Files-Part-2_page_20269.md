@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20269.png
-
-Convert to Markdown# A CALL TO AMERICAN WOMEN
+# A CALL TO AMERICAN WOMEN
 who are outraged by the ruthless slaughter in Vietnam and the persistent neglect of human needs at home
 
 ## TO COME TO WASHINGTON JANUARY 15 (OPENING DAY OF CONGRESS)

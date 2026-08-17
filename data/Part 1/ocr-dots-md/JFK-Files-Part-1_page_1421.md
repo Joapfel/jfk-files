@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1421.png
-
-Convert to Markdown# Chapter 5
+# Chapter 5
 
 Contains detailed references throughout to Winston Scott, identified as chief of station, Mexico City. Central Cover Staff points out that Mr. Scott, who was never officially acknowledged as a CIA employee, retired under State Department cover in Mexico, where he subsequently died and where his widow and children still reside.
 

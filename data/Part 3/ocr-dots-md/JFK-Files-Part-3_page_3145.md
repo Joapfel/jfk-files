@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3145.png
-
-Convert to Markdown1757
+1757
 
 Nobel Prize whose names are Jones and Smith, that my review
 of the files show had violence done to their First Amendment

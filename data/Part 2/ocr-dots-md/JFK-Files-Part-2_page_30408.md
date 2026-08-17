@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30408.png
-
-Convert to Markdownthat kind of document to be retained in Agency files anywhere.
+that kind of document to be retained in Agency files anywhere.
 
 You know, inter-departmental correspondence is firing paper in all directions all the time on an informational basis. That does not mean it is retained.
 

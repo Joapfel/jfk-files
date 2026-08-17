@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7302.png
-
-Convert to Markdown9.02 Eating:
+9.02 Eating:
 
 9.02.01 Is his mode of eating
 Typical of most of his colleagues X

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6251.png
-
-Convert to MarkdownCARL and ANNE BRADEN
+CARL and ANNE BRADEN
 
 Mrs. ALBERTA AHEARN, 2311 Payne Street, Louisville, Kentucky, a self-admitted former member of the Communist Party (CP), Louisville, Kentucky, in testifying on December 11 and 13, 1954, in Jefferson County, Kentucky. Criminal Court, in a state sedition prosecution against CARL JAMES BRADEN, identified BRADEN and his wife, ANNE BRADEN, as having been known to her as members of the CP, Louisville, Kentucky, from January, 1951, to shortly prior to the time of her testimony.
 

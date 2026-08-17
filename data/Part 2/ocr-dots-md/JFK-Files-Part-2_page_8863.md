@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8863.png
-
-Convert to Markdown14-0000
+14-0000
 
 2nd December, 1963
 

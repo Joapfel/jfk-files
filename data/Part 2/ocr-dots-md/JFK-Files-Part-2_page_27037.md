@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_27037.png
-
 s.
 
 6. Western Hemisphere Division's list of Cuban refugee organizations in which CIA had interests (Page B-17, Tab 15 of CIA notebook on domestic activities prepared in response to Part IV of Committee March 12 document request.)

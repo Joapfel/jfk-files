@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31032.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><thead><tr><th>BASE PAY</th><th>OVERTIME</th><th>GROSS PAY</th><th>RET.</th><th>FEDERAL TAX</th><th>BOND</th><th>A. C.A.</th><th>STATE TAX</th><th>GROUP LIFE INS.</th><th>NET PAY</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

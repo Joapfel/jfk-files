@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25823.png
-
-Convert to MarkdownJanuary 28, 1976
+January 28, 1976
 
 The Honorable Frank Church, Chairman
 Select Committee on Intelligence

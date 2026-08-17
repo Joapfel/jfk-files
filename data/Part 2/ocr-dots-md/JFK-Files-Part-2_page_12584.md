@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12584.png
-
-Convert to Markdownb. Subjects not connected with institution of learning When subject of investigation is not connected with an institution of learning and interview of student, faculty member, or other employee of institution of learning is desired, prior Bureau authority must be obtained except for established sources. When requesting authority, furnish name, position, and a positive statement concerning person's discretion and reliability.
+b. Subjects not connected with institution of learning When subject of investigation is not connected with an institution of learning and interview of student, faculty member, or other employee of institution of learning is desired, prior Bureau authority must be obtained except for established sources. When requesting authority, furnish name, position, and a positive statement concerning person's discretion and reliability.
 
 c. U. S. Government employees, individuals having foreign diplomatic or official status, employees of foreign official establishment, employees of United Nations or international organizations, and members of armed forces If subject of investigation is or becomes employee of U. S. Government, foreign official establishment, United Nations, or other international organization, has foreign diplomatic or official status, or is member of U. S. armed forces, advise Bureau and request authority for further investigation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8160.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 26 April 1968
 

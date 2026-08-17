@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32198.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 20 OCT 1976

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7315.png
-
-Convert to MarkdownIf No, what is your guess regarding the kind of sport that would interest him most:
+If No, what is your guess regarding the kind of sport that would interest him most:
 
 * He definitely is not the sports type
 * Body contact sports (football, rugby, soccer, etc.)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21846.png
-
-Convert to Markdown4. The Plot to Assassinate Lumumba
+4. The Plot to Assassinate Lumumba
 
 In the fall of 1960, a scientist from CIA headquarters delivered to the Chief of Station in Leopoldville lethal biological substances to be used to assassinate Patrice Lumumba. The Chief of Station testified that after requesting and receiving confirmation from CIA headquarters that he was to carry out the scientist's instructions, he proceeded to take "exploratory steps" in furtherance of the assassination plot. The Chief of Station testified that in the course of his discussion with the CIA scientist, Sidney Gottlieb, he was informed that President Eisenhower had ordered the assassination mission against Patrice Lumumba.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25484.png
-
-Convert to Markdown-35-
+-35-
 
 medicine and I just didn't want anything to go wrong.
 

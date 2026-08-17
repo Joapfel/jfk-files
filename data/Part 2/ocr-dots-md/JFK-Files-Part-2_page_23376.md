@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23376.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. approach to Schotroff first on a hypothetical basis --
 2. Mr. Tweedy. Yes.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18081.png
-
-Convert to MarkdownMemorandum to W. C. Sullivan
+Memorandum to W. C. Sullivan
 From F. J. Baumgardner
 
 RE: COMMUNIST INFILTRATION OF SOUTHERN CHRISTIAN LEADERSHIP CONFERENCE

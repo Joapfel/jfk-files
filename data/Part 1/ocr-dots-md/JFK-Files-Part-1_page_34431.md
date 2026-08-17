@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34431.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 <table><thead><tr><th>DOCUMENT DESCRIPTION</th><th></th><th>REGISTRY</th></tr></thead><tbody><tr><td>Source<br/>SR<br/>Doc. No. XAAZ-17241/1<br/>Doc. Date 11 MAY 1964<br/>Copy No. # Repro 2<br/>Number of Pages 28<br/>Number of Attachments</td><td colspan="2"></td></tr></tbody></table>
 

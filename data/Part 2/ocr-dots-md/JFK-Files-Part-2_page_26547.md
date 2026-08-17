@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26547.png
-
-Convert to Markdown# MALAYSIA
+# MALAYSIA
 
 CONFIDENTIAL
 

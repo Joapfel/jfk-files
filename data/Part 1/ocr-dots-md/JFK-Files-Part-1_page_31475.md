@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31475.png
-
-Convert to MarkdownJuly 15, 1952
+July 15, 1952
 
 Revised July 30, 1952
 

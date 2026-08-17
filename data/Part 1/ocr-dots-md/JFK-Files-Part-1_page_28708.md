@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28708.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>FORM 1159</td></tr><tr><td>Use Previous Edition</td></tr><tr><td>SECRET</td></tr></table>
 

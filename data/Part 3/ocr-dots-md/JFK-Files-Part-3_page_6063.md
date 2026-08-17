@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6063.png
-
-Convert to MarkdownHe has been closely aligned with communists for
+He has been closely aligned with communists for
 several years and has shown not only a willingness, but at
 times even an eagerness, to associate and confer with commu-
 nist leaders and to work closely with and rely upon the advice

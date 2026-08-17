@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1227.png
-
-Convert to Markdown104-10100-10192
+104-10100-10192
 
 <table><tr><td>106/14</td><td>OCT 63/CS</td></tr><tr><td>ORIG</td><td>JAMES HILL - [V. SECRET]</td></tr><tr><td>SAS/TO</td><td>INDEX<br/>1 NO INDEX<br/>11 OCT. 75</td></tr><tr><td>FROM: D. RECTOR</td><td>FILE IN CS FILE NO.</td></tr><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td rowspan="3"></td><td><table><tbody><tr><th colspan="2">ROUTING</th></tr><tr><td></td><td>4</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td></td></tr></tbody></table></td></tr><tr><td colspan="2">SUBMITTER DEFERRED</td></tr><tr><td colspan="2">ROUTING</td></tr><tr><td colspan="2">TOP. ADOPT, C/SOD 4, C/CI, C/FI 2, C/TSD 3, C/EE 3, C/WE 2, RF. ADDED: C/AF 3, C/WH 5, RF, VR</td></tr></table></td></tr></table>
 

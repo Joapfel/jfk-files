@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18312.png
-
-Convert to MarkdownMichael E. Shaheen, Jr.
+Michael E. Shaheen, Jr.
 Page 2
 
 September 19, 1975

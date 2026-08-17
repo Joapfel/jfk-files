@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3417.png
-
-Convert to MarkdownP.—¿Cuál creó que es el flanco más débil del régimen enstrista?
+P.—¿Cuál creó que es el flanco más débil del régimen enstrista?
 
 R.—El pueblo, el pueblo de Cuba, que prefiere morir de pie a vivir de rodillas; el pueblo que ya en consciente de la entrada total a una Potencia extranjera y ha visto el fraccaso completo de la toda comunitaria. La tropa que derretirá a Fidel Castro está ya en Cuba, en el pueblo que lo aplaudió cuando vea en él al héroe de nuestra libertad.
 

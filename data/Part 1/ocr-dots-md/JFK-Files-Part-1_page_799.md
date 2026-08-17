@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_799.png
-
-Convert to Markdown<table><thead><tr><th>FORM 5-60 (40) 53a USE PREVIOUS EDITION.</th><th>CLASSIFICATION SECRET</th><th>PAGE NO.</th></tr></thead><tbody><tr><td></td><td>XX CONTINUED</td><td>5.</td></tr></tbody></table>
+<table><thead><tr><th>FORM 5-60 (40) 53a USE PREVIOUS EDITION.</th><th>CLASSIFICATION SECRET</th><th>PAGE NO.</th></tr></thead><tbody><tr><td></td><td>XX CONTINUED</td><td>5.</td></tr></tbody></table>
 
 CONTINUATION OF
 DISPATCH

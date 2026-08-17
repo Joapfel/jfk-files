@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25152.png
-
-Convert to Markdown**PERSONS/ENTITIES:**
+**PERSONS/ENTITIES:**
 
 NGO DINH NHU
 CONEIN

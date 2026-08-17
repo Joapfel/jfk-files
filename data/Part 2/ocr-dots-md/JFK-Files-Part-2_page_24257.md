@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24257.png
-
-Convert to Markdownthat individuals out in the field are not particularly astute at costing their contracts. Doole gave excellent advice in this area.
+that individuals out in the field are not particularly astute at costing their contracts. Doole gave excellent advice in this area.
 
 Moreover, Doole was quick to advise when an operation is bordering on not being responsive to the demands of good management. Houston cited one instance when Doole replaced a controller in the corpor- ation who was very able but "had his own ideas of bookkeeping and controls." Doole insisted that the corporation put in bookkeeping and controls completely consistent with U. S. CAB and FAA prac- tices. And of course the maintenance contracts with the military were audited constantly by the military audit teams that were right in the plant.
 

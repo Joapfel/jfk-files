@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1167.png
-
-Convert to Markdown8/56-6/69 COS Winston M. Scott (deceased)
+8/56-6/69 COS Winston M. Scott (deceased)
 
 DCOS 7/56 - 7/58 Alfonso Rodriguez (retired)
 10/58 - 12/62 Warren Dean (retired)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31152.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO. 560b
 I MAR, 98

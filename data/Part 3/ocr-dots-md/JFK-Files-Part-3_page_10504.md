@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10504.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE UNIT
 RECEIVED
 CI: LUCI PI: 76

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11786.png
-
-Convert to MarkdownSection Chief William A. Branigan
+Section Chief William A. Branigan
 (CGS:EWL:pdr 8/30/71)
 
 Within this perspective the 12 cases referred by

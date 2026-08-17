@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13251.png
-
-Convert to MarkdownIN UNIT
+IN UNIT
 DISCRIPTOR RECORDS UNIT
 
 JUN 22 1975

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9240.png
-
-Convert to MarkdownBOBBY SEALE
+BOBBY SEALE
 FEMA
 MAYOR
 OF OAKLAND

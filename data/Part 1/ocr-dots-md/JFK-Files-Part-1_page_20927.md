@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20927.png
-
-Convert to Markdown19 Aug 58 - $720.00
+19 Aug 58 - $720.00
 
 19-31 Aug 58 - $260
 Sep 58 - 600 + 32.22 *$632.22*

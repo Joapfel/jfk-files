@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9697.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 It is noted Special Agents of the FBI mentioned above are possibly identical to SAS BURL E. CLONINGER and CHARLES F. MOFFETT, who have worked Ku Klux Klan matters in the Trenton, New Jersey area.
 

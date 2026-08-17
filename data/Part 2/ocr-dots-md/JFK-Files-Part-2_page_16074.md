@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16074.png
-
-Convert to MarkdownDate June 5, 1969
+Date June 5, 1969
 
 ANDREA BEVERLY GRAVES was interviewed at the Federal Bureau of Investigation Office, 219 South Dearborn Street, Chicago, Illinois, on June 4, 1969, by Special Agents (SA) RICHARD A. CARR and JOHN J. LOUGHNEY, JR. Prior to being interviewed GRAVES was advised of the identity of the interviewing Agents and was furnished with a form entitled, "Interrogation; Advice of Rights", which she read. After reading this form GRAVES stated she understood her rights and declined to sign the form.
 

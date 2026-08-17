@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17810.png
-
-Convert to Markdown1) Clarify CIA's mission and charter by amending the National Security Act of 1947 to reflect:
+1) Clarify CIA's mission and charter by amending the National Security Act of 1947 to reflect:
 
 --that included in the proper functions of the Agency are (a) collection of foreign intelligence information; (b) conduct of activities to carry out CIA's counter-intelligence responsibilities overseas; and (c) conduct of covert action operations overseas when authorized by the President;
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21156.png
-
-Convert to Markdown1 February 1962.
+1 February 1962.
 
 MEMORANDUM FOR: Central Cover Group/Non-official Cover
 

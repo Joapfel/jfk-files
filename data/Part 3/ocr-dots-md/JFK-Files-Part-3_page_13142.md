@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13142.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On 5/11/64, MM 960-S advised that Manuel Artime Buesa continued as head of the MRR which maintained headquarters at 2212 N.E. 2nd Court, Miami.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8295.png
-
-Convert to MarkdownITEM I.
+ITEM I.
 
 Q: What about JUNAN Bond's campaign? Any influence stat? 1964 or 1965?
 

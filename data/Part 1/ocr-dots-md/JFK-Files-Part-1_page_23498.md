@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23498.png
-
-Convert to Markdown(6)
+(6)
 
 The Pan-American Foundation
 Box 3587

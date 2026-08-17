@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22947.png
-
-Convert to Markdown45
+45
 
 me and it was clear, in that sense, that I had become responsible for knowing what was in the document, but I have to say that as I reread it I have no recollection that I ever, in fact, did read it at the time. Whether that was because of the flow, the very heavy flow of other documents or because I passed it to someone else or because I just simply didn't get to it, I cannot tell you, but I have no recollection that I saw it.
 

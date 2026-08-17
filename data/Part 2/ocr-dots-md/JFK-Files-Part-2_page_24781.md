@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24781.png
-
-Convert to Markdownarms (i.e., a paramilitary or revolutionary implementation as opposed to a specifically targeted assassination use). (Bissell, 7/29, p.80),
+arms (i.e., a paramilitary or revolutionary implementation as opposed to a specifically targeted assassination use). (Bissell, 7/29, p.80),
 
 Concerning the briefing paper, Bissell testified that:
 

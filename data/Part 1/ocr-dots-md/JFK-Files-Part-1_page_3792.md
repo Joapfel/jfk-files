@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3792.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, BEAGAN
 

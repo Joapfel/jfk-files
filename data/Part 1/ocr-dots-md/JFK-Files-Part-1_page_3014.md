@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3014.png
-
-Convert to Markdown15 JUN
+15 JUN
 1967
 
 MEMORANDUM FOR: Chief, Central Cover Staff

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25558.png
-
-Convert to Markdown14 July 1969
+14 July 1969
 
 **MEMORANDUM FOR:** Executive Officer, Western Hemisphere
 Division

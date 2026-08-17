@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20087.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 NATIONAL LAWYERS GUILD
 

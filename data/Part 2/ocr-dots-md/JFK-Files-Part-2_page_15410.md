@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15410.png
-
-Convert to MarkdownMr. A. H. Belmont
+Mr. A. H. Belmont
 
 April 28, 1960
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2102.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>First Name</td>
     <td>Last Name</td>

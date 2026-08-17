@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6921.png
-
-Convert to Markdowngreer" to the murder of President Kennedy. The injunction would apply to all congressional committees and all executive agencies, including the CIA, the FBI, the Secret Service, and the National Archives. The bill could direct these record-holders to make the materials public. It could specify that the only materials to be held back would be those itemized in the current bill -- agents, intelligence sources and methods, etc.
+greer" to the murder of President Kennedy. The injunction would apply to all congressional committees and all executive agencies, including the CIA, the FBI, the Secret Service, and the National Archives. The bill could direct these record-holders to make the materials public. It could specify that the only materials to be held back would be those itemized in the current bill -- agents, intelligence sources and methods, etc.
 
 Where legislative writ does not run or is disputable, a statute could urge voluntary action. The current bill asks such cooperation from state and local agencies and foreign governments. A statute that sought to avoid constitutional disputes could ask the same of the President regarding records of the White House and Executive Office.
 

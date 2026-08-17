@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19888.png
-
-Convert to MarkdownCV. 128-32715
+CV. 128-32715
 
 PAGE TWO
 

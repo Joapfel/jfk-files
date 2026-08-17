@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19355.png
-
-Convert to MarkdownForm No. 13-6
+Form No. 13-6
 April 1947
 
 OUTGOING CLASSIFIED MESSAGE

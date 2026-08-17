@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8658.png
-
-Convert to Markdown# ON CHAIRMAN MAO TSE TUNG'S DECLARATION
+# ON CHAIRMAN MAO TSE TUNG'S DECLARATION
 ## OF 20 MAY, 1970
 
 In this declaration, Chairman Mao Tse Tung has set forth a brilliant and timely analysis of the qualitatively new situation that exists in the world as a result of the treacherous new acts of aggression launched by the fascist, imperialist Nixon-Chinese peoples.

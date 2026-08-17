@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30663.png
-
-Convert to Markdown180-10143-10227
+180-10143-10227
 
 **Classification:** SECRET
 1 of 9 pages

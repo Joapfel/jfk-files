@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15593.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>ITINERARY OF</th><th>Reiner, Georg Franz</th></tr></thead><tbody><tr><td colspan="2">FROM</td></tr><tr><td colspan="2">TO</td></tr></tbody></table>
 

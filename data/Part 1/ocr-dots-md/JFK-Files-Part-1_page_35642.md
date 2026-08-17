@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35642.png
-
-Convert to Markdown# Hoja No.6
+# Hoja No.6
 
 Una mujer cubana, Martha Gonzales, ha publicado un libro en Cuba que ha tenido un notable éxito en la librería. Su título: "Paolo Palabre". Relate en él como se denroya la vida en Miami. Ella era una exiliada que retornó a su patria al encontrarse inconforme con su exilio. Estos hojas cua- tros escribió una mujer cubana, que también se encuentran reaconforme pero de vivir en su patria la cual se ha convertido en una cárcel y que por tanto no tiene laerte de Marta de poder escoger, quinta nirvan un día para ripostar en ese famoso libro. No han sido escritas estas hojas con el fin de publicación y eso es nota al ver el descuido o la noconidad 'o pensar inadvertido del erizo gusano que me hace el favor de praseccional a máquina, ya que ese trabajo no hace en una oficina octanal y en forra de trabajo. En un riego necesario de correr. Pero aunque no han sido escritas con ese afán, repito, cuien asíque al alguna inforcata se ducera en publicaria el ser uno de hojas que llegan donde Cuba, escriutan por una cubana que empu la verdad y aunque a veces se exalta por el odio trata en todo momento 'o sea lo mis objetivo posible.
 

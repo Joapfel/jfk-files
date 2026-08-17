@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13236.png
-
-Convert to MarkdownGOC radio and TV during Laso conference.
+GOC radio and TV during Laso conference.
 
 2. He has also been involved in shady deals in Miami, although undertaken at JMWAVE behest might prejudice his effective use.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16327.png
-
-Convert to Markdown<table><tr><td>TO: CIVILIAN</td></tr><tr><td>FROM: LEOPOLDVILLE</td></tr><tr><td>ACTION: 1. COPY ISSUED TO I.W. AT: 1940, 12 AUG - SP</td></tr><tr><td>INFO: DCI, DIP., AOCO, SOD 6, DODS, CA 2, CA/PEG, CA/PROP, CA/IC 4, CI/OPS, CI/IC 2, CI/PS, FI, FI/3, FI/INT 5, AT 17, SE 6, VA.</td></tr><tr><td colspan="2">TDCS-314/01482-64</td></tr></table>
+<table><tr><td>TO: CIVILIAN</td></tr><tr><td>FROM: LEOPOLDVILLE</td></tr><tr><td>ACTION: 1. COPY ISSUED TO I.W. AT: 1940, 12 AUG - SP</td></tr><tr><td>INFO: DCI, DIP., AOCO, SOD 6, DODS, CA 2, CA/PEG, CA/PROP, CA/IC 4, CI/OPS, CI/IC 2, CI/PS, FI, FI/3, FI/INT 5, AT 17, SE 6, VA.</td></tr><tr><td colspan="2">TDCS-314/01482-64</td></tr></table>
 
 SECRET 12200E
 

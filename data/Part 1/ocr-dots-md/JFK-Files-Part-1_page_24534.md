@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24534.png
-
-Convert to MarkdownRUSSIA FINANCES GUERRILLA WARFARE IN COLOMBIA AND VENEZUELA
+RUSSIA FINANCES GUERRILLA WARFARE IN COLOMBIA AND VENEZUELA
 
 Unsigned article; San Jose, Costa Rica; La Prensa Libre; Spanish, 19 June 19627
 

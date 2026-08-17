@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6756.png
-
-Convert to MarkdownOCA 2050-92
+OCA 2050-92
 
 6 May 1992
 

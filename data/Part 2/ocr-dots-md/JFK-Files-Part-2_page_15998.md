@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15998.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 SOCIALIST WORKERS PARTY
 CHICAGO BRANCH

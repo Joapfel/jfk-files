@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25383.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 **To:** Rick Inderfurth
 **From:** Mike Madigan

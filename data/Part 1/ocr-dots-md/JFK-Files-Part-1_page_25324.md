@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25324.png
-
-Convert to MarkdownIt was ascertained that in December 1955, the Soviet Popular was selling copies of two Maxim Gorki's works, their titles are translated into Spanish being "Los Sarta Monos" and "Mi Infantería."
+It was ascertained that in December 1955, the Soviet Popular was selling copies of two Maxim Gorki's works, their titles are translated into Spanish being "Los Sarta Monos" and "Mi Infantería."
 
 4. GRIJALVO (or GRIJALVO) Serres, Juan,
 General Manager of Exportadores De Publicaciones Mexicanas S. de R.L.

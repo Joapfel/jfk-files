@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28926.png
-
-Convert to MarkdownSECRET.
+SECRET.
 
 in conformance with applicable Government regulations. You will be entitled to per diem in lieu of subsistence in the course of all travel performed hereunder, and when authorized, for you alone while on temporary duty away from your permanent post of assignment. In addition, you will be entitled to reimbursement in accordance with standardized Government rates for the authorized official use of your private automobile. All travel, transportation and per diem provided for under this paragraph must be properly authorized, and expenses incurred hereunder are subject to payment and accounting in compliance with Government regulations or according to the established policies of your cover facility, whichever is directed by the Government.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8274.png
-
-Convert to Markdown4-0000
+4-0000
 
 Memo for the Records
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10650.png
-
-Convert to MarkdownIt is noted the United Nations has considerable literature setting forth favorable information regarding accomplishments and the desirability of having a United Nations. It would appear appropriate to offset the literature sent out by the hate groups, by sending out favorable information concerning the organization or individual under attack.
+It is noted the United Nations has considerable literature setting forth favorable information regarding accomplishments and the desirability of having a United Nations. It would appear appropriate to offset the literature sent out by the hate groups, by sending out favorable information concerning the organization or individual under attack.
 
 (2) Any hate organizations tend to disguise their true identity under the pretext of being a religious study group. Using such a disguise, they find it easy and inexpensive to obtain the facilities of an established church to hold special or organizational meetings.
 

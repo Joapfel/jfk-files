@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22108.png
-
 s... You must be very, very clever and very, very foxy... Gradually, gradually move them to the north wing of the building, to the north wing, in which we have absolutely nothing and won't have anything."
 
 **31 January 1964:** "When the construction of this right (north) wing had begun, when you started the right wing, the new addition to the building, there was a plan to install as many (microphones) as possible--thirty, forty--stick them everywhere. It really wasn't important how many of them would really work. The Committee (KGB) Chairman at that time was SHELEPIN. He didn't go for this. Whether it was the flap with the Poles that happened just before that* or whether it was something else or whether it was the international situation, they were afraid that this may be uncovered. But then, later, when the building was finished, and when you were finishing or putting up the addition yourself, at that point it was too late to put these things in. It was impossible to do it."

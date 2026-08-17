@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31446.png
-
-Convert to MarkdownCITIZENS COMMITTEE FOR CONSTITUTIONAL
+CITIZENS COMMITTEE FOR CONSTITUTIONAL
 LIBERTIES (NORTHERN CALIFORNIA)
 
 A source advised on June 19, 1961, that MICKEY LIMA, Chairman, Northern California District, Communist Party (CP), reported on June 15, 1961, that the CP, USA, in response to the Supreme Court decision of June 5, 1961, relating to the Internal Security Act of 1950 (ISA-50) had decided to create a committee known as Citizens Committee for Constitutional Liberties (CCCL), 22 East 17th Street, New York City, and that a local committee would be organized for Northern California.

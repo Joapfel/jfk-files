@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23388.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 to the President or anybody else, I was perfectly clear in my
 mind because of what had occurred and the way that these matters

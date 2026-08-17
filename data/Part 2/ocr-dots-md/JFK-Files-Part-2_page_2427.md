@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2427.png
-
-Convert to MarkdownJUN 23 1976
+JUN 23 1976
 
 SECRET 2314452 JUN 76 STAFF
 GITE OCD/MAN 13374

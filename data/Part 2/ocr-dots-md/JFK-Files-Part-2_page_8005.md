@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8005.png
-
-Convert to Markdown13-00000
+13-00000
 
 What the National Committee in Washington, D.C. is doing about computerizing files of evidence, initiating lawsuits to obtain information, etc.; and comments on two new books by District Attorney Jim Garrison and Robert Blair Kaiser.
 

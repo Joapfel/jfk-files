@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26817.png
-
-Convert to Markdown4 February 1965
+4 February 1965
 
 MEMORANDUM FOR: Deputy Director, for Plans
 SUBJECT : Briefing of Reader's Digest Reporter

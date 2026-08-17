@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1646.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 C) Intended use of results of inquiry, i.e., public hearings, etc., it being noted that any records maintained by the British police would be as the result of an official inquiry and this would normally be available for police use only, unless otherwise exempted by the British Government.
 

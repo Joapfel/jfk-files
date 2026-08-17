@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3176.png
-
-Convert to Markdownor he tells jokes. It is as though he were afraid to show that he takes
+or he tells jokes. It is as though he were afraid to show that he takes
 things seriously, as though he were ashamed or frightened.
 
 During the various opportunities when his wife is screaming all

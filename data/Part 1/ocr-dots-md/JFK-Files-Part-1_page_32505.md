@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32505.png
-
-Convert to Markdown15 SEP 1970
+15 SEP 1970
 
 MEMORANDUM FOR: Chief, WII Division
 THROUGH : Acting Deputy Director for Plans

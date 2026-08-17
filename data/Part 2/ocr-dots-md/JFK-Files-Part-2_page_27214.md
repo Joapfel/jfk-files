@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27214.png
-
-Convert to MarkdownP. Authority to Investigate Agency Personnel
+P. Authority to Investigate Agency Personnel
 Nine CIA Memos (Classified)
 
 Q. Authority of Director to Protect Sources & Methods

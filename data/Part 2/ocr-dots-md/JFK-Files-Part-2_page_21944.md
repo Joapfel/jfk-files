@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21944.png
-
-Convert to Markdownvery well due to his five years of service there and his broad personal contacts among the Chilean officers. Following a proposal by the Chief of Station, the CIA decided to enlist Colonel Wimert in collecting intelligence concerning the possibility of a coup and to use him as a channel to let the interested Chilean military know of U. S. support for a coup. Karamessines described this procedure for the Committee:
+very well due to his five years of service there and his broad personal contacts among the Chilean officers. Following a proposal by the Chief of Station, the CIA decided to enlist Colonel Wimert in collecting intelligence concerning the possibility of a coup and to use him as a channel to let the interested Chilean military know of U. S. support for a coup. Karamessines described this procedure for the Committee:
 
 We also needed contact with a wider segment of the military, the senior military which we had not maintained and did not have, but which we felt confident that our military representative in Chile had....And we got the approval of the DIA to enlist the cooperation of [Colonel Wimert] in our effort to procure intelligence.
 

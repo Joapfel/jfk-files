@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31118.png
-
-Convert to Markdown23 October 1950
+23 October 1950
 
 In reply, please refer to ID -3
 

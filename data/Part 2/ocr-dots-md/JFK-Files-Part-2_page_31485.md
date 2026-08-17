@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31485.png
-
-Convert to MarkdownSF 100-50836
+SF 100-50836
 FTD/mbl
 
 The June 8, 1962, issue of the "New York Times" contained an advertisement revealing that the World Peace Council sponsored the World Congress on General Disarmament and Peace held in Moscow, on July 9 - 14, 1962.

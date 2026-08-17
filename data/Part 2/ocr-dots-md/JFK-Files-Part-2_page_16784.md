@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16784.png
-
-Convert to Markdown7-18
+7-18
 
 REPORT
 of the

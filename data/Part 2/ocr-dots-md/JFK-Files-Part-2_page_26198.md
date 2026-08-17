@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26198.png
-
-Convert to Markdownhappened in each other's sessions and what he was telling the guy. Then how useful this was, mind you, I don't know.
+happened in each other's sessions and what he was telling the guy. Then how useful this was, mind you, I don't know.
 
 O'BRIEN: Well, do you find [insert tissue card] again, in passing on to the task force [insert tissue card]--and the formation of that Vietnam task force in the early part of the Kennedy administration--do you find [insert tissue card] sensitivity on the part of the people, the political appointees, to what's going on in South Vietnam? Are you able to explain what you're telling me right now about South Vietnam to these people?
 

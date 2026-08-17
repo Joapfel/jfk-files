@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4703.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in terms of trying to get the job done and stay within the bounds of the
 Agency.

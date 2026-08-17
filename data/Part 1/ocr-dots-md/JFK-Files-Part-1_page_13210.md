@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13210.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET T 092316Z FEB 68 CITE JMWAVE 1213
 

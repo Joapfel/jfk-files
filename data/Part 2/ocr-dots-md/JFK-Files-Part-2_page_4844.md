@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4844.png
-
-Convert to MarkdownSECRET
+SECRET
 
 forget that even when you have only two now, we still have to -- remember the Agency still reports to Foreign Affairs, briefs them on foreign affairs. The House Armed Services Committee still gets special reporting. The Appropriations Committees in both the House and the Senate are always involved with everything. So you've got four committees right now anyway.
 

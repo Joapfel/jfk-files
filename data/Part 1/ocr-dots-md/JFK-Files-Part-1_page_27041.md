@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27041.png
-
-Convert to Markdown**Director, Domestic Contact Service**
+**Director, Domestic Contact Service**
 
 15 May 1969
 

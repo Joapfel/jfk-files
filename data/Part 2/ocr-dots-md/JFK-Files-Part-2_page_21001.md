@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21001.png
-
-Convert to MarkdownMC 100-743G
+MC 100-743G
 
 age and is disposed to follow an international policy that will not only benefit Mexico but its sister Latin American countries who are bound together not only by historical ties but by the same economic and social conditions and identical perspectives. In apparent reference to DAVID ALFARO SIQUEIROS, leading PCM figure, he stated that some people, who are unable to understand national and international politics although they expound them daily, have been critical of President LOPEZ MATEOS' trip.
 

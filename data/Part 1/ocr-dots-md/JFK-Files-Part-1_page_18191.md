@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18191.png
-
-Convert to MarkdownVERIFICATION FOR: V1/05 - Projects Branch
+VERIFICATION FOR: V1/05 - Projects Branch
 
 CIPHERKEY : LIMERKY
 DIVISION : Western Hemisphere

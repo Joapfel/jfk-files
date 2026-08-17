@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15256.png
-
-Convert to MarkdownMemorandum for Mr. Sullivan
+Memorandum for Mr. Sullivan
 Re: INTELLIGENCE COVERAGE OF NON-SOVIET-BLOC COUNTRIES (ANNUAL EVALUATION)
 
 MAGNITUDE

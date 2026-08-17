@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1312.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 SECURITY APPROVAL
 
 Date: 29 August 1951

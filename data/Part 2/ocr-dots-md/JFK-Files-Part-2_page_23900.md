@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23900.png
-
-Convert to Markdown(Draft--9/8/75)
+(Draft--9/8/75)
 
 # The "Executive Action" Capability
 

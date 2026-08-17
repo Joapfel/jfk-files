@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22308.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 he made a trip to Russia. Our inputs were to the effect that
 2 he brought back from Russia with him an attractive Russian

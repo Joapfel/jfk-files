@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_23981.png
-
 for Latin American affairs on the NSC staff, summarized the CIA's "cold-blooded assessment" in a memo to his boss: "Military action is impossible; the military is incapable and unwilling to seize power. We have no capability to motivate or instigate a coup." (Memorandum for Dr. Kissinger/Chile--40 Committee Meeting, Monday--September 14, September 14, Viron P. Vaky)
 
 On September 14, the 40 Committee met to discuss these reports and what action was to be taken:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13741.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 ① Memorandum for: Chief, Security Analysis Group.
 Subject: Agency, Castro Assassination Plotting (Sam Francisco & Santo Trafficante)

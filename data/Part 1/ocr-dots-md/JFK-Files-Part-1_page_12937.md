@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12937.png
-
-Convert to Markdown28 Jan 68 P.O.A. requested on Subject for use as DIEGPOL penetration but cancelled because of his involvement in clandestine sabatage activities and failure to report complete stories of his activities. Subject handled as hostile until his motives completely ascertained.
+28 Jan 68 P.O.A. requested on Subject for use as DIEGPOL penetration but cancelled because of his involvement in clandestine sabatage activities and failure to report complete stories of his activities. Subject handled as hostile until his motives completely ascertained.
 
 22 May 68 Polygraphed as Purpose: To determine conclusively that he broke off completely with Lefty Rosenthal group and that he not currently involved in any illegal activity which could cause embarrassment to US Gov. and 1) Status of his relationship with his brothers 2) degree of his involvement with in theft and disposal of demolition and other sabatog devices. 3) past illegal activities or association with gangster elements make him vulnerable to blackmail. 4) that he not engaged in activities hostile to U.S. government. Subject was willing and eager to take SWIRL. passed SWIRL exam 23 May with satisfactory clarification on all points of concern.
 

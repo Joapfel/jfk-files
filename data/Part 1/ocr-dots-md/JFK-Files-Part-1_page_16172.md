@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16172.png
-
-Convert to MarkdownSubject: Mitchell Livingston Werbell III
+Subject: Mitchell Livingston Werbell III
 
 DDO/C/WH/7/A.Spera:cab/1497 (9 Aug '74)
 

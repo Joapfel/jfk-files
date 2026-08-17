@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1992.png
-
-Convert to Markdown21 March 1960
+21 March 1960
 
 MEMORANDUM FOR: Security Staff, Office of Logistics
 FROM : Chief, TSD/Security

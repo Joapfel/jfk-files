@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26738.png
-
-Convert to MarkdownSECRET
+SECRET
 
 day to the next where he was?
 

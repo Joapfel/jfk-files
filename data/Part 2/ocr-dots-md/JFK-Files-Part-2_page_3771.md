@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3771.png
-
-Convert to Markdown# Garrison Seeking Two As Arms Theft Plotters
+# Garrison Seeking Two As Arms Theft Plotters
 
 NEW ORLEANS, La. (AP) — Dist. Atty. Jim Garrison has asked Canadian and Texas authorities to arrest two men charged in an incident which Garrison's office says “may or may not be related” to his probe of the Kennedy assassination.
 

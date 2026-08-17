@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22444.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. OLSEN: Thank you, George.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26901.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Photocopy from
 Gerald Ford Library

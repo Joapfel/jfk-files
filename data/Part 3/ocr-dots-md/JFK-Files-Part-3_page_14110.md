@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14110.png
-
-Convert to Markdowna periodic regional intelligence bulletin on Southeast Asia, and that consideration is being given to issuing similar regional intelligence bulletins for consumers in other areas. He described this particular recommendation as being a "good suggestion."
+a periodic regional intelligence bulletin on Southeast Asia, and that consideration is being given to issuing similar regional intelligence bulletins for consumers in other areas. He described this particular recommendation as being a "good suggestion."
 
 At this point Mr. Clifford, reverting to the discussion on the Hanson Baldwin matter, asked whether a separate investigative unit is being established as recommended by the Board, in lieu of the referral of leaks for investigation by the FBI. Mr. McCone responded that this matter is still under consideration; that in his own office he is prepared to set up such a unit; that he and the President feel this action must be taken; but that there is growing concern in some quarters that the creation of such a unit might ultimately lead to the establishment of some kind of internal Gestapo.
 

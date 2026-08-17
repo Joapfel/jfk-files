@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21130.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 furnished the name of one as "SHNIREV." (NIKOLAY VASILYEVICH SHNYRYEV). NOSENKO was not specifically questioned concerning VOLODYA and GROMAKOVA's connections with [RICHARDS]().()
 

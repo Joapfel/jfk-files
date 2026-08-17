@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4606.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 concerning the subject or MANUEL ARQUES than made available in Miami airtel to Bureau, dated 2/6/61.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1527.png
-
-Convert to Markdown5 March 1958
+5 March 1958
 
 EMBASSY OF THE UNION OF
 SOVIET SOCIALIST REPUBLICS

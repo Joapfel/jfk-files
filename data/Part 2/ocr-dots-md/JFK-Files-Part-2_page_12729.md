@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12729.png
-
-Convert to MarkdownII. Mark canceled across face of each card being retained and file in the reserve index, section B.
+II. Mark canceled across face of each card being retained and file in the reserve index, section B.
 
 III. Above instructions do not apply[to]individuals removed from security index based upon activity in Nation of Islam. Security index cards in such cases should be destroyed.
 

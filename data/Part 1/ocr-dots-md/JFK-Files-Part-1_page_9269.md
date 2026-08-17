@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9269.png
-
-Convert to Markdown4 Oct. 1950
+4 Oct. 1950
 
 ?? Photo of TROTSKY and LENIN
 

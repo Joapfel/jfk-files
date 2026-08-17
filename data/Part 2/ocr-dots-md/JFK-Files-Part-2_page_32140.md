@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32140.png
-
-Convert to Markdown# FOR OFFICIAL USE ONLY
+# FOR OFFICIAL USE ONLY
 
 ## AGENT REPORT
 (AR 381-130; FM 30-17)

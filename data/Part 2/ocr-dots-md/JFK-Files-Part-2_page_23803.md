@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23803.png
-
-Convert to Markdown1. Mr. Bader. The Agency uses "American clergy or missionary."
+1. Mr. Bader. The Agency uses "American clergy or missionary."
 
 2. Senator Huddleston. It has to be a person whose primary
 

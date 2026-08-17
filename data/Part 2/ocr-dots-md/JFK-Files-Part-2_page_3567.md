@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3567.png
-
-Convert to Markdownc. The charge has no information on the motives behind this switch. Our embassy thinks it may be a move to pave the way for exploratory talks by Foreign Minister Subandrio at Bangkok with his Thai and Philippine counterparts. It may also be meant to provide a more receptive attitude for Nasution's visit here.
+c. The charge has no information on the motives behind this switch. Our embassy thinks it may be a move to pave the way for exploratory talks by Foreign Minister Subandrio at Bangkok with his Thai and Philippine counterparts. It may also be meant to provide a more receptive attitude for Nasution's visit here.
 
 d. Our embassy thinks Nasution went in for his Malaysia sabre rattling on Sukarno's orders, or at the very least, with the president's tacit support. Sukarno may feel Nasution has stolen some of his thunder.
 

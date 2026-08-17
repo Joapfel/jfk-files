@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13342.png
-
-Convert to MarkdownOLSEN: Where did you talk to Bernie the next time about this subject?
+OLSEN: Where did you talk to Bernie the next time about this subject?
 
 STURGIS: It was either one or two places; it was either at his home in the --I believe the northwest section of town, or at a dinner that he invited me to at a steak house--and I believe it was a ranch house; this ranch house was located on 36th Street just before LeJuene Road.
 

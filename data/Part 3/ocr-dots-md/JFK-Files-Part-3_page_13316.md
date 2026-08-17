@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13316.png
-
-Convert to Markdown2. Angleton's "I am not private to who struck John."
+2. Angleton's "I am not private to who struck John."
 
 Angleton
 

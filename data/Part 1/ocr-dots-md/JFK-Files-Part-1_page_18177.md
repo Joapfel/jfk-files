@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18177.png
-
-Convert to MarkdownDISPATCH
+DISPATCH
 
 <table><tr><td colspan="4">DISPATCH</td></tr><tr><td>TO<br/>Chief of Station, Mexico City</td><td colspan="3"></td></tr><tr><td>INFO<br/>Gief, WJ</td><td colspan="3"></td></tr><tr><td>SUBJECT<br/>Mail Procurement of MV-2320 - Project LIEMPTY</td><td colspan="3"></td></tr><tr><td>ACTION REQUIRED: APPROVALS<br/>HRS-1241, dated 5 Feb. 1960</td><td colspan="3"></td></tr><tr><td colspan="4">1. Reference dispatch gives authorization to procure one 2-door, used sedan for Project LIEMPTY, MV-2320. Authorization was valid until 3 MAY 1960.</td></tr><tr><td colspan="4">2. Headquarters has no record of procurement of this vehicle. If this sedan has been purchased please comply with paragraph 2 of reference and return signed Declaration of Trust.</td></tr><tr><td colspan="4">3. If the purchase has not been made at this date please advise Headquarters if the Station still intends to secure the sedan and give justification for an extension of authority to purchase.</td></tr><tr><td colspan="4">END OF DISPATCH</td></tr></table>
 

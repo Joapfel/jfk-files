@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5770.png
-
-Convert to MarkdownCobb, June Viola
+Cobb, June Viola
 Coe, Virginius Frank
 Conein, Lucien E.
 Conte Aguero, Luis

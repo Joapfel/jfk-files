@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17835.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONCLUSION OF<br/>DISPATCH</td>
     <td>SECRET</td>

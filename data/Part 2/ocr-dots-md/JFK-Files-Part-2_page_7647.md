@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7647.png
-
-Convert to MarkdownI have read the affidavits, and they were compiled as an enclosure and sent over with this letter.
+I have read the affidavits, and they were compiled as an enclosure and sent over with this letter.
 
 Mr. STERN. You have reviewed them in preparation for your testimony before the Commission?
 

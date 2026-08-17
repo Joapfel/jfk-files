@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17854.png
-
-Convert to Markdown6 September 1968
+6 September 1968
 
 MEMORANDUM FOR: Chief, CCS
 FROM #H Division

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14813.png
-
-Convert to MarkdownM.A. Jones to Bishop Memo
+M.A. Jones to Bishop Memo
 
 RE: LUNCHEON WITH ATTORNEY GENERAL
 

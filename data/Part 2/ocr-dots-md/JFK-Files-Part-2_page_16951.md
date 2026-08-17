@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16951.png
-
-Convert to MarkdownMAYNON, JOSEPH
+MAYNON, JOSEPH
 
 This is a Panther who is no longer functioning.
 

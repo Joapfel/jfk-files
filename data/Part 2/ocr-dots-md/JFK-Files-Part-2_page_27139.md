@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27139.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 direct access to the Minister of Defense,
 and some service chiefs have also had the

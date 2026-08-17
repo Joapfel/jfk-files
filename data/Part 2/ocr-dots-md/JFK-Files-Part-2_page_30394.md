@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30394.png
-
-Convert to Markdownof activity, would be the SC Division. On this I think the CI staff could be considered as speaking for the Directorate.
+of activity, would be the SC Division. On this I think the CI staff could be considered as speaking for the Directorate.
 
 Mr. Goldsmith. Is the Domestic Contact Division part of the CI Staff?
 

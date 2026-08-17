@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5683.png
-
-Convert to MarkdownSUBJECT: Release of JFK Documents
+SUBJECT: Release of JFK Documents
 
 relationships with the Zaireans because of our need for their cooperation in assisting with a Presidentially-mandated program and will need to improve our relationship over the next several months to accomplish our goals in that part of the world. We also continue to have a Station in Dakar, Senegal. We have liaison there and would not want to jeopardize it. In dealing with developmental contacts, there have been recent instances where potential assets have voiced concern about our Agency's ability to keep its relationships clandestine. To expose our station there would further hamper developmental relationships and eventual recruitments. (S)
 

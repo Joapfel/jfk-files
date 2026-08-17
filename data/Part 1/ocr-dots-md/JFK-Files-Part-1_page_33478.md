@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33478.png
-
-Convert to MarkdownV.S.-economie
+V.S.-economie
 loopt terug
 
 WASHINGTON - De Amerikaanse regering heeft donderdag bezend ge- maakt dat de nationale economie veel krachtiger is teruggelopen. In het eerste kwartaal van dit jaar, dan was Verwaapt. Prijsen stegen houvendien met meer dan tien procent.

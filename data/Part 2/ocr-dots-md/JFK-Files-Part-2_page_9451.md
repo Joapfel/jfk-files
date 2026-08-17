@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9451.png
-
-Convert to MarkdownHowever, we want the people here in Detroit and throughout the world to know that the Black Panther Party and its organizing bureau's, the National Committee to Combat Fascism, will not quiver in the wake the U.S. inspired onslaught that is being waged against our Party, Black people and other oppressed people throughout the world. And we have said it before and we will say it again:
+However, we want the people here in Detroit and throughout the world to know that the Black Panther Party and its organizing bureau's, the National Committee to Combat Fascism, will not quiver in the wake the U.S. inspired onslaught that is being waged against our Party, Black people and other oppressed people throughout the world. And we have said it before and we will say it again:
 
 THE RACIST DOG POLICEMEN MUST WITHDRAW IMMEDIATELY FROM OUR COMMUNITIES AND THE COMMUNITIES OF THE WORLD, CEASE THEIR WANTON MURDER AND BRUTALITY AND TORTURE OF OPPRESSED PEOPLE, OR FACE THE WRATH OF THE ARMED PEOPLE.
 

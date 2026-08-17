@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23229.png
-
-Convert to MarkdownJournalistic - AGV 3.5
+Journalistic - AGV 3.5
 
 Naturelly, there are many intangibles involved with operating over long periods (almost years in Cuba) in one place, and then travelling back and forth between areas of previous assignment (Costa Rica), and least but not least, cultivating communists in all these places. The question becomes, How through thorough are these people? Does a Cuban CP character communicate with a Guatemalan or Costa Rican along lines of security, of movement of Americans in these areas, and actual approaches made ? Probably not, at their best, the administration is hapazard. A typical example: Once, in 1953, when I was leaving Costa Rica, I made a couple of cold approaches - one was with woman communist, a leader in the Union de Mujeres Carmen Lizara. I walked away from her house - she evidently got a taxi right behind me - and she went straight to the headquarters and reported to Manuel Mora. But she couldn't describe me - had the story so confused (the approach story) as to render it useless to them, and absolutely nothing ever came of the incident. (By the same token, it would have been a different story in Cuba.)
 

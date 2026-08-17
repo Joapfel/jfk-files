@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15996.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 YOUNG SOCIALIST ALLIANCE
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_4588.png
-
 s in Miami. One of these is named Ben Ramirez and is very fluent in Spanish.
 
 10. For the future Simmons recommends:

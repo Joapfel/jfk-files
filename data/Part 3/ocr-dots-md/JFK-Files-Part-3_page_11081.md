@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11081.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 August 7, 1973
 

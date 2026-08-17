@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27287.png
-
-Convert to MarkdownA. Ltr from O'Connor to Belin - 22 May 75
+A. Ltr from O'Connor to Belin - 22 May 75
 
 B. U.S. Department of Justice Memo - 29 Apr 75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2415.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PREVIOUS CONCLUSIONS RE NOSENKO
 ---

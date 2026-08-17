@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27040.png
-
-Convert to MarkdownCI Personnel handling Projects:
+CI Personnel handling Projects:
 
 SRPOINTER
 HTLINGUAL

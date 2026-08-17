@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10603.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 1 - Mr. N. P. Callahan
 1 - Mr. J. B. Adams

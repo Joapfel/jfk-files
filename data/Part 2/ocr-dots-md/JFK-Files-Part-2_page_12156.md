@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12156.png
-
-Convert to MarkdownK. INFORMANT FILES
+K. INFORMANT FILES
 
 1. Opening
     a. When active investigation is initiated regarding potential informant or confidential source who is not subject of security-type file, open 134 file.

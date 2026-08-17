@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26049.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET 172050Z MAY 68 CITE CARACAS 9646 (LYNER ACTING)
 

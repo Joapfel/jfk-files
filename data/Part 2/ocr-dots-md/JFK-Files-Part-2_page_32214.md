@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32214.png
-
-Convert to Markdown9. Producing comprehensive intelligence related to the above objectives.
+9. Producing comprehensive intelligence related to the above objectives.
 
 Our ultimate objective with respect to Cuba remains the overthrow of the Castro/Communist regime and its replacement by one compatible with the objectives of the U.S. and, where possible, sharing the aims of the Free World. To achieve this objective, the U.S. Government will be prepared to apply increasing degrees of political, economic, psychological and military pressure, on appropriate opportunities present themselves or can be created, until the Castro/Communist regime is overthrown.
 

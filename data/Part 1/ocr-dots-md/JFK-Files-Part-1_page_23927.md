@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23927.png
-
-Convert to MarkdownReel no. 2
+Reel no. 2
 
 ( You have an acute memory for the last phrase of yesterday.)
 

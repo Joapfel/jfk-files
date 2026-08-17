@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23719.png
-
-Convert to MarkdownMr. digenova. Aren't you talking about the consolidation?
+Mr. digenova. Aren't you talking about the consolidation?
 
 Mr. Aaron. No, we're talking about the paragraph that just precedes it. I'm sorry, this is the bracketed portion.
 

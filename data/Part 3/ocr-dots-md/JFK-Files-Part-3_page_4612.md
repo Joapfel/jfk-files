@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4612.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 342 N. E. 35th Street, Miami, Florida, and returned to New Jersey on November 18, 1959. She went to Miami on March 25, 1960, where she lived at the Hotel America until she returned to New Jersey on April 11, 1960.
 

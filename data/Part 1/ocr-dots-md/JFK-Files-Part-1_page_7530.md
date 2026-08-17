@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7530.png
-
-Convert to MarkdownIn Shanghai in 1933 as Editor of the "China Forum," described as a Communist publication. A source of unknown reliability has stated that in 1933 Isaaac was a "notorious radical syndaitiser" and was suspected of being an agent of the Third International. Isaaac was said to have organized the Shanghai Committee for the Defense of the Fuengze, Pearl and Central Riverways were convicted in China in 1937 for Russian espionage activities.
+In Shanghai in 1933 as Editor of the "China Forum," described as a Communist publication. A source of unknown reliability has stated that in 1933 Isaaac was a "notorious radical syndaitiser" and was suspected of being an agent of the Third International. Isaaac was said to have organized the Shanghai Committee for the Defense of the Fuengze, Pearl and Central Riverways were convicted in China in 1937 for Russian espionage activities.
 
 In March, 1945, the Third Bureau interviewed one Harris Louis Appleman, an American citizen presently living in Denver, Colorado, and who had left the party in 1926 to 1937. Appleman stated that in 1933 and 1934 he knew Durdin in Shanghai, and that during that period, he, Appleman, Harold Isaaac, Frank Class and Alexander Buchner, frequently held meetings at the home of William Public in Shanghai.
 

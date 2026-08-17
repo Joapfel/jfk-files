@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2358.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and other personnel, and changes of personnel, as well as diagrams
 of the offices of the Chief and Deputy Chiefs of the SCD during 1956 -

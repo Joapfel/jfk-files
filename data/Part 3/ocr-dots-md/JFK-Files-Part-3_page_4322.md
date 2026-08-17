@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4322.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 Panther Party may be evicted from its headquarters in the near future and, if so, [Carter's] residence would undoubtedly be used, at least temporarily, as a headquarters to conduct Los Angeles Black Panther Party business. As you are aware, the Black Panther Party is a black extremist violence-prone organization. The Los Angeles, California, chapter has been one of its most active chapters.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18753.png
-
-Convert to MarkdownNY 65-15026
+NY 65-15026
 
 In addition to information set forth in enclosed letterhead memorandum, "at least advised that CBS is making a motion picture film of MIKOVAN'S visit to the US which will be given to MIKOVAN. This is an effort on the part of CBS to restore itself to the good graces of the Soviets." It is noted that CBS no longer has any representation in Morocco since their correspondent was forced to leave Morocco at the request of the Soviets.
 

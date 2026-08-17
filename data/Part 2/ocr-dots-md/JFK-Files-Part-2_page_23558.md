@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23558.png
-
-Convert to Markdownconception of the relationship between operations and intelligence. The memorandum also suggests ways in which some of these problems can perhaps be alleviated.
+conception of the relationship between operations and intelligence. The memorandum also suggests ways in which some of these problems can perhaps be alleviated.
 
 I. CIA Autonomy
 

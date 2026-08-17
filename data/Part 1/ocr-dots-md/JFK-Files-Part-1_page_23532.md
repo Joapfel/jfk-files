@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23532.png
-
-Convert to Markdown# FIELD PROJECT OUTLINE
+# FIELD PROJECT OUTLINE
 
 ## PART I
 

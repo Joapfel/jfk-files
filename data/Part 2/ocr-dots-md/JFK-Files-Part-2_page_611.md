@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_611.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 19
 
 <table><tr><td>ORIG:</td><td>W.P.Frederick</td></tr><tr><td>UNIT:</td><td>WH/1</td></tr><tr><td>CXT:</td><td>3654</td></tr><tr><td>DATE:</td><td>6 May 66</td></tr></table>

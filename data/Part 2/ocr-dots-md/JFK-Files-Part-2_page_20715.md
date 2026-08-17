@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20715.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 Agents observing the activity at Washington, D.C. were WILLIAM ARMS, WILLIAM BROOKS, RICHARD COFFMAN, NORMAN HIERONYMI, MASON NOAH AND WILLIAM TUCKER.
 

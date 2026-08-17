@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7817.png
-
-Convert to Markdown2. Upon the completion of the interview with the committee representative the employee will prepare a summary of it for the file, with a copy routed to his division head and a copy routed to the Deputy Attorney General.
+2. Upon the completion of the interview with the committee representative the employee will prepare a summary of it for the file, with a copy routed to his division head and a copy routed to the Deputy Attorney General.
 
 C. EMPLOYEES TESTIFYING BEFORE CONGRESSIONAL COMMITTEES
 

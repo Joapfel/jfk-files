@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15465.png
-
-Convert to Markdown14-0000
+14-0000
 
 DEPT OF STATE TELEGRAM NUMPER 1389
 FROM: LEOPOLDVILLE

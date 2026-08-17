@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14116.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 Inasmuch as this Bureau's response to item 27 of Appendix C enclosed with referenced letter depends on your response to item 26, you are requested to furnish the desired information as soon as possible in order that we may comply with the Senate Select Committee request. Since all reports requested under item 26 were prepared by the Department this Bureau will take no action to provide copies of these reports to the Committee.
 

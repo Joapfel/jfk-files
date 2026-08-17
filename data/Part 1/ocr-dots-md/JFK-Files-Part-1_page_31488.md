@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31488.png
-
-Convert to Markdownattempt at support or guidance of his national tendencies. In all fairness, it should be noted, however, that the current approach to the refugee on the part of all these agencies is a conscious and considerable improvement on the exaggerated and incentive-killing IRO dole system.
+attempt at support or guidance of his national tendencies. In all fairness, it should be noted, however, that the current approach to the refugee on the part of all these agencies is a conscious and considerable improvement on the exaggerated and incentive-killing IRO dole system.
 
 But if NCR approaches the new and poor, as well as the older Dr, not as a needy "refugee" but as a citizen of his country who simply finds himself in a difficult position on this side of the Iron Curtain rather than on the other side, it should be possible to appeal to his desire for national continuity and then to some extent appeal to his ideas of his own enlightened self-interest in much the same way that such appeals are provided for by the escapee's compatriots at home by air.
 

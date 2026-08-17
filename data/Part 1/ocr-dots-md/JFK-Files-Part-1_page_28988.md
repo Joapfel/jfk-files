@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28988.png
-
-Convert to Markdown1964 Reference is made to your Letter of Authorization, effective 27 October 1955, which defines your relationship with the United States Government while you are on detail to this organization.
+1964 Reference is made to your Letter of Authorization, effective 27 October 1955, which defines your relationship with the United States Government while you are on detail to this organization.
 
 Effective 27 October 1955, said Letter is amended by adding sub-paragraph three (3) (c) which reads as follows:
 

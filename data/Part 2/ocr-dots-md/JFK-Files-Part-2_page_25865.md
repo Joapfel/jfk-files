@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25865.png
-
-Convert to MarkdownDisposition of CIA Long-Range Plan.
+Disposition of CIA Long-Range Plan.
 
 Copy #1 retained in Executive Registry.
 

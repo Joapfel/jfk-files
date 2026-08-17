@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33997.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>K.W.MURPHY:fph</td></tr><tr><td>WH/COG/CA/EW</td></tr><tr><td>4163</td></tr><tr><td>DATE: 23 MAY 1967</td></tr></table>
 

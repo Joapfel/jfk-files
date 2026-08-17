@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5667.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. Phillippe Thyyraud De Vosjoli:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4142.png
-
-Convert to Markdown## E. Option Four -- Setting Standards for Domestic Intelligence
+## E. Option Four -- Setting Standards for Domestic Intelligence
 
 The FBI should be authorized by statute to conduct domestic intelligence investigations only if Congress finds (1) that regular criminal investigations as described above would not provide information to anticipate or prevent the use of violence in violations of federal law, and (2) that the incidents of the use of violence in violations of federal law are so numerous and so serious as to constitute a significant threat to the internal security or domestic tranquility of the United States.
 

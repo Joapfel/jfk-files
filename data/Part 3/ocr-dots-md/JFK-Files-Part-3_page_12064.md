@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12064.png
-
-Convert to Markdownin work and my interest in conserving manpower wherever possible,
+in work and my interest in conserving manpower wherever possible,
 we recently reorganized the Division in order to make the most
 efficient use of our manpower. I conscientiously believe I
 have now trimmed my manpower to the bone. Under my direction,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25578.png
-
-Convert to Markdown<table><tr><td>TO</td><td>Chief, W71</td></tr><tr><td>CC/PO.</td><td>Chief, SB</td></tr><tr><td>FROM</td><td>Chief of Station, Mexico City</td></tr></table>
+<table><tr><td>TO</td><td>Chief, W71</td></tr><tr><td>CC/PO.</td><td>Chief, SB</td></tr><tr><td>FROM</td><td>Chief of Station, Mexico City</td></tr></table>
 
 <table><thead><tr><th>MARKED FOR INDEXING</th></tr></thead><tbody><tr><td>NO INDEXING REQUIRED</td></tr><tr><td>OBLIVIOUSLY DESKILLING INDEXING</td></tr><tr><td>MICROFILM</td></tr></tbody></table>
 

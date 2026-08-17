@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34594.png
-
-Convert to Markdownhe would be targetted for "executive action" if the Soviets should discover his whereabouts: With the passage of time, this latter factor is considered to be sufficiently diminished to justify a phased normalization of Nosenko's situation--this despite the fact that some points remain unresolved concerning his bona fides.
+he would be targetted for "executive action" if the Soviets should discover his whereabouts: With the passage of time, this latter factor is considered to be sufficiently diminished to justify a phased normalization of Nosenko's situation--this despite the fact that some points remain unresolved concerning his bona fides.
 
 5. The Agency, with the assistance of the FBI, is continuing to look into those questionable aspects of the case, while remaining alert to the possibility of hostile interest. However, during the full period of his stay in the United States Nosenko has cooperated with his interrogators and with the other officers responsible for his safety and welfare, and our current efforts are being directed toward his gradual adjustment to a normal, independent status. As a step in this direction, he is now living in his own private apartment, subject to some protective surveillance.
 

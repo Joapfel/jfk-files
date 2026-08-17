@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22653.png
-
-Convert to Markdownis a fingernail, arm and body affair. It takes an awfully
+is a fingernail, arm and body affair. It takes an awfully
 long time before you finally get into a code room and a
 place where you can do something securely.
 

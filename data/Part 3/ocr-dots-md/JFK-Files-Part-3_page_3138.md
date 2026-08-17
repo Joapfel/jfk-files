@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3138.png
-
-Convert to Markdown1750
+1750
 
 1. 59 percent of them were directed at the Communist Party. The bulk of the concern initially was with the Communist Party and it was a desire to create factionalism within the Communist Party and try to neutralize its efforts.
 

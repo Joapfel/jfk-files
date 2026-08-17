@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34099.png
-
-Convert to Markdown1965 (8-11-62)
+1965 (8-11-62)
 
 WESTERN UNION
 PRESS MESSAGE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22974.png
-
-Convert to Markdown1. Keys. There was a regular mechanism to screen these people.
+1. Keys. There was a regular mechanism to screen these people.
 
 2. Any number of these people had plans or ideas for changing the situation in Cuba, among those ideas for changing the situation in Cuba were plans to assassinate any number of people in Cuba.
 

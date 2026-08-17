@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34530.png
-
-Convert to Markdown14-00000
+14-00000
 
 All you need for a trip to the Soviet Union is your national passport and, if you mean to stay in the country long enough to visit and the itinerary.
 

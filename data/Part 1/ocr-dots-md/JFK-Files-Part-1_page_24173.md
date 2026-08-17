@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24173.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10. APPARENTLY S NOT FOREWARNED F HASTY DEPARTURE.
 

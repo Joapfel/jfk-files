@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8490.png
-
-Convert to Markdown-3-
+-3-
 
 a contemtuous smile on his lips. Unquestionably, his type of charm appeals to elderly ladies and LOGINOV is quite aware that he is attractive to the other sex. Without a doubt, he tries to capitalize on it and with his fluent Spanish probably tries to ensnare Mexican females. There is no indication that LOGINOV has tried anything of the sort with the Soviet wives. One of the reasons may be that he would not like his wife, Aleksandra Dmitriyeva, a very formidable woman indeed, to get wind of it. On the other hand, the Mexican women may seem to be more exotic and attractive to LOGINOV than his own countrywomen, in especial his wife, who is a large unattractive female.
 

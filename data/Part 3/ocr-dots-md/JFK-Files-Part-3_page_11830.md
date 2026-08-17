@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11830.png
-
-Convert to MarkdownRe: C.S. Brown to V. C. Sullivan
+Re: C.S. Brown to V. C. Sullivan
  Adequacy of Human Resources Division (HRD)
 
 may feel the facts presented by Wannall are such to outweigh all other considerations. I feel it would be well for Mr. Felt to consider this request in conjunction with the manpower adjustment survey he is to initiate and I will be guided accordingly.

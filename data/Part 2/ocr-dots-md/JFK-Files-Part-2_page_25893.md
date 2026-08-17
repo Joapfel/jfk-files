@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25893.png
-
-Convert to MarkdownRUSSIAN EMBASSY. 15-69-57.
+RUSSIAN EMBASSY. 15-69-57.
 
 1 October 63
 

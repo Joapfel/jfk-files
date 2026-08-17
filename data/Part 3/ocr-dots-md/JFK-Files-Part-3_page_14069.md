@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14069.png
-
-Convert to Markdownthere is civil defense activity including the digging of shelters and trenches. Last night the Interagency Task Force on Vietnam discussed the problem and concluded that things are on dead center as far as the South Vietnam war effort is concerned, and more U. S. support may be necessary before the rainy season sets in in September. The Viet Cong are getting Chicom help, mostly psychological; captured weapons indicate that 10 per cent are of Chinese origin; many of their weapons are of U. S. and French origin; and some are hand made.
+there is civil defense activity including the digging of shelters and trenches. Last night the Interagency Task Force on Vietnam discussed the problem and concluded that things are on dead center as far as the South Vietnam war effort is concerned, and more U. S. support may be necessary before the rainy season sets in in September. The Viet Cong are getting Chicom help, mostly psychological; captured weapons indicate that 10 per cent are of Chinese origin; many of their weapons are of U. S. and French origin; and some are hand made.
 
 Mr. Cline concluded his briefing and departed the Board meeting at 1:10 p.m. at which time the Board adjourned for lunch.
 

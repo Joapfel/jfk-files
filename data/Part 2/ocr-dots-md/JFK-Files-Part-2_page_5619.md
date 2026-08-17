@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5619.png
-
-Convert to Markdownnym: LISAMPAN) is still in the 'interference-complaint-test' stage.
+nym: LISAMPAN) is still in the 'interference-complaint-test' stage.
 
 Another important operation directed against the Cubans was sophisticated provocation that won the CIA Intelligence Media for Stan Archenhold,† the case officer who conceived it. The operation consisted of a series of letters sent to the Cuban intelligence service in their Mexico City Embassy from a person who purported to be a CIA officer trying to help them. The letters purport to implicate Joaquin Ordoqui, a respected, old-guard leader of the Cuban Communist Party and a high-ranking military leader, as a CIA agent. The letters are based on information from Carlos Manuel Pellecer, the Guatemalan exile and penetration agent, who was closely associated with Ordoqui and Marcos Rodriguez when all three lived in Mexico City during the late 1950s. The letters continue to be sent to Cuban intelligence although Ordoqui was arrested in 1964, and the desired controversy and dissension in the Cuban revolutionary leadership followed.
 

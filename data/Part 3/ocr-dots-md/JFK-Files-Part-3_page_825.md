@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_825.png
-
-Convert to MarkdownNR 07 OM PLAIN
+NR 07 OM PLAIN
 
 10:20 PM CST NITEL JUNE 19, 1975 IJS
 

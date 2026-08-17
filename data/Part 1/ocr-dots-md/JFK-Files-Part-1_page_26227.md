@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26227.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MESSAGE FORM<br>TOTAL COPIES:</td><td></td><td>BRUTRINS AND/OR INITIALS - SIGN BY</td><td></td></tr><tr><td>SECRET</td><td colspan="3"></td></tr></table>
 

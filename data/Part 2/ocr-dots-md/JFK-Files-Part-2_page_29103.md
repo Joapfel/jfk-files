@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29103.png
-
-Convert to Markdown# SCHEDULE D (Form 1040)
+# SCHEDULE D (Form 1040)
 
 ## Gains and Losses From Sales or Exchanges of Property
 

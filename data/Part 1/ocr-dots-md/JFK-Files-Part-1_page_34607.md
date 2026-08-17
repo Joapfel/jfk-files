@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34607.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The Secretary of State, Ambassador Thompson, and other senior officials in the Department of State were informed of our reservations about Nosenko's bona fides and our fears that he might be a dispatched KGB agent. In discussions about the possibility of Nosenko's eventual deportation, the Secretary of State expressed serious concern about the adverse reaction that such a move might have on other potential defectors.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9497.png
-
-Convert to MarkdownDE T-1
+DE T-1
 
 January 13, 1971
 

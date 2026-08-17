@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32338.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Section C continued....
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2437.png
-
-Convert to Markdownwas not sponsored by any person of influence as was the case in 1953
+was not sponsored by any person of influence as was the case in 1953
 with General KOBULOV who in mid-March 1953 was the First Deputy
 to BERIYA.
 

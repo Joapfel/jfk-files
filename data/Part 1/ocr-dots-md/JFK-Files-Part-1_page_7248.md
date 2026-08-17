@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7248.png
-
-Convert to Markdown13 December 1966
+13 December 1966
 
 SUBJECT: Contact Report/ LICOZY-5
 

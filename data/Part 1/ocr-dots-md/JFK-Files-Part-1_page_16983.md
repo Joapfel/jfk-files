@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16983.png
-
-Convert to Markdown5. The following are preliminary specific requirements on the Pion Institute which will be supplemented at a later date if the operation necessitates. They may assist in case of failure or in assessing Subjects' potential to fulfill requirements of this nature.
+5. The following are preliminary specific requirements on the Pion Institute which will be supplemented at a later date if the operation necessitates. They may assist in case of failure or in assessing Subjects' potential to fulfill requirements of this nature.
 
 a. Obtain information concerning new welding apparatus for, as well as new applications of, the following welding and cutting technology:
 

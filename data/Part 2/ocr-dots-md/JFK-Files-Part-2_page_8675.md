@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8675.png
-
-Convert to Markdownand subject has been retired to Archives at Warrenton, Virginia. The remainder is held at Headquarters in IP/Files or IP/Archives. All 201 dossiers are retained at Headquarters. This material is easily retrievable through the use of specific job numbers and file reference numbers recorded and retained in the LAD/JFK Task Force files (too numerous to cite herein.)
+and subject has been retired to Archives at Warrenton, Virginia. The remainder is held at Headquarters in IP/Files or IP/Archives. All 201 dossiers are retained at Headquarters. This material is easily retrievable through the use of specific job numbers and file reference numbers recorded and retained in the LAD/JFK Task Force files (too numerous to cite herein.)
 
 3. Following is a breakdown of the types and numbers of files reviewed, criteria employed in the research, the findings, and organization of the material:
 

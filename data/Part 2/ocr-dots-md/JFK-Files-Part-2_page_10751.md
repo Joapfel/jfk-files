@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10751.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 Date: August 23, 1971
 

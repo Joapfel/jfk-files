@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4875.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHENO: 98-0650682
 

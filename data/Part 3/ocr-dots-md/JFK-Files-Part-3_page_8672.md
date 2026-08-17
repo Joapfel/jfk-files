@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8672.png
-
-Convert to MarkdownMay 23, 1975
+May 23, 1975
 
 1 - Mr. Wannall
 (Attn: Mr. Schwartz)

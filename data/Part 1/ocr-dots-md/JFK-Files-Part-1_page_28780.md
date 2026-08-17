@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28780.png
-
-Convert to MarkdownEMPLOYEE
+EMPLOYEE
 
 PERSONNEL TRANSACTION REGISTER
 

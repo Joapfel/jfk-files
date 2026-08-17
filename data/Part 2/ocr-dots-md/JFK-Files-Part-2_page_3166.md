@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3166.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 questions concerning the Bay of Pigs Operation.*
 

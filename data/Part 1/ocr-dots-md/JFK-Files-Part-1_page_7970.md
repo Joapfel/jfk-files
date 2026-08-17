@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7970.png
-
-Convert to MarkdownSECRET.
+SECRET.
 
 HIS-1-072, Page 2
 27 November 1957

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28891.png
-
-Convert to Markdown10. Form OA-C654, Certification By Uniformed Services, for Lee Harvey Oswald.
+10. Form OA-C654, Certification By Uniformed Services, for Lee Harvey Oswald.
 
 11. Letter dated 7/25/63 from the Department of the Navy to Lee Harvey Oswald.
 

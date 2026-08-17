@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18760.png
-
-Convert to Markdown10 July 1951
+10 July 1951
 
 Department of State
 Division of Foreign Service Personnel Records

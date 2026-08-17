@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7303.png
-
-Convert to MarkdownMemorandum for Mr. Wannall
+Memorandum for Mr. Wannall
 
 RE: SELECT COMMITTEE OF THE SENATE
 62-116395

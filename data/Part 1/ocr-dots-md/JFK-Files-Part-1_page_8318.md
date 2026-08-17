@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8318.png
-
-Convert to Markdownhis Moscow address.
+his Moscow address.
 
 e. If LOGINOV, or whoever it may be, disclaims knowledge about L-1 - YATSKOV friendly relation, L-1 will speak in terms that this fact ought to be a common knowledge in the Sov Embassy.
 

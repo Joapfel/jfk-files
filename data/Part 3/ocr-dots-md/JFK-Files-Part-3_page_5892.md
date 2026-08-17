@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5892.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 February 29, 1968, memorandum to Mr. Sullivan, subject "Martin Luther King, Jr.; Security Matter - C."
 

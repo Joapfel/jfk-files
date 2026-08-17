@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22609.png
-
-Convert to Markdown1. to this activity, that we would go ahead and re-establish a relationship. And after a lot of bureaucratic problems, they gave me the account.
+1. to this activity, that we would go ahead and re-establish a relationship. And after a lot of bureaucratic problems, they gave me the account.
 
 4. Mr. Miller. What was the nature of the arrangement that was agreed upon between the two services?
 

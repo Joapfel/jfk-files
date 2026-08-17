@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12868.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 091921 & NOV 76 STAFF
 

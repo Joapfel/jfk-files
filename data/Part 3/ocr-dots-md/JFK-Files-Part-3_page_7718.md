@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7718.png
-
-Convert to MarkdownDear __________:
+Dear __________:
 
 I have just today received your letter dated May 28. It apparently reached the Department of Justice on June 8. It requests "the delivery forthwith to the members whose names are listed in the attachment hereto of any files on them or documents concerning them that are in the possession, custody, or control of the Department of Justice, including the Federal Bureau of Investigation."
 

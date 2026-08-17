@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22983.png
-
-Convert to Markdown1 and the context at that time. Could I ask just a couple of specific questions before we do that, about the three-man group
+1 and the context at that time. Could I ask just a couple of specific questions before we do that, about the three-man group
 
 2
 

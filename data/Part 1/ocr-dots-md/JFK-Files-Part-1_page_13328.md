@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13328.png
-
-Convert to Markdown<table><tr><td>1</td></tr></table>
+<table><tr><td>1</td></tr></table>
 
 SECRET 271700Z CITE CARACAS 7668
 PRIORITY DIRECTOR, JMWAVE

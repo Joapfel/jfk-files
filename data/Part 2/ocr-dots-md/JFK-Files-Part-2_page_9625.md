@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9625.png
-
-Convert to Markdownpreparation for advanced training in these three important activities which will be dealt with in greater detail further on in the training program.
+preparation for advanced training in these three important activities which will be dealt with in greater detail further on in the training program.
 
 ## INTELLIGENCE
 

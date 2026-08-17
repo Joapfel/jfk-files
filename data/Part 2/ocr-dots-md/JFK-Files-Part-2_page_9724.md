@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9724.png
-
-Convert to MarkdownNorth Eastern: Frank everything going well, awaiting word from the council for planned activities. Four men busted for non-political charges, they'll be OK. Slight problem with two Connecticut units--seems like they've been infiltrated.
+North Eastern: Frank everything going well, awaiting word from the council for planned activities. Four men busted for non-political charges, they'll be OK. Slight problem with two Connecticut units--seems like they've been infiltrated.
 
 South Eastern: No problems, giving the Feds hell. No new units this month but existant units are all ready for action. Lets get going.
 

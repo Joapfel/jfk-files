@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6319.png
-
-Convert to Markdowneastern shore of the Almondares Riv. r. It is said that important government officials also live in this area. Nevertheless, from this section has a commanding vision across the city of Habana.
+eastern shore of the Almondares Riv. r. It is said that important government officials also live in this area. Nevertheless, from this section has a commanding vision across the city of Habana.
 
 Más REPORT- Same Situation
 

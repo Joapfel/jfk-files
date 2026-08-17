@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26579.png
-
-Convert to Markdown5. Communist China - Argentina
+5. Communist China - Argentina
 
 a. Peiping last week contracted for some 300,000 tons of wheat (cost about $20,000,000) from Argentina.
 

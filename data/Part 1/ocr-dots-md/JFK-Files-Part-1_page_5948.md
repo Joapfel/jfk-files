@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5948.png
-
-Convert to Markdown14-0000
+14-0000
 
 authorities. I told him the chances were better than even and that we
 would appeal to the fact that this was a VIP party being handled out of

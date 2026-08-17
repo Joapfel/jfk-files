@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13092.png
-
-Convert to MarkdownSECRET
+SECRET
 
 c. Pedro DIAU: no traces.
 

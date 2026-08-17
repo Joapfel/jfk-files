@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1832.png
-
-Convert to Markdown22 November 1968
+22 November 1968
 
 ITKIN, Herbert.
 

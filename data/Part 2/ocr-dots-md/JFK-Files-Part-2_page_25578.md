@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25578.png
-
-Convert to MarkdownUniversity of Montana
+University of Montana
 Missoula, Montana 59801
 
 (406) 243-0211

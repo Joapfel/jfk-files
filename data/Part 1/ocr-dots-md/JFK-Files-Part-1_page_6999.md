@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6999.png
-
-Convert to Markdown<table><thead><tr><th>DATE TYPED</th><th>DATE DISPATCHED</th></tr></thead><tbody><tr><td>8 April 63</td><td>12 APR 1963</td></tr></tbody></table>
+<table><thead><tr><th>DATE TYPED</th><th>DATE DISPATCHED</th></tr></thead><tbody><tr><td>8 April 63</td><td>12 APR 1963</td></tr></tbody></table>
 
 <table><tbody><tr><td>CROSS REFERENCE TO</td><td></td></tr><tr><td>CLASSIFICATION</td><td>SECRET</td></tr><tr><td>HEADQUARTERS FILE NUMBER</td><td>201-128561</td></tr></tbody></table>
 

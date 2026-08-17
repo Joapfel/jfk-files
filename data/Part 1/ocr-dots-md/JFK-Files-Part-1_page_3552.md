@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3552.png
-
-Convert to Markdown-3-
+-3-
 
 12. A-1 was told that if it can be done in a secure and discreet manner through some contact, we would appreciate having a list of all Cuban nationals in Costa Rica.
 

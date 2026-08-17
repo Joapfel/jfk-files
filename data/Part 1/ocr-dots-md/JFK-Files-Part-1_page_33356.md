@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33356.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">CABLE SEC DISSEM BY 84 PER TOTAL COPIES 32' RUE B. REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td style="text-align: center;">SECRET</td></tr><tr><td colspan="2">ADVANCE COPY ISSUED SLOTTED AT 2</td></tr><thead><tr><th rowspan="2">ACTION UNIT<br/>555<br/>ACTION #</th><th rowspan="2">INFORMATION</th><th rowspan="2">RF FILE VR<br/>[Plan] EUK8 588 a/w</th><th colspan="2">STAFF</th></tr><tr><th>[ ]</th><th>[ ]</th></tr></thead><tbody><tr><td>T 375103</td><td>EIA916</td><td></td><td></td><td></td></tr></tbody></table>
 

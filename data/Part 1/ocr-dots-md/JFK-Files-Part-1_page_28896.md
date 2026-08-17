@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28896.png
-
-Convert to Markdown20 MAY 1968
+20 MAY 1968
 
 MEMORANDUM FOR: Chief, Compensation and Tax Division
 

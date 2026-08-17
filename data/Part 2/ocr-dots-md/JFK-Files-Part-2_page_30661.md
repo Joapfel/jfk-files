@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30661.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EMP. 10/63 - 12/63
 MONOLITH PORTLAND CEMENT CO.

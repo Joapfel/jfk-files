@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17467.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3 January 1962
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23603.png
-
-Convert to Markdown13 May 1961
+13 May 1961
 
 MEMORANDUM:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27337.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 A3- Routing and Record Sheet to D/Security -/Chief, Recruitment Div, 10 Dec 68
 

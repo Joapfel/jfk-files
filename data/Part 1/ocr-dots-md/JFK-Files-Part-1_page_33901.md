@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33901.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In compiling the list of thirty names, you should I believe,
 choose individuals who fit into the "indispensable" category by

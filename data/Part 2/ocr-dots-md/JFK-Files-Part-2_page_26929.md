@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26929.png
-
-Convert to MarkdownSECRET
+SECRET
 
 on an old Cuban Airways airplane. The damn airplane few too
 high and the bull became sterile by the time he landed in

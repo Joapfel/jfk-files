@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28643.png
-
-Convert to Markdown<html><body><table><tr><td>1948-06-27</td></tr></table></body></html>
+<html><body><table><tr><td>1948-06-27</td></tr></table></body></html>
 
 <table>
    <thead>

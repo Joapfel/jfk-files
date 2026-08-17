@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4859.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 ROTHMAN at an expensive motel in Havana, Cuba, with another Cuban and ROTHMAN offered them $5,000.00 to kill an unknown American, who was to arrive in Havana, Cuba. MM T-7 did not know ROTHMAN, and he refused to make the "hit" for ROTHMAN. MM T-7 did not know if this "hit" was ever made.
 

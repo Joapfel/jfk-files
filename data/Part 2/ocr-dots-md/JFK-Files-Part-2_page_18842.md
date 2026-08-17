@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18842.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 He was issued Passport Number 36093, San Francisco series,
 on 2/25/55. This passport is not valid for travel to Albania, Bulgaria,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12286.png
-
-Convert to MarkdownSECRETOS
+SECRETOS
 
 Fecha. 9/24/64
 

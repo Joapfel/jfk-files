@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25369.png
-
-Convert to Markdown"In the 1940s the sheriff of Dade County (which includes most of the Miami area) admitted to the Kefauver organized crime committee that, since he had become sheriff on an annual salary of $12,000 five years earlier, his personal fortune had increased from $2,500 to $70,000."
+"In the 1940s the sheriff of Dade County (which includes most of the Miami area) admitted to the Kefauver organized crime committee that, since he had become sheriff on an annual salary of $12,000 five years earlier, his personal fortune had increased from $2,500 to $70,000."
 
 women, friendly with men of money, moved to Los Angeles. He wore hand-tailored suits and, by all accounts, was easygoing, mild-mannered. He was married for a time to an actress, but they had no children. He became a close friend of Harry Cohn, the legendary head of Columbia Pictures. The two men sometimes vacationed together and Roselli always seemed to know how to place a bet should Cohn care to wager on a horse.
 

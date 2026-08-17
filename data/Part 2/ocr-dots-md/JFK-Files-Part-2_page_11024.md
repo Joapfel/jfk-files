@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11024.png
-
-Convert to MarkdownJanuary 27, 1961
+January 27, 1961
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 100

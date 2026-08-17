@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32764.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">SECRET FORM<br>TOTAL COPY:</th><th>RECEIVED INITIALS</th><th>INITIALS</th></tr></thead><tbody><tr><td colspan="2"><table><tr><td>SECRET</td></tr></table></td><td>A</td><td>c</td></tr><tr><td>Lt. Col. Robert Lambdin, mrs.</td><td>Sus. Wm. D. Ar. 1963</td><td></td><td></td></tr><tr><td>DATE: 19 April 1968</td><td></td><td>[Signature]</td><td>10</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">SECRET FORM<br>TOTAL COPY:</th><th>RECEIVED INITIALS</th><th>INITIALS</th></tr></thead><tbody><tr><td colspan="2"><table><tr><td>SECRET</td></tr></table></td><td>A</td><td>c</td></tr><tr><td>Lt. Col. Robert Lambdin, mrs.</td><td>Sus. Wm. D. Ar. 1963</td><td></td><td></td></tr><tr><td>DATE: 19 April 1968</td><td></td><td>[Signature]</td><td>10</td></tr></tbody></table>
 
 <table><thead><tr><th>CARDIFF-SECRETSARIAI DISLEMINATION</th><th>INDEX</th><th>DESTROY</th><th>RETURN TO</th><th>BRANCH</th><th>FILE RIS</th></tr></thead><tbody><tr><td>No. 30 for SB. /E.O.P.</td><td>X NO INDEX</td><td></td><td>FILE IN CI-FILE NO.</td><td>2275-19</td><td></td></tr><tr><td>(JWH) Z</td><td>X BID COPY</td><td></td><td>FILE</td><td>v2/SBS DS ARMS</td><td>"EYES ONLY"</td></tr></tbody></table>
 

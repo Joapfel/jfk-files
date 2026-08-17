@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8631.png
-
-Convert to MarkdownA7
+A7
 
 WASHINGTON POST
 

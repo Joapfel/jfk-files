@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6040.png
-
-Convert to MarkdownDRAFT - 9/12/63
+DRAFT - 9/12/63
 
 TO: J. Edgar Hoover
 Director, Federal Bureau of Investigation

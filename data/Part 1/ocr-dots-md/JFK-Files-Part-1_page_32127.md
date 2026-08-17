@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32127.png
-
-Convert to Markdown<table><tr><td></td><td>SECRET</td><td>CONFIDENTIAL</td><td>INTERNAL USE ONLY</td><td>UNCLASSIFIED</td></tr></table>
+<table><tr><td></td><td>SECRET</td><td>CONFIDENTIAL</td><td>INTERNAL USE ONLY</td><td>UNCLASSIFIED</td></tr></table>
 
 <table><thead><tr><th colspan="4">REQUEST FOR MEDICAL EVALUATION</th></tr></thead><tbody><tr><td colspan="2">Piccolo, JosephSS.</td><td>DDO/CI Staff</td><td>Operations Officer</td></tr><tr><td>DEPARTMENT NAME (If Applicable)</td><td>A11</td><td>6603</td><td></td></tr><tr><td>OFFICE CHAIR</td><td></td><td></td><td></td></tr><tr><td>TELEPHONE NO.</td><td></td><td></td><td></td></tr><tr><td>SEPARATION TYPE</td><td></td><td></td><td></td></tr><tr><td>RULE OF COMBINATION</td><td></td><td></td><td></td></tr><tr><td>CONTACT INFORMATION (if different)</td><td></td><td></td><td></td></tr><tr><td>EMPLOYEE NO.</td><td></td><td></td><td></td></tr></tbody></table>
 

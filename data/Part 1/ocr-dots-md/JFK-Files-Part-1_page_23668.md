@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23668.png
-
-Convert to MarkdownS P C R E T
+S P C R E T
 
 - 4 -
 

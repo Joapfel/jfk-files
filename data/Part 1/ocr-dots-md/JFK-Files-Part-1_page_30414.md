@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30414.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td rowspan="2">SECTION V<br>SECRET (if taken in)</td><td colspan="5">GEOGRAPHIC AREA, RANK, and FOREIGN TRAVEL</td></tr><tr><td>NAME OF REGION OR COUNTRY</td><td>TYPE OF SPECIALIZATION</td><td>DATE OF ARRIVAL (IF APPROPRIATE) (IF NO, WRITE IN DATE OF ARRIVAL)</td><td>DATE & PLANS (IF APPLICABLE)</td><td>PROFESSIONAL ACHIEVEMENTS / OTHER SPECIFICATIONS</td></tr><tr><td>1.</td><td>No Change</td><td></td><td></td><td></td><td></td></tr></table>
 

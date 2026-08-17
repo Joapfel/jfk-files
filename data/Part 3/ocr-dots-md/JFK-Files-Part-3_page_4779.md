@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4779.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 Observation of the Albion Lounge, Miami Beach, Florida on August 26, August 27, August 29, September 10 and September 12, 1968 did not disclose ROTHMAN's car.
 

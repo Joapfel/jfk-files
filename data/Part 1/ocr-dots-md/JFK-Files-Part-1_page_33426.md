@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33426.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MESSAGE HANDLING INDICATOR
 

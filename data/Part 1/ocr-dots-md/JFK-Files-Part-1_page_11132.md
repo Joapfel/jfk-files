@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11132.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SIMILAR TO THAT HE OCCUPIED IN MEXICO.
 

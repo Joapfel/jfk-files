@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27939.png
-
-Convert to MarkdownOctober 19, 1976
+October 19, 1976
 
 Richard A. Sprague, Esq.
 1622 Locust Street

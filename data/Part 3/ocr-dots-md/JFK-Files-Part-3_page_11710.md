@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11710.png
-
-Convert to MarkdownCOUNTERINTELLIGENCE OPERATIONS AGAINST CHINESE COMMUNIST INTELLIGENCE ACTIVITIES IN THE UNITED STATES (CHICOIN) (Bufile 105-135614)
+COUNTERINTELLIGENCE OPERATIONS AGAINST CHINESE COMMUNIST INTELLIGENCE ACTIVITIES IN THE UNITED STATES (CHICOIN) (Bufile 105-135614)
 
 Captioned program was initiated in May, 1965, to combat Chinese communist (Chicom) efforts to initiate intelligence operations and develop intelligence data in the United States.
 

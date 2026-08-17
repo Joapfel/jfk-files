@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4258.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 3. Removal of Soviet Troops

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11544.png
-
-Convert to Markdownof the U. S. by force or the government of any state, territory, district, or possession thereof, or the government of any political subdivision thereof, or
+of the U. S. by force or the government of any state, territory, district, or possession thereof, or the government of any political subdivision thereof, or
 
 c. Organized society, group, or assembly
 

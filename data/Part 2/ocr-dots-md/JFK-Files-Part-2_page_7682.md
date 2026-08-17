@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7682.png
-
-Convert to MarkdownOn the 27th of June, a final updated special national intelligence estimate was prepared, and this indicated no basic changes in the security assessment that Mexican government was prepared to cope with foreseeable security contingencies.
+On the 27th of June, a final updated special national intelligence estimate was prepared, and this indicated no basic changes in the security assessment that Mexican government was prepared to cope with foreseeable security contingencies.
 
 On the 28th of June, a final briefing report was prepared for the Director's use which indicated the security precautions of the Mexican government had effectively forestalled major organized incidents, and our informed estimate was that the President would receive a great welcome.
 

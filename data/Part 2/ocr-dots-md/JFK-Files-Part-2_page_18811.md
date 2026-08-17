@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18811.png
-
-Convert to Markdown9/18/58
+9/18/58
 
 AM
 

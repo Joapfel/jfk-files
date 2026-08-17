@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19897.png
-
-Convert to MarkdownCOMMUNICATIONS SECTION
+COMMUNICATIONS SECTION
 
 JUL 7 1972
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20393.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="6">DIVISION OF FOREIGN SERVICE PERSONNEL</th>

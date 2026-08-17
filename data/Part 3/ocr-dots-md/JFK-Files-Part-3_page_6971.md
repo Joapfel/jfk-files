@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6971.png
-
-Convert to Markdown<table><thead><tr><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td>LOS ANGELES</td><td>LOS ANGELES</td><td>4/15/69</td><td>1/6/69 - 2/29/69</td></tr><tr><td colspan="2">ANGELA YVONNE DAVIS, aka Tamu</td><td colspan="2">WILLIAM H. SNELL yfs</td></tr><tr><td colspan="2"></td><td colspan="2">SM = C</td></tr><tr><td colspan="4">ALL INFORMATION OBTAINED HEREIN IS UNCLASSIFIED</td></tr><tr><td colspan="4">DATE 1-16/69 BY SP2ALM/16</td></tr></tbody></table>
+<table><thead><tr><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td>LOS ANGELES</td><td>LOS ANGELES</td><td>4/15/69</td><td>1/6/69 - 2/29/69</td></tr><tr><td colspan="2">ANGELA YVONNE DAVIS, aka Tamu</td><td colspan="2">WILLIAM H. SNELL yfs</td></tr><tr><td colspan="2"></td><td colspan="2">SM = C</td></tr><tr><td colspan="4">ALL INFORMATION OBTAINED HEREIN IS UNCLASSIFIED</td></tr><tr><td colspan="4">DATE 1-16/69 BY SP2ALM/16</td></tr></tbody></table>
 
 **REFERENCES:**
 

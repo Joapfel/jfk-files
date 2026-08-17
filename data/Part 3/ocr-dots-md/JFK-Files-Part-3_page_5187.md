@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5187.png
-
-Convert to MarkdownThe following informants were rated Poor and should be closed immediately:
+The following informants were rated Poor and should be closed immediately:
 
 <table><thead><tr><th>Symbol Number</th><th>San Francisco File Number</th><th>Bufile Number</th></tr></thead><tbody><tr><td>SF 3226-C</td><td>137-4427</td><td>137-20833</td></tr><tr><td>SF 3166-C</td><td>137-5091</td><td>137-19341</td></tr><tr><td>SF 3257-C</td><td>137-4888</td><td>137-21264</td></tr></tbody></table>
 

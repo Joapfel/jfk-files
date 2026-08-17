@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4628.png
-
-Convert to Markdown<table><tr><td>DD/0.76:1248</td></tr></table>
+<table><tr><td>DD/0.76:1248</td></tr></table>
 
 SECRET SENSITIVE
 

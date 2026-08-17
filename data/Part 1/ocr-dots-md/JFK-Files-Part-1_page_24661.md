@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24661.png
-
-Convert to MarkdownNicolas LEONOV, Press Attache
+Nicolas LEONOV, Press Attache
 
 LEONOV is an extremely bright, intelligent man, and very quick-thinking. He is popular among the press people because he appears very frank, open and nice to them. He is not the kind, like many other Soviets, who is afraid to make comments, in his own name, on news items and this pleases the press who like personal opinions if nothing more. He is helpful and hard-working and any reasonable request he makes an effort to fulfill.
 

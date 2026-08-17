@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4540.png
-
-Convert to MarkdownENCLOSURES 9
+ENCLOSURES 9
 
 TO : DIRECTOR, FBI (92-3182)
 FROM : SAC, CHICAGO (92-373)

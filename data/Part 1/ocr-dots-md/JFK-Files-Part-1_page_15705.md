@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15705.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PROJECT OUTLINE
 

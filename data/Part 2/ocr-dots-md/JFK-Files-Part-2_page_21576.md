@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21576.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 which time I was briefed on this particular operation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22517.png
-
-Convert to MarkdownSECRET-EST ONLY
+SECRET-EST ONLY
 
 discover the identities of the political plotters with whom the
 Consulate was actually working, because neither of the men who might

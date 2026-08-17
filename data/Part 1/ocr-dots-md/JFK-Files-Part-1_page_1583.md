@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1583.png
-
-Convert to MarkdownOUTGOING TELEPOUCH
+OUTGOING TELEPOUCH
 
 <table><tr><td>R</td><td>O</td><td>T</td><td>U</td><td>N</td><td>G</td></tr><tr><td>1</td><td></td><td></td><td></td><td>73</td><td></td></tr><tr><td>2</td><td></td><td></td><td>3</td><td></td><td></td></tr><tr><td>3</td><td></td><td></td><td>6</td><td></td><td></td></tr></table>
 

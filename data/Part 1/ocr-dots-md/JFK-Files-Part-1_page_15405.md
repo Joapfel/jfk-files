@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15405.png
-
-Convert to MarkdownE. J. Whitehouse
+E. J. Whitehouse
 47 E. 29 St
 Miami, Fla.
 

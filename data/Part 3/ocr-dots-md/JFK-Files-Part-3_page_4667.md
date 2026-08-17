@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4667.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 3
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28445.png
-
-Convert to MarkdownJohn J. Farmer, Jr.
+John J. Farmer, Jr.
 1001 R'ville Pike, #1819
 Rockville, Md.
 20852

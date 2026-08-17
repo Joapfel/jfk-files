@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4689.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: No. It was up and down throughout.
 

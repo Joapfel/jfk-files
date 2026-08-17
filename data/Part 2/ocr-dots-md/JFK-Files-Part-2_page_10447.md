@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10447.png
-
-Convert to MarkdownATTACHMENT
+ATTACHMENT
 
 Department of Defense
 

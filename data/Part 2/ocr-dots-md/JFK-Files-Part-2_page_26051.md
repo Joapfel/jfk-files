@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26051.png
-
-Convert to Markdownthings weren't going right and changing some
+things weren't going right and changing some
 of the inner workings of this thing, instead
 of just failing him on intent. And his
 intent was very sound, very good. I think

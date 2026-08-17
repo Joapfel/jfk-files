@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9700.png
-
-Convert to Markdown<table>
+<table>
     <tr><td>SECTION IV CONTINUED FROM PAGE 2</td></tr>
     <tr><td>5. IF A GRADUATE DEGREE HAS BEEN NOTED IN ITEM 4 WHICH REQUIRED SUBMISSION OF A WRITTEN THESIS, INDICATE THE TITLE OF THE THESIS AND BRIEFLY DESCRIBE ITS CONTENT.</td></tr>
     <tr><td>N.A.</td></tr>

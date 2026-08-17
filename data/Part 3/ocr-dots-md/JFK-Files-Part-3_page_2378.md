@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2378.png
-
-Convert to Markdown# ORGANIZATION APPENDIX
+# ORGANIZATION APPENDIX
 
 ## Black Panther Party (BPP)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27235.png
-
-Convert to MarkdownSubject has family and does not particularly desire to go to any area where family cannot have adequate living quarters, etc.
+Subject has family and does not particularly desire to go to any area where family cannot have adequate living quarters, etc.
 
 Would prefer residence in D.C. for one or two years.
 

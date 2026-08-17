@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22100.png
-
-Convert to Markdown259.
+259.
 
 1961) and the office of the Security Officer (where KOSENKO has said no microphone was installed).* On-site recordings made from twelve selected microphones in 1964 indicate that the microphone in the office occupied by the Minister Counselor in 1960 was capable of producing tapes of "high intelligibility" as of 1964. The 1964 tests of the microphones in the military and State Department code rooms in the office of the Naval Attaché also produced recordings of high intelligibility. As pointed out below, however, the possible production by the code room microphones would have been sharply reduced by the installation of acoustical rooms during 1962.
 

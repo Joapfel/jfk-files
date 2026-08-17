@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16212.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 PEORIA, ILLINOIS
 
 On August 30, 1969 mentioned above, advised that there was no meeting held at the Freedom Hall, 321 First Avenue, Peoria, Illinois. He advised that Russ Meek did not speak in Peoria, Illinois as scheduled and stated that either Meek declined the invitation or that Meek is to speak tomorrow, August 31, 1969, in conjunction with the Black Panther Party rally. He advised that he doubts seriously that James Polk or Reverend Blaine Ramsey, local co-ordinators of the Peoria, Illinois United Front, will speak at the BPP rally. He advised that the purpose of the BPP rally is to recruit members from the Peoria, Illinois area in order to form an organization in Peoria, Illinois. He advised he still expects no violence at the BPP rally.

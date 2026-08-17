@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23935.png
-
-Convert to MarkdownYes, that's what he told Vergest and me. Naturally, he didn't publish it.
+Yes, that's what he told Vergest and me. Naturally, he didn't publish it.
 Phombeah brought in Babu. Babu had no real connection with the magazine
 except on these two occasions. He gave me an interview which was printed
 in the last issue - in both issues of Revolution, and that was all.

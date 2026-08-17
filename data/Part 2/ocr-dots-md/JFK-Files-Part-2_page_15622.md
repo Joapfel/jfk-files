@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15622.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 The above Maywood PD source advised that following the services, a few shots were heard and several unidentified gang members purporting to be Blackstone Rangers told police that individuals, whom they could, or would, not identify allegedly belonging to the Disciples, another South side youth gang, and whose members were in attendance at the services, had fired a shotgun at the vehicle in which the Rangers were riding. No injuries were reported, nor any arrests made and the area was normal shortly after the services ended.
 

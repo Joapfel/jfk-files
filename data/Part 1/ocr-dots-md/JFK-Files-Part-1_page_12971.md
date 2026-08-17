@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12971.png
-
-Convert to MarkdownST. C. B. T.
+ST. C. B. T.
 
 HWCW - 8792
 

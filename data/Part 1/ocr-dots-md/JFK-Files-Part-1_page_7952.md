@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7952.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>SOLD BY</th><th>CASH</th><th>C.O.D.</th><th>CHARGE</th><th>ON<br/>ACCT.</th><th>MOST<br/>RED.</th><th>PAID<br/>OUT</th></tr><tr><th>QUAN.</th><th></th><th></th><th colspan="3">DESCRIPTION</th><th>PRICE</th><th>AMOUNT</th></tr></thead><tbody><tr><td></td><td></td><td></td><td colspan="3"></td><td>20</td><td></td></tr><tr><td></td><td></td><td></td><td colspan="3"></td><td>16</td><td></td></tr><tr><td></td><td></td><td></td><td colspan="3"></td><td>150</td><td></td></tr><tr><td></td><td></td><td></td><td colspan="3"></td><td>770</td><td></td></tr></tbody><tfoot><tr><td colspan="4">ALL claims and related costs MUST be accompanied by the bill</td><td>TAXES</td><td>TOTAL</td><td></td></tr><tr><td colspan="4">37471</td><td>Per Bbl</td><td></td><td></td></tr></tfoot></table>
 

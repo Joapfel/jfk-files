@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27125.png
-
-Convert to MarkdownII. THE NATURE OF COUNTERINTELLIGENCE ACTIVITIES
+II. THE NATURE OF COUNTERINTELLIGENCE ACTIVITIES
 
 The counterintelligence unit of the CIA bears a direct
 responsibility for the security of all Agency espionage and

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1744.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">SECTION IV CONTINUED FROM PAGE 2</td>
     </tr>

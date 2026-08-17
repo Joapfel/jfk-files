@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7372.png
-
-Convert to MarkdownDistribution:
+Distribution:
 
 1-DCI
 1-DDCI

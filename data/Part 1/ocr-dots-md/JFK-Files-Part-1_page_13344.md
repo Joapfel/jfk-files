@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13344.png
-
-Convert to Markdown2 Aug '67
+2 Aug '67
 
 SECRET 022306Z CITE JMWAVE 8577
 

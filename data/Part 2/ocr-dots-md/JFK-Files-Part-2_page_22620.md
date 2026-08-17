@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22620.png
-
-Convert to Markdown2. Mr. Angleton, has the Central Intelligence Agency directly
+2. Mr. Angleton, has the Central Intelligence Agency directly
 for indirectly transferred any atomic technology or know-how to
 Israel?
 3.

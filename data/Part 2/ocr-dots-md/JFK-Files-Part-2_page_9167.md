@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9167.png
-
-Convert to Markdown# FEDERAL BUREAU OF INVESTIGATION
+# FEDERAL BUREAU OF INVESTIGATION
 Washington, D. C. 20537
 
 NY 185-229

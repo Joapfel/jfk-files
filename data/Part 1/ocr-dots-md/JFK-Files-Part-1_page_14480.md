@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14480.png
-
-Convert to MarkdownSECRET
+SECRET
 
 was not brought out. It seemed to so that Subject
 is riding an emotional high for Cuba and Castro.

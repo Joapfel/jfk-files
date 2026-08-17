@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23325.png
-
-Convert to MarkdownBIOGRAPHICAL DATA
+BIOGRAPHICAL DATA
 
 **NAME:** CROZIER, Ross Lester
 **BIRTH:** 20 June 1922, DeKalb, Illinois

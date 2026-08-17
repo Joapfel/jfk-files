@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3285.png
-
-Convert to Markdown# SCIENTIFIC
+# SCIENTIFIC
 
 ## CURRENT DEVELOPMENT IN MEDICINE
 

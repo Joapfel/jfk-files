@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6167.png
-
-Convert to Markdown2 October 75
+2 October 75
 
 MENORANDUM FOR: Chief, Information and Privacy Staff
 SUBJECT: James G. Bruce

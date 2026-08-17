@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24016.png
-
-Convert to MarkdownTrack II. The calendar also suggests that Karamessines and Kissinger met on three other occasions and so might have had the opportunity to discuss Track II.
+Track II. The calendar also suggests that Karamessines and Kissinger met on three other occasions and so might have had the opportunity to discuss Track II.
 
 Henry Kissinger's testimony before the Committee differs from Karamessines in two respects: He believed Track II was "turned off" on October 15; and, after that date, he was informed neither of the coup plans of the Chilean conspirators nor of the passage of weapons to them.
 

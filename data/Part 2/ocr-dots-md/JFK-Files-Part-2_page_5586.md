@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5586.png
-
-Convert to Markdown20/20 (ABC), August 27, 1993
+20/20 (ABC), August 27, 1993
 
 ANNOUNCER: For women in their 20's and 30's, Dr. Timothy Johnson has some shocking news - 'It Could Happen to You.'
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6953.png
-
-Convert to MarkdownCHRISTIAN SCIENCE MONITOR
+CHRISTIAN SCIENCE MONITOR
 17 January 1973
 
 # Fidel Castro

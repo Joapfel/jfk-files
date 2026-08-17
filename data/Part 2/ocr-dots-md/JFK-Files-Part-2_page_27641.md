@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27641.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Tom Lambeth
 

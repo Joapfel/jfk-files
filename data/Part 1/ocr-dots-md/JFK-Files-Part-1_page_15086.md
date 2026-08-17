@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15086.png
-
-Convert to Markdown## 16. EDUCATION HISTORY:
+## 16. EDUCATION HISTORY:
 
 ### 1927-1934
 Trudovaya Shkola #107 (10-year school, desyatiletka) located on the corner of Prospekt Mikhaylovskiy and Kirochnaya Ulitsa, in Tbilisi, (Presently PLEKHANOVA and MARDZHANISHVILI Streets, respectively.) Prior to 1927, it was the German Real Gymansium, but although converted into a srednyaya shkola at that time, the instruction was conducted in German, until 1930 when it changed to Georgian. The majority of the students were Georgians. Russian language instruction was given two hours a week and Georgian - one hour a week, until 1930. I completed seven years at this school and then due to the death of my mother, entered a technicum where I would be given board and quarters.

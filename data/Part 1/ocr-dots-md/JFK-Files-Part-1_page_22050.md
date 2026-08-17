@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22050.png
-
-Convert to Markdown(v) Developmental Operation Against ZUJUS
+(v) Developmental Operation Against ZUJUS
 
 (a) Introduction
 

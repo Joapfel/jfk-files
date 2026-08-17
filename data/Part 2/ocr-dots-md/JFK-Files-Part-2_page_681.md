@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_681.png
-
-Convert to Markdown27 April, 1966
+27 April, 1966
 
 Subject: Wallace B. Rowton Contact with Mr. and Mrs.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5197.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 # Smaller Commercial Banks in Bad Shape
 

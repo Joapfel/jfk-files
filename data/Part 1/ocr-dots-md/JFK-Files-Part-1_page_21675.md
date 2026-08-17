@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21675.png
-
-Convert to MarkdownThe following comments are concerned with several specific
+The following comments are concerned with several specific
 cases in which, according to NOSENKO, there was an approach by the
 KGB, interesting information was developed, or in which at least a
 considerable amount of specific work was carried out by NOSENKO,

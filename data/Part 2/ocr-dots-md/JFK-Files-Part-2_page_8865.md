@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8865.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><thead><tr><th colspan="2">ORIG: D. RONIS:jd<br/>U.S./102<br/>EXT: 5153<br/>FAX: 21 NOV. 63</th><th>INDEX<br/>(X) NO INDEX<br/>(X) FILE INCS FILE NO.</th><th>SECRET</th></tr></thead><tbody><tr><td>CHG:</td><td></td><td></td><td>S E C R E T</td></tr><tr><td></td><td></td><td></td><td>FILE INCS FILE NO.</td></tr><tr><td></td><td></td><td></td><td>200-120-47</td></tr></tbody></table>
 

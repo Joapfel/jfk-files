@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3203.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 2. That any move to curtail the number of aircraft to be employed from those available be firmly resisted.
 

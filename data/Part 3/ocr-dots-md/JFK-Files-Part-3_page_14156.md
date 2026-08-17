@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14156.png
-
-Convert to Markdown(53. 8/15/62 Continued)
+(53. 8/15/62 Continued)
 
 "of a fixed site.) It is not possible to say how soon after 15 September the activity might have been recognizable from the air as an IRBM site." (Source: CIA Chronology, 11/7/62)
 

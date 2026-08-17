@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17813.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">
      CIA REQUEST FOR EVALUATION BY OSI

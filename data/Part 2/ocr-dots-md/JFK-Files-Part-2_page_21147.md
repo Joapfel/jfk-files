@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21147.png
-
-Convert to MarkdownUnion. Information furnished by NOSENKO on this
+Union. Information furnished by NOSENKO on this
 date and on other dates indicates that he does have
 adequate knowledge of KGB tracing and filing procedures.
 

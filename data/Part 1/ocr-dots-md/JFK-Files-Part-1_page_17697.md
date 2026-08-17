@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17697.png
-
-Convert to Markdownalso to ODEWY. This case was a part of the Jack Stell es-aminee case; and LIETAT coverage of the STELLIS has been outstandingly excellent. In fact, the Station has had three commendations from headquarters on the LIETAT coverage of this case and Edward R. Seaton had a personal commendation from ASCMA. On his work (LIETAT) on the case. Over ninety (90) reads have been produced by LIETAT on the STELLIS between 9 February and 27 April 1957. Another interesting facet of unit coverage is that on 6 February (at 1030 hours) 1957 a cable from headquarters asked that the station attempt to institute LIETAT coverage on the STELLIS. At 1000 hours on 9 February 1957 LIETAT coverage had been completed and was producing.
+also to ODEWY. This case was a part of the Jack Stell es-aminee case; and LIETAT coverage of the STELLIS has been outstandingly excellent. In fact, the Station has had three commendations from headquarters on the LIETAT coverage of this case and Edward R. Seaton had a personal commendation from ASCMA. On his work (LIETAT) on the case. Over ninety (90) reads have been produced by LIETAT on the STELLIS between 9 February and 27 April 1957. Another interesting facet of unit coverage is that on 6 February (at 1030 hours) 1957 a cable from headquarters asked that the station attempt to institute LIETAT coverage on the STELLIS. At 1000 hours on 9 February 1957 LIETAT coverage had been completed and was producing.
 
 13. Miscellaneous Coverages
 

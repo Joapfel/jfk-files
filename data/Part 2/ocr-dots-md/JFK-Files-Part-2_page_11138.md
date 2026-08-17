@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11138.png
-
-Convert to Markdown(3) By force or violence, or
+(3) By force or violence, or
 
 By assassination of any officer of such government
 

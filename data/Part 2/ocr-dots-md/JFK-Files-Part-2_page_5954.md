@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5954.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 5. As noted in OPS' memorandum, OPS was only able to locate files on Cherne, Leake and Garbler. However, after a careful review, they determined that there is no information contained in the files that links the individuals to or pertains to JFK or to the JFK assassination. They also found reference in Verna Dean Brown husband's file that she was employed by the Department of State.
 

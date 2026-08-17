@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6818.png
-
-Convert to Markdown<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO</td><td>Chief, MID</td></tr><tr><td>INFO</td><td></td></tr><tr><td>FROM</td><td>Chief of Station, Mexico</td></tr><tr><td>SUBJECT</td><td>Maurice H. HALPERIN</td></tr><tr><td>ACTION REQUIRED</td><td>Information only</td></tr><tr><td>REFERENCE(S)</td><td>SOURCE: LIEUT./L/MUD</td></tr></table>
+<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO</td><td>Chief, MID</td></tr><tr><td>INFO</td><td></td></tr><tr><td>FROM</td><td>Chief of Station, Mexico</td></tr><tr><td>SUBJECT</td><td>Maurice H. HALPERIN</td></tr><tr><td>ACTION REQUIRED</td><td>Information only</td></tr><tr><td>REFERENCE(S)</td><td>SOURCE: LIEUT./L/MUD</td></tr></table>
 
 1. Attached for your information and retention are two items of correspondence sent from Moscow by Maurice H. HALPERIN and/or Edith HALPERIN to the Albert MALTZ (201-5239) family in Mexico.
 

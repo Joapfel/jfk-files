@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6360.png
-
-Convert to MarkdownLetter to Birmingham
+Letter to Birmingham
 
 RN: COUNTY INTELLIGENCE PROGRAM
 107-9-4

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26814.png
-
-Convert to Markdown(3)
+(3)
 
 Continuación día 12 de Febrero de 1965.-
 

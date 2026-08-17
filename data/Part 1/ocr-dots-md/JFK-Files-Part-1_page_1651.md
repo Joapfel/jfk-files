@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1651.png
-
-Convert to Markdown4. OTHER AGENCY PERSONNEL
+4. OTHER AGENCY PERSONNEL
 
 List other Agency personnel or former personnel, who on the basis of your own personal knowledge or belief, had official or social contact with Subject. Give brief information as to the period and nature of such relationship for each.
 

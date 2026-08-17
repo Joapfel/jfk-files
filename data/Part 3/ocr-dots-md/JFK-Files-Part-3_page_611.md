@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_611.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 Between June and October, 1967, the U. S. Commissioner, Palm Beach, Florida, Edgar G. Hamilton, was advised that his son, Jan Hamilton, was active in the Klan at Okeechobee, Florida. He was also told that the Klan was holding meetings at a restaurant where the son was employed as a manager and which was partly owned by the Commissioner.
 

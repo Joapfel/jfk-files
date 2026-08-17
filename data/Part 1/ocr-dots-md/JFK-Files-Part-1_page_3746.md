@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3746.png
-
-Convert to MarkdownSECRET
+SECRET
 
 23 Aug 68 IN 77099
 

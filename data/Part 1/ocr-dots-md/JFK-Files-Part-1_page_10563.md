@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10563.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 <table><tr><td>SECRET CIRCULATION</td></tr></table>
 

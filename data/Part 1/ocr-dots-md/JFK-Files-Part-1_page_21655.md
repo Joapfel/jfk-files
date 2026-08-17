@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21655.png
-
-Convert to MarkdownSECRET
+SECRET
 
 E. NOSENKO was neither Deputy Chief of the American Embassy Section nor a senior officer or supervisor in the Section during the period of 1961 - 1962 (see). (Previous conclusion)
 

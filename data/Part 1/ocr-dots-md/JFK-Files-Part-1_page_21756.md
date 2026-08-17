@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21756.png
-
-Convert to MarkdownSECRET
+SECRET
 
 [06] MARK, David - III, C, 4
 

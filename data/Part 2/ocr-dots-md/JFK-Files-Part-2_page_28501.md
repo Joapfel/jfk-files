@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28501.png
-
-Convert to Markdown# THOMAS M. GANNON, S.J.
+# THOMAS M. GANNON, S.J.
 
 ### Local Address:
 

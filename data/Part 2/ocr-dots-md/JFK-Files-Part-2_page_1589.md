@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1589.png
-
-Convert to Markdown14-00000
+14-00000
 
 MEMORANDUM FOR: Chief, Africa Division
 SUBMIT : Termination of ~~Final~~ Mayoral

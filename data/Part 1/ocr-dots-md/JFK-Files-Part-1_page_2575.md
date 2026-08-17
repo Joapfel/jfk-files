@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2575.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (URBAN, (Colonel) - IV,E,24,25
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17620.png
-
-Convert to MarkdownSECRET-KAPOK
+SECRET-KAPOK
 
 Attachment to INM-4-10198 KAPOK-llbA
 

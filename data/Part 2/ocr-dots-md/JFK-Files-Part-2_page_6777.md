@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6777.png
-
-Convert to Markdownminimal because its mission at the time of the Kennedy
+minimal because its mission at the time of the Kennedy
 assassination focused upon foreign order of battle.
 
 Although our holdings at CIA do include many documents

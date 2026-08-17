@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16222.png
-
-Convert to MarkdownDecember 9, 1973
+December 9, 1973
 
 Interim Report - Period of
 12/3/73 - 12/9/73

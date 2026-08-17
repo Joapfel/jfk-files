@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1901.png
-
-Convert to Markdown1. Mr. David S. Morales is hereby recommended for the Intelligence Medal of Merit for his twenty-five years of dedicated service with the Central Intelligence Agency.
+1. Mr. David S. Morales is hereby recommended for the Intelligence Medal of Merit for his twenty-five years of dedicated service with the Central Intelligence Agency.
 
 2. Prior to his entrance on duty with the Central Intelligence Agency in March 1951, Mr. Morales served from April 1946 to March 1951 in the United States Army.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22130.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>William Harvey KIRKPATRICK DDP</td><td>11/14/62</td><td rowspan="2">Special Group Augmented<br/>Operation Mongoose<br/>Cuba</td></tr><tr><td>Gen. Lansdale Mr. Halpern</td><td>Nov. 21, 1962</td></tr><tr><td>Walter Elder [CHEEVER]</td><td></td><td></td></tr><tr><td>DCI</td><td>10/30/62</td><td></td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>William Harvey KIRKPATRICK DDP</td><td>11/14/62</td><td rowspan="2">Special Group Augmented<br/>Operation Mongoose<br/>Cuba</td></tr><tr><td>Gen. Lansdale Mr. Halpern</td><td>Nov. 21, 1962</td></tr><tr><td>Walter Elder [CHEEVER]</td><td></td><td></td></tr><tr><td>DCI</td><td>10/30/62</td><td></td></tr></tbody></table>
 
 **OCCURRENCE:**
 

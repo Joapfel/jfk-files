@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2128.png
-
-Convert to MarkdownNOV 8 1977
+NOV 8 1977
 
 The Honorable Griffin B. Bell
 Attorney General of the United States

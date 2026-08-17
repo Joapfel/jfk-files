@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32199.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 upon in the last twelve months to act as Chief of his section,

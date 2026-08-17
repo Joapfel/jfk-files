@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4032.png
-
-Convert to Markdown(b) Quality of later
+(b) Quality of later
 
 <table><tr><td>Handwritten: Mexico</td><td>Good</td></tr><tr><td>Mexico</td><td>Good</td></tr><tr><td>U.S.A.</td><td>Excellent</td></tr><tr><td>Schooner Key</td><td>Common</td></tr><tr><td>INVERNI CA</td><td>Excellent (planned)</td></tr></table>
 

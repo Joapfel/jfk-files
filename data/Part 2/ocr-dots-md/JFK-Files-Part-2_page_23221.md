@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23221.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 saying, I am going to send O'Donnell to the Congo to knock off Lumumba, not in those words.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7238.png
-
-Convert to Markdown8 September 1966
+8 September 1966
 
 SUBJECT: Contact Report/ LICOZY-5 - P-2712
 7 Sept, a few minutes, Sears Ejercito Nacional

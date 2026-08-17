@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7752.png
-
-Convert to MarkdownSuperiors
+Superiors
 Trust his judgment
 Like him
 Dislike him

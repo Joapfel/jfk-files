@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34179.png
-
-Convert to MarkdownCUADRO NO. 2
+CUADRO NO. 2
 
 DEFICIT AZUCARERO CUBANO PARA 1966
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16120.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>02</td></tr><tr><td>C/IA/SB</td></tr><tr><td>DC/IA/SB</td></tr><tr><td>C/IA/SH</td></tr></table>
 

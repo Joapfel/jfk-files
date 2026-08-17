@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15369.png
-
-Convert to MarkdownAddendum to Memo Papich to Belmont (continued)
+Addendum to Memo Papich to Belmont (continued)
 
 RE: COVERAGE OF NONCOLEMUNIST
 DIPLOMATIC ESTABLISHMENTS

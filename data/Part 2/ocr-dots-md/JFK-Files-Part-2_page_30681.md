@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30681.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Langelle first became aware of Lee Harvey Oswald when he heard a conversation that a former Marine had contacted the American consul general in Moscow to renounce his citizenship. He later heard that this individual had changed his mind and was returning to the United States. He does not recall the details of these conversations, but he believes they took place in the United States.
 

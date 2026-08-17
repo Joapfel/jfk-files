@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16608.png
-
-Convert to MarkdownSergeant GROTH furnished the following identifying date concerning the seven victims in this case:
+Sergeant GROTH furnished the following identifying date concerning the seven victims in this case:
 
 BRENDA HARRIS, Age 16, born August 16, 1951, 1848 South Hamlin, Chicago, Illinois
 

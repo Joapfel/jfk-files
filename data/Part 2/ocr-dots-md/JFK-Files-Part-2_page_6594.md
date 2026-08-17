@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6594.png
-
-Convert to Markdown13-00000
+13-00000
 
 (7) CIA to declassify the Soviet nickel contract with Cuba which exposes Soviet colonialism - for wide distribution in Latin America through Embassies and USIA and for use by CIA in Cuba.
 

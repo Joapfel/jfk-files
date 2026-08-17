@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9184.png
-
-Convert to MarkdownThat the main themes should be such as: SECRET
+That the main themes should be such as: SECRET
 
 * He kills & kills & kills
 * He lies & lies & lies

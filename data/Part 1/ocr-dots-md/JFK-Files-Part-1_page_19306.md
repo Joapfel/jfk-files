@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19306.png
-
-Convert to MarkdownCASUAL LEAVE REQUEST
+CASUAL LEAVE REQUEST
 
 Date: 11 October 1949
 

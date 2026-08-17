@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24566.png
-
-Convert to MarkdownGilpatrick said that he knew of no express restriction
+Gilpatrick said that he knew of no express restriction
 that would have barred the killing of Castro. But Gilpatic testified that
 he understood "There were limits on the use of power" and that these pre-
 cluded the use of assassination. (Gilpatrick, p. 31). Thus, while Gil-

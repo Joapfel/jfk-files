@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15276.png
-
-Convert to Markdown3. Other than DATO, have you ever used another name in order to hide your true identity?
+3. Other than DATO, have you ever used another name in order to hide your true identity?
 
 Subject stated that he also had a passport in the name of a Romanian, while he was engaged in blackmarket activities in Germany. The question was reworded to read, "Other than DATO and the name of a Romanian, have you ever used another name in order to hide your true identity?" Subject answered, "No."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8022.png
-
-Convert to Markdown**Subject: Past between Cuban Communists and Ortodoxo Party Leaders**
+**Subject: Past between Cuban Communists and Ortodoxo Party Leaders**
 
 **Report No:** EJ-954
 **Date of Information:** 31 December 1954

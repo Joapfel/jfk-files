@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13917.png
-
-Convert to MarkdownDocuments Pertaining to the "Huston Plan," Cointelpro, and Other Practices and Programs
+Documents Pertaining to the "Huston Plan," Cointelpro, and Other Practices and Programs
 
 A review of all of our files which have been referred to as Cointelpro files revealed no Cointelpro-type activity since April 28, 1971.
 

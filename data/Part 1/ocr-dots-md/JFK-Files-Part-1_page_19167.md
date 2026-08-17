@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19167.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>1. SERIAL NO.</td><td>2. NAME</td><td>3. ORGANIZATION</td><td>4. FUNDS</td><td>5. LWOP HOURS</td></tr><tr><td>019477</td><td>James H. Bruce Jr</td><td>51 620</td><td>CF</td><td></td></tr></table>
 

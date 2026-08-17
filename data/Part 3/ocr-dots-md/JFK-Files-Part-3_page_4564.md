@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4564.png
-
-Convert to MarkdownDate : 04/18/95
+Date : 04/18/95
 Page : 1
 
 JFK ASSASSINATION SYSTEM

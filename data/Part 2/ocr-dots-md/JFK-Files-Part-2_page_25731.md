@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25731.png
-
-Convert to Markdown# Slain Mobster Claimed Cuban Link to JFK Death
+# Slain Mobster Claimed Cuban Link to JFK Death
 
 By Ronald Kessler and Laurence Stern
 Washington Post Staff Writers

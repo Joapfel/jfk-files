@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4572.png
-
-Convert to MarkdownAmendment No. 2
+Amendment No. 2
 
 Pay Scale
 

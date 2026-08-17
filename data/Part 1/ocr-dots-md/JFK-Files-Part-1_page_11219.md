@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11219.png
-
-Convert to MarkdownLa Habana, 29 de Junio de 1956
+La Habana, 29 de Junio de 1956
 
 Kuy estudiante en elPoly� relojador y uniro:
 

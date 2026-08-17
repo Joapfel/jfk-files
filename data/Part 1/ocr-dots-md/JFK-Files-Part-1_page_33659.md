@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33659.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      A TRUE COPY OF

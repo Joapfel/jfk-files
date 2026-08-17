@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9058.png
-
-Convert to MarkdownAs a result of our review, engendered by your letter, I believe that the following subjects are deserving of your personal consideration:
+As a result of our review, engendered by your letter, I believe that the following subjects are deserving of your personal consideration:
 
 (1) **Audio coverage.** Audio coverage provides timely intelligence of inestimable worth to U. S. officials for policy planning, early warning, and accurate guidance necessary for the improvement of operational and collection activity here and abroad. Audio coverage is unique production because it is readily subject to local cross-checking and evaluation which is far more difficult and costly to achieve abroad. Further, such coverage is on targets which affect directly the national interests.
 

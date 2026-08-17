@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6532.png
-
-Convert to Markdowne. Diminish the Physical and Economic Capability of Castro Cuba to Train and Export Subversives.
+e. Diminish the Physical and Economic Capability of Castro Cuba to Train and Export Subversives.
 
 It is evident that ready funds, in considerable quantity, are required to conduct a subversive training program, not to speak of other costly factors - arms, demolition, fuel, food, propaganda, etc. Specific actions aimed at reducing the Cubans' resources will thus have a direct effect upon their ability to pursue their program of subversion, until cause them to turn to their own internal problems and will give the Russians passes as to the station of pursuing a program which is costly and marginally productive. Likewise, every action which contributes to instability, unrest, appropriation and dissension between Russian and Cuban will reduce correspondingly both their ability and their opportunity to drive fomented on a program of subversive training and exportation. The following actions will contribute to this end:
 

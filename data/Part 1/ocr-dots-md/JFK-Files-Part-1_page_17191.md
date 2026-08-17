@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17191.png
-
-Convert to Markdownthe LIMERICK installation and personnel. Specific examples of the LIEMPTY Project's progress and contributions to the RND will be found in Section 3 below (EFFECTIVENESS).
+the LIMERICK installation and personnel. Specific examples of the LIEMPTY Project's progress and contributions to the RND will be found in Section 3 below (EFFECTIVENESS).
 
 ## 2. CHANGES.
 

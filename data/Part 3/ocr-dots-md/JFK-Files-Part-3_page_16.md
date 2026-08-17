@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_16.png
-
-Convert to Markdownfailed to arouse presidential interest.
+failed to arouse presidential interest.
 
 In the ensuing weeks and months, OCI was naturally
 watching for indications of the success or failure of the restyled

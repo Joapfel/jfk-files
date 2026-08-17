@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24958.png
-
-Convert to MarkdownState of New York
+State of New York
 County of New York
 
 SS:

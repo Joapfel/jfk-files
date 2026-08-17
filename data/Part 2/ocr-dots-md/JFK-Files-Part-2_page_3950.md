@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3950.png
-
-Convert to Markdowna noted American neurologist, who found his electroencephalograms abnormal, and as a result he was released from prison on 29 April 1968.
+a noted American neurologist, who found his electroencephalograms abnormal, and as a result he was released from prison on 29 April 1968.
 
 Nagell said that because of the Ramparts article of January 1968 he
 was paid a visit by Jim Garrison. He told Garrison that he had no

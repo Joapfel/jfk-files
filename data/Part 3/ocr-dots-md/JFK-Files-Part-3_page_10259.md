@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10259.png
-
-Convert to MarkdownInformation Storage and Retrieval
+Information Storage and Retrieval
 
 The storage and retrieval of information is a
 basic operational necessity of any investigative or

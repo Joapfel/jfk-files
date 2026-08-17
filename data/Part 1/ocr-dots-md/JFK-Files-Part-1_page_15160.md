@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15160.png
-
-Convert to MarkdownGeneralkonsulat von Bolivia
+Generalkonsulat von Bolivia
 
 Hamburg,
 

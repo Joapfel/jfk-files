@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28920.png
-
-Convert to Markdown(2-64)
+(2-64)
 
 <table><tr><td>☐ PES</td><td>☐ COR</td></tr><tr><td>☐ CC</td><td>☐ RECON</td></tr><tr><td>☐ CAS</td><td>☐ REC</td></tr></table>
 

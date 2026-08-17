@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6757.png
-
-Convert to Markdown22 September 1955
+22 September 1955
 
 S. H. Johnson
 

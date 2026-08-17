@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11544.png
-
-Convert to Markdowninterviews of these persons have developed nothing to indicate they were aware
+interviews of these persons have developed nothing to indicate they were aware
 of the nature of the items being reproduced or of what use Ellsberg intended
 to make of the copies reproduced. Anthony Russo, a fellow employee of
 Ellsberg's at Rand in Santa Monica, would have been in an excellent position to

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23089.png
-
-Convert to MarkdownEn la segunda quincena de julio de 1961, un grupo de elementos contrarrevolucionarios de las organizaciones "30 de Noviembre", "Movimiento Revolucionario del Pueblo" y "Frente Revolucionario Democrático", planeaban atentar contra nuestro Comandante en Jefe- y otros dirigentes.
+En la segunda quincena de julio de 1961, un grupo de elementos contrarrevolucionarios de las organizaciones "30 de Noviembre", "Movimiento Revolucionario del Pueblo" y "Frente Revolucionario Democrático", planeaban atentar contra nuestro Comandante en Jefe- y otros dirigentes.
 
 Recibían orientaciones de la CIA a través de los contactos con Tony Varona, Manuel Ray y Aureliano Sánchez Arango en el exterior -- del país, y con el Almirante Burke y agentes de la CIA en la Base Naval de Guantánamo. El atentado se efectuaría en las cercanías del domicilio de la compañera Celia - Sánchez Manduley, en el Vedado. Resultaron detenidos Mario Chanez de Armas, Francisco-Chanez de Armas, Roberto Coscuyuela Valcárcel, Orlando Ulacia Valdés, Francisco - Gil Cruz, Segundo González González y otros, a quienes se les ocuparon armas y explosivos.
 

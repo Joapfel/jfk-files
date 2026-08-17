@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1432.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Page 44: Although Camp Peary has unfortunately been identified as a CIA facility, is it necessary for the author to reinforce media articles regarding this establishment by spelling out the cover background and other "chapter and verse" items regarding this facility. I believe comments regarding firearms training, counterterrorism training should be avoided.
 

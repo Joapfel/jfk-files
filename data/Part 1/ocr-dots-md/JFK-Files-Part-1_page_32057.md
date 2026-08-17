@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32057.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 FITNESS REPORT (Part I) PERFORMANCE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20047.png
-
-Convert to MarkdownMHC: % 13 MAR 64
+MHC: % 13 MAR 64
 
 SECRET
 (When Filled In)

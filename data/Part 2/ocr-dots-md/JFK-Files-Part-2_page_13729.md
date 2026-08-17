@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13729.png
-
-Convert to MarkdownMR. JENKINS
+MR. JENKINS
 
 D.W. MOORE, JR.
 

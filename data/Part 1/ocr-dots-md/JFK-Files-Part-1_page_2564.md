@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2564.png
-
-Convert to MarkdownIn regard to (a), the papers are only a rather minute part of
+In regard to (a), the papers are only a rather minute part of
 the total papers prepared in the First Section during 1958 - 1960.
 The lack of any information in these papers which directly or indirectly
 indicates that the KGB made a recruitment of an American in the

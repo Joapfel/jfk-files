@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13780.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 25 January 1963:
 

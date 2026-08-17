@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34543.png
-
-Convert to Markdown14. You previously stated that the reason that there were no difficulties in In the way of Marina's marriage to a foreigner and her departure from the Soviet Union was because Oswald was already living and working In the Soviet Union. How would the KGB have reacted to Oswald's marriage if they had known that Oswald wrote a letter to the American Embassy before his marriage about his desire to return to the United States?
+14. You previously stated that the reason that there were no difficulties in In the way of Marina's marriage to a foreigner and her departure from the Soviet Union was because Oswald was already living and working In the Soviet Union. How would the KGB have reacted to Oswald's marriage if they had known that Oswald wrote a letter to the American Embassy before his marriage about his desire to return to the United States?
 
 15. Did you know that Oswald asked the American Embassy for permission to return to the United States before he married Marina?
 

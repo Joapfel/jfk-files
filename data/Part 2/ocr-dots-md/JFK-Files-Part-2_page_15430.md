@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15430.png
-
-Convert to MarkdownMemorandum to W. C. Sullivan
+Memorandum to W. C. Sullivan
 Re: INTELLIGENCE COVERAGE OF
 FRIENDLY FOREIGN COUNTRIES
 (SEMIANNUAL EVALUATION)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9186.png
-
-Convert to MarkdownOn August 16, 1974, the telephone records for the residence of MICHAEL HALSEY BROWN, 101 Cherry Road, Berea, Kentucky, telephone number 502-986-9744, were obtained by subpoena. The following toll charges and information pertaining to each are set forth:
+On August 16, 1974, the telephone records for the residence of MICHAEL HALSEY BROWN, 101 Cherry Road, Berea, Kentucky, telephone number 502-986-9744, were obtained by subpoena. The following toll charges and information pertaining to each are set forth:
 
 **August 2, 1974**
 Call from BROWN's residence at Berea, Kentucky, to Falls Church, Virginia, 703-532-1527.

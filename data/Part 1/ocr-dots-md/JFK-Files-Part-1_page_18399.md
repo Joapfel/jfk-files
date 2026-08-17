@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18399.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>1. Send No.</td>
     <td>2. Name</td>

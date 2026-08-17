@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15702.png
-
-Convert to MarkdownBOBBY RUSH
+BOBBY RUSH
 
 ESCAPES BEING MURDERED
 

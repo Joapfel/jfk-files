@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25588.png
-
-Convert to MarkdownNAME : Giovanni ROSELLI
+NAME : Giovanni ROSELLI
 
 ALIASES : John Roselli, John Russell, John Kasselle, John Passelli
 

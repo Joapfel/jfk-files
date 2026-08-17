@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2945.png
-
-Convert to MarkdownSECRET
+SECRET
 
 21 August 1962
 McCone attends meeting to discuss intensified operations against North Vietnam.

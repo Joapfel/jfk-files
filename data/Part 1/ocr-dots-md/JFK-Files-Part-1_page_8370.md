@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8370.png
-
-Convert to MarkdownHe said that LORIKOV had told him several times 'never to call him or visit him at the embassy. LORIKOV was just calling Subject when he wants to meet him.
+He said that LORIKOV had told him several times 'never to call him or visit him at the embassy. LORIKOV was just calling Subject when he wants to meet him.
 
 During the first year after their arrival in Mexico, he recommended his mother to the Soviet Embassy, and while there met a (FN) BROTCHIN who was an old friend who had not seen his mother in Russia, while talking to BROTHIN, the latter asked if he had any jobs for Subject, or knew of anyone who might employ Subject. BROTHIN said No, but later introduced Subject to CICHON, who gave him a job.
 

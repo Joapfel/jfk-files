@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13280.png
-
-Convert to MarkdownIn the same vein, I should like to invite your attention
+In the same vein, I should like to invite your attention
 to some procedural matters surrounding recent witness presenta-
 tion before the Committee. It appears, from reports which I
 have received, that two former FBI agents who recently appeared,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6265.png
-
-Convert to MarkdownASSASSINATION RECORDS REVIEW BOARD
+ASSASSINATION RECORDS REVIEW BOARD
 
 600 E Street, N.W.
 Washington, DC 20004

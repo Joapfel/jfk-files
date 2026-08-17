@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2722.png
-
-Convert to MarkdownAMENDMENT TO
+AMENDMENT TO
 SUPPLEMENT TO STAFF PERSONNEL ACTION
 FOR Kent Williamson
 

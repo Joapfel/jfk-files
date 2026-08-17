@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35654.png
-
-Convert to Markdown<table><tr><td>LACO Pereda, Dr. Vicente</td><td>19-5-3/4-0 AA-757</td></tr></table>
+<table><tr><td>LACO Pereda, Dr. Vicente</td><td>19-5-3/4-0 AA-757</td></tr></table>
 
 AMCOG-3 Ops
 15 Apr 63, Rpt

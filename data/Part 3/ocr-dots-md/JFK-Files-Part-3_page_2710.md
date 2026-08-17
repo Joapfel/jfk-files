@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2710.png
-
-Convert to Markdown1906
+1906
 
 to preserve the respective roles in law enforcement. You have
 historical problems with the Klan coming along. We had

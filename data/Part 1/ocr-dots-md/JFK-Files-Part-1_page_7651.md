@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7651.png
-
-Convert to MarkdownCOPIES MADE
+COPIES MADE
 
 gone and spend and/or make some time with her. She said she actually felt sorry for KUCHEROV, because he just wasn't cut out for the role and she thought he probably dreaded it.
 

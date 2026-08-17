@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29781.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (WHEN FILLED IN)
 
 SECURITY APPROVAL

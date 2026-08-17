@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_538.png
-
-Convert to Markdown-5-
+-5-
 
 for hiding the four deserters. Other private-dwellings, belonging to BEHEIREN leaders and loyal supporters, are scattered throughout both the Kanto and Kansai areas.
 

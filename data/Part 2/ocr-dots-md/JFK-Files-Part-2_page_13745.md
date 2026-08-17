@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13745.png
-
-Convert to Markdownpredecessors should be listed covering the entire period since that function was developed.
+predecessors should be listed covering the entire period since that function was developed.
 
 5. Description of the organization and functions of the Bureau of Security and Consular Affairs, and of the Office of Security within the Bureau of Administration, insofar as they relate to liaison or cooperation with any intelligence or domestic investigatory body.
 

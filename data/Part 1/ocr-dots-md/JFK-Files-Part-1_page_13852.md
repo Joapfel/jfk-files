@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13852.png
-
-Convert to MarkdownEntrada 2039.- HF amigo de RICARDO LEON pregunta por-- RODRIGUEZ y HD dice que salió a comer hace un ratito. HF pregunta sino le dieron su metido de en la tarde y HD indica que JORRIN debió habersele dado con seguridad. HF:que entonces volverá a llamar mañana. HD:que está bien.- 1213.-
+Entrada 2039.- HF amigo de RICARDO LEON pregunta por-- RODRIGUEZ y HD dice que salió a comer hace un ratito. HF pregunta sino le dieron su metido de en la tarde y HD indica que JORRIN debió habersele dado con seguridad. HF:que entonces volverá a llamar mañana. HD:que está bien.- 1213.-
 
 1213.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35507.png
-
-Convert to Markdown11 June
+11 June
 
 65
 

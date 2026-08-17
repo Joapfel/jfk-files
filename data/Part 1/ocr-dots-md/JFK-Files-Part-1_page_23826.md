@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23826.png
-
-Convert to Markdown25. Military service - dates, country, unit, rank, duty, where services performed, decorations, when discharged, why. Give details if ever prisoner of war
+25. Military service - dates, country, unit, rank, duty, where services performed, decorations, when discharged, why. Give details if ever prisoner of war
 
 Entertained U.S. Army in Trieste, Italy Dec. 1952
 served at Fort Dix, N.D. for basic training, later

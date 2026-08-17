@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12082.png
-
-Convert to MarkdownThus, many of the functions formerly performed by Special Agent personnel are handled by currently assigned personnel within the Division, resulting in the savings of the time of the nine Agents released.
+Thus, many of the functions formerly performed by Special Agent personnel are handled by currently assigned personnel within the Division, resulting in the savings of the time of the nine Agents released.
 
 As a result of the Division-wide reorganization effected 12/16/70 this Section absorbed without offsetting Special Agent personnel work relating to Chinese matters formerly assigned to three Special Agent Supervisors in the Sino-Satellite Section (now abolished). This resulted in an increased case load of over 25 percent.
 

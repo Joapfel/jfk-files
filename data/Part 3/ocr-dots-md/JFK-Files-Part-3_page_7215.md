@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7215.png
-
-Convert to Markdownparticipates in the Intelligence Community effort, however,
+participates in the Intelligence Community effort, however,
 so that any contributions that foreign intelligence might
 make to internal security can be properly handled. I will
 not take your time here to describe all of these bureaucratic

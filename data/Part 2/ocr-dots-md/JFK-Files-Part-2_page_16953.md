@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16953.png
-
-Convert to MarkdownRICHARDSON, CHARLES
+RICHARDSON, CHARLES
 
 Membership application available lists this person's address as 1919 Warren, telephone number SE-8-2547.
 

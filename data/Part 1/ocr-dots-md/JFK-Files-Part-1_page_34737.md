@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34737.png
-
-Convert to Markdown<table><tr><td rowspan="3">DISPATCH</td><td>CLASSIFICATION</td></tr><tr><td>SECRET</td></tr><tr><td colspan="2"></td></tr></table>
+<table><tr><td rowspan="3">DISPATCH</td><td>CLASSIFICATION</td></tr><tr><td>SECRET</td></tr><tr><td colspan="2"></td></tr></table>
 
 <table><thead><tr><th colspan="2">PROCESSING</th></tr><tr><th>PRO<br>POSTED</th><th>ACTION</th><th>ACCOM<br>PUSHED</th></tr></thead><tbody><tr><td rowspan="5"></td><td>MARRED FOR INDEXING</td><td></td></tr><tr><td>NO INDEXING REQUIRED</td><td></td></tr><tr><td>ONLY QUALIFIED<br>HEADQUARTERS DESCRIBE INVENTORY</td><td></td></tr><tr><td>ABSTRACT</td><td></td></tr><tr><td>MICROFILM</td><td></td></tr></tbody></table>
 

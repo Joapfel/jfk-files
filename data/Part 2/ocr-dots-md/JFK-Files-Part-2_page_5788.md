@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5788.png
-
-Convert to Markdown13-00000
+13-00000
 
 CENTRAL INTELLIGENCE AGENCY
 WASHINGTON, D.C. 20505

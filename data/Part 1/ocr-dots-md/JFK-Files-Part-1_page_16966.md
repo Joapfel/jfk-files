@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_16966.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>CONTINUATION OF<br/>DISPATCH</th><th>CLASS: HIGH<br/>SECRET</th><th>PAGE NO<br/>101-2/59</th></tr></thead><tbody><tr><td colspan="3">adversely affected the security of the LIEMTY project or the related agent personnel. While various minor administrative and personnel problems arose, the Station was able to resolve all such problems locally.</td></tr><tr><td colspan="3"><b>5. PLANS AND CHANGES.</b></td></tr><tr><td colspan="3">a) Station Mexico City plans to have Raymond H. GREEDE reassume the agency's handling and administrative responsibilities that he previously had, upon his return to Mexico in early August 1965. As previously noted in reference A, SCOUTLING has been removed from the agency of Project LIEMTY and integrated into the LIMEOR project.<br/><br/>b) Other than noted above, no major administrative or operational changes are planned for the ensuing period.<br/><br/>for<br/>Willard C. CURTIS</td></tr><tr><td>FORM 53A<br/>RE Y 53A (B)</td><td>USE PROptoLY ON REASONS ALLOWED BY THE COMMISSIONER AND SINGLES OFFICE DEPARTMENT</td><td>CLASS: SECRET</td></tr><tr><td></td><td></td><td><input type="checkbox" checked/></td><td>CONTINUED</td></tr></tbody><tfoot><tr><td colspan="2"></td><td>PAGE NO<br/>5</td></tr></tfoot></table>

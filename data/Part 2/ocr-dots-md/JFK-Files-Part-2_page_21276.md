@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21276.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C. TRAL INTELLIGENCE AGENCY
 WASHINGTON, D.C. 20505

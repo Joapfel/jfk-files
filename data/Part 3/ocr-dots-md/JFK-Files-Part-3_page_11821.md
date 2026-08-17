@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11821.png
-
-Convert to Markdown6-E
+6-E
 
 William W. Hamilton (of this Section)
 Joseph M. Sizoo (of Research Section)

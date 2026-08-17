@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_4651.png
-
-Convert to MarkdownInformation from the files of the General Telephone Company of Florida should only be made public after proper issuance of a subpoena duces tecum which should be directed to Mr. CARL D. BROREIN, JR., operating vice president of the General Telephone Company of Florida, or his authorized representative.
+Information from the files of the General Telephone Company of Florida should only be made public after proper issuance of a subpoena duces tecum which should be directed to Mr. CARL D. BROREIN, JR., operating vice president of the General Telephone Company of Florida, or his authorized representative.
 
 The telephone company was not requested to retain the toll records described above and they will normally be destroyed after a period of six months.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25198.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AEWIGWAG/2
 1965 and 1966 Debriefings

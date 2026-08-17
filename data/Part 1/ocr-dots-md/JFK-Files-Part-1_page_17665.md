@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17665.png
-
-Convert to Markdownb. 1038-3710, 19 November 1966 (Headquarters' notification to the station of the renewal of the LIFEJI Projects).
+b. 1038-3710, 19 November 1966 (Headquarters' notification to the station of the renewal of the LIFEJI Projects).
 
 5. **Objectives**
 

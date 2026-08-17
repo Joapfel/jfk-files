@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7057.png
-
-Convert to Markdownwith
+with
 
 The file is very difficult to follow. Items appear as if no further
 mention.

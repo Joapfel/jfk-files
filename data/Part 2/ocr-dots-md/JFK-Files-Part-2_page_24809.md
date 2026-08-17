@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24809.png
-
-Convert to MarkdownHowever, none of the CIA officers believed that assassination was within
+However, none of the CIA officers believed that assassination was within
 the guidelines Helms had been given.
 
 Senator Hart of Colorado. ...did the kind of carte

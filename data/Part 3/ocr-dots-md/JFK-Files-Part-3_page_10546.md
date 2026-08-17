@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10546.png
-
-Convert to MarkdownREC'D
+REC'D
 APR 25
 DIVISION
 62-116395-56

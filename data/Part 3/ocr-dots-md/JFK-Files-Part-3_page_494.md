@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_494.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 In January, 1967, James Dolsen, Communist Party (CP) leader in Philadelphia, was informed by the FBI, through an anonymous telephone call, of current status and trial date concerning Aaron Libson, a CP member arrested for sodomy. This was a continuation of previous anonymous information provided Dolsen in November, 1968, about Libson's arrest.
 

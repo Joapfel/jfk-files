@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18130.png
-
-Convert to MarkdownHonorable Clarence E. Kelley
+Honorable Clarence E. Kelley
 Federal Bureau of Investigation
 Washington, D. C.
 

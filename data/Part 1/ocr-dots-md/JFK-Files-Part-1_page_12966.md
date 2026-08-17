@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12966.png
-
-Convert to Markdown☐ UNCLASSIFIED ☐ INTERNAL ONLY ☒ CONSENTIAL ☒ SECRET
+☐ UNCLASSIFIED ☐ INTERNAL ONLY ☒ CONSENTIAL ☒ SECRET
 
 <table>
   <caption>ROUTING AND RECORD SHEET</caption>

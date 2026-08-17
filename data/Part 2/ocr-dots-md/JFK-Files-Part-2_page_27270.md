@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27270.png
-
-Convert to MarkdownA - Memo for Record - Subj: Executive Registry - 21 Mar 75 SECRET SENSITIVE
+A - Memo for Record - Subj: Executive Registry - 21 Mar 75 SECRET SENSITIVE
 
 B - Memo for the Record - Subj: Examination of a Portion of the Records of Richard Helms - 19 Mar 75 SECRET SENSITIVE
 

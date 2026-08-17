@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28803.png
-
-Convert to MarkdownSTANDARD FORM 57A
+STANDARD FORM 57A
 MAY 1948-U. S. DEPT.
 SERVICE COMMISSION
 

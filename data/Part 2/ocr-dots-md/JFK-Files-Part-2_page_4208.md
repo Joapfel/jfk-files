@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4208.png
-
-Convert to MarkdownCENTRAL INTELLIGENCE BULLETIN
+CENTRAL INTELLIGENCE BULLETIN
 
 23 November 1963
 

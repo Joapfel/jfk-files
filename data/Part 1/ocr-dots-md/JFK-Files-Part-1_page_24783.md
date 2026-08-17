@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24783.png
-
-Convert to MarkdownSECRET
+SECRET
 
 has been laid. Tichborn recently met one of the Spanish partners in New York who was on a short visit to the U. S. They agreed that when Tichborn visited Spain, they would jointly work on a prospectus that could be used to increase business for ICAP Iberia.
 

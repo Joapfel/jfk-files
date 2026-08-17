@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17856.png
-
-Convert to MarkdownNR005 CE CODE
+NR005 CE CODE
 
 5:26 PMNITEL MARCH 27, 1975 KCL
 

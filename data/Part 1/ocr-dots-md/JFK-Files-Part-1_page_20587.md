@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20587.png
-
-Convert to MarkdownSECRET
+SECRET
 
 14 July 1966
 

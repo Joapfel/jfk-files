@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29293.png
-
-Convert to MarkdownFACT SHEET ON NAVAL INVESTIGATIVE SERVICE, 1960-64
+FACT SHEET ON NAVAL INVESTIGATIVE SERVICE, 1960-64
 
 With regard to the last two paragraphs of the undated request received in the Office of the Secretary of Defense on March 20, 1978, the Naval Investigative Service has been unable to identify any personnel presently or formerly associated with its Service, or its predecessor organizations, who were involved in the activities described. In general, the monitoring of activities or the utilization of sources within the Cuban anti-Castro groups in Miami and New Orleans during the period 1960 to 1964 was under the primary jurisdiction of the Federal Bureau of Investigation (FBI) and the Central Intelligence Agency (CIA).
 

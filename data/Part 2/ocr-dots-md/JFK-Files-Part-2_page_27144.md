@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27144.png
-
-Convert to Markdownthem intimately and to keep our knowledge
+them intimately and to keep our knowledge
 current. Our performance falls too short.
 
 - A lack of communication and inter-

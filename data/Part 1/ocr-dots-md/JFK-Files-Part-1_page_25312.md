@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25312.png
-
-Convert to Markdown20 May 1956: Kodolfo KANU, called Subject and was told "We have found the books and material you requested (the Soviet foreign policy)." LEONOV said he would take the books to HEWRO the next day. HEWRO for many years active in the Mexican Diplomatic Service, at one time being Charge of the Mexican Legation in Barrow, Poland. Now about 78 and inactive in Government, but does write articles for the newspaper Excelsior (HEX: 3736 5.
+20 May 1956: Kodolfo KANU, called Subject and was told "We have found the books and material you requested (the Soviet foreign policy)." LEONOV said he would take the books to HEWRO the next day. HEWRO for many years active in the Mexican Diplomatic Service, at one time being Charge of the Mexican Legation in Barrow, Poland. Now about 78 and inactive in Government, but does write articles for the newspaper Excelsior (HEX: 3736 5.
 
 6 January 1956: The daughter of General Heriberto Jara spoke with Subject at the Soviet Embassy saying she had been told that he was the person who could inform her of when she should come by to pick up translations of the "clinical documents" relative to herself and her father. Subject said they were having some trouble getting the documents translated because of the medical terms, but said they should be ready in about five days (HENA 4200).
 

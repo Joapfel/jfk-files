@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10233.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">USSS-EPS FORM 101<br/>6/70</td>
     <td colspan="3" rowspan="5">

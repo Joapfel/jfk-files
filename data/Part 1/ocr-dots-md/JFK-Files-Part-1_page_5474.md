@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5474.png
-
-Convert to MarkdownCOUNTRY Haiti
+COUNTRY Haiti
 
 REPORT NO. CSDB-312/CL625-67
 

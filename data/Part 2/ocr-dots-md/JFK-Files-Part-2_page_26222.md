@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26222.png
-
-Convert to MarkdownSECRET
+SECRET
 
 conception of the relationship between operations and intelligence. The memorandum also suggests ways in which some of these problems can perhaps be alleviated.
 

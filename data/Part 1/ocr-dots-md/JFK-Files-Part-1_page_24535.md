@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24535.png
-
-Convert to MarkdownThe money which Moscow has been supplying with criminal objectives against the democracies of Latin America, especially against Venezuela and Colombia, throws off the mask and shows that "communist unity" between Russia and Castro with respect to subversion is as clear as the impunity which the Soviet diplomatic missions enjoy in Bogota and Mexico City.
+The money which Moscow has been supplying with criminal objectives against the democracies of Latin America, especially against Venezuela and Colombia, throws off the mask and shows that "communist unity" between Russia and Castro with respect to subversion is as clear as the impunity which the Soviet diplomatic missions enjoy in Bogota and Mexico City.
 
 It is believed here that, with the establishment of relations be-
 tween the Soviet Union and Venezuela, Menendez Rodriguez and his accom-

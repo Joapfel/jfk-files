@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14230.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 significant internal uprising. Without the precise location of the machines, however, even at such a time it will be difficult to target the commando raid with any assurances of success. It must be borne in mind, however, that any such direct action, short of open U. S. military invasion, is likely to lead to Soviet reprisals in one form or another against sophisticated U. S. communications equipments. The Soviets will probably, in such event, not be hampered by as many considerations as would the U. S., should this lead to a chain reaction on the part of the Soviets. At the same time, the intelligence value of the equipments obtained must be constantly reviewed if the information is to be obtained by other than surreptitious means.
 

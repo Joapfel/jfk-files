@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4135.png
-
-Convert to Markdownjustify prosecution is not obtained. However, there is no
+justify prosecution is not obtained. However, there is no
 legal reason why the prosecutor cannot request that the inves-
 tigation continue indefinitely as long as there is information
 that violent activities and plans for violence are still under-

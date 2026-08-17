@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19238.png
-
-Convert to Markdown15-00000
+15-00000
 
 I. 5 JUN 1963
 26-

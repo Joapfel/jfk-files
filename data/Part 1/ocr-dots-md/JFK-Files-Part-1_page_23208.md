@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23208.png
-
-Convert to Markdown17 April 1958
+17 April 1958
 
 MEMORANDUM FOR: Chief, Office of Security
 VIA : Chief, CI/DA

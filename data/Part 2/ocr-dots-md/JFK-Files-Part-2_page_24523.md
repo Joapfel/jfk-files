@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24523.png
-
-Convert to Markdown-17-
+-17-
 
 Helms stated that those words reflected the "kind of atmosphere" on which he relied for his perception that assassination was implicitly authorized. (Helms, 7/17, p. 60-61.) McManus, who wrote the memorandum, agreed that Robert Kennedy "was very vehement in his speech" and "really wanted action" but McManus disagreed with Helms perception, stating that "it never occurred to me" that the words quoted above from Robert Kennedy included permission to assassinate Castro. (McManus, p. 9.) Nor did the spirit of the meeting as a whole give McManus any idea that assassination was either contemplated or authorized. (Tr., p. 9-10.)
 

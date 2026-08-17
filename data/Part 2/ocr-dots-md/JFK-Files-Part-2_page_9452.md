@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9452.png
-
-Convert to MarkdownMinistry of Information
+Ministry of Information
 12845 14th St.
 
 Community Information Center:

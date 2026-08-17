@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6492.png
-
-Convert to MarkdownXIXXX VEA
+XIXXX VEA
 
 SEC P 2 T TIT 1316407
 LA CITF NYGP 8748

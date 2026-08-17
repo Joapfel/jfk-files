@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18858.png
-
-Convert to MarkdownJuly 16, 1954
+July 16, 1954
 
 A. H. Belmont
 

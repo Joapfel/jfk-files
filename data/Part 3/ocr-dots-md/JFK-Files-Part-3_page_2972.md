@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2972.png
-
-Convert to Markdown1 exercises, and this is what hangs some of us up.
+1 exercises, and this is what hangs some of us up.
 
 2 Mr. Adams. It hangs me up. But in the same files I
 3 imagine every one of you has been interviewed by the FBI, either

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10872.png
-
-Convert to Markdowncan prove to be extremely useful. We should confer with
+can prove to be extremely useful. We should confer with
 these agencies regarding ways and means of recruiting
 sources either to be handled by us jointly or by one of
 the intelligence agencies. Here again, the Bureau can

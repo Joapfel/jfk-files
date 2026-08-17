@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22411.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Q But do you know of any paramilitary operations that were actually run out of the United States?
 2. A No.

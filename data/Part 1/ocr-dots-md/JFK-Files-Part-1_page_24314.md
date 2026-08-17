@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24314.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A different cover for a move to Rome might be developed, but not that of a Maoist <u>developing</u> new cells. Rome Station is glad to have him come there and give them "grass roots" reports whenever he visits, but would they want him permanently?!
 

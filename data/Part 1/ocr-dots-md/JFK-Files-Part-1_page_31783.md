@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31783.png
-
-Convert to Markdown12 JUN 1973
+12 JUN 1973
 
 Dear Joseph,
 

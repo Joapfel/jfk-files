@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11391.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="5">
      Assoc. Dir.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32629.png
-
-Convert to MarkdownSECRET
+SECRET
 
 eight or nine months Castro was in power. Today
 the Cuban effort is far more sophisticated, more

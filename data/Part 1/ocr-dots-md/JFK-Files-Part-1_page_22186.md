@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22186.png
-
-Convert to Markdown5.
+5.
 
 at the time of the defection, NOSENKO was staying in Geneva with Nikolay RESHETNYAK, a representative of the International Organizations Branch of the Ukrainian Ministry of Foreign Affairs. RESHETNYAK told that NOSENKO often left his quarters without saying where he was going, but it was assumed that NOSENKO was "Intelligence" and had some mission to accomplish.**
 

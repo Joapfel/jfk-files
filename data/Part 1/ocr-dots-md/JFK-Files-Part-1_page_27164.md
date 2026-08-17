@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27164.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 (This notice is NOT to be filed in Agency manuals. Please destroy after reading.)
 

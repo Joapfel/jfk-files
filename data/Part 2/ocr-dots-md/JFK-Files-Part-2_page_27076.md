@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27076.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 H. Views of the DCI
 

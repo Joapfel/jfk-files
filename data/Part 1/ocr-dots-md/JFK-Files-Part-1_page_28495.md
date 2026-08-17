@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28495.png
-
-Convert to Markdown5 March 1951
+5 March 1951
 
 TO: CPD
 FROM: FOM

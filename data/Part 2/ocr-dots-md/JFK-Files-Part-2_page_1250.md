@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1250.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, FE/PIA
 

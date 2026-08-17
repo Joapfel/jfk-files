@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15569.png
-
-Convert to MarkdownBAD HEALTH CARE is part of the way of life in the black community and in the Latin community. This fact is proved by all statistics:
+BAD HEALTH CARE is part of the way of life in the black community and in the Latin community. This fact is proved by all statistics:
 
 **The life expectancy of U.S. blacks is 7 years less than whites.
 

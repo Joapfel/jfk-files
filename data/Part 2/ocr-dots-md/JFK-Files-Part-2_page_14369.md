@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14369.png
-
-Convert to Markdown# EMPLOYEE BULLETIN
+# EMPLOYEE BULLETIN
 
 No. 442
 

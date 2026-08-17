@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27413.png
-
-Convert to MarkdownCOMMISSION ON COMMISSION
+COMMISSION ON COMMISSION
 Washington, DC 20500
 
 March 18, 1975

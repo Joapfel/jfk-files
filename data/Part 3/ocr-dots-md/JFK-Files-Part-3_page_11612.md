@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11612.png
-
-Convert to MarkdownSPECIAL COORDINATION UNIT
+SPECIAL COORDINATION UNIT
 
 FBI liaison Agents stationed abroad in 17 foreign posts have facilitated and encouraged the prompt handling by foreign agencies of FBI requests for investigation in the countries covered by those agencies. The productivity of this liaison during the first six months of 1971 was demonstrated by the location in those countries of 779 FBI fugitives, 35 fugitives wanted by other agencies, and 573 Selective Service delinquents for a total of 1,387 persons wanted in the U. S. Eighty-eight automobiles, stolen in the U. S., were recovered abroad during the same six months and the total estimated value of stolen property and funds recovered abroad was $596,442.
 

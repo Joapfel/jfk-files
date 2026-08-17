@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7727.png
-
-Convert to Markdown13-00000
+13-00000
 
 **15 Nov. 1962:** An FBI source reported that the KGB was aware of Subject's presence in the U.S.A. and ordered all Soviet IS personnel to report immediately any information which they may obtain regarding Subject.
 

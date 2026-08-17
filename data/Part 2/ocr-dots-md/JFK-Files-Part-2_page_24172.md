@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24172.png
-
-Convert to Markdowncircumstances can be conceived of whereby even though formal and
+circumstances can be conceived of whereby even though formal and
 informal Agency ties are discontinued, social and other ties remain.
 The impact of such liaisons is difficult to assess. The following
 entities were dissolved during the referenced period:

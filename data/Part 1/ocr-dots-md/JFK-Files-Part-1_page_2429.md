@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2429.png
-
-Convert to Markdown26. Mel'nikov Sergey - a chief of navy intelligence of 7 Fleet in 1950-52.
+26. Mel'nikov Sergey - a chief of navy intelligence of 7 Fleet in 1950-52.
 
 27. Namgaladze - a general, a chief of navy intelligence at Black sea, 1950-52
 

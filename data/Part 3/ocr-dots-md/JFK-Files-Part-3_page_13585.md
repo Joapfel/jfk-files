@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13585.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Can I return to the review aspects of your work at OMB?
 

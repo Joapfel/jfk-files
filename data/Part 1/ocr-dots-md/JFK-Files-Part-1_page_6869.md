@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6869.png
-
-Convert to MarkdownSECRET/CONFIRM
+SECRET/CONFIRM
 CONTINUED CONTROL
 
 10-08-59

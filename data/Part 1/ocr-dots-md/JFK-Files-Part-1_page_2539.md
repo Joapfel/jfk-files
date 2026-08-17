@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2539.png
-
-Convert to Markdowninclusion support his statement that he had expanded
+inclusion support his statement that he had expanded
 the original request from BOBKOV so that he would have
 some "pieces of information to give CIA."
 

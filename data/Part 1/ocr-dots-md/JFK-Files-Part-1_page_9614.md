@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9614.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
   <caption>FORM NO. 51-10<br/>SEP 1948</caption>

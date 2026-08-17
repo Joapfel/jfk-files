@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34567.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Department of Justice,
 Washington 20530

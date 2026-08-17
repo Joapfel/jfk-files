@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26474.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Communist Party, reportedly a supplier of false passes for travel to Cuba.
 

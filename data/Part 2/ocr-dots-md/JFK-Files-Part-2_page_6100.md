@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6100.png
-
-Convert to Markdown6. Do you agree to have written opinions provided to the Committee by the designated agency ethics officer of the agency to which you are nominated and by the Office of Government Ethics concerning potential conflicts of interest or any legal impediments to your serving in this position?
+6. Do you agree to have written opinions provided to the Committee by the designated agency ethics officer of the agency to which you are nominated and by the Office of Government Ethics concerning potential conflicts of interest or any legal impediments to your serving in this position?
 
 Yes.
 

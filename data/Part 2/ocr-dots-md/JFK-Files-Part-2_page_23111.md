@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23111.png
-
-Convert to MarkdownSin embargo, en 1970 participa en el frustrado intento de infiltración del "Alpha-66" por Oriente, refugiándose en la Base Naval, donde nuevamente se le arrestó, esta vez, por infringir las condiciones de una fianza sobre - una condena de 18 meses por la causa anteriormente mencionada.
+Sin embargo, en 1970 participa en el frustrado intento de infiltración del "Alpha-66" por Oriente, refugiándose en la Base Naval, donde nuevamente se le arrestó, esta vez, por infringir las condiciones de una fianza sobre - una condena de 18 meses por la causa anteriormente mencionada.
 
 No obstante, queda en libertad y sale sin dificultades de Estados Unidos a Sudamérica para participar en el atentado. Posteriormente regresa a Estados Unidos.
 

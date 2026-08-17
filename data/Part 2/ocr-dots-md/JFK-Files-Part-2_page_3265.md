@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3265.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 have already been made with the Bureau of Internal Revenue to permit individuals or corporate entities making donations to claim these donations as contributions to the US Government for tax purposes. He cautioned that this arrangement was being limited to a very small group. 9/
 

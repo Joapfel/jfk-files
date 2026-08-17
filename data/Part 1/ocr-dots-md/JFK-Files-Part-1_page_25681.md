@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25681.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE:</td><td></td><td rowspan="4">SECRET</td><th colspan="2">ROUTING</th></tr><tr><td>TO:</td><td></td><td>1</td><td>4</td></tr><tr><td>FROM:</td><td></td><td>2</td><td>5</td></tr><tr><td>ACTION:</td><td></td><td>3</td><td>6</td></tr><tr><td>INFO:</td><td></td><td colspan="3">MEXI 1889 IN 18812</td></tr></table>
 

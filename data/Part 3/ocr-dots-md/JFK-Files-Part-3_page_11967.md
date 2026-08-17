@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11967.png
-
-Convert to Markdowninvestigation must be immediately instituted and informants directed to develop full facts concerning the attack. The purpose of these investigations is to obtain complete intelligence data concerning any extremist influence.
+investigation must be immediately instituted and informants directed to develop full facts concerning the attack. The purpose of these investigations is to obtain complete intelligence data concerning any extremist influence.
 
 SAC Letter 70-48 (B) dated 9/15/70 under caption "New Left and Black Extremist Terrorism - Informant Coverage" instructed the field to immediately institute an aggressive policy of developing new productive informants who can infiltrate the ranks of terrorist organizations, their collectives, communes and staffs of their underground newspapers. Constructive plans to implement this program are to be included in Item 4 of the monthly airtel on "New Left Movement-Violence" which was outlined in Bureau airtel to all offices 5/13/70.
 

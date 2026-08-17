@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12518.png
-
-Convert to Markdown(4) Records of private firms. Obtain pertinent available information from records of private firms such as past or present employers. Checks of credit agencies should be limited to securing identifying information only.
+(4) Records of private firms. Obtain pertinent available information from records of private firms such as past or present employers. Checks of credit agencies should be limited to securing identifying information only.
 
 (5) Contacts with neighbors and fellow employees. Such inquiries should be made only where there is expectation they will develop pertinent information not otherwise available.
 

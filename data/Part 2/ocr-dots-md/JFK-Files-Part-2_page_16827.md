@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16827.png
-
-Convert to MarkdownWhite cotton fibers were present on Q200, Q201. Q213, Q215 and Q245; however, white cotton fibers are too composite and possess too few individual microscopic characteristics to be associated with a particular source.
+White cotton fibers were present on Q200, Q201. Q213, Q215 and Q245; however, white cotton fibers are too composite and possess too few individual microscopic characteristics to be associated with a particular source.
 
 Other fibers for which no source could be found were black synthetic fibers on Q200; a yellow-green cotton fiber, a white woolen fiber and a green paper fiber on Q201; a white synthetic fiber and three green paper fibers on Q210; a black woolen fiber, a red cotton fiber and a green paper fiber on Q215; a black woolen fiber on Q233; an orange woolen fiber on Q237 and a blue acrylic fiber on Q251.
 

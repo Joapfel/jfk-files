@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7009.png
-
-Convert to Markdownappeals within 7 days of receiving Notification Letter
+appeals within 7 days of receiving Notification Letter
 
 4. CIA has never before presented an appeal to the President; FBI presented an appeal last year but the White House told the parties to work out their difficulties.
 

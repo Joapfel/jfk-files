@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8753.png
-
-Convert to MarkdownNWW 88614 DocId:32989606 Page 10
+NWW 88614 DocId:32989606 Page 10
 
 airtels, letters, memoranda?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13363.png
-
-Convert to MarkdownOLSEN: Have you ever heard that Lee Harvey Oswald made contact with, was friendly to, or attempted to penetrate any anti-Castro group?
+OLSEN: Have you ever heard that Lee Harvey Oswald made contact with, was friendly to, or attempted to penetrate any anti-Castro group?
 
 STURGIS: Yes, sir.
 

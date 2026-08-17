@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21405.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 20 April 1962 (Philadelphia)
 

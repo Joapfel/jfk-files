@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21788.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 Mr. Wides. Who arranged for the training at the training station at <u>Parratt</u> (?), was that used?
 

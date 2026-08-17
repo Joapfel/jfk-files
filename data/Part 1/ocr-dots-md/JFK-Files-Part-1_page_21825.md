@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21825.png
-
-Convert to MarkdownPage
+Page
 
 c. Supervisor of All Code Clerk Operations 164
 (i) Introduction 164

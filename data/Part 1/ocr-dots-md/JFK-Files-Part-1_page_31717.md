@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31717.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a. From a report dated 21 August 1944 from the London office of OSS:
 

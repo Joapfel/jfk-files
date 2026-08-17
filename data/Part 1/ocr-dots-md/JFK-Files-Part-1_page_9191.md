@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9191.png
-
-Convert to Markdown21 April 1951
+21 April 1951
 
 Concluding paragraph of Helvin J. Iqsky's article "Did Hitler Help Stalin in the Frame-up" in LIN LEADER, 25 Dec. 1948:
 

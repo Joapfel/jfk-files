@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22220.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Gen. Lansdale<br>Bruce Cheever (CIA)<br>HARVEY PATEWELL</td><td>25 Oct 1962</td><td>Cuba<br>Mongoose<br>Special Group Augmented</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Gen. Lansdale<br>Bruce Cheever (CIA)<br>HARVEY PATEWELL</td><td>25 Oct 1962</td><td>Cuba<br>Mongoose<br>Special Group Augmented</td></tr></tbody></table>
 
 OCCURRENCE:
 

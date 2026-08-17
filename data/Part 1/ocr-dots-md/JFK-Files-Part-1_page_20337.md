@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20337.png
-
-Convert to Markdown(4)
+(4)
 
 OCCUPATION Retired
 LAST EMPLOYER Leonid De Lagoinski

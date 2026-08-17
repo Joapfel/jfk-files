@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23359.png
-
-Convert to Markdowna very satisfactory type of agent. He displays a certain amount
+a very satisfactory type of agent. He displays a certain amount
 of initiative in voluntarily performing tasks not specifically
 requested by the Chief of Station through the cut-out HUNANOID.
 HUMANOID-2 has demonstrated the qualities of willingness, discretion,

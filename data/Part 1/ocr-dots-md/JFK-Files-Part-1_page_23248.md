@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23248.png
-
-Convert to Markdown663 ER/DB/MCB
+663 ER/DB/MCB
 
 CLASSIFIED MESSAGE
 

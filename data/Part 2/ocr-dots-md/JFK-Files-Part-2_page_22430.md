@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22430.png
-
-Convert to MarkdownSECRET
+SECRET
 
 or overt publications. We subscribed -- well, the proprietary
 subscribed to a number, a great many newspapers, periodicals,

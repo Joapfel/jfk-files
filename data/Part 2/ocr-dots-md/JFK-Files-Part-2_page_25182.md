@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25182.png
-
-Convert to Markdown<table><tr><td colspan="2">PERSONS/ENTITIES:</td><td>DATES:</td></tr><tr><td>Richardson, John<br/>Weede, General<br/>CIA Station Siagon</td><td>11 Sept 1963</td><td>CATEGORIES:<br/>DIEM</td></tr></table>
+<table><tr><td colspan="2">PERSONS/ENTITIES:</td><td>DATES:</td></tr><tr><td>Richardson, John<br/>Weede, General<br/>CIA Station Siagon</td><td>11 Sept 1963</td><td>CATEGORIES:<br/>DIEM</td></tr></table>
 
 **OCCURRENCE:** In a September 11, 1963 CIA cable from Saigon (SAIG0797) Richardson reported that the country team attempted to agree on a six page summary cable to answer a cable from the department requesting views. The team was unable to agree even on the first three pages of the summary. Weede and Richardson dissented on the basis of the draft summary was too sweeping and too negative including definitively about the country on an inadequate basis of data. He said: "in some ways we seem to have reached the point in the official American community, where if you think we can win with the present government, you are simply not running in the right direction with the majority."
 

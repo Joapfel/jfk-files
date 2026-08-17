@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5159.png
-
-Convert to Markdown1 - Mr. W. R. Wannall
+1 - Mr. W. R. Wannall
 1 - Mr. O. Cregar
 1 - Mr. J. C. Deegan
 1 - Mr. R. L. Shackelford

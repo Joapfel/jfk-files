@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16298.png
-
-Convert to Markdown7. EXPLOITATION OF THE COMMUNITY
+7. EXPLOITATION OF THE COMMUNITY
 
 We understand that the businessmen in the community make their living off of us. We understand that we make the products that they sell back to us.
 

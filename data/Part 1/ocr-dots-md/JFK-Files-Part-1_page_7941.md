@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7941.png
-
-Convert to Markdown<table><thead><tr><th>DISPATCH</th></tr></thead><tbody><tr><td>10<br/>Chief/Kusoda</td></tr><tr><td>INFO<br/>Chief/TH Division</td></tr><tr><td>FROM<br/>Chief of Station, JIMWAVE</td></tr><tr><td>SUBJECT RYBAT/FJDUST/PBRUMEN/AMFRISK<br/>Surveillance on IDEN C</td></tr><tr><td>ACTION REQUIRED REFERENCES<br/>ACTION REQUIRED: For your information</td></tr></tbody></table>
+<table><thead><tr><th>DISPATCH</th></tr></thead><tbody><tr><td>10<br/>Chief/Kusoda</td></tr><tr><td>INFO<br/>Chief/TH Division</td></tr><tr><td>FROM<br/>Chief of Station, JIMWAVE</td></tr><tr><td>SUBJECT RYBAT/FJDUST/PBRUMEN/AMFRISK<br/>Surveillance on IDEN C</td></tr><tr><td>ACTION REQUIRED REFERENCES<br/>ACTION REQUIRED: For your information</td></tr></tbody></table>
 
 1. IDEN A, a cleared and witting contact, provided the following information which was obtained during a surveillance of IDEN C. The surveillance was a joint effort of IDEN A and local ODENVY. ODENVY is not aware that IDEN A has passed the information to JMWAVE.
 

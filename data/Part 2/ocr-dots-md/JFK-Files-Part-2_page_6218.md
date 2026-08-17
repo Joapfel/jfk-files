@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6218.png
-
-Convert to Markdown# CLASSIFIED FAX TRANSMISSION
+# CLASSIFIED FAX TRANSMISSION
 
 ARRB
 

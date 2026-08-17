@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26682.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A Well, we used all-source information to find out what
 his commercial dealings were. When we would see -- well, for

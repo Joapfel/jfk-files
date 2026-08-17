@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23696.png
-
-Convert to Markdown1 knowing.
+1 knowing.
 
 2 Mr. Kirbow. Bill, because you and I both know Senator
 

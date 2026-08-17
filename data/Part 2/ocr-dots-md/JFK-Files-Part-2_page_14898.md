@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14898.png
-
-Convert to MarkdownFebruary 8, 1960
+February 8, 1960
 
 # CRASH OF NATIONAL AIRLINES FLIGHT 967
 ## GULF OF MEXICO, NOVEMBER 16, 1959

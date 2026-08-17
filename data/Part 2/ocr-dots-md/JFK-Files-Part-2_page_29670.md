@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29670.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (This form is to be used by the intelligence extracted
 from CIA-controlled documents.)

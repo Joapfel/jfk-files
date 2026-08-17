@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23774.png
-
-Convert to MarkdownMr. Aaron. What occurs to me is that it would be helpful
+Mr. Aaron. What occurs to me is that it would be helpful
 to have a finding on this point.
 
 Mr. diGenova. That's the next issue I was going to

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10648.png
-
-Convert to Markdown# Reported Attempts to Organize Klavern of United Florida Ku Klux Klan in Sebastian, Florida (Indian River County)
+# Reported Attempts to Organize Klavern of United Florida Ku Klux Klan in Sebastian, Florida (Indian River County)
 
 It is recommended that immediately upon confirmation of the attempted organization of a Ku Klux Klan Klavern in Indian River County, that counterintelligence steps be taken to discourage same.
 

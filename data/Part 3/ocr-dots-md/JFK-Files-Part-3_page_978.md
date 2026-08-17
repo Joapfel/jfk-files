@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_978.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 2. Furnishing information to news media. (39 instances)
 Pages 37-75.

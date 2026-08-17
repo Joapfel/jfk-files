@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11886.png
-
-Convert to Markdown# K. INFORMANT FILES
+# K. INFORMANT FILES
 
 ## 1. Opening
 

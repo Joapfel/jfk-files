@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21631.png
-
-Convert to Markdown103
+103
 
 his superior in Chile, the man who was in charge of the
 defense attache system down there?

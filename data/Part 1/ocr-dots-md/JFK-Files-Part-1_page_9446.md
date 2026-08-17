@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9446.png
-
-Convert to MarkdownDedicated to the cause of Peace Through Freedom
+Dedicated to the cause of Peace Through Freedom
 — BY "Peace Through Slavery" — as citizens both
 of free countries and of countries suffering Soviet
 dictatorship.

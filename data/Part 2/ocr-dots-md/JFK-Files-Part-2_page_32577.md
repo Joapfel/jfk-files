@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32577.png
-
-Convert to Markdown# S-E-C-R-E-T
+# S-E-C-R-E-T
 ## Security Information
 
 (3) Maintenance of sufficient cover to permit credible denial of official connection by U.S. or host country government.

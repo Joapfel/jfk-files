@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17285.png
-
-Convert to Markdown-2-
+-2-
 PROJECT OUTLINE
 
 CRYPTONYM LIEMPTY

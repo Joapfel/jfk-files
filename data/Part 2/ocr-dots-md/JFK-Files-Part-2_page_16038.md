@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16038.png
-
-Convert to MarkdownPROGRESSIVE LABOR PARTY
+PROGRESSIVE LABOR PARTY
 
 The "New York Times" city edition Tuesday, April 20, 1965, page 27, reported that a new party of "revolutionary socialism" was formally founded on April 18, 1965, under the name of the PLP, which had been known as the Progressive Labor Movement.
 

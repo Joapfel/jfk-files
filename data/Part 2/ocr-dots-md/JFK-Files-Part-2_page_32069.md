@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32069.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4">AGENT REPORT</th>

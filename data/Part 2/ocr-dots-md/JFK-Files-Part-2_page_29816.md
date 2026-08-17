@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29816.png
-
-Convert to MarkdownD - some other places, just general it was a better place
+D - some other places, just general it was a better place
 
 M - why wouldn't New York and Philadelphia necessarily be a good location to be close to
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3383.png
-
-Convert to Markdown2. Whether FBI intelligence reports are valuable in that respect, especially in light of a recent GAO report suggesting that such reports are rarely useful in predicting violent activity.
+2. Whether FBI intelligence reports are valuable in that respect, especially in light of a recent GAO report suggesting that such reports are rarely useful in predicting violent activity.
 
 3. Whether such information, assuming it is valuable, could not be obtained through more traditional criminal investigations.
 

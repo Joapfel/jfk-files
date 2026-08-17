@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16749.png
-
-Convert to Markdown1. Medical Director, Neighborhood Health Center, Office of Economic Opportunity, 529 29th Street, advised he has records reflecting that CHERYL PETERSON, 2859 Humboldt Street, Denver, Colorado, visited this center on August 9, 1969 and was diagnosed as being anemic. She was given two prescriptions on that date which were filled at this center, one pertained to iron tablets and the other to vitamin tablets.
+1. Medical Director, Neighborhood Health Center, Office of Economic Opportunity, 529 29th Street, advised he has records reflecting that CHERYL PETERSON, 2859 Humboldt Street, Denver, Colorado, visited this center on August 9, 1969 and was diagnosed as being anemic. She was given two prescriptions on that date which were filled at this center, one pertained to iron tablets and the other to vitamin tablets.
 
 She also visited this center on August 19, 1969 in connection with a possible pregnancy and was advised by the examining doctor she was not pregnant.
 

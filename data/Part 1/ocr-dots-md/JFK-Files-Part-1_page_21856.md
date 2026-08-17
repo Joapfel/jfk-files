@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21856.png
-
-Convert to MarkdownDeputy Chief of the Second Chief Directorate that the SHAKHOV investigation was the main reason for his assignment to Geneva in 1962, NOSENKO later in the day stated: "My main task was to check the security of the delegation, plus SHAKHOV. You can't separate these tasks."
+Deputy Chief of the Second Chief Directorate that the SHAKHOV investigation was the main reason for his assignment to Geneva in 1962, NOSENKO later in the day stated: "My main task was to check the security of the delegation, plus SHAKHOV. You can't separate these tasks."
 
 In this questioning NOSENKO described the basis for the suspicions of SHAKHOV, the lack of results from earlier investigations, and his own preparation for this assignment. He said that as a representative of the Soviet Delegations Department of the Second Chief Directorate, M.G. SITNIKOV had conducted investigations of SHAKHOV in Geneva in 1961, but SITNIKOV was unable to resolve the questions concerning him. Because of the failure of these early efforts, the KGB decided to send "a senior guy" to the Disarmament talks in 1962, and NOSENKO was chosen "to finish things up." Before leaving Moscow in March 1962, NOSENKO therefore discussed the SHAKHOV case with SITNIKOV and with one (fnu) LYALIN, the Soviet Delegations Department officer in charge of the SHAKHOV case; he also read various materials on the case, including an investigative plan drawn up by LYALIN. NOSENKO's description of these preparations provided the basis for the questioning which followed:
 

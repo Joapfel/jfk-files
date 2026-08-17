@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20698.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 TO : DIRECTOR, FBI (100-468406)
 

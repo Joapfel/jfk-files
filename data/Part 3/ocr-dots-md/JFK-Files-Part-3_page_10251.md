@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10251.png
-
-Convert to Markdownthe result of the investigation, it is determined he does not meet the criteria the case is closed. If, on the other hand, he does meet the criteria, he is listed in the Adex according to the determined degree of dangerousness. Category I cases continue under investigation for as long as the individual continues to warrant that Category listing. When an individual is listed in Categories II, III, and IV, however, the investigation is closed, subject to periodic reopening to verify his location, to determine his activities and to ascertain whether he still qualifies for inclusion in the Adex. Provision is made for upgrading, downgrading and purging an individual from the Adex as his activities and level of dangerousness fluctuate.
+the result of the investigation, it is determined he does not meet the criteria the case is closed. If, on the other hand, he does meet the criteria, he is listed in the Adex according to the determined degree of dangerousness. Category I cases continue under investigation for as long as the individual continues to warrant that Category listing. When an individual is listed in Categories II, III, and IV, however, the investigation is closed, subject to periodic reopening to verify his location, to determine his activities and to ascertain whether he still qualifies for inclusion in the Adex. Provision is made for upgrading, downgrading and purging an individual from the Adex as his activities and level of dangerousness fluctuate.
 
 ## Revolutionary Groups
 

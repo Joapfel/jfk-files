@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4515.png
-
-Convert to Markdown(C) OSCAR CORDO LUGO - CO-PILOT
+(C) OSCAR CORDO LUGO - CO-PILOT
 
 (D) ANGEL PEDRIANES - CO-PILOT (S/E ALBERT)
 

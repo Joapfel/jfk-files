@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27844.png
-
-Convert to Markdown## 5. Evaluation of the Subject's Training
+## 5. Evaluation of the Subject's Training
 
 Keenan's evaluations in formal training have been uniformly commendatory. The ITC instructors found that "although he was a bit slow in adjusting to the requirements of the course, during the last two weeks he showed definite progress...his final briefing was excellent...pleasant young man, interested and cooperative...gives promise of being a sound intelligence officer". In the OC his work was good - "performance was highly satisfactory...in face-to-face practical exercises he was effective...acquired a highly satisfactory understanding of the various kinds of Agency operations, revealing a particularly thorough knowledge of CI concepts and methods".
 

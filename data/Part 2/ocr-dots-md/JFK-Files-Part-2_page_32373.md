@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32373.png
-
-Convert to MarkdownSECRET
+SECRET
 
 for dissemination. The most interesting and informative refugee thus far is the brother of Amando Hart, the Cuban Minister of Education and member of the twenty-five man ORI Central Committee. The center is also collecting travel and personal documents which may be used for agent operations.
 

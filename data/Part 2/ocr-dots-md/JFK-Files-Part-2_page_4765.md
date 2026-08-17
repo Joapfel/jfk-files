@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4765.png
-
-Convert to MarkdownSECRET
+SECRET
 
 value of the information that he gives you. But if somebody
 volunteers and wants to work for you, I don't care what he does

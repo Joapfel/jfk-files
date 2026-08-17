@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17694.png
-
-Convert to Markdown**Location in the past year, as well as every year since 1951, has been through LEKAN. As in the cases of the Soviets and Czechs, this information is generally forwarded in periodic general summaries, of each MI -1547, MI -1610, MI -1619, MI -1687, MI -1767, MI -2018 and MI -2173 are cited as examples. Biographical information on Polish staff members has been forwarded in such reports as MI -1886, MI -1899 and MI -1929.**
+**Location in the past year, as well as every year since 1951, has been through LEKAN. As in the cases of the Soviets and Czechs, this information is generally forwarded in periodic general summaries, of each MI -1547, MI -1610, MI -1619, MI -1687, MI -1767, MI -2018 and MI -2173 are cited as examples. Biographical information on Polish staff members has been forwarded in such reports as MI -1886, MI -1899 and MI -1929.**
 
 The following reports are cited as examples of spot reports on items believed to be of special interest relating to the Polish Legation:
 

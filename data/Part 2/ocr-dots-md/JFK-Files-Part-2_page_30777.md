@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30777.png
-
-Convert to MarkdownTrue NAME?
+True NAME?
 crypt + ?
 Structure?
 of

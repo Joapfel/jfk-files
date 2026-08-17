@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5395.png
-
-Convert to Markdown25 June 1993
+25 June 1993
 
 **MEMORANDUM FOR:** Chief, Historical Review Group
 Chief, Information Management Service

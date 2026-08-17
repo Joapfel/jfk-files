@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15706.png
-
-Convert to Markdown# Platform and Program
+# Platform and Program
 
 1. We want freedom. We want power to determine the destiny of our Black Community.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9480.png
-
-Convert to Markdown# K. Meetings and Rallies
+# K. Meetings and Rallies
 
 The Detroit NCCF sponsored a picnic at Belle Isle Park, Detroit, Michigan, on Sunday August 7, 1970, which lasted from approximately 12:30 p.m. to 7:30 p.m. There were approximately 150 persons present most of the time, however, around 4:00 p.m., music was played over the public address system which attracted crowds up to about 400 people, the majority of whom appeared to be present because of curiosity rather than motivation by BPP doctrine.
 

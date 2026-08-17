@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18177.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 Criminal Division
 
 Attention: Edward Fenig

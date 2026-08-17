@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14581.png
-
-Convert to MarkdownUnder Separate Cover Attachment to: OSNW-11726
+Under Separate Cover Attachment to: OSNW-11726
 
 Orestes Guillermo RUIZ Pérez
 

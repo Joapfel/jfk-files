@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_887.png
-
-Convert to Markdownand it speculated that, in enacting § 605, "Congress may have thought it less important that some offenders should go unchipped of justice than that officers should resort to methods deemed inconsistent with personal liberty". Id. at 383.
+and it speculated that, in enacting § 605, "Congress may have thought it less important that some offenders should go unchipped of justice than that officers should resort to methods deemed inconsistent with personal liberty". Id. at 383.
 
 In Hardone II, the Court, to further the policy expressed in Hardone I, held that where "a substantial portion of the case against a defendant is proven by him to have been developed by means of illicit wire-tapping, his conviction cannot be permitted to stand. In so holding, the Court rejected the argument that § 605 only barred testimony as to the content of an intercepted message stating that:
 

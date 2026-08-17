@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21886.png
-
-Convert to MarkdownMr. (O'Donnell): I told Mr. Bissell that I would be willing to go down to neutralize his activities and operations and try to bring him out [of UN custody] and turn him over to the Congolese authorities, that is correct.
+Mr. (O'Donnell): I told Mr. Bissell that I would be willing to go down to neutralize his activities and operations and try to bring him out [of UN custody] and turn him over to the Congolese authorities, that is correct.
 
 Senator Mondale: Was it discussed then that his life might be taken by the Congolese authorities?
 

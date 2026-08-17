@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_818.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 JGD: 11 SEPT 64

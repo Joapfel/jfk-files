@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17068.png
-
-Convert to Markdown7. We want an immediate end to police brutality and murder of black people.
+7. We want an immediate end to police brutality and murder of black people.
 
 8. We want freedom for all black men held in Federal, state, county and city prisons and jails.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15635.png
-
-Convert to MarkdownSubject: David DAVID
+Subject: David DAVID
 
 Dates of interview: 8, 9, 10 Jan. 1959
 

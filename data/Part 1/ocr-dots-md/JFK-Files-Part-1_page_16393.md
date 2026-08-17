@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16393.png
-
-Convert to MarkdownFaiti Leads Not to be Disseminated
+Faiti Leads Not to be Disseminated
 
 Jorge Norbert MONTERO
 

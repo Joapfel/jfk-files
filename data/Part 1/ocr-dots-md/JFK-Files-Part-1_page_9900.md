@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9900.png
-
-Convert to Markdown28 October, 1967
+28 October, 1967
 
 Subject: Wallace B. Rowton Contact with Rodolfo Keyes Cortes(Subject).
 

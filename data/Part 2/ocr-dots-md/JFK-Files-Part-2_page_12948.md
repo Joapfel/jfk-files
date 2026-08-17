@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12948.png
-
-Convert to Markdown# UNITED STATES GOVERNMENT
+# UNITED STATES GOVERNMENT
 Memorandum
 
 TO: THE FILE . (100-44963)

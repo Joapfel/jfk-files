@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16051.png
-
-Convert to Markdown14.00000
+14.00000
 
 LIC# - A01-16301
 FILE - 201-055910

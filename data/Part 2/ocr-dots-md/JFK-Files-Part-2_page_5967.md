@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5967.png
-
-Convert to MarkdownFrom the Desk of Frieda P. Omasta
+From the Desk of Frieda P. Omasta
 
 **NOTE FOR:** W. Curtis Chaloner @ DA
 **FROM:** Frieda P. Omasta

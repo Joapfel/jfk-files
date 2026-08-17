@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7311.png
-
-Convert to Markdown10.02.08 Is there anything unusual or striking about his gait or manner of walking? If so, please describe:
+10.02.08 Is there anything unusual or striking about his gait or manner of walking? If so, please describe:
 
 10.03 Overall impression of driving and walking behavior: (Check the most appropriate description.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23621.png
-
-Convert to MarkdownTHE WHITE HOUSE OFFICE
+THE WHITE HOUSE OFFICE
 
 Discuss the specific content of such a request and procedures for handling it.
 

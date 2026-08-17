@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_951.png
-
-Convert to MarkdownAlthough many officers from other Federal law enforcement agencies attend the FBI National Academy each year, the number in attendance is limited due to the mandate that the FBI provide this service to local and state law enforcement officers.
+Although many officers from other Federal law enforcement agencies attend the FBI National Academy each year, the number in attendance is limited due to the mandate that the FBI provide this service to local and state law enforcement officers.
 
 B. Extent to which the FBI should keep tabs on other Departments and Agencies through the development of sources and informants in those Agencies
 

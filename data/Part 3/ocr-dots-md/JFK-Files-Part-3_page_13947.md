@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13947.png
-
-Convert to MarkdownThis document contains 4 pages.
+This document contains 4 pages.
 No. of Copies, Series
 TOP SECRET
 December 1, 1963

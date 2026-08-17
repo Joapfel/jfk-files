@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32799.png
-
-Convert to Markdown<table><tr><td>05-0179</td></tr><tr><td>11 APRIL 1968</td></tr><tr><td>CABLE SECRETariat Dissemination<br/>BY 32 PEB<br/>COMP: WHCO65 RIC COPY</td></tr><tr><td>[ ] INDEX [ ] DESTROY [ ] RETURN TO W/W/COG/OPS<br/>[X] NO INDEX FILE IN CS FILE NO. 201-307-235 (see 201-307-235)<br/>[ ] FILE <br/> [x] COPIE <br/> [ ] INDEX [ ] DESTROY [ ] RETURN TO W/W/COG/OPS FILE NO.</td></tr></table>
+<table><tr><td>05-0179</td></tr><tr><td>11 APRIL 1968</td></tr><tr><td>CABLE SECRETariat Dissemination<br/>BY 32 PEB<br/>COMP: WHCO65 RIC COPY</td></tr><tr><td>[ ] INDEX [ ] DESTROY [ ] RETURN TO W/W/COG/OPS<br/>[X] NO INDEX FILE IN CS FILE NO. 201-307-235 (see 201-307-235)<br/>[ ] FILE <br/> [x] COPIE <br/> [ ] INDEX [ ] DESTROY [ ] RETURN TO W/W/COG/OPS FILE NO.</td></tr></table>
 
 SECRET
 

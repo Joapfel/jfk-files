@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29949.png
-
-Convert to MarkdownDEC 8 1976
+DEC 8 1976
 
 DATE: DEC 7, 1976
 OFFICE NAME: SEL. COMM. ON ASSASSINATIONS

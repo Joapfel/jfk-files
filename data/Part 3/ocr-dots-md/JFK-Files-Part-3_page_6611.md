@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6611.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="2">ALL INFORMATION CONTROLLED<br/>HEREIN IS UNCLASSIFIED<br/>DATE 11/300 BY SR 2 ALM/76</td>
         <td>OFFICIAL ORIGIN: ATLANTA</td>

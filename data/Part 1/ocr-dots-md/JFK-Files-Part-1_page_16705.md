@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16705.png
-
-Convert to Markdown14-00060
+14-00060
 
 ORIG: C. Bustos-Videla
 UNIT: N/1/2

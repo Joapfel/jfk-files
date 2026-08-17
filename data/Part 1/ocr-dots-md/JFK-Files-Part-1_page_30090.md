@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30090.png
-
-Convert to MarkdownHorman Edward Kinsley
+Horman Edward Kinsley
 
 Feb. 11, 1916
 

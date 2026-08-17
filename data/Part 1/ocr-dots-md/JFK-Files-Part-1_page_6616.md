@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6616.png
-
-Convert to MarkdownI am glad to add my contribution to help those suffering from Communist oppression.
+I am glad to add my contribution to help those suffering from Communist oppression.
 
 Enclosed please find check for $__________
 as my subscription for this vital work.

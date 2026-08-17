@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3015.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C-2285
 12 June 1967

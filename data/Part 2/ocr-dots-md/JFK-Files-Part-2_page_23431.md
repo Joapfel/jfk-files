@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23431.png
-
-Convert to MarkdownGORDON GRAY
+GORDON GRAY
 
 ROCKEFELLER COMMISSION TESTIMONY
 

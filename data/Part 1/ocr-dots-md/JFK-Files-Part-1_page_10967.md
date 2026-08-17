@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10967.png
-
-Convert to MarkdownRE.
+RE.
 
 Hyda, Xalana
 Camp. Luis Alberi

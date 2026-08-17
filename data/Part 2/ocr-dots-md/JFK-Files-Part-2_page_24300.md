@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24300.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HR 230-8c(3)
 

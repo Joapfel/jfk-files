@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24585.png
-
-Convert to Markdown25 January 1955
+25 January 1955
 
 was included on a list of exiled
 Guatemalans who applied for political

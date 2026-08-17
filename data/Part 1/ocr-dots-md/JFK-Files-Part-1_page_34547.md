@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34547.png
-
-Convert to Markdown24. Do you know when and by whom a stateless passport was issued to Oswald? Where was it issued? Are stateless passports usually issued by the MVD on the recommendation and approval of the KGB? What would happen if the MVD issued a stateless passport without KGB knowledge or if the KGB was against it?
+24. Do you know when and by whom a stateless passport was issued to Oswald? Where was it issued? Are stateless passports usually issued by the MVD on the recommendation and approval of the KGB? What would happen if the MVD issued a stateless passport without KGB knowledge or if the KGB was against it?
 
 25. You stated previously that the KGB considered Oswald to have retained his American citizenship while he was in the Soviet Union. Do you have any comments on the fact that after his arrival in the USSR, and after having made oral requests for Soviet citizenship, he returned to the American Embassy, denounced his US citizenship and threw out his American passport to the American Consul at the Embassy.
 

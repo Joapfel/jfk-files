@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25136.png
-
-Convert to Markdown<table><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>COLBY, WILLIAM<br>MINH, GENERAL,<br>NHUNG<br>CONEIN<br><br>Nhu</td><td>1 November 1963</td><td>DIEM ✓</td></tr></table>
+<table><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>COLBY, WILLIAM<br>MINH, GENERAL,<br>NHUNG<br>CONEIN<br><br>Nhu</td><td>1 November 1963</td><td>DIEM ✓</td></tr></table>
 
 **OCCURRENCE:** COLBY stated that "Apparently the decision by several of the generals, the ones that were present, that he (DIEM) would be executed when they got him. They sent an officer, a small armored unit to pick him up after they found out where he was down in the other part of town. He and his brother were put in an armored personnel carrier with an officer, a young Vietnamese who was an aide to GENERAL MINH, head of the coup group, and they went into the armored personnel carrier and when the carrier arrived back at headquarters, the two were dead and had been shot several times. That officer, incidentally, and a rather bizarre aspect of this, was himself apparently when this junta of generals was overthrown about two months later. Somebody took that occasion to shoot him." pp. 18-19.
 

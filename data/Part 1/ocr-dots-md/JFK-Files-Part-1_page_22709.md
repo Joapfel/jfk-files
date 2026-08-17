@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22709.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEXICO CITY INFO DIRECTOR
 

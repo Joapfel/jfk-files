@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6567.png
-
-Convert to MarkdownCHF 703
+CHF 703
 
 NYOR CITE WA 40143
 

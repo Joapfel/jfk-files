@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5939.png
-
-Convert to Markdown27 February 1998
+27 February 1998
 
 MEMORANDUM FOR: T. Jeremy Gunn
 Executive Director

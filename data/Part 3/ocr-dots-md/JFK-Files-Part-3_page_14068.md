@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14068.png
-
-Convert to Markdownand storable high energy propellant fuel.
+and storable high energy propellant fuel.
 
 As for Soviet MRBM's and IRBM's, Mr. Cline said that there are over
 700 launchers, mostly in the Western USSR; deployment is almost complete;

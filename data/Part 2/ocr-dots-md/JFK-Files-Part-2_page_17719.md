@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17719.png
-
-Convert to MarkdownATTACHMENT
+ATTACHMENT
 
 | NAME | DATE & PLACE OF BIRTH | SOCIAL SECURITY NO. |
 |---|---|---|

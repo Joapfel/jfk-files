@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2975.png
-
-Convert to Markdown1913
+1913
 
 case. Our problem is where we have a demonstration and we have
 to make a judgment call as to whether it is one that clearly

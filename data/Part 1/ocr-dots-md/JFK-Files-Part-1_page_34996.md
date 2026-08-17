@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34996.png
-
-Convert to MarkdownPAYROLL
+PAYROLL
 
 ALLEN "I-F"
 Page No. 6

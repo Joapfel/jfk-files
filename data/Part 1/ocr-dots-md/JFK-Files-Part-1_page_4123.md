@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4123.png
-
-Convert to Markdown27 August 1968
+27 August 1968
 
 MEMORANDUM FOR THE RECORD
 

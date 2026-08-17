@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21162.png
-
-Convert to Markdownpossible intelligence-connected person after having been accosted by a Japanese policeman in a CIA safehouse which had evidently been compromised without Station's knowledge. Government claimed no knowledge of employee's intelligence connections. Employee has one close acquaintance in proposed area of assignment who knows of employee's true connections. Acquaintance is former staffer, discreet, and who wants to protect his own reputation and status locally.
+possible intelligence-connected person after having been accosted by a Japanese policeman in a CIA safehouse which had evidently been compromised without Station's knowledge. Government claimed no knowledge of employee's intelligence connections. Employee has one close acquaintance in proposed area of assignment who knows of employee's true connections. Acquaintance is former staffer, discreet, and who wants to protect his own reputation and status locally.
 
 (6) There are no other known problems bearing on security.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24415.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 to Varona, and not the $150,000 that was to be paid to Varona after Castro's death.
 

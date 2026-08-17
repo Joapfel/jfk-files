@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23809.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Senator Huddleston. We ought to move on.
 

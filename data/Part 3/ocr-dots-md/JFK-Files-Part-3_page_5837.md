@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5837.png
-
-Convert to MarkdownLA 157-2325
+LA 157-2325
 
 DESCRIPTION
 

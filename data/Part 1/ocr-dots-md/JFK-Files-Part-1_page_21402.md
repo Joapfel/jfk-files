@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21402.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 12 July 1962 (Wash.)
 

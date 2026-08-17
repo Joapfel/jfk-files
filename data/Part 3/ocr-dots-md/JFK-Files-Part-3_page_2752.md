@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2752.png
-
-Convert to Markdown1948
+1948
 
 to the effect that -- and I was sitting in the back of the room and I don't recall it exactly, but some of them were beat with chains, and I didn't hear whether he said he beat someone with a chain or not, but I rather doubt that he did because it's one thing being present, and it's another thing taking an active part in criminal actions.
 

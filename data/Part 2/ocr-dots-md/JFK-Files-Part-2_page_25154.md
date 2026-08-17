@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25154.png
-
-Convert to Markdown<table><tr><td rowspan="2">PERSONS/ENTITIES:</td><td>DATES:</td></tr><tr><td>August 1963</td></tr></table>
+<table><tr><td rowspan="2">PERSONS/ENTITIES:</td><td>DATES:</td></tr><tr><td>August 1963</td></tr></table>
 
 CATEGORIES:
 

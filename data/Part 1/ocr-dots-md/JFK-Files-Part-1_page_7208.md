@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7208.png
-
-Convert to MarkdownVALENTÍN SERGÉYEVIC LOGINOV
+VALENTÍN SERGÉYEVIC LOGINOV
 
 Fecha de nacimiento: 23 diciembre 1927.
 

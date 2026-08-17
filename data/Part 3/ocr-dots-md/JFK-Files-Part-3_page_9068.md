@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9068.png
-
-Convert to MarkdownMemorandum to Mr. W. C. Sullivan
+Memorandum to Mr. W. C. Sullivan
 
 RE: THOMAS RIHA
 105-78256

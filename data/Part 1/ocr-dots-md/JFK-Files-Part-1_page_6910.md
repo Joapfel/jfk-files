@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6910.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">C.G. : Jno.</td>
     <td rowspan="4">501</td>

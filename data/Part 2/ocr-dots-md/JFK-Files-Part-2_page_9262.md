@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9262.png
-
-Convert to MarkdownCAROLYN STURDIVANT is Assistant Coordinator
+CAROLYN STURDIVANT is Assistant Coordinator
 of the free bussing program.
 
 DE T-2

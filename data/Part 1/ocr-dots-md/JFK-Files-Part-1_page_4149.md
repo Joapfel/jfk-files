@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4149.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th><th>PROCESSING</th></tr></thead><tbody><tr><td>TO<br/>Deputy Chief, WH/SA</td><td>SECRET</td><td></td></tr><tr><td>REF<br/>Chief of Station, JMWAVE</td><td></td><td>DATE OF DELIVERY<br/>X C-4014 RE<br/>OR: DATED<br/>RECIPIENT DEPT<br/>CABINET REFERENCE</td></tr><tr><td>SUBJECT<br/>TYPIC/AMWORLD-Identity</td><td></td><td>REFERENCE: UFGW-3963, 29 June 1964</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th><th>PROCESSING</th></tr></thead><tbody><tr><td>TO<br/>Deputy Chief, WH/SA</td><td>SECRET</td><td></td></tr><tr><td>REF<br/>Chief of Station, JMWAVE</td><td></td><td>DATE OF DELIVERY<br/>X C-4014 RE<br/>OR: DATED<br/>RECIPIENT DEPT<br/>CABINET REFERENCE</td></tr><tr><td>SUBJECT<br/>TYPIC/AMWORLD-Identity</td><td></td><td>REFERENCE: UFGW-3963, 29 June 1964</td></tr></tbody></table>
 
 **ACTION REQUIRED - REFERENCES**
 

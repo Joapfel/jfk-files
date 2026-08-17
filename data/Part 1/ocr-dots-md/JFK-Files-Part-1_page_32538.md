@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32538.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 26 JUL 1965

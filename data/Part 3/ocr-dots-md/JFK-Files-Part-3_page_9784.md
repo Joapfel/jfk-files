@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9784.png
-
-Convert to MarkdownMemorandum J. A. Mintz to Mr. Dalbey
+Memorandum J. A. Mintz to Mr. Dalbey
 RE: FBI JURISDICTION; CRIMINAL INTELLIGENCE INFORMATION
 
 The Act attempted to attack organized crime by making criminal the management of syndicated gambling and by prohibiting racketeering activity characteristic of organized crime including the use of illegal proceeds for investment in legitimate business enterprises.

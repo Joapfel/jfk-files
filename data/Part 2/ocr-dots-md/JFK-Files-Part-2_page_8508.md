@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8508.png
-
-Convert to MarkdownSECRET
+SECRET
 
 27 APR 1977
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23013.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 76 PWARD & PAUL 7813 35
 

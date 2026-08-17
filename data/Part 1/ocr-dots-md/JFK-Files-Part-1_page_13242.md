@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13242.png
-
-Convert to Markdownthat had been made by some Americans seeking to purchase pistols, blasting caps, hand gernades and silencers. This is the first indication in the 201 that Subject was involved with Frank Rosentahl, Miami, who had the reputation of gambler and hoodlum associated with other hoodlums and jewel thieves in the Miami area.
+that had been made by some Americans seeking to purchase pistols, blasting caps, hand gernades and silencers. This is the first indication in the 201 that Subject was involved with Frank Rosentahl, Miami, who had the reputation of gambler and hoodlum associated with other hoodlums and jewel thieves in the Miami area.
 
 8. In a report sent out by Subject on 21 April 1966 to update his employee file, Subject again reported his brother Raul POSADA in government service but failed again to report Roberto POSADA.
 WAVE

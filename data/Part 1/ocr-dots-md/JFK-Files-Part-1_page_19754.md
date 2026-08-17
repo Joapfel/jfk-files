@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19754.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (Full Name)
 

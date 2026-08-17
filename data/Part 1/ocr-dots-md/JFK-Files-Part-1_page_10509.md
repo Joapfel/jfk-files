@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10509.png
-
-Convert to MarkdownSECRET
+SECRET
 
 organized biographical outline of all information on George PARIS and associates, developed to date. Attachment to this communication indicates that FARRIS has been or may still be a contact of Hemanut Abraham CISTROVSKY, suspect Soviet Agent, who is the Tokyo Branch Manager of the firm of SUNDUVICH BALTHERS INCORPORATED, which firm has long been suspected of being a front or cover organization for Soviet intelligence operations. Attention is invited specifically to the fact that Attachment reflects that the 1954 Japan Directory of Foreign Firms lists a. CISTROVSKY as Tokyo representative of this firm, which has offices at 61 - Tanura-cho, 4-Chome, Shiba, Ginza-ku, Tokyo, and telephone lines: 43-1509, 43-4369, 43-4287, whereas in 1938 subject to officially listed as George Paris, of PARIS ASSOCIATED ENTERPRISES, located at 64-3 Chome, Tanura-cho, Ginza-ku, Tokyo, telephones: 43-1509 and 43-4287, reflecting that he shared telephone numbers with SUNDUVICH BALTHERS, and presumably with Manuel A. CISTROVSKY. It is suggested that the Department of the Army, Navy and Marine Corps Chief of Staff, G-2, Intelligence, and the Federal Bureau of Investigation may have additional information on George PARIS and associates.
 

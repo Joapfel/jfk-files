@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3577.png
-
-Convert to MarkdownSECRET
+SECRET
 
 20 MAY 68 IN 14784
 

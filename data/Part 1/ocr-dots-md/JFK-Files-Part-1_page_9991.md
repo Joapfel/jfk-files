@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9991.png
-
-Convert to Markdown4.
+4.
 
 > 'Nothing is the letter. Could you give me a copy as soon as possible? This is very important. You have done a very wise thing in coming to see me about all this; much wiser than you could realize.'
 

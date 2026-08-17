@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17845.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 112345Z CITE MEXICO CITY 2884
 DIRECTOR

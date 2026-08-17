@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25822.png
-
-Convert to Markdown(2)
+(2)
 
 Chairman of your Committee, to conduct it. He first exposed the famous "Ppyoumese" account in a New York bank. It was used to convert South Vietnamese piasters to dollars, most of which ended up in three banks in the shiekdom of Dubai on the Persian Gulf.
 

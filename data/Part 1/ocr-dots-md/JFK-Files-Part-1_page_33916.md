@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33916.png
-
-Convert to MarkdownWESTFIELD, MASSACHUSETTS
+WESTFIELD, MASSACHUSETTS
 
 ...hope that you will be able to get behind the Iron Curtain with the specific information that Christian people are united in praying for this freedom for all. It is my intention to include...a special prayer in which the entire congregation will unite as a part of the Crusade for Freedom."
 

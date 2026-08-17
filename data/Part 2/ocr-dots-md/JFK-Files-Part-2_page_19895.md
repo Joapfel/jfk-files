@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19895.png
-
-Convert to MarkdownCODE
+CODE
 
 TELETYPE
 1 - Mr. P. J. Shackelford

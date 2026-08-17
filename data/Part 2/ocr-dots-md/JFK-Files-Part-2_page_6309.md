@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6309.png
-
-Convert to MarkdownSecret - Working Paper
+Secret - Working Paper
 
 He indicated he could live with opening the stations for short windows if important to story, but also said it created a problem about protecting other activities in that window
 

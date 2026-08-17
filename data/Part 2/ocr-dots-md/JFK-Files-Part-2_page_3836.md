@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3836.png
-
-Convert to Markdown1967 and 1968, was registered with Missouri auto license AG 1283. No other information was on file.
+1967 and 1968, was registered with Missouri auto license AG 1283. No other information was on file.
 
 27. Captain Robert E. WESSEL, Chief, Intelligence Division, St. Louis County Police Department, obtained the following information from a reliable confidential informant, employed by the County Division of the Southwestern Bell Telephone Company: Charles R. BROZ, residing at 10069 Puttington Drive, Apartment C, Affton (Lakeshire) Street, St. Louis County, Missouri, 63123, has unlisted telephone number 638-1149. His business connection is that of a partner with one Ray CAMPBELL in the Arco Auto Electric Service, 1811 Pestolozzi Street, St. Louis, Missouri, with telephone PR 1-8811. No additional information was filed.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20223.png
-
-Convert to MarkdownCopy Count Continued:
+Copy Count Continued:
 
 2 - Atlanta
 

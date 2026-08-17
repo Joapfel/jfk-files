@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4816.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 MM T-5 is MM 869-PC
 MM T-6 is PCI MARCELO NAPOLIELLO, Las Vegas,

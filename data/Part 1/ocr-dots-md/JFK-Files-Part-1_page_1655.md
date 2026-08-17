@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1655.png
-
-Convert to MarkdownWe just greeted each other. he said he heard PROBERT was coming to Mexico and asked if he were here. He wanted to call and say hello. I said yes. I immediately informed PROBERT, and suggested the latter; read Phil's file at the Station as it was my understanding there was some problem about his resignation, but did not know all the details. (This was true as personnel matters in the Station were kept very close by the front office.) I do not know if, when, or how many times PROBERT might have met with Phil. At this time Phil looked neat and well kept, as I recall.
+We just greeted each other. he said he heard PROBERT was coming to Mexico and asked if he were here. He wanted to call and say hello. I said yes. I immediately informed PROBERT, and suggested the latter; read Phil's file at the Station as it was my understanding there was some problem about his resignation, but did not know all the details. (This was true as personnel matters in the Station were kept very close by the front office.) I do not know if, when, or how many times PROBERT might have met with Phil. At this time Phil looked neat and well kept, as I recall.
 
 3. SUBJECT'S KNOWLEDGE OF SCALETTI, PROJECTS, OR OPERATIONS IN WHICH SCALETTI PARTICIPATED
 

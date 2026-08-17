@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22341.png
-
-Convert to Markdown6. Mail Intercept Programs in New York and San Francisco
+6. Mail Intercept Programs in New York and San Francisco
 
 7. Cover Operations Using Local Police Cover
 

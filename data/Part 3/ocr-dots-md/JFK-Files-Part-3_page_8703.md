@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8703.png
-
-Convert to Markdownc. Whether judicial approval was obtained in advance and, if so, from which court;
+c. Whether judicial approval was obtained in advance and, if so, from which court;
 
 d. The subject of the activity;
 

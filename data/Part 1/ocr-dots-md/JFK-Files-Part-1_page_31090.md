@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31090.png
-
-Convert to MarkdownRE: ORA: DUE R.B: Personnel Folder
+RE: ORA: DUE R.B: Personnel Folder
 
 SUBJECT : Career Development Plan - for WIGGS, Lee H.
 

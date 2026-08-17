@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1424.png
-
-Convert to Markdown# Chapter 9
+# Chapter 9
 
 Page 37 - As written, passage in first full paragraph could endanger a particular source, according to NE Division, which suggests the following modification:
 

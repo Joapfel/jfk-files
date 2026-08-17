@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17473.png
-
-Convert to Markdowna. The effectiveness of his own actions against guerrillas in Guatemala and his determination to "meet violence with violence;"
+a. The effectiveness of his own actions against guerrillas in Guatemala and his determination to "meet violence with violence;"
 
 1. Recognition of the importance of the information covered in the briefing and of its exploitation;
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16350.png
-
-Convert to MarkdownSergeant ROLAND S. LECZKOWSKI, Chicago Police Department, advised on June 9, 1969, that the following described four weapons which are included in thirteen weapons obtained at Chicago Black Panther Party (BPP) Headquarters were listed in Chicago Police Department records as having been stolen.
+Sergeant ROLAND S. LECZKOWSKI, Chicago Police Department, advised on June 9, 1969, that the following described four weapons which are included in thirteen weapons obtained at Chicago Black Panther Party (BPP) Headquarters were listed in Chicago Police Department records as having been stolen.
 
 SMITH and WESSEN, 38 Special Serial Number
 

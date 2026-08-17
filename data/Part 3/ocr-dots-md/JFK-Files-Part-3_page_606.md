@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_606.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 Between July 1, 1968, and October 1, 1968, the Miami Office sent an anonymous letter to Mayor Dunham, Okeechobee, Florida, advising him that city employee Charles Franklin Smith has been seen at Ku Klux Klan (KKK) meetings.
 

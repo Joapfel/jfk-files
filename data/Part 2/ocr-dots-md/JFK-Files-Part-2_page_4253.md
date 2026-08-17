@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4253.png
-
-Convert to Markdown28 January 1963
+28 January 1963
 
 MEMORANDUM FOR REFERENCE
 

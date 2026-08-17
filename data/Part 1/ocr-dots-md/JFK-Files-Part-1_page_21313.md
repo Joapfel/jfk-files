@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21313.png
-
-Convert to Markdown1. (Contd.) 20. Mar. 53. Lkr. 7.
+1. (Contd.) 20. Mar. 53. Lkr. 7.
 
 In late days of the action records of the "I" will be perused on
 a key organ computer in any event do conimitto a "n" or "g." At some time

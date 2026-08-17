@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9543.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="3">TRANSMITTAL SLIP</td></tr><tr><td>DATE</td><td colspan="2"></td></tr><tr><td>TO:</td><td colspan="2">J.Dent</td></tr><tr><td>BUILDING</td><td colspan="2">ROOM NO.</td></tr><tr><td colspan="3">REMARKS:</td></tr><tr><td colspan="3">How is Brer Lesley gettingonal</td></tr><tr><td colspan="3">Jet</td></tr><tr><td colspan="3">Mr. Baker</td></tr><tr><td colspan="3">Mr. Garland's office advises</td></tr><tr><td colspan="3">Provisional Clearance will come thru</td></tr><tr><td colspan="3">23 or 24 February,</td></tr><tr><td colspan="3">JED</td></tr><tr><td>FROM:</td><td colspan="2"></td></tr><tr><td>BUILDING</td><td>ROOM NO</td><td>EXTENSION</td></tr><tr><td colspan="3">FORM NO. 36-8<br/>SEP 1946 36-8</td></tr></table>
 

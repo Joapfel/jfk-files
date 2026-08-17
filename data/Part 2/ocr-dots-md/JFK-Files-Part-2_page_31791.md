@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31791.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEHAp
 
 which channeled funds into Scheer's campaign. It worked this way. During his campaign one of his workers was Mrs. Phyllis Haberman O'Donnell, who has been chairman of the East Bay DuBois Club. Mrs. O'Donnell worked on a work-study program directed by the University of California's Department of Criminology (which is now practically another Sociology Department) and was assigned to a leftist group called Welfare Rights Organization as a case worker. In truth, she worked for the Scheer campaign and reported on it at WRO meetings.

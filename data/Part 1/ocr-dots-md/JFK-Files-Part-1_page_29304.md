@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29304.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="3">Lynch, Grayston, L.</td>
         <td>DDP/SOD/MB</td>

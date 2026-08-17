@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34348.png
-
-Convert to MarkdownSECRET
+SECRET
 
 m. Radio Tropical of Caracas, Venezuela also broadcast
 the story on September 1st.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29484.png
-
-Convert to MarkdownMAY 20 8 23 PM '64
+MAY 20 8 23 PM '64
 
 SECRET 202146Z
 WAVE CITE DIR 22598

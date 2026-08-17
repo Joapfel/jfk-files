@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24784.png
-
-Convert to Markdown<table><thead><tr><th>Div/Br/Desk</th><th>Country</th><th>Type of Action<br>Installation in<br>Democracia</th><th>Function<br>Published</th><th>Project<br>Cryphonym</th></tr></thead><tbody><tr><td></td><td>Argentina</td><td></td><td>Preliminary</td><td>Oleo</td></tr></tbody></table>
+<table><thead><tr><th>Div/Br/Desk</th><th>Country</th><th>Type of Action<br>Installation in<br>Democracia</th><th>Function<br>Published</th><th>Project<br>Cryphonym</th></tr></thead><tbody><tr><td></td><td>Argentina</td><td></td><td>Preliminary</td><td>Oleo</td></tr></tbody></table>
 
 | Funds | Programmed | Requested | Approved | Obligated |
 |---|---|---|---|---|

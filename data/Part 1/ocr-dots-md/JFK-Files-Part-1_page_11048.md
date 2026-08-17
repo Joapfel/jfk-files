@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11048.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG:</td><td>H. E. MULLOY:jd</td></tr><tr><td>UNIT:</td><td>TFN/PI</td></tr><tr><td>EXT:</td><td>6172</td><td style="text-align:right;">1623</td></tr><tr><td>DATE:</td><td colspan="2">26 JUNE 1962</td></tr></table>
 

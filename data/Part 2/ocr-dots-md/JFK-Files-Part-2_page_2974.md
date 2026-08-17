@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2974.png
-
-Convert to Markdownwriting. Meanwhile it was servicing 17 accommoda-
+writing. Meanwhile it was servicing 17 accommoda-
 tion addresses for Headquarters and Miami.
 
 In spite of all this, there was little exploi-

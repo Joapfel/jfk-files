@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3299.png
-
-Convert to MarkdownS E C R E T
+S E C R E T
 
 TO: C-300.
 

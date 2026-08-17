@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8635.png
-
-Convert to Markdownthe things turn out right or wrong, but S will be left only with guesses as to what transpired between the case officer and A in Russian.
+the things turn out right or wrong, but S will be left only with guesses as to what transpired between the case officer and A in Russian.
 
 h. It is the fate of any officer making the pitch to him be burned if the exgersice ends in anything less than a success. Therefore, it would be worthwhile considering to get a suitable language speaker case officer from Eqs for this purpose.
 

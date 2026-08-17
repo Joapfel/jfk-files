@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34207.png
-
-Convert to Markdownof his frustration. All there developments allow us to predict that Castro is in such bad shape that radical changes may soon be expected in Cuba.
+of his frustration. All there developments allow us to predict that Castro is in such bad shape that radical changes may soon be expected in Cuba.
 
 "More on Carlos R. Rodriguez' Statement".- In his statements, Carlos R. Rodriguez has uncovered that Fidel Castro has created the objective conditions for fractional work within the Party with the exclusion of the Old Guard and of the Students Directive from the executive bodies of the Party. This reveals a state of internal rift and decomposition, and such revelation, coming from a significant Old Guard source such as Rodriguez, foretells rather unpredictable consequences.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6691.png
-
-Convert to MarkdownSecurity Support Files for HT LINGUAL / SR POINTER Files
+Security Support Files for HT LINGUAL / SR POINTER Files
 
 VOL 21 PROJECT HT LINGUAL #90079 26AUG60-6JUN62 Memos to CI
 Staff

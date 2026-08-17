@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27064.png
-
-Convert to Markdown# TOP SECRET DINAR CHESS RUFF IDEALIST
+# TOP SECRET DINAR CHESS RUFF IDEALIST
 
 ## C. The July Overflight Program
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25428.png
-
-Convert to MarkdownTO: Chief, Contact Division, CO
+TO: Chief, Contact Division, CO
 
 FROM: Chief, Security Division, SO
 

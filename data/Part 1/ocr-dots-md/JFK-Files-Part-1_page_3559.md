@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3559.png
-
-Convert to MarkdownSECRET
+SECRET
 
 able personal courage, good security and common sense. In my mind he is the ideal type of Latin American agent. It will be a real loss to the Agency if we lose sight or contact with Adolfo. I have met few men more dedicated and more loyal.
 

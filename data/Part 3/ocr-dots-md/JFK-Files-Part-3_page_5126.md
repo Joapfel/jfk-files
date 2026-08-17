@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5126.png
-
-Convert to MarkdownAugust 20, 1975
+August 20, 1975
 
 REQUEST FOR FBI MATERIALS
 

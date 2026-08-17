@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14173.png
-
-Convert to MarkdownCalendar No. 174
+Calendar No. 174
 
 S. RES. 165
 

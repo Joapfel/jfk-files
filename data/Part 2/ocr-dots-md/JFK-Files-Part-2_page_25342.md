@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25342.png
-
-Convert to MarkdownLiebengood Rough Notes from U. S. v. Veciana, et al, con't.
+Liebengood Rough Notes from U. S. v. Veciana, et al, con't.
 
 Barres says he requested the government to give immunity to Veciana in order to destroy the traffic of Cocaine from Bolivia.
 

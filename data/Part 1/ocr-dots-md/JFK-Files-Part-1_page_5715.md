@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5715.png
-
-Convert to MarkdownCONTROLLED DISSEM
+CONTROLLED DISSEM
 
 C-O-N-F-I-D-E-N-T-I-A-L
 

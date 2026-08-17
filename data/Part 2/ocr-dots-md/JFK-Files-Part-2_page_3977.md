@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3977.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SCS - Mr. Wallace Clarke
 

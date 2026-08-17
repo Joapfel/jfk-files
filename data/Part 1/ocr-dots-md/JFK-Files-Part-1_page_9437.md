@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9437.png
-
-Convert to Markdown# "Cuno" - Bericht Nr.12 /Fortsetzung/
+# "Cuno" - Bericht Nr.12 /Fortsetzung/
 
 Bewegung" und "Der Plan zur Ueandlung der Natur". Auch über den
 "Lebensstandard der Arktischen" wird berichtet, über den Staats-

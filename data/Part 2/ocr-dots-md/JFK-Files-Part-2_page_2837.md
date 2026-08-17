@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2837.png
-
-Convert to Markdown23 December 1975
+23 December 1975
 
 MEMORANDUM FOR: Chief, Career Management Group
 VIA : Chief, Latin America Division

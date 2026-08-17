@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31685.png
-
-Convert to Markdownsound. NCFE officials should be present at the budget review to answer such questions. This is their responsibility. If we are dissatisfied with the present management, we should get a new one.
+sound. NCFE officials should be present at the budget review to answer such questions. This is their responsibility. If we are dissatisfied with the present management, we should get a new one.
 
 We have, however, the responsibility of making a detailed review of the policies and the activities of NCFE undertaken in pursuance of their mission as given to them by this Agency. NCFE is entitled to know that its programs and policies are approved and that no after the fact question can arise. Equally, NCFE is not entitled to undertake programs or activities which are not approved by this Agency.
 

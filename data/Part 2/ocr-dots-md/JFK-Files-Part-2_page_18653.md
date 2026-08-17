@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18653.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 Most of this information is obtained from paid informants, from other law enforcement officers, from alert citizens, and from court-approved electronic surveillances installed under the provisions of Title III of the Omnibus Crime Control and Safe Streets Act of 1968.
 

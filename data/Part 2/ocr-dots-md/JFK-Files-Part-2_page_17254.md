@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17254.png
-
-Convert to MarkdownOn February 4 or 5, 1969, four other BPP members reportedly flew to the Urbana-Champaign area to deliver BPP posters to the four BPP members who had previously travelled from Chicago to that area.
+On February 4 or 5, 1969, four other BPP members reportedly flew to the Urbana-Champaign area to deliver BPP posters to the four BPP members who had previously travelled from Chicago to that area.
 
 On February 8, 1969, who has knowledge of BPP activities in the Urbana-Champaign, Illinois, area, advised that on the night of February 7, 1969, several members of the BPP were at the Illini Union on the campus of the University of Illinois in Urbana-Champaign. They met with representatives of the Black Student Association from that campus. During this evening, two of these BPP members were arrested by the University of Illinois Police Department for disorderly conduct.
 

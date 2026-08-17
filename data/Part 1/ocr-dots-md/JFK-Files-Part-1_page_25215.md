@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25215.png
-
-Convert to MarkdownNEWSDAY
+NEWSDAY
 
 Mr. Edaund STEVENS
 

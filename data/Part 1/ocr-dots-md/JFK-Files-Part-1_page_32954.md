@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32954.png
-
-Convert to MarkdownUFGA-25747/37
+UFGA-25747/37
 
 Attachment to UFGA-25747
 

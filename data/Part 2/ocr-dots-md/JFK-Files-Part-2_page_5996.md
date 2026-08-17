@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5996.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 individuals are presently active or inactive." This request was answered orally and by informal notes.
 

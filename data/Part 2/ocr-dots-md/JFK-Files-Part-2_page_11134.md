@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11134.png
-
-Convert to Markdown(3) Open 134 file when active investigation of prospective panelist is initiated. When preliminary investigation completed and Bureau has approved panelist, close file administratively if panelist is not contacted regularly.
+(3) Open 134 file when active investigation of prospective panelist is initiated. When preliminary investigation completed and Bureau has approved panelist, close file administratively if panelist is not contacted regularly.
 
 Regular contacts with panelists should be noted in their respective files.
 

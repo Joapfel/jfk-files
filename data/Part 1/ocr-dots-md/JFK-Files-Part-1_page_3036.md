@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3036.png
-
-Convert to MarkdownA. Ivan (ALFERYEV)
+A. Ivan (ALFERYEV)
 
 B. Rosa (ALFERYEV)
 

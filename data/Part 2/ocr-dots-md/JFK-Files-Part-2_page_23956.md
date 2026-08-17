@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_23956.png
-
 , Joseph Scott.
 
 (Devine to Herbert memo, 5/16/61)

@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_13488.png
-
 there had been. In other words, there was not Gray and Goodpasture, there was Bundy. This is clear? So now, in response to your question, I have recently been in communication with Andrew
 
 TOP SECRET

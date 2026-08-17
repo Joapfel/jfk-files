@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19836.png
-
-Convert to MarkdownSEE IF YOU CAN GIVE FIVE CHARACTER REFERENCES IN THE U.S. WHO KNOW YOU INTI- MATELY (Give residence and business addresses where possible.)
+SEE IF YOU CAN GIVE FIVE CHARACTER REFERENCES IN THE U.S. WHO KNOW YOU INTI- MATELY (Give residence and business addresses where possible.)
 
 Street and Number City State
 

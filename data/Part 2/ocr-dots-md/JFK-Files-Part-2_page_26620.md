@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26620.png
-
-Convert to Markdown# Colombia and adjacent parts. 24°N. to 18°S.
+# Colombia and adjacent parts. 24°N. to 18°S.
 
 ## Map of Colombia and adjacent parts.
 

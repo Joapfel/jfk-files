@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_172.png
-
-Convert to Markdowne. Eleven unwitting organizations which received grants from project organizations for operational or cover reasons or which cooperated with project organizations.
+e. Eleven unwitting organizations which received grants from project organizations for operational or cover reasons or which cooperated with project organizations.
 
 8. We cannot say with complete assurance that all 55 of the apparently innocent organizations on the Ramparts list in fact never had any Agency ties. Our researches have shown that RID indices are often incomplete. We have found operational use data in CCS files on organizations with no record in RID. The same is true in other cases where information was available in CA Staff or area division files on organizations which drew a blank in RID. It seems likely, however, that any undetected operational interest in the organizations was in the period of the early 1950's and of a marginal nature.
 

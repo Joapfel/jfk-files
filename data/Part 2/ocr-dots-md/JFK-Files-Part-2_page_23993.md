@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23993.png
-
-Convert to MarkdownThis message is for your eyes only, and should not be discussed with any person other than those CAS officers who will be knowledgeable. CAS will identify them. (Headquarters 380 to Santiago)
+This message is for your eyes only, and should not be discussed with any person other than those CAS officers who will be knowledgeable. CAS will identify them. (Headquarters 380 to Santiago)
 
 For this and all subsequent messages intended for the Army Attache,
 

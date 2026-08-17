@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27858.png
-
-Convert to MarkdownOffice of the Commandant
+Office of the Commandant
 
 Mr. George Bush
 

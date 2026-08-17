@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32841.png
-
-Convert to MarkdownAMSTALK-1
+AMSTALK-1
 
 SECRET
 

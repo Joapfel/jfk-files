@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. In response to a question from Mr. Slawson I stated that most of the 26 cases upon which we based our statements involved foreign students, exchange teachers and other relatively transient persons, and while a number of cases have certain points in common, they bear little similarity to the OSWALD case in that none involved a defector who married prior to repatriating. I noted that paragraph 6 of our 6 April 1964 memorandum to the Commission had pointed this out. Mr. Slawson indicated that he was now satisfied on this matter.
 

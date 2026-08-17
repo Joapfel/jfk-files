@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6199.png
-
-Convert to MarkdownA
+A
 
 ALFONSO PEDRONZO, Carlos Francisco
 ARMAZ BLANCO Rene de

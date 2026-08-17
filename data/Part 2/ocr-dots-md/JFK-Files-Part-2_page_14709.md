@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14709.png
-
-Convert to Markdownagainst the United States by the Soviets. The embassies of these countries in Washington and their missions to the United Nations in New York are focal points for their espionage activities. On 3 of February, 1969, there were approximately 230 Soviet personnel and 117 satellite personnel with intelligence assignments operating out of their respective official establishments.
+against the United States by the Soviets. The embassies of these countries in Washington and their missions to the United Nations in New York are focal points for their espionage activities. On 3 of February, 1969, there were approximately 230 Soviet personnel and 117 satellite personnel with intelligence assignments operating out of their respective official establishments.
 
 This represents since February, 1959, a 210% increase in Soviet intelligence personnel and a 100% increase in satellite intelligence personnel.
 

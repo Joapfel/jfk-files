@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26946.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SUBJECT: P 76-023 - Mitchell Livingston HerBell, III
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15873.png
-
-Convert to MarkdownCalvin, Willie James
+Calvin, Willie James
 
 Arrested: 9/30/69
 Charge: Petty Larceny; Violation of Firearms Act

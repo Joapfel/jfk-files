@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6089.png
-
-Convert to Markdownwith David D. Hall, Richard D. Brown and John B. Hench, eds. *Printing and Society in Early America*, (Worcester, Mass.: American Antiquarian Society, 1983).
+with David D. Hall, Richard D. Brown and John B. Hench, eds. *Printing and Society in Early America*, (Worcester, Mass.: American Antiquarian Society, 1983).
 
 *with Mary Jo Pugh, Evaluation of Archival Institutions: Services, Principles, Guide to Self-Study* (Chicago: Society of American Archivists, 1982)
 

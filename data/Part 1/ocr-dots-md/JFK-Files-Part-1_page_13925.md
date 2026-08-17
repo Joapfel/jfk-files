@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13925.png
-
-Convert to Markdown16:35
+16:35
 
 **27May1964**
 

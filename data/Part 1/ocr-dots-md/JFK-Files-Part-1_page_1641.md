@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1641.png
-
-Convert to MarkdownSECRET
+SECRET
 
 holding the conversations which we were to record. He replied that he was interested in any visitors which the Subject might receive and any telephone calls which he might make. I suggested that possibly a telephone tap might be sufficient under these circumstances. Mr. Matt disagreed and still requested a microphone installation to cover the whole house if possible.
 

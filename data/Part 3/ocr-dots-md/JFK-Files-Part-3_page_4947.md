@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4947.png
-
-Convert to MarkdownDOCUMENT REQUEST
+DOCUMENT REQUEST
 
 The following documents and materials relating to
 Gary Thomas Rowe, Jr., whether in the custody or

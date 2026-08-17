@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9655.png
-
-Convert to Markdown(3)
+(3)
 
 LIHUFF-1
 

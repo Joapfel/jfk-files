@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7092.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 delegated to the head of an office or organization as set forth in inter-departmental agreements. All exceptions granted will be a common sense determination based on all available information, and shall be recorded by the agency making the exception. In those cases in which the individual has lived outside of the United States for a substantial period of his life, a thorough assessment of the adequacy of the investigation in terms of fulfillment of the minimum investigative requirements, and a judicious review of the information therein must be made before an exception is considered.
 

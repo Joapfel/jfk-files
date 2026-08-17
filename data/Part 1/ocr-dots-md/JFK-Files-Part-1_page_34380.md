@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34380.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PLEASE AND GAVE IT FULL COVERAGE. AFP WIRED STORY TO NEW YORK.
 

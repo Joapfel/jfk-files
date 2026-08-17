@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30386.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">INCREASE ANY UNUSUAL CIRCUMSTANCES CONFERING DEPENDENT (old age, chronic illness, need for special educational facility, etc.) OR ANY UNUSUAL PERSONAL SITUATION WHICH WOULD AFFECT THIS CRITICAL ASSIGNMENT</td></tr><tr><td colspan="2">None</td></tr><tr><td>DESCRIBE TYPES OF HEADQUARTERS AND U.S. FIELD POSITIONS FOR WHICH YOU WOULD LIKE TO BE CONSIDERED AND THE ORGANIZATIONAL COMPONENT IN WHICH YOU WOULD LIKE TO SERVE</td><td>Security assignments In same or similar position as my present assignment.</td></tr><tr><td>REMARKS</td><td></td></tr><tr><td>DATE<br/>30 August 1954</td><td>SIGNATURE OF EMPLOYEE<br/>James D. McHale</td></tr><tr><td>SECTION II<br/>(To be completed by employee's supervisor)</td><td rowspan="2">INDICATE APPROXIMATE TIME (months) WHEN EMPLOYEE CAN BE MADE AVAILABLE FOR OVERSEAS SERVICE<br/>9 mos<br/>INDICATE APPROXIMATE TIME (months) WHEN EMPLOYEE CAN BE MADE AVAILABLE FOR ANOTHER HEADQUARTERS OR U.S. FIELD ASSIGNMENT<br/>3 mos</td></tr><tr><td>COMMENTS ON AVAILABILITY AND EMPLOYEE'S PREFERENCE FOR NEXT ASSIGNMENT:</td></tr><tr><td>DATE<br/>10 Sep 54</td><td>SIGNATURE OF SUPERIOR<br/>Stefan F. Schmehl</td></tr><tr><td>PURCHASE OFFICER WILL FORWARD ORIGINAL TO OFFICE OF PERMANENT ASSISTANT CITY CLERK IF NEEDED</td><td></td></tr></table>
 

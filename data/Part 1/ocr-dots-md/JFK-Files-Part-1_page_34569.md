@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34569.png
-
-Convert to MarkdownSECRET
+SECRET
 
 There are enclosed Forms 1-12 and background data. In duplicate, concerning the subject.
 

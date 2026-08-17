@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_4892.png
-
-Convert to MarkdownORLANDO B O & C H AYILA
+ORLANDO B O & C H AYILA
 
 On 28 October 1975 JGS transferred OFF to the telephone that Bosch has no same immigration status. In 1968 he was granted an "A" card but he never fulfilled the requirements to become a U.S. person. In 1973 he was granted字第 indefinite voluntary departure,

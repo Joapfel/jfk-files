@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_14050.png
-
 , told
 
 TOP SECRET

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11539.png
-
-Convert to Markdown# ELLSBERG CASE
+# ELLSBERG CASE
 
 4-A-3
 

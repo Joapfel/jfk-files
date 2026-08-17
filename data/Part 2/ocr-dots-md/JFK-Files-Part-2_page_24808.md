@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24808.png
-
-Convert to Markdown# II. The President's Initial General Instruction and Background
+# II. The President's Initial General Instruction and Background
 
 ## A. September 15 White House Meeting
 

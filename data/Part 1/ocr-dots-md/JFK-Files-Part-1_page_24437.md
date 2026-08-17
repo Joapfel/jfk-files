@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24437.png
-
-Convert to MarkdownLionel MORRISON and Richard GIBSON
+Lionel MORRISON and Richard GIBSON
 
 OPERA-411
 

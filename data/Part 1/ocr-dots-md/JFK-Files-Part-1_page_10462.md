@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10462.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 # Memorandum
 
 TO : Chief, Central Division

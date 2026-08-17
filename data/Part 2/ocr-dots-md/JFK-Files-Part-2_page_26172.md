@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26172.png
-
-Convert to MarkdownO'BRIEN: Is this terrorism campaign on the local officials as serious as some of the people have written, about it?
+O'BRIEN: Is this terrorism campaign on the local officials as serious as some of the people have written, about it?
 
 LANSDALE: Oh, yes.
 

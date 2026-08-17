@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27365.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Pilled In)
 
 <table><thead><tr><th colspan="2">REQUEST FOR MEDICAL EVALUATION</th><th>1. DATE OF REQUEST</th></tr><tr><td colspan="2"></td><td>22 March 1966</td></tr><tr><th>2. NAME (Last, First, Middle)</th><th>S. POSITION TITLE</th><th>4. GRADE</th></tr></thead><tbody><tr><td>BROE, William Y.</td><td>Op. Officer/Ch. M.H.</td><td>05-18</td></tr><tr><td colspan="2">S. OFFICE, DIVISION, BRANCH<br/>DDP/WH/chief</td><td>S. EMPLOYEE'S EAT.<br/>5203</td></tr></tbody></table>

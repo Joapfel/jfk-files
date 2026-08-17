@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15282.png
-
-Convert to MarkdownMr. R. D. Cotter
+Mr. R. D. Cotter
 
 1/20/66
 

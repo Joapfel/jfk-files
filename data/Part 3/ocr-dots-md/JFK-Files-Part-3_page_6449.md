@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6449.png
-
-Convert to MarkdownDespite the great pains being taken by the principals involved to keep the King-Levison connection secret, Bureau agents have observed them together on three different occasions since November, 1963.
+Despite the great pains being taken by the principals involved to keep the King-Levison connection secret, Bureau agents have observed them together on three different occasions since November, 1963.
 
 Court Seal [JFK Law 10(a)1]
 

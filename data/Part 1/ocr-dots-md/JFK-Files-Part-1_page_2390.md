@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2390.png
-
-Convert to Markdownagents of NOSENKO, became acquainted. Work against the United States Exhibition was the responsibility of the Ninth Department, SCD, but various Departments were participating under the direction of the Ninth Department.
+agents of NOSENKO, became acquainted. Work against the United States Exhibition was the responsibility of the Ninth Department, SCD, but various Departments were participating under the direction of the Ninth Department.
 
 One of the above homosexual agents succeeded in involving (BARRETT) in homosexual activities which were photographed by the KGB but, according to NOSENKO, although the photographs were of a good quality, the KGB was unable to use the photographs in 1959 because of a general ban by the Central Committee on the recruitment of the United States Exhibition guides due to the planned visit of President EISENHOWER to the Soviet Union.
 

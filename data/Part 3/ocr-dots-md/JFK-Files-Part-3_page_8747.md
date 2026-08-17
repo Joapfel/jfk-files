@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8747.png
-
-Convert to Markdownassigned to the writer, the writer recalled such assignment
+assigned to the writer, the writer recalled such assignment
 was in the early part of 1965; that it was now the writer's
 recollection this assignment was made in May, 1965.
 

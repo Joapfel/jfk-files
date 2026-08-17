@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2473.png
-
-Convert to Markdownlittle material value for the SCD. The FCD had advised the SCD prior
+little material value for the SCD. The FCD had advised the SCD prior
 to the arrival of ABIDIAN in the USSR that ABIDIAN was considered to
 be "American Intelligence," and in addition ABIDIAN assumed the
 Security Officer position formerly held by Russell A. LANCELLE,

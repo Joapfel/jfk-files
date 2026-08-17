@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11568.png
-
-Convert to Markdownnumber, agency having security responsibility, and interested agencies can be included on FD-128 submitted by old office of origin.
+number, agency having security responsibility, and interested agencies can be included on FD-128 submitted by old office of origin.
 
 V. Where security index flash notice has been placed with Identification Division, notation to that effect must appear on FD-128 and extra copy of FD-128 must be specifically designated for Bureau marked "Attention Identification Division" so that those records will reflect new office controlling existing security index flash notice.
 

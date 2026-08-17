@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_128.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE 21 August 1967
 

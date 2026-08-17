@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27151.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 TOP SECRET/SENSITIVE Attachments -2-
 

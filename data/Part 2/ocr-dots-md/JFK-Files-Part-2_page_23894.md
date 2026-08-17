@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23894.png
-
-Convert to Markdown1. Mr. Miller. Mr. Hart of Colorado.
+1. Mr. Miller. Mr. Hart of Colorado.
 2. Senator Hart of Colorado. Aye.
 3. Mr. Miller. Mr. Baker.
 4. Senator Baker. Aye.

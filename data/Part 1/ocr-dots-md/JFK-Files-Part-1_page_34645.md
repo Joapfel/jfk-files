@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34645.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in Frankfurt, West Germany. The alien involved was Eduard Oun, an Estonian who defected from Estonia through Sweden in 1955.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14611.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SCA TO:
 

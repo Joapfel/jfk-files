@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22437.png
-
-Convert to MarkdownSECRET
+SECRET
 
 agencies in Miami plus the State government enforcement agencies up the wall and, of course, I guess it was around -- the Government allowed a lot of this to go on for awhile but I guess about 1965 or 1964 they got a little tired of it and they started to tighten up.
 

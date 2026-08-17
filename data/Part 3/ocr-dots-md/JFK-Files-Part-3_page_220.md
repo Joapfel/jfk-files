@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_220.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 In September, 1969, a series of three anonymous telephone calls were made by Agent personnel of the San Diego Office to Bishop John Quinn, Auxiliary Bishop of the San Diego, California, Archdiocese, in protest of activity on the part of Catholic priest Reverend Frank Curran, Christ the King Roman Catholic Church, 32nd and Imperial, San Diego, California. Reverend Curran had indicated an open advocacy of the Black Panther Party's Breakfast for Children Program and had used his church as a sanctuary for Black Panther Party (BPP) members.
 

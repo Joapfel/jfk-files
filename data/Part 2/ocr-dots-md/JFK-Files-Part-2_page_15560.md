@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15560.png
-
-Convert to Markdown# WHO ARE THE REAL CONSPIRATORS
+# WHO ARE THE REAL CONSPIRATORS
 
 "An African Man in America. I can't get a fair trial on a RACIST COURT," Chairman Bobby Sare
 

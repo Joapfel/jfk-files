@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18778.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 visiting Hong Kong, Burma, India, Egypt, Lebanon, Syria, Jordan, and Iraq. Purpose of the trip was "business-journalistic writing."
 

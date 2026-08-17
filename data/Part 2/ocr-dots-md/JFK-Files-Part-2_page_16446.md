@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16446.png
-
-Convert to Markdown# SUGGESTED ORGANIZATION OF SECTION
+# SUGGESTED ORGANIZATION OF SECTION
 
 ## I. Problem:
 

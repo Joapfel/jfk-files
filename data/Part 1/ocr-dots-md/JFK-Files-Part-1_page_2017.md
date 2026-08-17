@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2017.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. When the communication is passed and are ready for transmission, they should be sent by at least one copy to each of the following: First, a copy of the cover strip, then a blank copy for recording the other side of the cover strip (in case of multiple copies), and finally a second copy of the same strip. After this, no further action will be necessary.
 

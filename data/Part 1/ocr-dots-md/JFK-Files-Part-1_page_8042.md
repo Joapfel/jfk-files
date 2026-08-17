@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8042.png
-
-Convert to Markdown**Subject: Recent Communist Advances in the Anti-Government Labor Movement**
+**Subject: Recent Communist Advances in the Anti-Government Labor Movement**
 
 Report No: TK-1520
 

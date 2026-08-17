@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_393.png
-
-Convert to Markdown14-00000
+14-00000
 
 13) Retired - open Jan 1972
 14) no file - air record reflects he was military detail in 1958 with FE die - location unknown

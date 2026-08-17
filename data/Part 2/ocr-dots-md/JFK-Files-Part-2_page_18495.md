@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18495.png
-
-Convert to Markdownf. How many requests have been made by each agency and each Presidential appointee for the continuation of such previously approved surveillance?
+f. How many requests have been made by each agency and each Presidential appointee for the continuation of such previously approved surveillance?
 
 g. How many of the requests for the continuation of such previously approved surveillance have been approved by the Attorney General?
 

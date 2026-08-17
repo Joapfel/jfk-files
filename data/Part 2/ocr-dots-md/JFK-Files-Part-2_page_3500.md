@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3500.png
-
-Convert to Markdown5.
+5.
 
 7. Mr. Pace asked whether this plan would include using Guantanamo.
 The Director replied that he did not recommend the use of Guantánamo.

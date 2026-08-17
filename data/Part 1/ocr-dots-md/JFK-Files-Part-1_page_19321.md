@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19321.png
-
-Convert to MarkdownChief, Central Processing Branch
+Chief, Central Processing Branch
 Chief, Contact Division
 
 23 January 1952

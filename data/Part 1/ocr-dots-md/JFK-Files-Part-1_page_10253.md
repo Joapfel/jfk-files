@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10253.png
-
-Convert to Markdownparaoota de uo, ng oto que p esta Causa
+paraoota de uo, ng oto que p esta Causa
 bulo oritendid de popone la s nalda y bussan
 puro mlibis mas Gineado, = lo que DE
 relativo poru parte a Concepcion qve una persona

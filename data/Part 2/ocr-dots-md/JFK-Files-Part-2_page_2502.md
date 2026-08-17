@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2502.png
-
-Convert to MarkdownADMINISTRATIVE - INTERNAL USE ONLY
+ADMINISTRATIVE - INTERNAL USE ONLY
 
 Mr. George Martin Rosnek
 

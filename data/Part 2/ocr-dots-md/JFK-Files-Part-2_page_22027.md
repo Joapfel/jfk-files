@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22027.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>HELMS, LANSDALE,</td><td>Feb. 1, 1962</td><td>Special Group Augmented<br>MONGODB ✓</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>HELMS, LANSDALE,</td><td>Feb. 1, 1962</td><td>Special Group Augmented<br>MONGODB ✓</td></tr></table>
 
 **OCCURRENCE:** Memo for Richard Helms from Gen. Lansdale concerning NSA cover. The memo alludes to a conversation on the previous day, Jan. 31, 1962, about NSA cover for the Cuba Project. It indicates that Cuba cover is top priority. It indicated that this was not possibly known to the members of the United States Intelligence Board. The problem seemed to be to be able to decide how much of NSA (National Security Agency)'s assets were needed to provide cover for the Cuban project.
 

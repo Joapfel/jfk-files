@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29712.png
-
-Convert to MarkdownClassification: TOP SECRET
+Classification: TOP SECRET
 
 Appendix 5: Biography: Elena Garro De Paz
 

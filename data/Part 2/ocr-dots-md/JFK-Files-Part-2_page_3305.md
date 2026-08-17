@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3305.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 station based on Swan Island and by Agency financed
 radio operations out of Station WRUL in New York City.

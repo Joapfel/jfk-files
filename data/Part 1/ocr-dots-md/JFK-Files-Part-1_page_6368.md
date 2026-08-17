@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_6368.png
-
 professor of electro-chemistry at Hungarian Technical University, Dresden, Germany, from 1944 to 1945; chemist and director of analysis, inorganic chemistry, at the analytical laboratory, USAF air base at Erding, Germany, from 1948 to present.
 
 **PUBLICATIONS:** Co-author of two textbooks on chemistry.

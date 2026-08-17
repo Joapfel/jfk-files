@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4836.png
-
-Convert to MarkdownSECRET
+SECRET
 
 [POSADA] said that six silencers which had been manufactured at the home of TAMAYO had been given by BORGES to ROSENTHAL. He said ESCARDA was looking for pentolite but did not know whether material delivered to ROSENTHAL.
 

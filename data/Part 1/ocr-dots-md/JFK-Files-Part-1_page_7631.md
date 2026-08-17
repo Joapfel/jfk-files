@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7631.png
-
-Convert to MarkdownSECRET
+SECRET
 
 17 March 1967
 

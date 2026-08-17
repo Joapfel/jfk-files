@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17467.png
-
-Convert to MarkdownROBERT BRUCE is now too scared to do anything
+ROBERT BRUCE is now too scared to do anything
 and it appears he wants to be less involved in the BPP.
 
 PERKINS and THOMAS BLAIR planned to visit

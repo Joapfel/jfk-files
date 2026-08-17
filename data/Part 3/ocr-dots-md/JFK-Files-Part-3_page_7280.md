@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7280.png
-
-Convert to Markdown28) Guard protection should be required on this area.
+28) Guard protection should be required on this area.
 
 34) Areas selected for use in closed session should be guarded against entry by unauthorized persons.
 

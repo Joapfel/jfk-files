@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22975.png
-
-Convert to Markdown-2-
+-2-
 
 7. **Biographic Information**
 

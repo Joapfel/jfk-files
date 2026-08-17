@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2149.png
-
-Convert to MarkdownAs has been indicated above, KLOBUKAR has made excellent progress
+As has been indicated above, KLOBUKAR has made excellent progress
 in gaining access to the consular community and in maintaining
 personal contact with potential recruitment prospects. He has
 also done extremely well in his direct participation in the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8758.png
-
-Convert to MarkdownKennedy speech to LA newspaper conference held in Miami that week, and to note in broadcasts that President's last major address directed to LA audience concentrated on Cuban freedom. This was to be broadcast over JMHOPE with tributes and appropriate comment on 25 November, and have JMHOPE stress religious theme on Sunday 24 November.
+Kennedy speech to LA newspaper conference held in Miami that week, and to note in broadcasts that President's last major address directed to LA audience concentrated on Cuban freedom. This was to be broadcast over JMHOPE with tributes and appropriate comment on 25 November, and have JMHOPE stress religious theme on Sunday 24 November.
 
 ## AMOT Project (Later Became SLIGO Project) 19-5-3
 

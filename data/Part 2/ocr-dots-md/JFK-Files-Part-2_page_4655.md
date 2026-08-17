@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4655.png
-
-Convert to MarkdownSECRET
+SECRET
 
 told General Carter to tell somebody, and I didn't know who the hell it was, he was not supposed to tell until I found out later, it was Ike, Eisenhower, in our Sumatra operation. We were involved in all kinds of crazy nonsense, including air, by the way. Cabell didn't get involved in that, thank the Lord. It was Civil Air Transport planes we were using. A suggestion came to me, through Cabel's office, to me, about something going to be done, I forget exactly what it was, but something ought to be done in the field to make things easier for the rebels. I'll call them rebels. It made no sense at all. Actually had no relation to reality in the field. I didn't even bother checking with anybody, I just decided on my own. It won't work, it doesn't make any sense and the people out there will think we are crazy. Cabell said, it finally got to Cabell talking to me, "Ok Sam, whatever you say is fine." I find out later that the suggestion came not from Cabell but from Ike, through Gordon Gray, who was then the National Security Council guy, through the Agency and down to me. I was the Exec. Why they didn't call Al Ulmer I don't know - maybe he wasn't there - but anyway I get the draft. If they had said the President wants you to do such and such I might have given him a different answer. Ike's got a good military background, better than mine, for God's sakes. That's the one nice thing I liked about this Agency, and always have. I hope it's around, you can really speak your mind.
 

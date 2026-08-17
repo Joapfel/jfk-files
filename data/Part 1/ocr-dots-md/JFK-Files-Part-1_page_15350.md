@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15350.png
-
-Convert to MarkdownMiami, Fla. August 13 1965
+Miami, Fla. August 13 1965
 
 Mr. Jerry Sounders
 N.C. Box 531

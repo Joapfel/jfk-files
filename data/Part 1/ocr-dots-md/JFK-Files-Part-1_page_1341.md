@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1341.png
-
-Convert to Markdownand through the development of additional legal travellers.
+and through the development of additional legal travellers.
 
 4. <u>Liaison Operations</u>: We will continue to press the <u>liaison services</u> who are assisting us in the effort against Cuba for additional coverage, including the recruiting of agents within their own areas for joint dispatch to Cuba. The <u>services</u> most effectively co-operating at this point in this connection are the <u>British</u>, <u>Dutch</u>, <u>French</u>, <u>Spanish</u>, <u>Italian</u>, <u>Greek</u>, <u>Norwegian</u>, <u>Danish</u>, <u>West German</u>, <u>Mexican</u>, <u>Argentinian</u>, <u>Uruguayan</u>, <u>Canadian</u>, <u>Chilean</u>, and <u>Israeli</u>. Direct approaches to several of these <u>services</u> either by you personally or in your name, as you prefer, are being separately recommended. Personal representation by you to the <u>services</u> underlined above would be useful.
 

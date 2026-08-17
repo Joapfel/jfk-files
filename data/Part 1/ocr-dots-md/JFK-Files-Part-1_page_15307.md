@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15307.png
-
-Convert to Markdown10. In Stettin David met a MEDIA-man, but again refused to join this organization, and he traveled to Berlin, met there some Georgians, spoke of going to Paris, was asked and took some letters for delivery in Paris and took the train up to Achen.
+10. In Stettin David met a MEDIA-man, but again refused to join this organization, and he traveled to Berlin, met there some Georgians, spoke of going to Paris, was asked and took some letters for delivery in Paris and took the train up to Achen.
 
 9. In Achen he asked a Frenchman how to get to France. He was advised that the German GESTAPO is giving necessary permits.
 

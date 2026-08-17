@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5616.png
-
-Convert to Markdown13-00000
+13-00000
 
 DECEMBER 1-141
 

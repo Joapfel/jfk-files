@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9862.png
-
-Convert to MarkdownC O P Y
+C O P Y
 
 Hon. Frank Church
 U.S. Senate

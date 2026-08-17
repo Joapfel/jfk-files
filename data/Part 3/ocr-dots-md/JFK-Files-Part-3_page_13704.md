@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13704.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1963
 Phone (Area 202) 844-6000

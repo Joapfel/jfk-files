@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4726.png
-
-Convert to MarkdownThe saga of Orlando Bosch (AT: October 29)
+The saga of Orlando Bosch (AT: October 29)
 
 The case of the anti-Castro terrorist leader whose network reportedly extends from Miami deep into Latin America has taken its most bizarre turn.
 

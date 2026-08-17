@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2565.png
-
-Convert to MarkdownCIA, had a source in the GRU would have come from an agent or
+CIA, had a source in the GRU would have come from an agent or
 source of the FCD, KGB, not the SCD. It can also be presumed that
 a source or agent of the FCD in a position to furnish a lead to a
 penetration of the GRU by Western Intelligence would be carefully

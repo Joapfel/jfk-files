@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24432.png
-
-Convert to Markdown(3) Providing AMLASH-1 with Arms
+(3) Providing AMLASH-1 with Arms
 
 CIA cables indicate that one cache of arms for AMLASH-1 was delivered in Cuba in March 1964 and another in June. An entry in the AMLASH file for May 5, 1964, states that the case officer requested the Technical Services Division to produce, on a "crash basis," a silencer which would fit an FAL rifle.
 

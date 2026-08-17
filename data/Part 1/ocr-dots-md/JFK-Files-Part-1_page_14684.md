@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14684.png
-
-Convert to MarkdownIN-CIRCUIT
+IN-CIRCUIT
 
 TDCSDB-315/02487-70
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6330.png
-
-Convert to Markdowndisclosure of the fullest possible
+disclosure of the fullest possible
 historical record on this tragedy and on
 subsequent investigations and inquiries
 into it.

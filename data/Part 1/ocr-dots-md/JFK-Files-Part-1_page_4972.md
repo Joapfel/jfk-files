@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4972.png
-
-Convert to Markdown# Intelligence Information Cable
+# Intelligence Information Cable
 
 WARNING NOTICE
 COMMITTING INDIAN-AMERICAN MARRIAGES AND MARRIAGE UNITS

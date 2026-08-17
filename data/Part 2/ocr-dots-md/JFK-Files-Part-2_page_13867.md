@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13867.png
-
-Convert to Markdown(5) I should mention that Miss Gandy in describing exactly how Mr. Hoover's personal correspondence files were destroyed said she reviewed each item that she handled to make sure that it was not related to Bureau official business. She had previously indicated that Mrs. Erma Metcalf had assisted her in destroying these files but she did not mention that Mrs. Metcalf indulged in the same type of review and Miss Gandy was not questioned whether Mrs. Metcalf had made such a review as she went through the files and helped destroy them.
+(5) I should mention that Miss Gandy in describing exactly how Mr. Hoover's personal correspondence files were destroyed said she reviewed each item that she handled to make sure that it was not related to Bureau official business. She had previously indicated that Mrs. Erma Metcalf had assisted her in destroying these files but she did not mention that Mrs. Metcalf indulged in the same type of review and Miss Gandy was not questioned whether Mrs. Metcalf had made such a review as she went through the files and helped destroy them.
 
 (6) Both Mr. Gitenstein and Mr. Epstein queried Miss Gandy at length about the log kept in the Telephone Room of all calls taken by Mr. Hoover. They also queried her at length concerning a log that was kept in the Telephone Room of all visitors to FBI Headquarters who were seen by Mr. Hoover. Miss Gandy explained that these logs, to her knowledge, were currently retained in the regular Bureau file room.
 

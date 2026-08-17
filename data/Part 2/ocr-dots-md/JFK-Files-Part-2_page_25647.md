@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25647.png
-
-Convert to MarkdownThe Brading "rap sheet" contained an incredible 35 separate entries covering virtually every phase of criminal activity, including mail fraud, embezzlement, operating a gambling house in Miami, car theft, shop lifting, receiving stolen property, and selling wartime gas ration coupons on the black market.
+The Brading "rap sheet" contained an incredible 35 separate entries covering virtually every phase of criminal activity, including mail fraud, embezzlement, operating a gambling house in Miami, car theft, shop lifting, receiving stolen property, and selling wartime gas ration coupons on the black market.
 
 Most of these arrests had been made under the name of Eugene Hale Brading, but the police dossier on him also showed a handful of other aliases, including Harry Eugene Bradley, Gene Brady, James Lee Cole, James Bradley Lee, and inevitably, Jim Braden.
 

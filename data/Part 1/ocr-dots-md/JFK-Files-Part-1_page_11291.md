@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11291.png
-
-Convert to Markdown<table><tr><td colspan="2">MESSAGE FORM<br/>TOTAL COPIES</td></tr><tr><td><table><tr><td>SECRET</td></tr></table></td><td><table><tr><td>BOUTING AND/OR INITIALS - SHOWN BY</td><tr><td>1: 6</td><td>2: 7</td><td>3: 8</td><td>4: 9</td><td>5: 10</td></tr></table></td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION<br/>BY __________ PER __________<br/>COMP. __________ RID COPY</td><td>☐ INDEX ☐ DESTROY ☐ RETURN TO __________ BRANCH ☐ FILE B-3<br/>☐ NO INDEX ☐ FILE IN CS FILE NO.<br/>Info. PAGE TWO<br/>FILE Y1</td></tr><tr><td>(source) (reference number)</td><td></td></tr><tr><td>SECRET</td><td>CITE DIRECTOR</td></tr></table>
+<table><tr><td colspan="2">MESSAGE FORM<br/>TOTAL COPIES</td></tr><tr><td><table><tr><td>SECRET</td></tr></table></td><td><table><tr><td>BOUTING AND/OR INITIALS - SHOWN BY</td><tr><td>1: 6</td><td>2: 7</td><td>3: 8</td><td>4: 9</td><td>5: 10</td></tr></table></td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION<br/>BY __________ PER __________<br/>COMP. __________ RID COPY</td><td>☐ INDEX ☐ DESTROY ☐ RETURN TO __________ BRANCH ☐ FILE B-3<br/>☐ NO INDEX ☐ FILE IN CS FILE NO.<br/>Info. PAGE TWO<br/>FILE Y1</td></tr><tr><td>(source) (reference number)</td><td></td></tr><tr><td>SECRET</td><td>CITE DIRECTOR</td></tr></table>
 
 TO
 

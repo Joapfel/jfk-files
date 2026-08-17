@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14.png
-
-Convert to Markdown13-00000
+13-00000
 
 ① Our reply addressed to the kopfli, a native of Seri, is accompanied by the deposit, simultaneously, with ) jorja genes out of 56.
 

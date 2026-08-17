@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20428.png
-
-Convert to MarkdownFBI
+FBI
 
 Date: 1/18/68
 

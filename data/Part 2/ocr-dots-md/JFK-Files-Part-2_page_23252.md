@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23252.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Tweedy. The only other person who was aware of it
 was my deputy.

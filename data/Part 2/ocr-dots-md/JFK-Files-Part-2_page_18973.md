@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18973.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 JAFFE seemed very concerned that ABC did not give him the diplomatic "beat" or the State Department "beat" which he seemed to consider his right. It appears he will continue contacts with the Soviet Bloc people as a means of trying to get such assignments. To preclude his use of cooperation with the FBI as a means to this end, he was very emphatically told that the decision for such continued contacts was strictly his decision and the FBI would not ask him to do so.
 

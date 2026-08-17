@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25759.png
-
-Convert to Markdown# Advantages
+# Advantages
 
 If the plan works, this would represent a satisfactory solution of the Cuban problem, especially if the Soviet presence could thereby be eliminated.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6170.png
-
-Convert to MarkdownMAILED
+MAILED
 
 DEC 2, 1953
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22783.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. It is requested that the LIELOG Project be terminated effective 1 January 1962. The present project will not expire until 30 April 1962.
 

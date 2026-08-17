@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21564.png
-
-Convert to Markdowncannot be ignored. As an example of this category, NOSENKO has furnished a lead, still under investigation, to an unidentified agent, probably not an American, who in 1962 was in a position to remove the "NATO Emergency Codes," deliver the codes to the KGB for photographing, and then successfully replace the codes. Because the agent is as yet unidentified, his current access to information affecting the security of the United States cannot be gauged.
+cannot be ignored. As an example of this category, NOSENKO has furnished a lead, still under investigation, to an unidentified agent, probably not an American, who in 1962 was in a position to remove the "NATO Emergency Codes," deliver the codes to the KGB for photographing, and then successfully replace the codes. Because the agent is as yet unidentified, his current access to information affecting the security of the United States cannot be gauged.
 
 In all, the information from NOSENKO in the category of cases where Western Intelligence did not previously have significant information must be considered on balance as having resulted in material damage to the KGB and of significant benefit to Western Intelligence.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29208.png
-
-Convert to Markdown14-00000
+14-00000
 
 Population of Continental United States and Rhode Island, 1790-1940
 

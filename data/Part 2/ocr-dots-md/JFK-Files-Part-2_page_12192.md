@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12192.png
-
-Convert to Markdownf. If the informant receives from outside employment less than $4800, all of which is subject to Social Security tax, the amount on which he will have to report for Social Security tax purposes, if he completes a schedule C, is the difference between the amount received from regular employment and $4800.
+f. If the informant receives from outside employment less than $4800, all of which is subject to Social Security tax, the amount on which he will have to report for Social Security tax purposes, if he completes a schedule C, is the difference between the amount received from regular employment and $4800.
 
 g. If informant completes a schedule C, the nature of business of the self-employed must be stated and informants should be instructed to use as the nature of self-employment any applicable occupation without revealing connection with the Bureau.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21143.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 with their background and could not say where they lived or how he got in touch with them when he required their service. It was noted that they were involved with one Dutch and five American visitors, including three CIA Agents, in the Soviet Union which was apparently unknown to NOSENKO. In addition they were involved with two other Americans in 1959 while he was their case officer but he learned about it only at the time he retired their files in 1962-63.
 

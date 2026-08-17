@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24317.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of focal interest to the PRC. This could lead to invitations to Peking (as it did in Ness's case) and possibly an FI operation of consequence vis-a-vis the China target.
 

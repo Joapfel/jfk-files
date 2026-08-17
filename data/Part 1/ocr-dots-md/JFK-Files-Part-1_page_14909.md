@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14909.png
-
-Convert to Markdown18. Relatives in service of any government, names and positions held ______
+18. Relatives in service of any government, names and positions held ______
 
 Sister is teacher of languages (French, English) in Moscow.
 

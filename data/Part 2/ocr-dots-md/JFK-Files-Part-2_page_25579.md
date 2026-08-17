@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25579.png
-
-Convert to MarkdownUnited States Senate
+United States Senate
 
 Washington, D. C., December 15, 1975
 

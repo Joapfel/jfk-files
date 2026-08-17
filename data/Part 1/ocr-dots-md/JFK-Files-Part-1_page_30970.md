@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30970.png
-
-Convert to MarkdownSECRET/RYBAT
+SECRET/RYBAT
 
 PRIORITY MEXICO CITY PAGE 4
 

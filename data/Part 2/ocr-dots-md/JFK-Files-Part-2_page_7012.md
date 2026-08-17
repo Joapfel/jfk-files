@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7012.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HPSCI BRIEFING - JFK DECLASSIFICATION
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35436.png
-
-Convert to MarkdownAMTRUNK
+AMTRUNK
 
 5 GONZALEZ Ort, Alberto
 9 OROZCO Basulto, Modesto

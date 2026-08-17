@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23761.png
-
-Convert to MarkdownTake us a step further.
+Take us a step further.
 
 Senator Huddleston. No, we introduced an anti-assassination bill. didn't we?
 

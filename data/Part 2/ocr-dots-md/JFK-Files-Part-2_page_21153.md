@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21153.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 role of a case officer and [BURCHI's] description
 confirms NOSENKO'S account.

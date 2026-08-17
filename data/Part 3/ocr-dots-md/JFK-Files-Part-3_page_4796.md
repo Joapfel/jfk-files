@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4796.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 AUDREY MORITZ, who is the common law wife of THOMAS "SONNY" CIANCUTTI, top hoodlum from Pittsburgh, formerly resided with CIANCUTTI at 5715 West Hollywood Boulevard, Hollywood, Florida, but have since returned to the Pittsburgh area.
 

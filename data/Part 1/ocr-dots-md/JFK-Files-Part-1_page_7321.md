@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7321.png
-
-Convert to Markdown12. <u>Sexual Attitudes</u>
+12. <u>Sexual Attitudes</u>
 
 12.01 General:
 

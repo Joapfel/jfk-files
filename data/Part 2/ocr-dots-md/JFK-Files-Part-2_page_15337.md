@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15337.png
-
-Convert to Markdown# Office Memorandum • UNITED STATE GOVERNMENT
+# Office Memorandum • UNITED STATE GOVERNMENT
 
 TO : A. H. Belmont
 

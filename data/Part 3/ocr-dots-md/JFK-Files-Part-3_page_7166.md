@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7166.png
-
-Convert to MarkdownHonorable Hugh Scott
+Honorable Hugh Scott
 United States Senate
 Washington, D. C. 20510
 

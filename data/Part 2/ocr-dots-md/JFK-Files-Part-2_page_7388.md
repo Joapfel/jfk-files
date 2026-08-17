@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7388.png
-
-Convert to Markdown2 September 1975
+2 September 1975
 
 House Select Committee on Intelligence
 

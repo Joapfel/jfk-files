@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4489.png
-
-Convert to MarkdownSECRET
+SECRET
 
 February 1977
 

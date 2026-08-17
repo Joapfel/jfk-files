@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19102.png
-
-Convert to MarkdownSAC,
+SAC,
 
 San Francisco (105-18070)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17681.png
-
-Convert to Markdown9 July 1957
+9 July 1957
 
 MEMORANDUM FOR: WH/3 Mexico
 SUBJECT: Project LIFMAT

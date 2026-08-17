@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30571.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EXTERNAL SURVEY DETACHMENT 44
 U. S. NAVY

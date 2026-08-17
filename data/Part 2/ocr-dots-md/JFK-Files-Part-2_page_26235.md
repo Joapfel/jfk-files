@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26235.png
-
-Convert to MarkdownThe structure which would meet the criteria suggested in this memorandum would be as follows:
+The structure which would meet the criteria suggested in this memorandum would be as follows:
 
 1. The State Department would be granted general clearance authority over all clandestine activity. This might be effected on the British model by the appointment of a Deputy Undersecretary of State for Intelligence, who would act for him Secretary in those matters and who might serve as chairman of a Joint Intelligence Board.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12154.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Subject: Illicit Armament Traffic
 

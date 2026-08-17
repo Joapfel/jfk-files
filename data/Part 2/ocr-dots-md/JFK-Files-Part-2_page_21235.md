@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21235.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 people of interest to PETROV of the 2nd Section. These
 names were [LUBIN," SMITH," WILL BURTIN'] and [SIPE BURTIN.] (5)

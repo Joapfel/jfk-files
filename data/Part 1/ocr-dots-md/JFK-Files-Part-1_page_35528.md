@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35528.png
-
-Convert to Markdown# RADIO NEW YORK WORLDWIDE
+# RADIO NEW YORK WORLDWIDE
 
 Four West 50th Street, New York 10, N.Y.
 PL 2 1122

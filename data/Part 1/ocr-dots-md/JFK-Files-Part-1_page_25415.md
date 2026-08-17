@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25415.png
-
-Convert to Markdown22 April 1969
+22 April 1969
 
 Chief, TSD/NPS
 ATTN : Colonel West

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15379.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG. F. DALY: kas
 UNIT: SOD/AD/OPS3

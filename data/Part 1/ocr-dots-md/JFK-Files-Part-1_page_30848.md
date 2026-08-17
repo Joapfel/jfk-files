@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30848.png
-
-Convert to Markdown<table><tr><td>TO: Mexico</td></tr><tr><td>FROM: M.I./Contracts</td></tr><tr><td>DATE: 22 Jan 71</td></tr></table>
+<table><tr><td>TO: Mexico</td></tr><tr><td>FROM: M.I./Contracts</td></tr><tr><td>DATE: 22 Jan 71</td></tr></table>
 
 <table><thead><tr><th colspan="4">MESSAGE FORM 195-3<br>TOTAL COPY: 15</th></tr><tr><th colspan="4">SECRET</th></tr></thead><tbody><tr><td>1</td><td></td><td>3</td><td></td></tr><tr><td>2</td><td></td><td>6</td><td></td></tr><tr><td>3</td><td></td><td>7</td><td></td></tr><tr><td>4</td><td></td><td>8</td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8628.png
-
-Convert to Markdown13-00000
+13-00000
 
 CONFERENCE on Foreign and Domestic Matters
 

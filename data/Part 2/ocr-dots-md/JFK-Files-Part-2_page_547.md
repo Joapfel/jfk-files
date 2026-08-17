@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_547.png
-
-Convert to MarkdownCABLE SECRETariat Dissemination
+CABLE SECRETariat Dissemination
 
 CLASSIFIED MESSAGE: TOTAL COPIES 32
 OUTING AND/OR INITIALS - SEEN BY

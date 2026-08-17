@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7258.png
-
-Convert to MarkdownWALLER
+WALLER
 
 LA 8 REV. TOTAL COPIES 9 RUN BY
 SECRET

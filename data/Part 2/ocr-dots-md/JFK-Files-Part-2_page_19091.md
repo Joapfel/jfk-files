@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19091.png
-
-Convert to MarkdownAlso, that the Soviet newsmen are befriending American newsmen. "Many of our tips come from them," Sam went on. "In some cases, of course, the tips are deliberately planted by the government itself.
+Also, that the Soviet newsmen are befriending American newsmen. "Many of our tips come from them," Sam went on. "In some cases, of course, the tips are deliberately planted by the government itself.
 
 "We didn't feel any tightening of restrictions because of the Viet Nam crisis even though we got the official propaganda line about the United States being the aggressor in Asia."
 

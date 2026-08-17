@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2386.png
-
-Convert to MarkdownSECRET.
+SECRET.
 
 American female employee of the American Embassy in Moscow through a male Soviet friend, but that the attempt had failed. GOLITSYN also furnished information that the woman had left Moscow by the time he learned of the information but that the Soviets hoped she would return to Moscow so that further work could be undertaken to effect her recruitment. He did not recall the name of the secretary, but did recall that it was a long and "German sounding" name.
 

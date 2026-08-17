@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29815.png
-
-Convert to Markdown<table><tr><td>REQUEST FOR PERSONNEL ACTION</td></tr><tr><td>1. Serial No.</td><td>2. Name (Last, First, Middle)</td><td>3. Date Of Birth</td><td>4. Vt., Pref.</td><td>5. Sex</td><td>6. CS - EOD</td></tr><tr><td></td><td>MURPHY, David E.</td><td>Mo. 0% 23 Yr. 21</td><td colspan="3">None-0 Code 1 M 1</td><td>Mo. Da. Yr.</td></tr><tr><td>7. SCD</td><td>8. CSC Reg't.</td><td>9. CSC Or Other Legal Authority</td><td>10. Appmt. Affidav.</td><td>11. FEGLI</td><td>12. LCD.</td><td>13. R Agrv. Sta'ty.</td></tr><tr><td>Mo. Un. Yr.</td><td>Yes. 1 No. 2</td><td>Code</td><td>Mo. Da. Yr.</td><td>Yes. 1 Code No. 2</td><td>Mo. Da. Yr.</td><td>Yes. 1 No. 2</td></tr></table>
+<table><tr><td>REQUEST FOR PERSONNEL ACTION</td></tr><tr><td>1. Serial No.</td><td>2. Name (Last, First, Middle)</td><td>3. Date Of Birth</td><td>4. Vt., Pref.</td><td>5. Sex</td><td>6. CS - EOD</td></tr><tr><td></td><td>MURPHY, David E.</td><td>Mo. 0% 23 Yr. 21</td><td colspan="3">None-0 Code 1 M 1</td><td>Mo. Da. Yr.</td></tr><tr><td>7. SCD</td><td>8. CSC Reg't.</td><td>9. CSC Or Other Legal Authority</td><td>10. Appmt. Affidav.</td><td>11. FEGLI</td><td>12. LCD.</td><td>13. R Agrv. Sta'ty.</td></tr><tr><td>Mo. Un. Yr.</td><td>Yes. 1 No. 2</td><td>Code</td><td>Mo. Da. Yr.</td><td>Yes. 1 Code No. 2</td><td>Mo. Da. Yr.</td><td>Yes. 1 No. 2</td></tr></table>
 
 PREVIOUS ASSIGNMENT
 

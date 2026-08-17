@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3200.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The other subject of conversation was whether there now was cause or reason for direct US inter- vention in Cuba, and the decision was that no such action should be taken unless the Cuban Government took aggressive action against US citizens in Cuba or damaged official US property (e.g., Guantanamo). In the course of the discussion about the status of Agency planning for anti-Castro activities, the question was raised about increasing the number of trainees. This was ruled out pending the suitability of training sites to handle additional numbers.
 

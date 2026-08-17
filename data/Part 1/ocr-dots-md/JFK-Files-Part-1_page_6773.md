@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6773.png
-
-Convert to MarkdownHa publicado numerosos estudios, entre otros el titulado "La América Latina en Transición", que editó la Universidad Nacional de México en 1956, así como ensayos acerca de la economía y el desarrollo social en los Estados Unidos Francia, Alemania, Chile, Brasil y México durante el último cuarto de siglo.
+Ha publicado numerosos estudios, entre otros el titulado "La América Latina en Transición", que editó la Universidad Nacional de México en 1956, así como ensayos acerca de la economía y el desarrollo social en los Estados Unidos Francia, Alemania, Chile, Brasil y México durante el último cuarto de siglo.
 
 El Profesor Maurice Halperin actualmente es un Profesor Visitante en la Academia de Ciencias de la URSS en donde está dedicado a investigaciones de carácter económico.
 

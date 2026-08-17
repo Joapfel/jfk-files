@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17360.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>DATE : 27 FEB 63</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: C/WH 5</td></tr><tr><td>INFO : ADDP, C/C1, C/C1/C 2, C/F1 2, S/C 2</td></tr></table>
 

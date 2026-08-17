@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12687.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="3">LARGE SEC DISK EM PER</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29162.png
-
-Convert to MarkdownSCHEDULE F - SHAREHOLDERS SHARE OF INCOME AND CREDITS
+SCHEDULE F - SHAREHOLDERS SHARE OF INCOME AND CREDITS
 (If additional space is needed, attach schedule)
 
 <table><thead><tr><th>(1)<br>Name and Address of Each Shareholder</th><th>(2)<br>Social Security<br>Number</th><th>(3)<br>Number of<br>Shares</th><th>(4)<br>Amount taxable as ordinary<br>income (schedule K, total of<br>lines 4 and 8, U.S. 1120-S)</th></tr></thead><tbody><tr><td>(a) E.ADL. RUBY<br>4380 STONEY RIVER BIRM.MI</td><td rowspan="2">60602</td><td>500</td><td>19,730.16</td></tr><tr><td>(b) ESTATE OF GEORGE MARCUS<br>GW. WASHINGTON #110 CHICAGO</td><td>500</td><td>19,730.15</td></tr><tr><td>(c)</td><td></td><td></td><td></td></tr><tr><td>(d)</td><td></td><td></td><td></td></tr><tr><td>(e)</td><td></td><td></td><td></td></tr><tr><td>(f)</td><td></td><td></td><td></td></tr><tr><td>(g)</td><td></td><td></td><td></td></tr><tr><td>(h)</td><td></td><td></td><td></td></tr><tr><td>(i)</td><td></td><td></td><td></td></tr><tr><td>(j)</td><td></td><td></td><td></td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7856.png
-
-Convert to MarkdownA: I seem to recall that the weather was warm, but I am not sure.
+A: I seem to recall that the weather was warm, but I am not sure.
 
 Q: Were you told of the purpose of monitoring Dr. KING?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15170.png
-
-Convert to MarkdownSTL
+STL
 
 3 March 1960
 

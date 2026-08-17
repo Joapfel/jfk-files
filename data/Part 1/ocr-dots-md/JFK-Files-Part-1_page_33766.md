@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33766.png
-
-Convert to MarkdownCONFIDENTIAL - Security Information
+CONFIDENTIAL - Security Information
 
 June 23, 1975
 

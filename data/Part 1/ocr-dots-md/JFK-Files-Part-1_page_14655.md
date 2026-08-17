@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14655.png
-
-Convert to MarkdownThey said told him that she was waiting to see him, and now a girl comes in: RUIZ was waiting for her. He grants her. She is a correspondent of Simple, the Mexican magazine, and Ruiz has announced an interview for her with Mrs. Milliken TAILLINES(?) . This girl asks if she told him that she was going to Cuba. No, replies Ruiz, all she did was to send her "background". He asks how he is carrying her magazine credentials. She always does, she says.
+They said told him that she was waiting to see him, and now a girl comes in: RUIZ was waiting for her. He grants her. She is a correspondent of Simple, the Mexican magazine, and Ruiz has announced an interview for her with Mrs. Milliken TAILLINES(?) . This girl asks if she told him that she was going to Cuba. No, replies Ruiz, all she did was to send her "background". He asks how he is carrying her magazine credentials. She always does, she says.
 
 Ruiz tells her what she must talk about at the interview, about politics in Spain and its relations with the United States.- She must have some questions prepared beforehand, and even the possible replies. She must only tell them carefully as if they were unimportant, but with a socialist sense.
 

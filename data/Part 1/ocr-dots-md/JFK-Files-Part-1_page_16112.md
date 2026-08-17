@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16112.png
-
-Convert to Markdown(Sparrow); some special radio links for could be used in communications, and a pilot; John Hawke, in short under Hawke was lying over the Atlantic in the first of the several boats he was to land to Fortun- ed in less than three months. Oughtably headed by Bardeaus, Figure, he flew in- sread on a Portuguese air base where he was met by the Coast de Beaumont, rep- resenting a Swiss annuitants firm.
+(Sparrow); some special radio links for could be used in communications, and a pilot; John Hawke, in short under Hawke was lying over the Atlantic in the first of the several boats he was to land to Fortun- ed in less than three months. Oughtably headed by Bardeaus, Figure, he flew in- sread on a Portuguese air base where he was met by the Coast de Beaumont, rep- resenting a Swiss annuitants firm.
 
 Hawke was paid $3,060 for each flight. Although expenses ate up two thirds of the fee, the deal seemed satisfactory. "Those planes had bomb racks, armor plating, ready gunports there could be no question in anyone's mind what they were for," he told a visitor recently in Miami. Nevertheless, a question of sorts arose in some minds. One day Hawke was arrested and charged with violating the U.S. Munitions Act by exporting bombers without written State Depart- ment approval.
 

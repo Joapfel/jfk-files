@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21948.png
-
-Convert to MarkdownColonel Roth. That was my impression at the time.
+Colonel Roth. That was my impression at the time.
 
 Q. You understand from your work in the Defense Department that the highest level of government usually indicated the President of the United States?
 

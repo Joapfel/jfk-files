@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28813.png
-
-Convert to Markdown# Form 03-1032
+# Form 03-1032
 Exception to 5W-60
 Approved by the
 Bureau of the Budget

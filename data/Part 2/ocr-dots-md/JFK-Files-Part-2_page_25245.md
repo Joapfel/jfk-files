@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25245.png
-
-Convert to Markdown**PERSONS/ENTITIES:**
+**PERSONS/ENTITIES:**
 
 HARKINS, LODGE, BUNDY, DON,
 

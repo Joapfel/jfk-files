@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22168.png
-
-Convert to Markdownhall along with a certificate.* In 1963 I received a commendation from GRIBANOV for general good work. Also, GRIBANOV told me that I, along with some others, was to receive the Order of Lenin on 20 December 1963, the KGB anniversary date, but I left for Geneva.**I was to receive it for arousing [inspiring] the Seventh Department."
+hall along with a certificate.* In 1963 I received a commendation from GRIBANOV for general good work. Also, GRIBANOV told me that I, along with some others, was to receive the Order of Lenin on 20 December 1963, the KGB anniversary date, but I left for Geneva.**I was to receive it for arousing [inspiring] the Seventh Department."
 
 NOSENKO said on 26 October 1966 that he never received any KGB award or decoration for his operational work. The only awards he received during his KGB career, he said, were a Red Army anniversary medal and the award for satisfactory completion of ten years of service.
 

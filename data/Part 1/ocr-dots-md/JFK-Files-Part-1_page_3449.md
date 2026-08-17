@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3449.png
-
-Convert to Markdown4. Alert in Cuba.
+4. Alert in Cuba.
 
 Szulc then informed me that the New YORK TIMES had heard via Richard Eder to the effect that the tightest and most general alert in the history of Cuba appeared to be in the making. Eder and all other correspondents have been restricted to Havana. Then Eder attempted to make a trip to Pinar del Rio, he was denied this privilege. While discussing these matters with the NEW YORK TIMES by telephone, Eder was cut off and they have not heard from him since. This was presumably yesterday, 13 May.
 

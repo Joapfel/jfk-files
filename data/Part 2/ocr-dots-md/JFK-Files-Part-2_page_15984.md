@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15984.png
-
-Convert to MarkdownIt was learned that BPP leaders at Chicago have expressed fear that Negro youth gangs in Chicago have informers in their groups, and BPP must exercise care in accepting BPP membership.
+It was learned that BPP leaders at Chicago have expressed fear that Negro youth gangs in Chicago have informers in their groups, and BPP must exercise care in accepting BPP membership.
 
 2/10/69)
 

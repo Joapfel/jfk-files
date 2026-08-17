@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34155.png
-
-Convert to Markdown# STATEMENT OF RAUL DE LA RUA CASTRO.
+# STATEMENT OF RAUL DE LA RUA CASTRO.
 
 My name is Raül de la Rúa Castro, and I was the Chief Engineer aboard the Cuban MV SIERRA MESTRA until March 20, 1966, when I jumped ship in Nauroran, Japan.
 

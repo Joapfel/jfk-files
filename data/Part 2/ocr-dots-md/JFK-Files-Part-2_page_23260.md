@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23260.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 asset. Only time would have told how major it would have been. He was thought qualified to perform one of a variety of things in the Congo by Hedgman.
 

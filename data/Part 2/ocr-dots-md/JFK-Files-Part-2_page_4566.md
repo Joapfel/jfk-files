@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4566.png
-
-Convert to Markdown- 5 -
+- 5 -
 
 bothered by reporters once he had made it clear that he
 was not the talking kind. No decisions were taken, no

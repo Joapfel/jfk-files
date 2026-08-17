@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7527.png
-
-Convert to Markdowntravelled also to Sun Valley and appeared was able to use
+travelled also to Sun Valley and appeared was able to use
 his knowledge of the English language to get along on his own.
 Although he complained about not knowing much English, he
 admitted writing the English version of the paper he presented.

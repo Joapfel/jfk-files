@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5527.png
-
-Convert to MarkdownSUBJECT: House Select Committee on Assassinations
+SUBJECT: House Select Committee on Assassinations
 Request for Access to the "Hart Report"
 
 Distribution:

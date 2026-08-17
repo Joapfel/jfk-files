@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22626.png
-
-Convert to MarkdownFROM (Area 201) 544-6000
+FROM (Area 201) 544-6000
 
 WARD & PAUL
 

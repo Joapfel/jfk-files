@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21927.png
-
-Convert to Markdownservice in the Soviet Navy; he dwelt at length on his father's work in the Soviet shipbuilding industry; and while using the alias "NIKOLAYEV" with FRIPPEL, he mentioned that his father had been employed in the town of Nikolayev. On one occasion NOSENKO and his wife dined at FRIPPEL's home.* NOSENKO told his recruitment target George DREW in April 1959 that he had two daughters.
+service in the Soviet Navy; he dwelt at length on his father's work in the Soviet shipbuilding industry; and while using the alias "NIKOLAYEV" with FRIPPEL, he mentioned that his father had been employed in the town of Nikolayev. On one occasion NOSENKO and his wife dined at FRIPPEL's home.* NOSENKO told his recruitment target George DREW in April 1959 that he had two daughters.
 
 D. Soviets' Statements About NOSENKO
 

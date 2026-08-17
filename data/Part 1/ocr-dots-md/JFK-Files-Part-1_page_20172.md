@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20172.png
-
-Convert to MarkdownSEC. 12. EDUCATION
+SEC. 12. EDUCATION
 
 DATES ATTENDED
 HIGH SCHOOL

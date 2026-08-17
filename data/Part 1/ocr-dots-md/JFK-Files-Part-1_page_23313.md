@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23313.png
-
-Convert to Markdown# A. General Information on Agent
+# A. General Information on Agent
 
 ## (1) Pseudonym and Previous Requests for Cover
 

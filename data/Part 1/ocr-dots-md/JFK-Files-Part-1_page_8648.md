@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8648.png
-
-Convert to MarkdownPRODUCT SALES REPORT
+PRODUCT SALES REPORT
 
 1. Salesman Val. LOCUMOV + FELAND
 2. Supervisor Mrs. John FINCHS

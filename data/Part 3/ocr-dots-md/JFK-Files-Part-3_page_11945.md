@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11945.png
-
-Convert to MarkdownDuring the Summer of 1970 a counterintelligence
+During the Summer of 1970 a counterintelligence
 program aimed at creating dissension was instituted by our
 San Juan Office against the activist Puerto Rican Socialist
 League (LSP). On October 10, 1970, a high-placed Miami

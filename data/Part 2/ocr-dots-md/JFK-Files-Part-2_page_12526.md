@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12526.png
-
-Convert to MarkdownIn all of the above cases recommend removal from ADEX by FD-122 with attached succinct summary of facts. In all instances except c., submit current LHM or report for dissemination to Secret Service at FBIHQ and also furnish report or LHM to Secret Service locally.
+In all of the above cases recommend removal from ADEX by FD-122 with attached succinct summary of facts. In all instances except c., submit current LHM or report for dissemination to Secret Service at FBIHQ and also furnish report or LHM to Secret Service locally.
 
 [12. Reporting procedures on ADEX subjects
 

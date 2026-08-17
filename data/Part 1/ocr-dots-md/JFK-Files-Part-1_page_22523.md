@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22523.png
-
-Convert to MarkdownS. Thomas Stocker
+S. Thomas Stocker
 
 An American in the Dominican Republic with whom the station had had an earlier unhappy experience. The consulate preferred to have nothing to do with him, but the Dominican plotters brought him in as a cutout to the consulate. He took delivery from Lorenzo Berry of three carbines passed to Berry from the U.S. Consulate for use by the plotters. He held them for a few days and then gave them back when Berry insisted they be returned. Berry then passed them to one of the assassins.
 

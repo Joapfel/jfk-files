@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9838.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Separate Cover Attachment B to
 HMNA-34484

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2210.png
-
-Convert to Markdown### A. G. PIETRINI, N. B. (Continued)
+### A. G. PIETRINI, N. B. (Continued)
 
 ranking representative of the U. S. Department of Justice at that post. He was also a member of the National Council of American Law Institute, an organ of the United States and the Republic of Colombia, handling matters requiring his attention. In 1943 he became Assistant Secretary of War in the Government of the United States. In 1945 he was made Assistant Minister to the United States, and in the same capacity and with the same duties under the U. S. Ambassador. American Ambassador to Mexico, D. C., was that position.
 

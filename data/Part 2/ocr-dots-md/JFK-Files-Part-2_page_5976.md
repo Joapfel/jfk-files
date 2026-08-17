@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5976.png
-
-Convert to Markdown10 March 1998
+10 March 1998
 
 MEMORANDUM FOR: T. Jeremy Gunn, Esq.
 Executive Director, ARRB

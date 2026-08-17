@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22686.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 "Several nuclear scientists were secretly sent to Israel to work with Dimona scientists."
 

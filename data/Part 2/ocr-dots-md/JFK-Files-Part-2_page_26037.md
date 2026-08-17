@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26037.png
-
-Convert to Markdownso on and he promised to look into their cases immediately and do something about it. And I said, "I've gotten this from people who are in the opposition to you, but I don't know whether you've ever gotten any reports." He said he'd never heard of these cases, and I think he was telling the truth. He had no reason to dissemble with me at all on these things.
+so on and he promised to look into their cases immediately and do something about it. And I said, "I've gotten this from people who are in the opposition to you, but I don't know whether you've ever gotten any reports." He said he'd never heard of these cases, and I think he was telling the truth. He had no reason to dissemble with me at all on these things.
 
 O'BRIEN: Well, why is this? Is it the development of an independent bureaucracy, or is there a degree of U.S. influence on let's say, the intelligence? He knew . . .?
 

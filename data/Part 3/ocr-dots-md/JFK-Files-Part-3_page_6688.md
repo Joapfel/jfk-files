@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6688.png
-
-Convert to MarkdownUpon his return, he learned the BPP was no longer functioning on a democratic basis but was now being dominated by Bobby Rush, Illinois Minister of Defense. Junior sought to bring the party back to its former state, by calling for reforms and reorganization, which was resisted by Rush and he was subsequently removed from the Central Staff and he resigned from the party in September, 1970.
+Upon his return, he learned the BPP was no longer functioning on a democratic basis but was now being dominated by Bobby Rush, Illinois Minister of Defense. Junior sought to bring the party back to its former state, by calling for reforms and reorganization, which was resisted by Rush and he was subsequently removed from the Central Staff and he resigned from the party in September, 1970.
 
 He is in no way involved with the BPP, or other extremist activities, at this time nor does he have any plans to resume his association with the BPP, as he feels "The BPP and other organizations are being duped by white intellectual revolutionary hobbyists, who are taking advantage of the hopelessness and frustrations of the Black community to exercise their theories on political and social democracy."
 

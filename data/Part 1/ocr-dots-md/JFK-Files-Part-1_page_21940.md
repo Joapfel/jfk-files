@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21940.png
-
-Convert to Markdownfiles were held by the chief of the section, KOZLOV. NOSENKO stated that he read the files on these seven persons "slowly and made some extracts for myself in my personal log--such things as notations of their dates of arrival, things I could not remember." He was also given the files on the agents surrounding these correspondents, their drivers, maids, and cooks.
+files were held by the chief of the section, KOZLOV. NOSENKO stated that he read the files on these seven persons "slowly and made some extracts for myself in my personal log--such things as notations of their dates of arrival, things I could not remember." He was also given the files on the agents surrounding these correspondents, their drivers, maids, and cooks.
 
 ### b. Agents Reporting on Correspondents
 

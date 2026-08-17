@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9219.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 The benefit dinner of October 16, 1973, was a financial failure due to poor attendance.
 

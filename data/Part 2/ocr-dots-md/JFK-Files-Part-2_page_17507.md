@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17507.png
-
-Convert to MarkdownFRED HAMPTON
+FRED HAMPTON
 WILLIAM O'NEAL
 BOBBY RUSH
 

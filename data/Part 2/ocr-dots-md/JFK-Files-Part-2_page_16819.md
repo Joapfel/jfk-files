@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16819.png
-
-Convert to Markdown# CALIBER .45 AUTO CARTRIDGE CASES
+# CALIBER .45 AUTO CARTRIDGE CASES
 
 The specimens referred to as Q195, Q196, Q197, Q217, Q230, Q257, Q258, Q261 and Q269 are all Remington-Peters .45 Auto cartridge cases that were identified as having been fired in the .45 Thompson submachine gun, serial number 5954, previously referred to as specimen K21.
 

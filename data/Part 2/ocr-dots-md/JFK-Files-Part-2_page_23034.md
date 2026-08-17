@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23034.png
-
-Convert to Markdown1. was? Was it a cache of arms?
+1. was? Was it a cache of arms?
 
 2. Mr. Halley. It was a cache. I think that you could go to the record to establish what was in the cache. I do not recall specifically what the material was that was in the cache.
 

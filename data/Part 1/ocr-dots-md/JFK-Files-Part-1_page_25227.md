@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25227.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>1.2</td>
     <td>MARS</td>

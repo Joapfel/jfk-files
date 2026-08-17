@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14688.png
-
-Convert to MarkdownJAMES RIDDLE HOFFA; ET AL.
+JAMES RIDDLE HOFFA; ET AL.
 OBSTRUCTION OF JUSTICE
 
 James Riddle Hoffa and three others were convicted in Chattanooga Federal Court, 3/4/64, of obstruction of justice related to their efforts to tamper with certain members of the jury in a previous trial of Hoffa. These convictions were upheld by the U. S. Supreme Court on 12/12/66.

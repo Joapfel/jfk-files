@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7625.png
-
-Convert to MarkdownCOPIES MADE
+COPIES MADE
 
 Mexico and the United States and that LOGINOV was one of the Soviets' most able and active intelligence officers. One of the areas where he was most active, I continued, was in establishing relationships with young women like herself. For this purpose, I said, he used various lines, alternatively telling girls he was unmarried, divorced, or that his wife was in the Soviet Union. (This brought the first expression of any kind from Subject, who smiled faintly when I mentioned his using the line that his wife was in the USSR. According to LICOZY-5, this is what LOGINOV had told Subject.) Encouraged by the fact that Subject was at least listening, I went further into the seriousness of the Soviet presence in Mexico, hitting hard the fact that the Soviets treated the security of both the U.S. and Mexico, individually and collectively. When I finished, I told Subject that I was telling her all this both so that she would know whom she was dealing with in LOGINOV and because I frankly hoped that understanding the situation, she would be willing to discuss LOGINOV with me.
 

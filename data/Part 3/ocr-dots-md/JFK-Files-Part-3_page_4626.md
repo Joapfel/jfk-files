@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4626.png
-
-Convert to MarkdownSAC, Newark (105-9440)
+SAC, Newark (105-9440)
 
 EX-I
 

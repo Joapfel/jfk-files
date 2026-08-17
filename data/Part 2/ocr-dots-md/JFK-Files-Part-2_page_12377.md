@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12377.png
-
-Convert to Markdown3. Index
+3. Index
 
 a. Prepare index cards on form FD-348 and file as adjunct to criminal informant, [extremist] informant, or security informant index, depending on type information furnished.
 

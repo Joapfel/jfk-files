@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32053.png
-
-Convert to MarkdownEPPAW
+EPPAW
 
 SUBJECT: SCHEER, Robert - SSN: 112 28 1134 (U)
 DPOB: 4 April 1936 - Bronx, New York

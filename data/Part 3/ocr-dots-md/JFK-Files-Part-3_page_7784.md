@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7784.png
-
-Convert to Markdown# Memorandum to Mr. W. R. Wannall
+# Memorandum to Mr. W. R. Wannall
 
 RE: SENSTUDY 75
 62-116395

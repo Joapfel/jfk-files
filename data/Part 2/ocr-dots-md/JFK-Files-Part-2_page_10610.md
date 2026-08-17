@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10610.png
-
-Convert to MarkdownMemorandum to Mr. Cleveland
+Memorandum to Mr. Cleveland
 
 Re: United States Senate Select Committee
 To Study Governmental Operations With

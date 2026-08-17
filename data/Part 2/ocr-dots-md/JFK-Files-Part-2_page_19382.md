@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19382.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 TO
 JEANNETTE RANKIN BRIGADE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18788.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 In 1954, SAMUEL A. JAFFE registered from Apt.1B,
 25 Indian Road, NYC, at which time he listed his age as

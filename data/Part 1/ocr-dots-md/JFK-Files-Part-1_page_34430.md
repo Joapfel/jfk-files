@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34430.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 EYES ONLY
 

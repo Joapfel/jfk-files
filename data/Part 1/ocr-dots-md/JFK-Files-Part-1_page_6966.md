@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6966.png
-
-Convert to Markdown<table><thead><tr><th>MESSAGE FORM<br>TOTAL COPIES</th><th>Routing and/Or Details - See by</th></tr></thead><tbody><tr><td rowspan="5">SECRET</td><td>1</td></tr><tr><td>2</td></tr><tr><td>3</td></tr><tr><td>4</td></tr><tr><td>10</td></tr></tbody></table>
+<table><thead><tr><th>MESSAGE FORM<br>TOTAL COPIES</th><th>Routing and/Or Details - See by</th></tr></thead><tbody><tr><td rowspan="5">SECRET</td><td>1</td></tr><tr><td>2</td></tr><tr><td>3</td></tr><tr><td>4</td></tr><tr><td>10</td></tr></tbody></table>
 
 <table><tr><td>ORIG:</td><td></td></tr><tr><td>UNIT:</td><td></td></tr><tr><td>LXTH:</td><td></td></tr><tr><td>DATE:</td><td></td></tr></table>
 

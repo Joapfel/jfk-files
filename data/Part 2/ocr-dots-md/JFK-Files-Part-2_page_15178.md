@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15178.png
-
-Convert to MarkdownDETAILS:
+DETAILS:
 
 ORGANIZED CRIME
 

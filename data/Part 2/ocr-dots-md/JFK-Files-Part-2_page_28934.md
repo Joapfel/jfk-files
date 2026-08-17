@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28934.png
-
-Convert to Markdown50: EJN: mwh
+50: EJN: mwh
 
 1918
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14858.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1/8 Chief, S.K. Staff
 From Chief of Staff, Frankfurt

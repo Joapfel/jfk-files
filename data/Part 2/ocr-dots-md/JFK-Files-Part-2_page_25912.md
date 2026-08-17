@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25912.png
-
-Convert to MarkdownMEMORANDUM:
+MEMORANDUM:
 
 TO: Mike Madigan
 FROM: Ed Greissing

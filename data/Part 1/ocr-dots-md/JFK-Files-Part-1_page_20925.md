@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_20925.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>Date</th><th>Action</th><th>Compensation Equiv.</th></tr></thead><tbody><tr><td>1 Feb 51</td><td>Independent contractor</td><td>$600 per mo</td></tr><tr><td>23 Feb 51</td><td>Assistance contract terminated</td><td>600 " "</td></tr><tr><td>25 Jan 52</td><td>Independent contractor</td><td>$6,000 p.a.</td></tr><tr><td>31 Aug 53</td><td>Contract terminated</td><td>6,000</td></tr><tr><td>4 Mar 54</td><td>Contract Employee</td><td>$7,200</td></tr><tr><td>31 Jul 54</td><td>Contract terminated</td><td>7,200</td></tr><tr><td>1 Aug 54</td><td>Contract Employee</td><td>8,360</td></tr><tr><td>31 Mar 55</td><td>Contract terminated</td><td>8,360</td></tr><tr><td>1 Apr 55</td><td rowspan="2">Agency Staff Agent service</td><td></td></tr><tr><td>13 Aug 58</td><td></td></tr><tr><td>19 Aug 58</td><td>Independent contractor (Note: the base rate of pay of $7,200 is subject to increase on occasions wherein subject performs specialized assignments)</td><td>$7,200</td></tr><tr><td>13 Mar 60</td><td>SAA Contract terminated</td><td>7,200</td></tr><tr><td>14 Mar 60</td><td>Entered on duty as an Agency Staff Employee at the rate of GS-14/3 ($11,835).</td><td></td></tr></tbody></table>

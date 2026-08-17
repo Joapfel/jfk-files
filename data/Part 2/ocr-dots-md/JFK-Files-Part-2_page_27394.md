@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27394.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A. PROJECT SRINDIAN - Identification, etc. SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1887.png
-
-Convert to MarkdownSECRET
+SECRET
 
 attempted to arrange for such a meeting through Andre AMALRIK. After calling from the Embassy to arrange the appointment, LUERS and KORENGOLD went to AMALRIK's apartment. The painter was not there, and shortly after their arrival two militia men and KGB officers came to AMALRIK's apartment. AMALRIK was arrested, tried, and sentenced for being a 'parasite'. LUERS said that his superior at the Embassy, Malcolm TOON, was unhappy about this activity and was critical of LUERS in his efficiency rating because of it. LUERS said he did not previously mention it to the interviewing agent because he did not wish to further complicate matters." (LUERS was security approved as a GS-7 JOT in June 1957, subject to technical interview, but his case was cancelled when he accepted another position. He was subsequently granted liaison clearances in February and March 1962.)
 

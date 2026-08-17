@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4335.png
-
-Convert to MarkdownAlvaro Infante
+Alvaro Infante
 Tarrerero
 
 Barrio Cañamara:

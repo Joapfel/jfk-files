@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8826.png
-
-Convert to MarkdownVol. XX
+Vol. XX
 
 Memoranda on Personalities Checked - A thru N
 

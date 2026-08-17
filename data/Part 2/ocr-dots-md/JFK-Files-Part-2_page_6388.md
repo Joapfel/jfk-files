@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6388.png
-
-Convert to MarkdownMr. John Pereira
+Mr. John Pereira
 
 June 29, 1995
 Page two

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24680.png
-
-Convert to Markdownexplored the means by which such access could be gained, nor would
+explored the means by which such access could be gained, nor would
 he have undertaken a mission to the Congo if it involved assess-
 ment of the situation for an assassination operation by someone
 else (O'Donnell, 9/11/75, p. 26).

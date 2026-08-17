@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16486.png
-
-Convert to Markdown-- Huey P. Newton
+-- Huey P. Newton
 Minister of Defense
 
 *See "Concentration Camps U.S.A." by Charles R. Allen, Jr., and "American Concentration Camps" by Boswell.*

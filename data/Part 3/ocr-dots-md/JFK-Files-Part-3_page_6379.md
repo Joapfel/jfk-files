@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6379.png
-
-Convert to Markdown# SALAT SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+# SALAT SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 Item 11 requested all materials reflecting or pertaining to conversations between Courtney Evans and Assistant Attorney General Burke Marshall, and/or between Mr. Evans and the Attorney General, as described in Assistant Attorney General Marshall's September 20, 1963, memorandum to the Director captioned "Hunter Pitts O'Dell." An extensive review has been conducted of all logical files, abstracts and indices in an effort to find documents relating specifically to such conversations described in the request. The attached materials represent the only documents located that appear to be related in any manner to these conversations.
 

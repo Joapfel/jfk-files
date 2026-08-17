@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3809.png
-
-Convert to Markdownestimate when we will complete Item 4.
+estimate when we will complete Item 4.
 
 Item 5 has been reduced to the recol-
 lection of Bureau Supervisor David Ryan

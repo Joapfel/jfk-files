@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_147.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 The Portland Office contacted Richard Ross, News Director, Station KGW-TV, Portland, Oregon, concerning planned arrival in Portland of Hyman Lumer, National Committee member, Communist Party, USA (CPUSA), on February 25, 1964. Lumer was to conduct a class in Marxism for CP youth and intended CP members. Ross arranged coverage of Lumer's arrival in Portland.
 

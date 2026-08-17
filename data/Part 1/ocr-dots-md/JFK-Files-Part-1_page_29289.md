@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29289.png
-
-Convert to Markdowna. That an appropriate domestic assignment is available.
+a. That an appropriate domestic assignment is available.
 
 b. That he pursues appropriate treatment during the 6-month assignment period.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11204.png
-
-Convert to Markdown# 4. Postal Inspection Service Jurisdiction
+# 4. Postal Inspection Service Jurisdiction
 
 The Postal Inspection Service shall have primary jurisdiction to investigate all violations of section 844 which are directed at U.S. Postal Service property or functions.
 

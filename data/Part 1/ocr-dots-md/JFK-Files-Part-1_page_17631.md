@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17631.png
-
-Convert to MarkdownAttachment to H74-A-10198
+Attachment to H74-A-10198
 KAPOK-1401
 
 Project Review

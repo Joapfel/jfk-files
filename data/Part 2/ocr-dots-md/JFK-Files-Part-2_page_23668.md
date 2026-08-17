@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23668.png
-
-Convert to Markdown Senator Huddleston. Could we solve it by just having a narrative statement at the end of all of these recommendations relating to the DCI to say that the foregoing, preceding recommendations would, if carried out, substantially strengthen the role of the DCI or they are intended to do that?
+Senator Huddleston. Could we solve it by just having a narrative statement at the end of all of these recommendations relating to the DCI to say that the foregoing, preceding recommendations would, if carried out, substantially strengthen the role of the DCI or they are intended to do that?
 
 And this brings up the question as to whether or not in this expanded role he should also at the same time be essentially responsible for the operation of one of the agencies and that this matter, as his duties are expanded, this matter needs to be considered further and a determination made whether or not it's appropriate that he continue to hold that responsibility.
 

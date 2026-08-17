@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31299.png
-
-Convert to Markdown# TRAINING EVALUATION
+# TRAINING EVALUATION
 
 ## (STAFF ORIENTATION)
 

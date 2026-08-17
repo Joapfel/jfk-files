@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5534.png
-
-Convert to MarkdownINTERNAL USE ONLY
+INTERNAL USE ONLY
 
 23 March 1994
 

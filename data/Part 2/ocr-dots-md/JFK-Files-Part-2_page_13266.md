@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13266.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      ALL APPLICANTS<br/>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23915.png
-
-Convert to MarkdownThe twelve issues were only 200 copies maximum, not
+The twelve issues were only 200 copies maximum, not
 
 It was still printed until No. 12, the end-of-the-year, the end of that
 first year. The twelve issues were printed there. The twelfth issue was

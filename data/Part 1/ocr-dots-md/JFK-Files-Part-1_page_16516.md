@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16516.png
-
-Convert to Markdown14-0000
+14-0000
 
 CABLE SECRETARIAL DISSEMINATION
 

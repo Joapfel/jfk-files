@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11935.png
-
-Convert to Markdown5. Obtaining approval for a racial and New Left extremist activities In-Service classes.
+5. Obtaining approval for a racial and New Left extremist activities In-Service classes.
 
 6. Obtaining approval for the deletion of the Black Extremist Bureau Fugitive List from the Black Nationalist Movement in the United States Racial Calendar and transmitting this to the field by separate letter in order to give greater emphasis to these fugitive investigations.
 

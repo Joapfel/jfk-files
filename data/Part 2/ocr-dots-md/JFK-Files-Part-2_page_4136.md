@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4136.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: Meeting of the Special Group (5412) - 8 August 1963
 

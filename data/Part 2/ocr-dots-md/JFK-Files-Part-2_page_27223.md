@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27223.png
-
-Convert to Markdown| | | |
+| | | |
 | :--- | :--- | :--- |
 | ✓ McCONE, John A. | May 5, 1975 | XIX (2-23) |
 | KISSINGER, Henry | May 5, 1975 | XIX (24-76) |

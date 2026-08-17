@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6491.png
-
-Convert to Markdown(Chief, Contact Division (FT/P Branch)
+(Chief, Contact Division (FT/P Branch)
 
 10 July 63
 

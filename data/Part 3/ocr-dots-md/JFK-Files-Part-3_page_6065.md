@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_6065.png
-
-Convert to MarkdownJones -- The Intermediary
+Jones -- The Intermediary
 
 Court Seal [JFK Law 10(a)1]

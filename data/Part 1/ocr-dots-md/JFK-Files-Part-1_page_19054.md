@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19054.png
-
-Convert to MarkdownIV. Parteivorstand:
+IV. Parteivorstand:
 
 a) gewählte Mitglieder:
 

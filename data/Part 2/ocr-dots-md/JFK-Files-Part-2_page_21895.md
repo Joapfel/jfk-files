@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21895.png
-
-Convert to Markdown(O'Donnell), 6/9/75, p. 20).* (O'Donnell) also "spotted" a member of the UN guard and made his acquaintance to recruit him for an attempt to lure Lumumba outside UN protective custody (O'Donnell), 6/9/75, p. 20; 9/11/75, p. 21).
+(O'Donnell), 6/9/75, p. 20).* (O'Donnell) also "spotted" a member of the UN guard and made his acquaintance to recruit him for an attempt to lure Lumumba outside UN protective custody (O'Donnell), 6/9/75, p. 20; 9/11/75, p. 21).
 
 (O'Donnell) said that he cabled progress reports on his plan to CIA headquarters (O'Donnell), 9/11/75, p. 26). He also said that he informed the Chief of Station about his plan (O'Donnell), 9/11/75, p. 56).
 

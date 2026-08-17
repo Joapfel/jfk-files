@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4673.png
-
-Convert to MarkdownSECRET
+SECRET
 
 clandestine outfit working outside the government, with proper communications obviously and clearances and what have you. We talked about Colorado before in one of the papers -- go out to Colorado somewhere. You know, way out in nowhere. This was in the '40's -- the late '40's -- or go to some other part of the country and get hooked up by telephone or wire or what have you long before all of this computer nonsense. Or even get buried in New York City, Wall Street, or one of those huge monstrosities that existed even then as a private company somewhere. And do actual company business -- be a real business, but also run your operation. Well, this has been tried so many times in terms of study groups and nothing has ever come of it. Nothing.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23187.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Halley: Or what was the message, how was it sent,
 what was the text of the message.

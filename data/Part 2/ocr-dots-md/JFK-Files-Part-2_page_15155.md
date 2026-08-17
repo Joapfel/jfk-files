@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15155.png
-
-Convert to MarkdownPresentation to a Federal Grand Jury, Washington, D. C., commenced 3/10/67 but the grand jury is available to hear this case only on Fridays. Additional witnesses are appearing 3/17/67 and it is anticipated further testimony will be given the grand jury 3/24/67 and possibly 3/31/67.
+Presentation to a Federal Grand Jury, Washington, D. C., commenced 3/10/67 but the grand jury is available to hear this case only on Fridays. Additional witnesses are appearing 3/17/67 and it is anticipated further testimony will be given the grand jury 3/24/67 and possibly 3/31/67.
 
 Brandon Alvey, the trial attorney handling this case, has described the Bureau's investigation as outstanding and said he has never before seen so much good information gathered in such a short time. Alvey states that if there was a statute making it a violation to bomb diplomatic establishments in the United States, the evidence now available would support a conspiracy conviction. There is no such statute; however, the statute the Department considers most applicable (Section 956, Title 18) makes it a violation to conspire in the United States to damage property owned by a foreign government in a foreign country.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25270.png
-
-Convert to MarkdownSECRET
+SECRET
 
 H13-2178
 Page 9.

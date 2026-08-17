@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1490.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SUBJECT: Manuscript and Galley Proof of Undercover: Memoirs of an American Agent by E. Howard Hunt
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8782.png
-
-Convert to Markdownreach back as far as twenty years to revenge actions taken against him at that time. Source added that in the current situation CASTRO was fully capable of undertaking an act of desperation, for example the aerial bombardment of the U.S. or some gross act against the Soviet Ambassador in Cuba.
+reach back as far as twenty years to revenge actions taken against him at that time. Source added that in the current situation CASTRO was fully capable of undertaking an act of desperation, for example the aerial bombardment of the U.S. or some gross act against the Soviet Ambassador in Cuba.
 
 GNVA 5006 (OUT 54584) 28 Mar 1963 (TDCSDB 3/653,939)
 

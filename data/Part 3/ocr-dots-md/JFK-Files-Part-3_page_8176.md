@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8176.png
-
-Convert to MarkdownD. Consent of Originating Department to Dissemination by Recipient. Except as otherwise provided by Section 102 of the National Security Act of 1947, 61 Stat. 495, 50 U.S.C. 403, classified information or material originating in one Department shall not be disseminated outside any other Department to which it has been made available without the consent of the originating Department.
+D. Consent of Originating Department to Dissemination by Recipient. Except as otherwise provided by Section 102 of the National Security Act of 1947, 61 Stat. 495, 50 U.S.C. 403, classified information or material originating in one Department shall not be disseminated outside any other Department to which it has been made available without the consent of the originating Department.
 
 E. Dissemination of Sensitive Intelligence Information.
 Information or material bearing the notation "WARNING NOTICE -- SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED" shall not be disseminated in any manner outside authorized channels without the permission of the originating Department and an assessment by the senior intelligence official in the disseminating Department as to the potential risk to the national security and to the intelligence sources and methods involved.

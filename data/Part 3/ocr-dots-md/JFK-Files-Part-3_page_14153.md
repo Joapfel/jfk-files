@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14153.png
-
-Convert to MarkdownW135
+W135
 
 DocId:2501
 

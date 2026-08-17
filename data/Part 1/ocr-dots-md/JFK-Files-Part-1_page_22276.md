@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22276.png
-
-Convert to Markdown3. Entry into the KGB
+3. Entry into the KGB
 
 a. Eligibility
 

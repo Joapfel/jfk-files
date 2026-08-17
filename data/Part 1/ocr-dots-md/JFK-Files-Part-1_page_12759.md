@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12759.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="6">EXTRACT AND CROSS REFERENCE</th></tr><tr><td colspan="3">DOCUMENT IDENTIFICATION</td><td rowspan="2">FILE CLASSIFICATION OF RECORD COPY</td><td rowspan="4"></td><td rowspan="4"></td></tr><tr><td>DOC. SYMBOL &amp; NO.</td><td>DATE OF DOC.</td><td></td></tr><tr><td>HVCA-19626</td><td>2 Nov 73</td><td></td><td></td></tr><tr><td>DOC. SUBJECT</td><td colspan="5"></td></tr><tr><td colspan="6">SOURCE INFORMATION</td></tr><tr><td>SOURCE CRYPTONUM</td><td>DATE OF INFO.</td><td>EVALUATION</td><td colspan="3"></td></tr><tr><td>WKSCARLET-3</td><td></td><td></td><td colspan="3"></td></tr><tr><td colspan="6">TEXT OF EXTRACT (Also cite doc. distribution, Dissemin. No., etc. - if applicable)</td></tr></thead></table>
 

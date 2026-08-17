@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24481.png
-
-Convert to Markdownsecret information. (Eisenhower, p. 3.) And he said that as early as
+secret information. (Eisenhower, p. 3.) And he said that as early as
 1956, President Eisenhower told him of the secret U-2 flights. (Eisenhower,
 p. 4.)
 

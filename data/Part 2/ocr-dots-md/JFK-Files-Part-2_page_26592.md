@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26592.png
-
-Convert to Markdowne. Yesterday it was announced that the carrying of firearms by anyone outside the security forces was forbidden until the elections are over.
+e. Yesterday it was announced that the carrying of firearms by anyone outside the security forces was forbidden until the elections are over.
 
 f. Some 3,000 reservists have been called up to protect the polls. Leaves are being cancelled and all security forces are maintaining a high state of alert.
 

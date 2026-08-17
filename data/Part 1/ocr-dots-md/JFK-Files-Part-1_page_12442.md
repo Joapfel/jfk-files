@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12442.png
-
-Convert to MarkdownEjemplo.- Valorización de la piedra al tallarla.-
+Ejemplo.- Valorización de la piedra al tallarla.-
 
 Durante el transcurso del estudio se pudieron observar varias operaciones de avalúo efectuadas en el laboratorio de geología del MWH - Ciudad Bolívar, a petición de compradores interessados en conocer el valor de una sortija personal.
 

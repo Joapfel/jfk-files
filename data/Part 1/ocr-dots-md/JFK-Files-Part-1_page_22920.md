@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22920.png
-
-Convert to Markdown15 April 1960
+15 April 1960
 
 mc
 

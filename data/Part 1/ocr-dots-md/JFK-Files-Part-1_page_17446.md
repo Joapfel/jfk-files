@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17446.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>UNCLASSIFIED</td>

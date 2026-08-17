@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1663.png
-
-Convert to MarkdownSECURITY INFORMATION
+SECURITY INFORMATION
 
 (9)
 

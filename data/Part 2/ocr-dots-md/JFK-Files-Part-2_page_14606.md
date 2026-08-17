@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14606.png
-
-Convert to MarkdownOffice Mem n • UNITED S VERNMENT
+Office Mem n • UNITED S VERNMENT
 
 TO : A. H. Belmont
 

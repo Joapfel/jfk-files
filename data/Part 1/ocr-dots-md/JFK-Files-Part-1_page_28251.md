@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28251.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>REQUEST FOR MEDICAL EVALUATION</td>

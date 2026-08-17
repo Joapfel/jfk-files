@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1261.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SE EOW/103: BG
 SR/C1/K

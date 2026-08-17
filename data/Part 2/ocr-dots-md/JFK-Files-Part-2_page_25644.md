@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25644.png
-
-Convert to MarkdownFor Jim Braden, whose true identity is Eugene Hale Brading,
+For Jim Braden, whose true identity is Eugene Hale Brading,
 is a man with singularly awesome direct ties to the highest
 levels of the Mafia. Of all the Mafia figures connected to
 the syndicate's crucial security and enforcement activities

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25800.png
-
-Convert to MarkdownSECRET
+SECRET
 
 It is important to note here that LICALLA occupies one of the four LIMUST properties. While it is believed that LIPSTICK-39 does not know that KUBARK owns the Base or has anything to do with the other three houses, it is entirely conceivable that should one of the local police agencies or the LIMEBICK personnel become aware of LICALLA activities, they could very easily arrive at some logical conclusions about all of the LIMUST property. This would be detrimental, if not fatal, to our aims. However, another Station viewpoint on this same problem is that if compromised, LICALLA would divert suspicion from, rather than to, LIMUST. Should one of the local police agencies begin an investigation which might involve LIMUST and LICALLA, then LICALLA could be sacrificed to protect the LIMUST Base. These possibilities become somewhat theoretical and perhaps impractical due to the lack of predictability of the local police agencies, but neverthe-
 

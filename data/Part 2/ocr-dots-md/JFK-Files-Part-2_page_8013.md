@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8013.png
-
-Convert to Markdownwas Intertel that ITT hired in 1972 to snoop on columnist Jack Anderson.
+was Intertel that ITT hired in 1972 to snoop on columnist Jack Anderson.
 
 The latest and possibly most damaging charge in the Resorts International battle came in June 1972 in an IRS inspired indictment of Meyer Lansky and Dino Cellini. The indictment reads in part:
 

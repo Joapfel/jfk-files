@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3425.png
-
-Convert to Markdown6. A-1 was informed that the ADELAIDA is scheduled to leave drydock on 31 May.
+6. A-1 was informed that the ADELAIDA is scheduled to leave drydock on 31 May.
 
 7. A-1 reported he has talked to Miguel Angel Quevedo of Bohemia Libre and representatives of Life magazine concerning the release of pictures to be taken by his own combat photographer. A-1 added, however, he had made no firm commitments.
 

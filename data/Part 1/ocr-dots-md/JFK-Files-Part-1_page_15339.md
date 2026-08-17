@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15339.png
-
-Convert to MarkdownFILE TITLE/NUMBER/VOLUME: LAMinate - 1-3-94, Redside News - S21-306-14
+FILE TITLE/NUMBER/VOLUME: LAMinate - 1-3-94, Redside News - S21-306-14
 
 INCLUSIVE DATES: 1960-1971
 CUSTODIAL UNIT/LOCATION:

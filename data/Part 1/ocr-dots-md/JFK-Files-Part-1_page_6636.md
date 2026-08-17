@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6636.png
-
-Convert to MarkdownFiles
+Files
 
 26 Feb 1953
 

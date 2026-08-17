@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15641.png
-
-Convert to MarkdownThe police report on the incident reflects that
+The police report on the incident reflects that
 the incident was apparently the result of a previous per-
 sonal altercation between Bell and one James Caldwell,
 male Negro, 5804 South Calumet, who is a guard at the

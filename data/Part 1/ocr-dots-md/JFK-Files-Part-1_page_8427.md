@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8427.png
-
-Convert to MarkdownCONTACT REPORT
+CONTACT REPORT
 
 SUBJECT: RESABER P-8777
 DATE OF MEETING: 3 June 1968

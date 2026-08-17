@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29113.png
-
-Convert to MarkdownTax Computation
+Tax Computation
 
 ## ULE T
 1040)

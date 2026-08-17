@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1611.png
-
-Convert to Markdown# THOMAS L. ROBERTS
+# THOMAS L. ROBERTS
 
 Nov 1949 (Roberts) volunteered his services to (Boston FBI; not accepted.
 

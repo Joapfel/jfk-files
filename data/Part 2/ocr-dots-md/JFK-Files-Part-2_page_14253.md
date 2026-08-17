@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14253.png
-
-Convert to MarkdownMEMORANDUM FOR: Antonin S. Slia, Esq.
+MEMORANDUM FOR: Antonin S. Slia, Esq.
 Assistant Attorney General
 Office of Legal Counsel
 

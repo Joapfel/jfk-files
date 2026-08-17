@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24594.png
-
-Convert to Markdown(b) The Discussion of the Contingency of Castro's Death
+(b) The Discussion of the Contingency of Castro's Death
 
 In the Spring of 1963, the Standing Group discussed contingency planning in the event of Castro's death. The documentary evidence and testimony indicated that Castro's death was discussed as a contingency which might occur independent of U.S. action. The Group found that the possibilities for favorable developments to the United States should Castro die were "singularly unpromising". (Summary Record of Standing Group Meeting, May 28, 1963, p. 1).
 

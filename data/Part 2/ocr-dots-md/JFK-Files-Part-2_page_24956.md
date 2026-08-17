@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24956.png
-
-Convert to Markdownwas a high-level meeting due to the participants.
+was a high-level meeting due to the participants.
 
 2. He believes the participants included the Secretary of Defense because Dillon's recollection is firm on the fact that the meeting took place in the office of the Secretary of Defense. Dillon did not remember whether Allen Dulles attended the meeting, he said "top CIA people were present". Dillon said Richard Sargent was probably present. Dillon does not recall a man named Robert Johnson, nor does he recall whether such a man was present at the meeting, but he said that we might be able to refresh his collection by giving him more background on Robert Johnson. Did not mention on the phone the nature of Robert Johnson's testimony before the Committee; I simply asked if Johnson was present at the meeting.)
 

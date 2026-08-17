@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10666.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Ugarte, 81-11 Pettit Ave., Elmhurst, Long Island, tel. NR 2-5487.
 De la Torre apparently is involved with Cuban refugees in

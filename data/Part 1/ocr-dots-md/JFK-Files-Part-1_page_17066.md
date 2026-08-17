@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17066.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the Soviet Embassy in Mexico City. Similarly, an AF/OSI controlled agent scheduled to meet a Soviet contact was unable to do so owing to illness, but LIEMPTY photographed another person who appeared at the meeting site and this person is believed to be the agent's Soviet case officer. Such coverage has been helpful to the 902nd, AF/OSI and the FBI in running their controlled double agent operations against the Soviets in Mexico.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2701.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="3">STATEMENT OF PRIOR FEDERAL (C) AND MILITARY SERVICE<br>AND DETERMINATION OF COMPETITIVE STATUS</td>

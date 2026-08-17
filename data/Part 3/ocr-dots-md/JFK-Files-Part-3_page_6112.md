@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6112.png
-
-Convert to Markdowne. Where information is received in connection with racial matters indicating that individuals or organizations have resorted to or contemplate resorting to violence, you must
+e. Where information is received in connection with racial matters indicating that individuals or organizations have resorted to or contemplate resorting to violence, you must
 
 (1) Immediately advise the Bureau of full facts by expeditious means depending upon urgency of circumstances
 

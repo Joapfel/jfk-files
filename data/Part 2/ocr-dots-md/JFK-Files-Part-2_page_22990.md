@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22990.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. collecting this intelligence, an assessment could be made based on hard facts as to what could be done against Castro. In other words, the difference here was that people thought that the Bay of Pigs operation was not soundly grounded in intelligence.
 2

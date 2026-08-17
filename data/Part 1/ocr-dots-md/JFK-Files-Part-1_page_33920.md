@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33920.png
-
-Convert to MarkdownBINGHAMTON, NEW YORK plans to use the following prayer which came from "Prayers for Men in Service":
+BINGHAMTON, NEW YORK plans to use the following prayer which came from "Prayers for Men in Service":
 
 "For the Oppressed; O God, The Creator of men and of nations, we implore Thy fatherly care and protection in behalf of all Thy children everywhere who suffer persecution. In all their trials and tribulations be Thou their Refuge and Strength. Impart to them Thine own comfort and courage. Turn the hearts of the oppressors from evil to good. Stop the hands and convert the wills of those who would array brother against brother in racial strife. Restore to all men everywhere the blessing of religious freedom. Fill our hearts and inspire our minds with a desire firmly to establish peace and justice, liberty and fraternity throughout the world; for His sake, who suffered for all mankind, Thy Son, Jesus Christ our Lord. Amen."
 

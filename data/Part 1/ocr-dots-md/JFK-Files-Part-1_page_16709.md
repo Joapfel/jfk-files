@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16709.png
-
-Convert to Markdown10 August 1964
+10 August 1964
 
 MEMORANDUM FOR: Chief, Technical Services Division
 ATTENTION : Chief, TSD/AOS

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11966.png
-
-Convert to MarkdownSAC Letter 70-30 (D) dated 6/2/70 reiterated prior instructions of moratorium on Security Matter - Communist investigations. Recent field inspections indicated some offices needed clarification of this moratorium. The SAC Letter noted instructions concerning moratorium only applied to routine communist investigations and not those individuals belonging to such groups as the Weatherman, Progressive Labor Party, Socialist Workers Party and Young Socialist Alliance.
+SAC Letter 70-30 (D) dated 6/2/70 reiterated prior instructions of moratorium on Security Matter - Communist investigations. Recent field inspections indicated some offices needed clarification of this moratorium. The SAC Letter noted instructions concerning moratorium only applied to routine communist investigations and not those individuals belonging to such groups as the Weatherman, Progressive Labor Party, Socialist Workers Party and Young Socialist Alliance.
 
 Bureau airtel to all offices 7/16/70 noted that New Left terrorism is continuing through bombings, arsons and other forms of violence and each SAC must personally insure sufficient personnel are assigned to handle these matters as well as investigating individuals involved and those following Weatherman ideology of utilization of violent revolutionary tactics against our Government.
 

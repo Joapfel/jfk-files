@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30911.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td rowspan="2">ACTION REQUIRED: For Your Information<br>REFERENCES : A. HUMA-32877, 28 August 1967<br>B. DIRECTOR-9363</td>
     <td></td>

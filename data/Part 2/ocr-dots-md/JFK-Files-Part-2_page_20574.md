@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20574.png
-
-Convert to MarkdownWOMEN'S NATIONAL ABORTION
+WOMEN'S NATIONAL ABORTION
 ACTION COMMITTEE (NONAC)
 
 It was ascertained by means of a suitable pretext by

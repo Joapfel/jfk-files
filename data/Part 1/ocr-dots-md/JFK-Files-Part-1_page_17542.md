@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17542.png
-
 to the "outside" Case Officer for the
 LIFEAT operation, completes his second tour in June 1961 and will
 return to Headquarters PCS during the fall or early winter of 1961.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6620.png
-
-Convert to MarkdownI. R. O.
+I. R. O.
 GENERAL HOSPITAL
 AREA 7. MUNICH
 SUB-AREA ROSENHEIM

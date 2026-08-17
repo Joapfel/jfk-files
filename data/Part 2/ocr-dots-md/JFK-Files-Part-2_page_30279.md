@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30279.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 provided certain documents to the Warren Commission in 1964?
 

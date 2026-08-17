@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15534.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mar-Aug 1940 - Barcares, assigned in Georgian unit
 Aug 1940 - Paris, discharged at end of Franco/German hostilities

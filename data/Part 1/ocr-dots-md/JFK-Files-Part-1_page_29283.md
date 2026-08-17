@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29283.png
-
-Convert to Markdown14-0000
+14-0000
 
 SURVIVOR ANNUITY: Per Annum $ 4,782 $ 5,030
 Per Month 399 419

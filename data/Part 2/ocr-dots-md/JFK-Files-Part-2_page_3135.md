@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3135.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 him with the necessary information, Holcomb then noted:
 

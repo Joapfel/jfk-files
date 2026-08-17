@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23219.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Tweedy. It was a serious answer. I can't do better than that. It was a serious answer. It wasn't argumentative, I guess it started to discuss, not the pros and cons of policy, at least I don't recall it did, but what it was that he might be able to do. It was a disciplined reply to an instruction from headquarters.
 

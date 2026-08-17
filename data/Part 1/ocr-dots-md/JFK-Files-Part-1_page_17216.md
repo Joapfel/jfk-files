@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17216.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="3">C' FIED MESSAGE</td>
     <td>REPRODUCTION PROHIBITED</td>

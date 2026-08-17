@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11551.png
-
-Convert to MarkdownFor example, both letters contained requests to conduct investiga-
+For example, both letters contained requests to conduct investiga-
 tion previously conducted and reported to the Department. Certain other
 requests contained therein would more logically fall within the province of the
 Special Task Force Committee established by the Department of Defense to

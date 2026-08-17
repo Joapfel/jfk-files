@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17200.png
-
-Convert to MarkdownUNITED STATES C ERNMENT
+UNITED STATES C ERNMENT
 Memorandum
 
 TO : DIRECTOR, FBI

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24472.png
-
-Convert to Markdown# "AFRICA, LATIN AMERICA, ASIA REVOLUTION"
+# "AFRICA, LATIN AMERICA, ASIA REVOLUTION"
 
 The following information was received in the first half of October 1964 from a source in close touch with Richard CIBSOH, the former Editor of "Africa, Latin America, Asia Revolution".
 

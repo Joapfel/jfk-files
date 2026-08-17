@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21218.png
-
-Convert to MarkdownGOLITZYN did talk to various other SCD officers. ~~V. D. AVDEYEV~~ [S] Page 389
+GOLITZYN did talk to various other SCD officers. ~~V. D. AVDEYEV~~ [S] Page 389
 
 On July 20, 1968, (N-211), although he had not previously recognized [AVDEYEV's] photograph when displayed to him, NOSENKO stated he thought this photograph was familiar. It is considered possible that he recalled the photograph from its previous showing to him.
 

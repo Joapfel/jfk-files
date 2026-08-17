@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14929.png
-
-Convert to Markdown# SPECIAL INVESTIGATIVE DIVISION
+# SPECIAL INVESTIGATIVE DIVISION
 CRIMINAL INTELLIGENCE AND ORGANIZED CRIME SECTION
 
 During the past few months the Department has launched into a program of review of past, current, and contemplated prosecutions to determine if such cases have been materially affected by the use of electronic listening devices. This has required the establishment of special microphone indices at Bureau Headquarters and voluminous correspondence with various field divisions to determine if individuals listed in the Department's inquiries were covered by FBI microphones. With regard to listed individuals on whom we have had some form of microphone coverage, we are so advising the Department and pertinent logs, together in some cases with other supporting material, are being obtained from the field for review by Departmental attorneys.

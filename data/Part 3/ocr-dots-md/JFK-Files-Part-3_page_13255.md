@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13255.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 MR. OLSEN: After you came back from Cuba at the end of June 1959 did you then settle in the Miami area?
 

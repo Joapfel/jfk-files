@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8053.png
-
-Convert to MarkdownSTATE DEPT DOCUMENT
+STATE DEPT DOCUMENT
 
 DATE: 22 JUNE 1949
 

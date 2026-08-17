@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3243.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 propaganda campaign aimed at terrorizing Castro's militia (and apparently at the request of Col. Jack Hawkins, Chief, WH/4/PM), WH/4/PP gave some thought to preparing a purported secret order to Castro's militia to establish an "elite suicide squad" which would fight on even after the defeat of the other troops. The gentleman who would later become infamous in connection with the Watergate activity, E. Howard Hunt, and Dave Phillips assessed the possibility of sending a white painted "flight of truth" airplane on a trip to several of the Latin American countries, bringing -- in a "Billy Graham type operation" -- the message of Castro's betrayal of the Cuban Revolution. But this esoteric plan, too, never got beyond the planning stage. 32/
 

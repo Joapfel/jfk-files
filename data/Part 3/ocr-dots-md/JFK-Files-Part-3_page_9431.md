@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9431.png
-
-Convert to Markdown# FIRST INTERROGATORIES TO THE INTERNAL REVENUE SERVICE
+# FIRST INTERROGATORIES TO THE INTERNAL REVENUE SERVICE
 
 Please provide full, explanatory answers to the questions set forth below. As used in these questions, the following terms shall have the meaning set forth below:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31616.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 Draft Note to Czechoslovak Government
 

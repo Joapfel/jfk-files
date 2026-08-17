@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1606.png
-
-Convert to MarkdownOUTGOING TELEPOUCH
+OUTGOING TELEPOUCH
 
 <table><thead><tr><td colspan="5">SIGNAL CENTER USE ONLY</td></tr><tr><th>AGE</th><th>CO.</th><th>ACP</th><th>TOG</th><th>TPE</th><th>MRO</th></tr></thead><tbody><tr><td colspan="6">TEL. 0 0 0 0 0 0</td></tr><tr><td colspan="6">CLASSIFICATION</td></tr><tr><td colspan="6">SECRET</td></tr><tr><td>MESSAGE HANDLING INDICATOR</td><td>DATE - TIME GROUP</td><td>DISPATCH NUMBER</td><td>FAM</td><td>-</td><td>4125</td></tr><tr><td>TELEPOUCH</td><td></td><td></td><td colspan="3"></td></tr></tbody></table>
 

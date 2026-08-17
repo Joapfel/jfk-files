@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18676.png
-
-Convert to MarkdownAUG. 6, 1975 DCC
+AUG. 6, 1975 DCC
 
 NR002 PH PLAIN
 417 PM URGENT AUG.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24499.png
-
-Convert to Markdownsmall importance,
+small importance,
 
 The second assumption on which our governments base their decision to renew diplomatic relations with Russia is to imagine that the intentions of international Communists have changed and that subversion of con-
 

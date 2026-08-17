@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13378.png
-
-Convert to MarkdownSTURGIS: Yes, sir, with my close working association with
+STURGIS: Yes, sir, with my close working association with
 Sam Jenis.
 
 OLSEN: Do you know whether Sam Jenis had any interests or activities other than acting as an agent for the CIA?

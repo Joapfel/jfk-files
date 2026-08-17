@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23635.png
-
-Convert to MarkdownWe also discussed briefly the recommendation number 16 and we agreed that we would make some change in the language relating to what in effect is the re-establishment of the board of national estimates to make clear that they weren't there just for the purpose of endorsing estimates but from the standpoint that they are there for the purpose of reviewing them.
+We also discussed briefly the recommendation number 16 and we agreed that we would make some change in the language relating to what in effect is the re-establishment of the board of national estimates to make clear that they weren't there just for the purpose of endorsing estimates but from the standpoint that they are there for the purpose of reviewing them.
 
 So the next recommendation is recommendation 17, and it is long and complicated. Essentially what the recommendation does is spell out more precisely what the DCI's responsibilities will be for the overall allocation of resources and coordination of the community's activities apart from the production of finished intelligence, which is the purpose of recommendation 16.
 

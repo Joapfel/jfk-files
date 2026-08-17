@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30535.png
-
-Convert to MarkdownSECRET
+SECRET
 
 There is a confidential filing system by which name, position, salary & 201 called a true name index.
 

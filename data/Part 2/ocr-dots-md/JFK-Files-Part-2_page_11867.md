@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11867.png
-
-Convert to Markdown"SECRET - NO FOREIGN DISSEMINATION"
+"SECRET - NO FOREIGN DISSEMINATION"
 
 10. Symbol numbers
 

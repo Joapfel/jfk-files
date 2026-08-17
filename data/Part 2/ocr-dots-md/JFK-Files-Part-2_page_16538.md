@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16538.png
-
-Convert to MarkdownCopy to:
+Copy to:
 
 Office:
 

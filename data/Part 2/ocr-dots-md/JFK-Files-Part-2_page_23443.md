@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23443.png
-
-Convert to Markdown2. Was the Special Group, Mr. Gray, or President Eisenhower aware that Assistant Secretary of State Rubottom was reported, on July 1, 1960, by the CIA Western Hemisphere Division Chief to have approved delivery of high-powered rifles with telescopic sights to Trujillo opponents? (Exhibit at Tab YZ)
+2. Was the Special Group, Mr. Gray, or President Eisenhower aware that Assistant Secretary of State Rubottom was reported, on July 1, 1960, by the CIA Western Hemisphere Division Chief to have approved delivery of high-powered rifles with telescopic sights to Trujillo opponents? (Exhibit at Tab YZ)
 
 3. When President Eisenhower was reported at the July 28, 1960, NSC meeting to have said that "until Trujillo is eliminated . . .", was he referring to an assassination? (Exhibit at Tab M)
 

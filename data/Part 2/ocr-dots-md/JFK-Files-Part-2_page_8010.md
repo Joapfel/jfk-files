@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8010.png
-
-Convert to Markdownhave to be done rationally. I also believe that it
+have to be done rationally. I also believe that it
 will have to be done by humanists, and that before
 they can do it, we have somehow to lower, or at least
 make more permeable, the barrier that separates the

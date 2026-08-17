@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6554.png
-
-Convert to MarkdownNATIONAL SECURITY INFORMATION
+NATIONAL SECURITY INFORMATION
 Unauthorized Disclosure
 Subject to Criminal Sanctions
 

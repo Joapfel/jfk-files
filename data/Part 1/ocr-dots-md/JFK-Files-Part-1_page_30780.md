@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30780.png
-
-Convert to MarkdownSTANDARD FORM 61 (REVISED AUGUST 1940)
+STANDARD FORM 61 (REVISED AUGUST 1940)
 PROMulgated by the Civil Service Commission
 FEDERAL PERSONNEL MANUAL
 

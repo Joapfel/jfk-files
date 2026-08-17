@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33634.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Executive Committee in New York often confer, and reach certain agreements, with high ranking individuals in CIA and the Department of State without consulting, or even informing, anyone else. This has led to a great deal of confusion, duplication of work and, of course, embarrassment.
 

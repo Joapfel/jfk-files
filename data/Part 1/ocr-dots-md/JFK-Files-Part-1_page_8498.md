@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8498.png
-
-Convert to Markdown14-0000
+14-0000
 
 MEMORANDUM FOR THE RECORD
 SUBJECT: Telecon with LIROBBIN-2 on 12 July 1967 P-11665

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7232.png
-
-Convert to MarkdownJanuary 27, 1975
+January 27, 1975
 
 Honorable John O. Pastore
 United States Senate

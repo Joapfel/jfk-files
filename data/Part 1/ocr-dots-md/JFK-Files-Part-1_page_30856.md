@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30856.png
-
-Convert to MarkdownSECURE
+SECURE
 (See page 10)
 
 <table>

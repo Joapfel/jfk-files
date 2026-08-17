@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18787.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 III. JAFFE is employed as a news reporter by the Columbia Broadcasting System in NYC and resides at 200 East End Ave., NYC, with his wife and 2 children. He was born on 6/19/29, in San Francisco, California.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14983.png
-
-Convert to MarkdownINVESTIGATION OF THE ASSASSINATION OF PRESIDENT JOHN F. KENNEDY
+INVESTIGATION OF THE ASSASSINATION OF PRESIDENT JOHN F. KENNEDY
 BY NEW ORLEANS DISTRICT ATTORNEY JAMES C. GARRISON
 
 In December, 1966, we received information that New Orleans District Attorney James C. Garrison was conducting an investigation of the assassination of the late President Kennedy. Garrison reported-ly was attempting to develop evidence showing that David William Ferrie, a homosexual who was a former airlines pilot, and Lee Harvey Oswald conspired with anti-Castro Cubans to assassinate President Kennedy.

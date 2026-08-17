@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7670.png
-
-Convert to Markdown3.
+3.
 
 On 12 December, Logvinov came announced to Subject's office and prevailed on his so soon coöperate with him nearby. The Soviet presented Subject with four bottles of cigaure for Christmas, and began to ask Subject a series of personal questions: if he had Subject left Inland for Jussia after III - had his documentation been lettered or III? Subject answered that it was legal.
 

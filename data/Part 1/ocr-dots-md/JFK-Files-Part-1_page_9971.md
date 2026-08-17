@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9971.png
-
-Convert to Markdown2.
+2.
 
 taking the bus at Torreón. LIRING/3 then announced jubilantly that a few
 days after his return, while he was visiting the safehouse in the hope

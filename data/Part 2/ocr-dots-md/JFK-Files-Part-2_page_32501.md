@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32501.png
-
-Convert to Markdown~~Top SECRET - SENSITIVE~~
+~~Top SECRET - SENSITIVE~~
 
 Latino viewpoints. We are very close to putting ourselves into the position of the Tsarist gendarmes who tried to use brute force against the power of ideas. The trap is that we may seem thereby to be acknowledging the decline and imminent fall of our own ideas.
 

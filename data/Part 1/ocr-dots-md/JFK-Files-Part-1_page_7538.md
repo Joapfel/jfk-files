@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7538.png
-
-Convert to Markdown1. Two-thirds of the world: Problems of a new approach to the peoples of Asia, Africa, and Latin-America, - 1950
+1. Two-thirds of the world: Problems of a new approach to the peoples of Asia, Africa, and Latin-America, - 1950
 
 2. New Cycle in Asia: Selected documents on major international developments in Far East, 1943 and 1947 - notes and introduction 1967.
 

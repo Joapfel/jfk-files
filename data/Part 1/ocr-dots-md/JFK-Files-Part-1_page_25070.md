@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25070.png
-
-Convert to MarkdownSECRET
+SECRET
 
 24 Dec 58 IN 60590✓
 

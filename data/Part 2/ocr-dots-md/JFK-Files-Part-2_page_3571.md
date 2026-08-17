@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3571.png
-
-Convert to MarkdownNOTES
+NOTES
 
 A. **Cuba** The U-2 which flew yesterday's mission over Cuba crashed while returning, about 40 miles north of Key West. Air and sea rescue craft were sent to the scene. An air rescue unit sighted an unopened parachute, a life raft, and oil slick in the crash area. The pilot is presumed lost. There is no indication that the plane was attacked.
 

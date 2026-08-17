@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8023.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. The Servicio de Inteligencia Militar (SEI) is reported to have raised anti-Fatista propaganda issued by the "Protestant Christian Underground Committee." The propaganda was found on the part of an Orfeo leader from Oriente Province, who was detained by SEI on 3 January 1954.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5468.png
-
-Convert to MarkdownVI. Outstanding previously requested materials; access to screen for delivery requested by Friday, August 8, 1975:
+VI. Outstanding previously requested materials; access to screen for delivery requested by Friday, August 8, 1975:
 
 A. A list of all warrantless electronic surveillances identified by subject and target which were instituted or operated by, for, on behalf of, or at the request of the FBI from January 1, 1960, until the present, requested on May 14, 1975, Appendix D, item 3.
 

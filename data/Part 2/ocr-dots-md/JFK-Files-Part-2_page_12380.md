@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12380.png
-
-Convert to Markdown### [A. DEFINITIONS
+### [A. DEFINITIONS
 
 1. **Security informant** Individual actively engaged in obtaining and furnishing current information on security or intelligence matters exclusively for Bureau whose identity must be protected. Such person should be member or attend meetings of subversive organization, or be in such position relative to subversive organization that he is able to provide current information of value.
 

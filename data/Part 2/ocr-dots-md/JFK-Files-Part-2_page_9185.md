@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9185.png
-
-Convert to Markdownor another individual was currently giving him instruc-
+or another individual was currently giving him instruc-
 tions on rappelling walls and cliffs.
 
 STAFFORD, advised that EJDM is described as

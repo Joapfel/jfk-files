@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27801.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Tom Howarth, Budget Officer
 FROM: Charlie Mathews, Special Counsel

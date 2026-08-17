@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3174.png
-
-Convert to Markdownsmn 9
+smn 9
 
 1786
 

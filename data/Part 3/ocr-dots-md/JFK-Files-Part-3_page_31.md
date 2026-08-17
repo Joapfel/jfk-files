@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_31.png
-
-Convert to MarkdownIn November OCI Helms talked with Drexel Godfrey and Richard Lehman about the PDB. The Director expressed great satisfaction with both the Brief and Special Report. He said the latter was "really hitting the mark." He urged that OCI try harder to PREPARE come up with items on the personalities of men familiar to the President, who thinks in terms of personalities. Helms also asked that the PDB give more attention to coming visits of world VIPs to Washington and to each other.
+In November OCI Helms talked with Drexel Godfrey and Richard Lehman about the PDB. The Director expressed great satisfaction with both the Brief and Special Report. He said the latter was "really hitting the mark." He urged that OCI try harder to PREPARE come up with items on the personalities of men familiar to the President, who thinks in terms of personalities. Helms also asked that the PDB give more attention to coming visits of world VIPs to Washington and to each other.
 
 No major changes in the PDB were made during President Johnson's time after the introduction of the Special North Vietnamese Report. To all appearances, the Brief had evolved into a document satisfactory to the President, and it kept serving its purpose throughout the rest of the administration.
 

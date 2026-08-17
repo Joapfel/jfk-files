@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16791.png
-
-Convert to Markdown<table><thead><tr><td>DISPATCH</td></tr></thead><tbody><tr><td>Chief, WH Division</td></tr><tr><td>Chief, WOMOLD</td></tr><tr><td>Chief of Station, Mexico City</td></tr><tr><td>LIENVOY/Completion of Training Report (Training Cryptonym-DAVALILLO)</td></tr></tbody></table>
+<table><thead><tr><td>DISPATCH</td></tr></thead><tbody><tr><td>Chief, WH Division</td></tr><tr><td>Chief, WOMOLD</td></tr><tr><td>Chief of Station, Mexico City</td></tr><tr><td>LIENVOY/Completion of Training Report (Training Cryptonym-DAVALILLO)</td></tr></tbody></table>
 
 ACTION REQUIRED - REFERENCES
 

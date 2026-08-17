@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11839.png
-
-Convert to Markdown2. Submit quarterly letter (FD-451b) to Bureau by secure teletype system (HITEL). Quarterly letter should include the following:
+2. Submit quarterly letter (FD-451b) to Bureau by secure teletype system (HITEL). Quarterly letter should include the following:
 
 a. Name, location and number of subversive groups including identities of groups on college campuses, exclusive of those in black extremist, white hate or espionage matters.
 

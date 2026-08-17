@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11872.png
-
-Convert to Markdown<table><tr><td colspan="2">10-06</td></tr></table>
+<table><tr><td colspan="2">10-06</td></tr></table>
 
 REVIEWED:
 

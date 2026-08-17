@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18784.png
-
-Convert to MarkdownDespatch: No. 637
+Despatch: No. 637
 File No. 125,42
 John J. McDonald, ad
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8600.png
-
-Convert to Markdown(3) Seller's Agent shall deliver the first shipment and the docu- ment as at the Foreign Commercial Lab., within twenty (20) banking days after the posting of the letter of credit and thereafter shall continue such deliveries until all of said Platinum has been delivered, such delivery of all of said Platinum to be completed within One Hundred Eighty (180) days after the posting of the letter of credit.
+(3) Seller's Agent shall deliver the first shipment and the docu- ment as at the Foreign Commercial Lab., within twenty (20) banking days after the posting of the letter of credit and thereafter shall continue such deliveries until all of said Platinum has been delivered, such delivery of all of said Platinum to be completed within One Hundred Eighty (180) days after the posting of the letter of credit.
 
 (4) For the payment of such transaction, the Seller's Agent shall cause to be exhibited to the Buyer's Agent the documentation to be delivered to Buyer's Agent to effect said sale, to-wit: (a) Warehouse receipt, (b) Intransit permit and (c) Assay report;
 

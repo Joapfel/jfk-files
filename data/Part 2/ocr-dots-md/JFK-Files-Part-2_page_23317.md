@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23317.png
-
-Convert to Markdown1 informed him this cannot be true or I would know and when he
+1 informed him this cannot be true or I would know and when he
 2 requested me supply arms through him for dissidents, I told
 3 him it was impossible. He is greater danger because of
 4 personal embitterment against CAS, a matter of which CAS head-

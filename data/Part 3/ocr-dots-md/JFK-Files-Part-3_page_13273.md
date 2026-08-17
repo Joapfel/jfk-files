@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_13273.png
-
-Convert to Markdown-3-
+-3-
 
 Not I know that the investigation of this tragic event is in good stands. It is a most important responsibility. Its results will have manifold implications for the future. I wish you well.

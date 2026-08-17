@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4352.png
-
-Convert to Markdown28. FRANCISCO CATELLA, jefe del interior, está en la Universidad de la Habana, este en el parte superior y la Ia., 16. Jovenes con IDa., tice la fumiga de asimismo que abandonan las cajas al traslajarle al extranjero, vino en la misma dirección de su padre.
+28. FRANCISCO CATELLA, jefe del interior, está en la Universidad de la Habana, este en el parte superior y la Ia., 16. Jovenes con IDa., tice la fumiga de asimismo que abandonan las cajas al traslajarle al extranjero, vino en la misma dirección de su padre.
 
 EDUARDO PÉREZ, cuenca de la casa Caliente (asentos eléctricos en la calle San Juan) esq. a Trujillo, miembro de las Milicias, aunque no ha usado uniforme, ni embako del C.D.A. de su barrio, y se le acerca como activo delator, es decir, activo del C-2, vivo en el residencial Mayboque...
 

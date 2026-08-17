@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5407.png
-
-Convert to MarkdownThe following is my humble appraisal of the political situation
+The following is my humble appraisal of the political situation
 now prevailing in Haiti.
 
 As I repeatedly stated to anyone who may have asked me, my moti-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26956.png
-
-Convert to MarkdownMiami Herald
+Miami Herald
 
 24 March 1967
 

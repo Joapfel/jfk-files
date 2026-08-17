@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23848.png
-
-Convert to Markdown1 anything like that.
+1 anything like that.
 
 2 Mr. diGenova. And the reason for that is every other
 

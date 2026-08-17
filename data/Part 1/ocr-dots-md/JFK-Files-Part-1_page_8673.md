@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8673.png
-
-Convert to Markdown2.03 Muy porgemado (ajado)
+2.03 Muy porgemado (ajado)
 2.01 Desalizado (chocante)
 2.10 Modo de vestir
 

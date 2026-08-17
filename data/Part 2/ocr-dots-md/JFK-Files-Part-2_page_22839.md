@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22839.png
-
-Convert to Markdown54
+54
 
 closely associated now. So, I see him and talk with him frequently, both about substance of matters of international development, and about the business of the Ford Foundation.
 

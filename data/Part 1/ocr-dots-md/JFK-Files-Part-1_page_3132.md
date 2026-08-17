@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3132.png
-
-Convert to MarkdownY muy cauta y también muy atenta.
+Y muy cauta y también muy atenta.
 
 A causa de sus coles parece ser despotica, pero es más pese siva. Reta muy a menudo a su marido. En asuntos domesticos dirige la batuta. Pero en casos en que se tema decisión de caracter financiero-familiar y sobre todo en casos que con- ciernen al trabajo, es el marido quien manda. No es sumisa, discute acaloradamente, pero si su marido decide algo, le bastan 2-3 palabras en el tone tajante para pararla en seco. Entonces le obedece sin chistar siquiera. Respeta en el fon- do a su marido, aunque a veces muestra toda le contrarie.
 

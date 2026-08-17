@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1037.png
-
-Convert to Markdown14-00000
+14-00000
 
 1. HSCA Request, 22 December 1977 (OLC #77-5685/4) for access to files or documents on or referring to:
 

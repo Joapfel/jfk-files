@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9859.png
-
-Convert to Markdown19 March, 1968
+19 March, 1968
 
 Subject: LILING/3 Report of Contact with Memebers of FAR, Guatemala.
 

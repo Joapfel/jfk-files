@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17435.png
-
-Convert to Markdown26 March 1963
+26 March 1963
 
 MEMORANDUM FOR: Chief, Task Force Washington
 

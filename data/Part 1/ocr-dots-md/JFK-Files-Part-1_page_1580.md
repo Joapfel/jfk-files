@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1580.png
-
-Convert to MarkdownSECRET
+SECRET
 
 for MONCURE, who was apprehensive of Mafia retaliation because
 of his involvement with Itkin.

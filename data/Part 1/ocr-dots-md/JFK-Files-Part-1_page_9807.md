@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9807.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>DISPATCH SYMBOL AND NUMBER<br/>HUMA - 34484</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>DISPATCH SYMBOL AND NUMBER<br/>HUMA - 34484</td></tr></table>
 
 "consejo superior" of LIRING, of which he said he was a member, had not yet taken up her case. This was indirectly confirmed by LIRING-16, who told LIRING-4 the same day that nothing about her visa case had yet been sent to PBRUMEN as he would otherwise know it, since he handled all visa correspondence.
 

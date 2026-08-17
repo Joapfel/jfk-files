@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21821.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 only remained for about two months after I arrived.
 

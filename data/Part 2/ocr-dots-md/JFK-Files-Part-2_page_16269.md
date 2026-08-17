@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16269.png
-
-Convert to Markdown# STUDENTS FOR A DEMOCRATIC SOCIETY
+# STUDENTS FOR A DEMOCRATIC SOCIETY
 
 A source has advised that the Students for a Democratic Society (SDS), as it is known today, came into being at a founding convention held at Port Huron, Michigan, in June, 1962. From an initial ideological posture of "participatory democracy," the current line of the national leadership reveals an adherence to Marxism-Leninism. Michael Klonsky, National Secretary, in March, 1963, called for the building of a revolutionary Marxist-Leninist movement. The program of SDS has moved from involvement in civil rights struggles to an anti-Vietnam war position and finally to its present advocacy of an anti-imperialist line, linking up the oppressed peoples of Asia, Africa and Latin America with the black liberation movement in the United States. China, Vietnam and Cuba are regarded as countries which are leading the world-wide struggles against United States imperialism. On the other hand, SDS regards the Soviet Union as an imperialist power and does not support the policies of that country.
 

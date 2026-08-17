@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26083.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CI PROJECTS C.A. U.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1356.png
-
-Convert to MarkdownBIOGRAPHICAL INFORMATION
+BIOGRAPHICAL INFORMATION
 
 NAME : Mr. Robert Prontiss Wheeler
 GRADE : GS-15

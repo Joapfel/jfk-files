@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9953.png
-
-Convert to Markdown"Individual Identification data including name or names, addresses, photograph (or statement as to availability of such), physical description, date and place of birth, employment, and marital status.
+"Individual Identification data including name or names, addresses, photograph (or statement as to availability of such), physical description, date and place of birth, employment, and marital status.
 
 "Organization - Name or names, address or addresses, officers, size, purpose or goals of organization, source of financial support, background data and such other relevant information as may be available.
 

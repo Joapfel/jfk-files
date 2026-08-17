@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4180.png
-
-Convert to MarkdownThis Administration has spent a good many millions more than has been appropriated for Space and Defense -- and perhaps we should spend more.
+This Administration has spent a good many millions more than has been appropriated for Space and Defense -- and perhaps we should spend more.
 
 One of our big jobs will be to persuade our colleagues in Europe to do a better job themselves. If we maintain six divisions in Europe and they only maintain a force which will permit them to fight only two or three days -- if we have sufficient force to fight and supply for ninety days and those around us can only fight for two or three days, then we should take another look. France carries their burden abroad, but not in Europe. We should consider very hard the narrow interests of the United States as well as the interests of the Free World. If we grown weak economically, our influence will grow less and less and if that happens, our Free World's position will grow weaker. De Gaulle is basing his whole position on the position of the United States. He can do this because he feels we will maintain our military power in Europe and he can bank on it.
 

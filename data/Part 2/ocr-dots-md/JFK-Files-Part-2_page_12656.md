@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12656.png
-
-Convert to Markdowna. Communist-action organizations
+a. Communist-action organizations
 (1) Definition (§ 782)
 Term "communist-action organization" means any organization in U. S. (other than diplomatic representative or mission of foreign government accredited by Department of State) which is substantially directed, dominated, or controlled by foreign government or foreign organization controlling world communist movement (referred to in section 781) and which operates primarily to advance objectives of world communist movement.
 (2) Factors to be considered by Subversive Activities Control Board (SACB) in determining whether organization is communist-action organization (§ 792)

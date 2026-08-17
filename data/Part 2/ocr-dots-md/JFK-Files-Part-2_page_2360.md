@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2360.png
-
-Convert to MarkdownARTICLE XV. Special Provisions. The following special pro-
+ARTICLE XV. Special Provisions. The following special pro-
 visions shall apply to the Employee under this contract:
 
 Part (a) of Section 3 of ARTICLE II shall not apply to employees who have served in a departmental position with CIA or who have served an overseas tour of duty with CIA, and in such case, part (b) of Section 3 of ARTICLE II shall be deemed amended to read as follows: "(b) If the employee desires to terminate or return to the United States prior to the expiration of twenty-four months from the date of his arrival at his overseas post of duty, he shall pay all expenses for the travel and transportation of himself, his immediate family, household goods and personal effects to the United States."

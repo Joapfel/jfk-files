@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_27030.png
-
 s, regarding the New York Times article by Seymour Hersh of December 29, 1974.
 
 16. All files regarding technical coverage by United States Government agencies of the Israeli Embassy in Washington, D.C. and of the Chilean Embassy and Chilean U. N. Mission Offices in New York City and private residences of Chilean diplomats in America (FI/Staff D, OC, WH, CI, TSD)

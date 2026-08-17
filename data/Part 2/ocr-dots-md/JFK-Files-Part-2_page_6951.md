@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6951.png
-
-Convert to Markdown* Long-lost films taken in Dallas on November 22, 1963, that the public had never seen and that shed new light on the events of that day; and
+* Long-lost films taken in Dallas on November 22, 1963, that the public had never seen and that shed new light on the events of that day; and
 
 * Private collections of records from individuals including Warren Commission attorney Wesley Liebler, author David Lifton, FBI Special Agent Hosty, Attorney Frank Ragano, as well as others.
 

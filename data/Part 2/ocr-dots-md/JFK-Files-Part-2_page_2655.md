@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2655.png
-
-Convert to MarkdownSEC. 14. ACTIVE U.S. OR FOREIGN MILITARY SERVICE
+SEC. 14. ACTIVE U.S. OR FOREIGN MILITARY SERVICE
 
 U.S.A.
 (Country)

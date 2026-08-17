@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30144.png
-
-Convert to MarkdownSec.II. Par.3.
+Sec.II. Par.3.
 
 From 19 May 1941 To 2 November 1941 Total Months 30
 Military Service

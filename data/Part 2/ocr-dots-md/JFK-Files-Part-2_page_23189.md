@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23189.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 American flight coming into the United States, and the refugees coming to identify agents on that, identify agents who might be trying to penetrate our parochialistic tends or one of our collection of operations.
 

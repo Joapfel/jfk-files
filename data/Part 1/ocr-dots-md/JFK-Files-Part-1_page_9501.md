@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9501.png
-
-Convert to Markdown3. All of these matters will have to be ironed out and coordinated. Routing matters will be in hands of Miss Johnson, P.E.II. She will be in contact with Carpenter and will know all details concerning travel order, advance, entry permit, and passport, so far as necessary cooperation from Carpenter's office is concerned. Arrangements should be completed, if practicable, on Monday, 10 April.
+3. All of these matters will have to be ironed out and coordinated. Routing matters will be in hands of Miss Johnson, P.E.II. She will be in contact with Carpenter and will know all details concerning travel order, advance, entry permit, and passport, so far as necessary cooperation from Carpenter's office is concerned. Arrangements should be completed, if practicable, on Monday, 10 April.
 
 Louis Glazer
 

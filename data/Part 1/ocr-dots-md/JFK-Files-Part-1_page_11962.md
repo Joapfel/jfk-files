@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11962.png
-
-Convert to MarkdownSECRET
+SECRET
 
 S E C R E T 171845Z JAN 74 STAFF
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31581.png
-
-Convert to Markdown# SEC.1.
+# SEC.1.
 Security Information
 
 19 August 1953

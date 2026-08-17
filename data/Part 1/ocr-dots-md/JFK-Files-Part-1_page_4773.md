@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4773.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>7-10/26</td>
    </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2842.png
-
-Convert to MarkdownNR048 WA CODE
+NR048 WA CODE
 
 4:38PM IMMEDIATE 6/18/75 GHS
 

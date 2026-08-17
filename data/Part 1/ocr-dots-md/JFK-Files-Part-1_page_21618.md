@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21618.png
-
-Convert to MarkdownThe previous summary also stated that despite his claimed active commissioned service in the Navy, NOSENKO knew nothing of Soviet Navy tradition, doctrines, or organization of procedures. It should be noted that there is a considerable difference between being a member of the Naval RU and being an actual member of the Soviet Navy. The situation could be compared to a career civilian employee of the Office of Naval Intelligence and a line officer in the United States Navy.
+The previous summary also stated that despite his claimed active commissioned service in the Navy, NOSENKO knew nothing of Soviet Navy tradition, doctrines, or organization of procedures. It should be noted that there is a considerable difference between being a member of the Naval RU and being an actual member of the Soviet Navy. The situation could be compared to a career civilian employee of the Office of Naval Intelligence and a line officer in the United States Navy.
 
 Attachments:
 * List of GRU Personnel as Prepared by NOSENKO

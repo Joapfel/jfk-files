@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9816.png
-
-Convert to Markdown9 March, 1968
+9 March, 1968
 
 Subject: LIRING/4 Report of Contact with LIRING/2 and LIRING/9.
 

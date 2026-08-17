@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1249.png
-
-Convert to MarkdownCNS: C/104
+CNS: C/104
 
 SAS (E)
 

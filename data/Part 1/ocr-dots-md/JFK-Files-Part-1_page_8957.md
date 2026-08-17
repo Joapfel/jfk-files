@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8957.png
-
-Convert to Markdown14-08000
+14-08000
 
 ORIG: LOUIS P. NAPOLI; dk
 UNIT : WU/2 1636

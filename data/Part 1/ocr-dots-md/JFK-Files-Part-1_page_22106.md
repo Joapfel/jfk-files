@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22106.png
-
-Convert to Markdown265.
+265.
 
 [ Summing up ] "To be perfectly frank, I would assume that...some of our modus operandi, some of our targets, some of the results, and all of our personal weaknesses were compromised. This is not a very definite answer; however, it is the best estimate I can make."
 

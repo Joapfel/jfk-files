@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9441.png
-
-Convert to MarkdownMr. W. R. Vannall
+Mr. W. R. Vannall
 W. O. Crogar
 
 HOUSTUDY 75

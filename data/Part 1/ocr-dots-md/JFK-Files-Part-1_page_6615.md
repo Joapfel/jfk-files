@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6615.png
-
-Convert to Markdown<table><tr><td>Postage<br/>Will be Paid<br/>by<br/>Addressee</td></tr></table>
+<table><tr><td>Postage<br/>Will be Paid<br/>by<br/>Addressee</td></tr></table>
 
 <table><tr><td>No<br/>Postage Stamp<br/>Necessary<br/>If Mailed in the<br/>United States</td></tr></table>
 

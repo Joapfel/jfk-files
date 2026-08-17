@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20967.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 In Reply, Please Refer to
 File No.

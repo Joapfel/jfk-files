@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23553.png
-
-Convert to MarkdownJOHN O. CAVADOZ
+JOHN O. CAVADOZ
 2298
 
 7 DECEMBER 1953

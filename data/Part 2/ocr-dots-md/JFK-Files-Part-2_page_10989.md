@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10989.png
-
-Convert to MarkdownOctober 28, 1963
+October 28, 1963
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 134

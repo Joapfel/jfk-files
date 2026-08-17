@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_25283.png
-
 at Petty Officer's School in 1959, and currently is an aide to ViceADMIRAL, Inspecteur General of the Navy.)
 
 3. On 6 September RAMONZON contacted Consulate Alfonso CASTILLOS Comes and asked when they were going to hear Mexican music. Arrangements were made to get together at 6:00 p.m. on 22 September at RAMONZON's home. Bothan sent greetings to each other's families.

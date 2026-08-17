@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8774.png
-
-Convert to MarkdownVenezuelan terrorist, Carlos SAVELLI Maldonado, by own admission met on 30 April and 1 May 1965 with leftist extremist reps. to discuss assassination of, among others, American ambassador (presumably American ambassador to Venezuela).
+Venezuelan terrorist, Carlos SAVELLI Maldonado, by own admission met on 30 April and 1 May 1965 with leftist extremist reps. to discuss assassination of, among others, American ambassador (presumably American ambassador to Venezuela).
 
 AMSANTA Project 19-6-73/3
 

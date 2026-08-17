@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24024.png
-
-Convert to MarkdownKissinger, in his testimony before the Committee, regarded the CIA memorandum of conversation as substantially correct, although somewhat more detailed than he would have remembered. (Kissinger testimony, p. 52) He believed the Agency had been told to "stand down and preserve your assets."
+Kissinger, in his testimony before the Committee, regarded the CIA memorandum of conversation as substantially correct, although somewhat more detailed than he would have remembered. (Kissinger testimony, p. 52) He believed the Agency had been told to "stand down and preserve your assets."
 
 Kissinger believed that the gist of the October 15th meeting as recorded in the CIA memorandum was incompatible with the order the CIA issued to its Station the next day, an order ostensibly based on the October 15th meeting. And, he noted, in writing its memorandum of the meeting of the 15th, the CIA had a "high incentive to preserve the maximum degree of authority." (Ibid., pp. 55-56) The October 16th order indicated that Track II had been reviewed at "high USG level" the previous day, and stated:
 

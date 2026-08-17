@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13934.png
-
-Convert to MarkdownSAC, Albany
+SAC, Albany
 
 12/26/72
 

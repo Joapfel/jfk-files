@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23568.png
-
-Convert to MarkdownSan Jose de Costa Rica, Octubre 6 de 1953.
+San Jose de Costa Rica, Octubre 6 de 1953.
 
 Senor
 D. Ross L. Crozier

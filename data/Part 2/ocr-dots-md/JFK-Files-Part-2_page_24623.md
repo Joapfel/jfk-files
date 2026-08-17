@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24623.png
-
-Convert to MarkdownDulles also authorized the expenditure of up to $100,000 "TO CARRY OUT ANY CRASH PROGRAMS ON WHICH YOU DO NOT HAVE THE OPPORTUNITY TO CONSULT HQS" (CIA Cable, 8/26/60). He assured the Chief of Station that the message had been "SEEN AND APPROVED AT COMPETENT LEVEL" in the State Department (CIA Cable, 8/26/60).
+Dulles also authorized the expenditure of up to $100,000 "TO CARRY OUT ANY CRASH PROGRAMS ON WHICH YOU DO NOT HAVE THE OPPORTUNITY TO CONSULT HQS" (CIA Cable, 8/26/60). He assured the Chief of Station that the message had been "SEEN AND APPROVED AT COMPETENT LEVEL" in the State Department (CIA Cable, 8/26/60).
 
 But the Director of Central Intelligence made a special point of assuring the Chief of Station that he was authorized to act unilaterally in a case where the United States Ambassador to the Congo would prefer to remain uninformed:
 

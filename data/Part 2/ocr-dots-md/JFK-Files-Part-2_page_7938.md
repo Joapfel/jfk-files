@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7938.png
-
-Convert to Markdown13-00000
+13-00000
 
 (Planner, Jena) ("Censt," podn.) "Letters from Paris." New York, 7 December 1963, pp. 133-134.
 

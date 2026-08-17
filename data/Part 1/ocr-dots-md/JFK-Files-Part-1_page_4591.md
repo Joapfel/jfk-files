@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4591.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">DISPATCH</td></tr><tr><td>Chief of Station, Panama City</td><td>PANAMA CITY</td></tr><tr><td>Chief of Camp, D.C.</td><td>D.C. CAMP</td></tr><tr><td colspan="2">Gulch, Western District Division</td></tr><tr><td colspan="2">Grid of a Telegraph ( concerning the Divisions Intransmissible de Recovery </td></tr><tr><td colspan="2">ReceIVED: Recoveries (All) are Forwarded Directly by Grids to H.M.S. Avila (801-300-50)</td></tr><tr><td>Action:</td><td>Panama City: See Paragraph 3<br>JACKSON: See Paragraph 4</td></tr><tr><td>References:</td><td>A. DEC-2326, dated 15 July 1968 (Not sent Panama City or JC) B. DEC-2043, dated 27 July 1968 (Not sent Panama City or JC)</td></tr></table>
 

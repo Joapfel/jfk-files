@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_874.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">GASL E IS D/ISSEM BY Z PER</td>
     <td>OTAL COPIES 22</td>

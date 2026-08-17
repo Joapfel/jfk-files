@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8318.png
-
-Convert to MarkdownSECURITY : UNCLASSIFIED
+SECURITY : UNCLASSIFIED
 
 -4-
 

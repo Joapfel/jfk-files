@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5668.png
-
-Convert to MarkdownENCLOSURE A
+ENCLOSURE A
 
 C-O-N-F-I-D-E-N-T-I-A-L
 

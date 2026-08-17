@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11181.png
-
-Convert to MarkdownIV. Changes, additions, and deletions of data appearing in section II: reserve index cards
+IV. Changes, additions, and deletions of data appearing in section II: reserve index cards
 
 (A) Changed in c... appearing on section A reserve index cards should be submitted to the Bureau form FD-122a.
 

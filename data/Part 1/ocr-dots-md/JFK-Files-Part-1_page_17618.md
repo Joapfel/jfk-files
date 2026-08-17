@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17618.png
-
-Convert to MarkdownAttachment to IRA-A-10198
+Attachment to IRA-A-10198
 NAPCK-1401
 
 PROJECT OUTLINES

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20751.png
-
-Convert to MarkdownThe Women's National Abortion
+The Women's National Abortion
 Action Coalition
 
 A National WOMAAC structure proposal was presented, which stated in part as follows:

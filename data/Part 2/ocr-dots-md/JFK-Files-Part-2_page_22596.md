@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22596.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The United States Senate
 

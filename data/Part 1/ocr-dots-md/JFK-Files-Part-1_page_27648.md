@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27648.png
-
-Convert to Markdown19 MAR 1976
+19 MAR 1976
 
 MEMORANDUM FOR: Deputy Director for Operations
 SUBJECT : Appointment of Mr. Thomas J. Keenan as Chief, Mexico and Central America Branch

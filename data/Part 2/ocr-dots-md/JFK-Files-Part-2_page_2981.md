@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2981.png
-
-Convert to MarkdownSECRET
+SECRET
 
 facilities provided the Kennedy administration with positive information on the buildup of Soviet missile capability on the island. This episode is documented elsewhere and is outside the scope of this present paper.
 

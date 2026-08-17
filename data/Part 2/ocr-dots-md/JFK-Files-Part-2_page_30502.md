@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30502.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # CERTIFICATE OF REPORTER
 

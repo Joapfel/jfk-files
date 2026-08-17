@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14827.png
-
-Convert to Markdown# Brazil junta gives in
+# Brazil junta gives in
 
 RIO DE JANEIRO, Sept. 5 (UPI) - The Brazilian government bowed today to the demands of a band of very deter-mined men who kidnaped U.S. Ambassador C. Burke Elbrick and threatened to execute them.
 

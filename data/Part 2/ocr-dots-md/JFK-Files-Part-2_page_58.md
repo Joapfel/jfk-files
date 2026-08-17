@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_58.png
-
-Convert to Markdown27 May 1960
+27 May 1960
 
 MEMORANDUM FOR: Chief, CI/OA
 SUBJECT : Iris Albert FERRIS

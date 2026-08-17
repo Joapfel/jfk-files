@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16766.png
-
-Convert to MarkdownK16 .357 Magnum Colt revolver, Serial Number 56827 (Cisinski)
+K16 .357 Magnum Colt revolver, Serial Number 56827 (Cisinski)
 
 K17 .38 Special Smith and Wesson revolver, Serial Number 451863 (Jones)
 

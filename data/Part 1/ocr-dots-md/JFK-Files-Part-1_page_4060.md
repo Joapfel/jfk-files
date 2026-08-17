@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4060.png
-
-Convert to Markdown# Proceso de evaluación de los precios típicos de cada vareo, méjico y lechero para el año 1958. En base a la composición que se mide por un costivo lími- to superior, en las siguientes condiciones no se va a efectuar una comparación de tres años, limitando, en el caso de la varadero, a un adalما do tablas, asimular el costativo y conductas,uirar tina y alientus, y finalmente la pintura.
+# Proceso de evaluación de los precios típicos de cada vareo, méjico y lechero para el año 1958. En base a la composición que se mide por un costivo lími- to superior, en las siguientes condiciones no se va a efectuar una comparación de tres años, limitando, en el caso de la varadero, a un adalما do tablas, asimular el costativo y conductas,uirar tina y alientus, y finalmente la pintura.
 
 ## (a) Precios
 

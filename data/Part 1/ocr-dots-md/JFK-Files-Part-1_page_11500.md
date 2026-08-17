@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11500.png
-
-Convert to MarkdownSECRET
+SECRET
 
 México D. F. a 26 de enero de 1969.
 

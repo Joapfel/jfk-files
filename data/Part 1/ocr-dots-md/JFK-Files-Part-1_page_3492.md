@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3492.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: Telephone Conversation between AMBIDDY-1 and Martin Ferrer
 

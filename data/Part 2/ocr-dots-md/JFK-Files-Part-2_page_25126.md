@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25126.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Thich Tri Quang<br/>Diem</td><td>Aug. 21, 1963</td><td>Diem ✓ SECRET</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Thich Tri Quang<br/>Diem</td><td>Aug. 21, 1963</td><td>Diem ✓ SECRET</td></tr></tbody></table>
 
 ### OCCURRENCE:
 

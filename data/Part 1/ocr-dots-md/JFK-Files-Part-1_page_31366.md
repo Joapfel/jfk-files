@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31366.png
-
-Convert to Markdown(Cc)
+(Cc)
 
 - Cambridge, Mass., USA
 

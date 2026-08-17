@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_564.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 During the Summer of 1967, William Virgil Fowler, State Chairman and Honorary State Cyclops of the California Knights of the Ku Klux Klan (KKKK), departed the Los Angeles area leaving behind unpaid debts. Fowler moved to Stone Mountain, Georgia. The Los Angeles Office subsequently arranged to have letters, purportedly over the signature of Fowler, sent to his creditors instructing them to forward unpaid bills to James R. Venable, a Klan leader, for payment.
 

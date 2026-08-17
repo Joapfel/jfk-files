@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9520.png
-
-Convert to Markdown5
+5
 
 revolutionary music which neither Communism nor Nationalism have polluted
 (e. g., the Marsaillaise, Sorبان chutzuk song, Bringer zur Sonne nur

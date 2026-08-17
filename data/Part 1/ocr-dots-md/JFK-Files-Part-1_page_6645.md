@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6645.png
-
-Convert to MarkdownHe stated that he was in the export-export business and that he dealt in gold. He said that he had come to Panama to see a man by the name of SIS, a gold dealer from Buenos Aires, about gold shipments.
+He stated that he was in the export-export business and that he dealt in gold. He said that he had come to Panama to see a man by the name of SIS, a gold dealer from Buenos Aires, about gold shipments.
 
 6. On 8 July, Minister of Government Alfredo MURRAY reported the matter to the U.S. Ambassador stating that prior to arriving in Panama the plane had been signaled, that all was not well at the airport and that the crew had jettisoned cargo prior to arrival. (A check with the Air Force authorities does not confirm that any such message was sent and MURRAY denies that anything was jettisoned. He insisted that he was coming to Panama to discuss the gold business but that he had no cargo.) The Minister also advised the Ambassador that PASTOR Ponce had been fired as Head of the Airport.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4514.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>S E C R E T</td><td>DISPATCH SYMBOL AND NUMBER<br/>UFGA-17603</td></tr></table>
 

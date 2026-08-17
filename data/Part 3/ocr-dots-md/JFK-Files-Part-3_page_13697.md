@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13697.png
-
-Convert to Markdown7600NUSC1833
+7600NUSC1833
 
 gsh
 

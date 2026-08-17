@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25706.png
-
-Convert to Markdown# WHO AGENT BOARD
+# WHO AGENT BOARD
 
 ## Part III
 Chronological Narrative

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23716.png
-
-Convert to MarkdownDIAZ, PEDRO MANUEL
+DIAZ, PEDRO MANUEL
 
 75-6-4-322Y
 HVC-1579

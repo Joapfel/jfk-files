@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27911.png
-
-Convert to Markdown# TSS EVALUATION
+# TSS EVALUATION
 
 NAME Thomas J. Meehan
 DIVISION CRB/CRD

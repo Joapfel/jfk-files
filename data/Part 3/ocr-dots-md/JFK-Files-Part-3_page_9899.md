@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9899.png
-
-Convert to Markdown2. One form of this special consideration may include use of sanitization procedures to avoid the risk of exposing such matters and at the same time satisfy the Select Committee's need for a full understanding of the community's activities.
+2. One form of this special consideration may include use of sanitization procedures to avoid the risk of exposing such matters and at the same time satisfy the Select Committee's need for a full understanding of the community's activities.
 
 3. What May Be Sanitized
 

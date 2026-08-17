@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6937.png
-
-Convert to Markdownexaminations. He was asked whether he did it, and according to one
+examinations. He was asked whether he did it, and according to one
 source, he flunked that. He was asked whether anyone had ordered
 him to do it, and he is said to have flunked that question too.
 Materials regarding incidents of this kind should be fully

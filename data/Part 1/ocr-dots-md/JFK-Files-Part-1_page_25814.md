@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25814.png
-
-Convert to Markdowne. That GERENDE be taken off LIFEAT at once and all suspicious audio equipment be removed from his home or offices. At present, LIFEAT is the only illegal activity being engaged in by GERENDE; if he is made merely in connection with his physical surveillance activities he is not likely to be hurt by the Mexicans.
+e. That GERENDE be taken off LIFEAT at once and all suspicious audio equipment be removed from his home or offices. At present, LIFEAT is the only illegal activity being engaged in by GERENDE; if he is made merely in connection with his physical surveillance activities he is not likely to be hurt by the Mexicans.
 
 f. Concur preparations should be made to hide out GERENDE if it is known he is to be arrested.
 

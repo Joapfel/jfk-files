@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31117.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Amador Odio
 Loose Documents

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15664.png
-
-Convert to Markdown$4,000.00
+$4,000.00
 
 18 November 1960
 

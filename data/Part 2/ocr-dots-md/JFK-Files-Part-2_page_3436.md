@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3436.png
-
-Convert to MarkdownSECRET
+SECRET
 
 number one priority of Soviet operations here as elsewhere in the world.
 

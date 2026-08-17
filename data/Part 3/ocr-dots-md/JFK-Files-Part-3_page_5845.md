@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5845.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">
      OFFICIAL ORIGINAL

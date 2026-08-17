@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27727.png
-
-Convert to Markdown# Congress of the United States
+# Congress of the United States
 ## Employment Information Form
 
 MAJING ADDRESS:

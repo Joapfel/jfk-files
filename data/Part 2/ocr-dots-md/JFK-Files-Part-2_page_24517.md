@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24517.png
-
-Convert to MarkdownGoodwin testified further that several days after the meeting with Szulc, Goodwin referred to the mention of assassination to Szulc, and President Kennedy said only "we can't get into that kind of thing, or we would all be targets". (Goodwin, p. 4, 11.)
+Goodwin testified further that several days after the meeting with Szulc, Goodwin referred to the mention of assassination to Szulc, and President Kennedy said only "we can't get into that kind of thing, or we would all be targets". (Goodwin, p. 4, 11.)
 
 ## 4. The Rejection of Assassination in President Kennedy's November 16, 1961 Speech
 

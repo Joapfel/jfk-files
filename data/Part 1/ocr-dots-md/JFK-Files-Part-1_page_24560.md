@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24560.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SANTIAGO INFO DIRECTOR, BOGOTÁ
 REDTOP AEKICK

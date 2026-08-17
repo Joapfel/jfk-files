@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29541.png
-
-Convert to Markdown(2) This organization may pay certain necessary costs of hospitalization and related travel expenses for illness or injury incurred by the dependents of a U.S. citizen full-time Career Agent permanently assigned abroad, while they are located abroad.
+(2) This organization may pay certain necessary costs of hospitalization and related travel expenses for illness or injury incurred by the dependents of a U.S. citizen full-time Career Agent permanently assigned abroad, while they are located abroad.
 
 It is understood and agreed that the eligibility and extent of the participation by you and your dependents in the above medical programs will be in conformance with the rules, regulations and policies of this organization in effect at the time an illness or injury is incurred, that all claims will be submitted only to this organization and that adjudication of such claims by this organization shall be final and conclusive.
 

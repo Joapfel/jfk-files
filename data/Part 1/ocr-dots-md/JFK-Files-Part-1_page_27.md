@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27.png
-
-Convert to MarkdownParty member married in the USSR and by prevailing upon the Italian Embassy to hold up Italian visas for Soviet seamen, was able to arrange for his wife to accompany him to Italy. In two more of the cases, an American met his future wife on a visit to the USSR, married her on a subsequent trip, and brought her back to the U.S. No details are available on the fourth case, which involved a Swedish student who married a Soviet student and apparently brought her out with him.
+Party member married in the USSR and by prevailing upon the Italian Embassy to hold up Italian visas for Soviet seamen, was able to arrange for his wife to accompany him to Italy. In two more of the cases, an American met his future wife on a visit to the USSR, married her on a subsequent trip, and brought her back to the U.S. No details are available on the fourth case, which involved a Swedish student who married a Soviet student and apparently brought her out with him.
 
 3. In 14 of the remaining cases, a foreign husband (in one case a wife) departed alone. In another case the wife preceded her husband because he had been jailed a month or two previously for violation of travel regulations and in 7 additional cases the sequence is not known.
 

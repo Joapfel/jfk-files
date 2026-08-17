@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11272.png
-
-Convert to MarkdownSECRET F TOTAL COPIES 35
+SECRET F TOTAL COPIES 35
 
 INDEX ☐ YES ☐ NO
 CLASSIFY TO FILE NO.

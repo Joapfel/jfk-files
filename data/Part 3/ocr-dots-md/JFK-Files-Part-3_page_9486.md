@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9486.png
-
-Convert to MarkdownA. Yes, I did so for my personal information.
+A. Yes, I did so for my personal information.
 
 Q. Is such writing available to this Committee?
 

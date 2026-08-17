@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4854.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th>CLASSIFICATION</th><th></th><th>STATUS</th><th></th><th>AGE</th><th>DATE</th><th>REASON FOR CHANGE</th><th>NEW STATUS</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td>CLOSED</td><td></td><td>162362</td><td>SI: LA7</td><td>DSS, c/LSNID. c/o NTC2, clc 2, Slac1,</td><td>0</td></tr><tr><td colspan="8">CONF: CLA7 INFO: FILE <i>JPTAN</i>, DSO, c/LSNID. 0 DISSENO BY: 48 0 NO DCC 0 CCs TO PER # 0 VERSUS CTR</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7935.png
-
-Convert to Markdown13-00000
+13-00000
 
 post-Kennedy assassination threats of suicide," New York, 23 December 1963, p. 27.
 

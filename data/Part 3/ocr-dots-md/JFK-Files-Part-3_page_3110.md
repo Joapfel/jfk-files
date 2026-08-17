@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3110.png
-
-Convert to MarkdownSAS - CI Matters (cont.)
+SAS - CI Matters (cont.)
 
 Assigned 50% -- FORRESTER and WALZER
 Assigned 40% -- O'KELLY

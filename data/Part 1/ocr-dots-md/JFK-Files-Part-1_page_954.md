@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_954.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="2">ORI<br>UNR/5<br>0303</td>
         <td colspan="4">CLASSIFIED MESSAGE</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5276.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Purchase Order #16555 was issued to CIA on 9/21/72 in the amount of $4,639. The video tube was for use in a closed circuit television camera.
 

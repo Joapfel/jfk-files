@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10293.png
-
-Convert to MarkdownUNITED STATES SENATE SELECT COMMITTEE
+UNITED STATES SENATE SELECT COMMITTEE
 ON INTELLIGENCE ACTIVITIES
 
 From a review of the table of contents of this Manual it can be seen that the material contained in this Manual pertains to administrative rather than investigative operations of the FBI, and for that reason it has not been possible to select portions of this Manual which pertain directly to internal security, intelligence collection, and/or counter-intelligence matters, operations, or activities responsive to the Committee's request. The various other requests contained in the Committee letter of March 10, 1975, are receiving attention and further response will be forthcoming at the earliest possible time.

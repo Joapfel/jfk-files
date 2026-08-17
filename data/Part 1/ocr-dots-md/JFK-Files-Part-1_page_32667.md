@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32667.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 <table><tr><td>Recorded by</td></tr><tr><td>CSPD</td></tr></table>
 

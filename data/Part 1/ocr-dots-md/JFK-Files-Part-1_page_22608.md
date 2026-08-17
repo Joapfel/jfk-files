@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22608.png
-
-Convert to MarkdownFrom C.C.D.:
+From C.C.D.:
 
 NAME: Clarence A. DePew & Co.
 AGE: 38

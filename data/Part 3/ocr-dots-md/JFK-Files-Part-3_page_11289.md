@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11289.png
-
-Convert to MarkdownCPR
+CPR
 D82 LIND
 B.O.
 CRN:

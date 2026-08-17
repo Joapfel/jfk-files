@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15395.png
-
-Convert to MarkdownMemorandum Donahoe to Belmont
+Memorandum Donahoe to Belmont
 
 Re: LAOTIAN ACTIVITIES IN THE U. S.
 105-NEW

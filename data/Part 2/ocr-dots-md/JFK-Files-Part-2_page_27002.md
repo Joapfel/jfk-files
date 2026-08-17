@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27002.png
-
-Convert to Markdownis prepared. After considerable discussion, it was agreed that details should be presented to the Group, to include the content of the leaflets which would be dropped, and specifics as to the method and place of launching, the technical details of the release of leaflets, etc., etc.
+is prepared. After considerable discussion, it was agreed that details should be presented to the Group, to include the content of the leaflets which would be dropped, and specifics as to the method and place of launching, the technical details of the release of leaflets, etc., etc.
 
 b. Mr. Martin felt that number 25 ("discovery" of caches of arms) involves an important aspect of timing. He said, and the Group agreed, that any such action should be coordinated with U.S. objectives toward Cuba rather than confusing it with activities in connection with a third country. Mr. Bundy emphasized that any such undertaking should be done with the idea of providing a pretext for further action.
 

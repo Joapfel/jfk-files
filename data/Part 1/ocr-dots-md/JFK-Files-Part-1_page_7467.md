@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7467.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>DISPATCH SYMBOL AND NUMBER<br/>UTBA - 543</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>DISPATCH SYMBOL AND NUMBER<br/>UTBA - 543</td></tr></table>
 
 6. Subject's mind was set on China and in late 1931 he went to Shanghai and joined The China Press, working alongside Tilman DURDIN, now of the New York Times. Subject lost his job with The China Press after a flare-up with Hollington TONG, part-owner of the paper. Subject then joined the Newsweek foreign staff. Subject was in and out of Bangkok after World War II and WUSPARROW/1 became friendly with him. According to WUSPARROW/1, many people regard Subject's Tragedy of the Chinese Revolution as a significant work and a recent writer on China, Dennis BLOODWORTH, holds a good view of Subject's Scratches on the Mind.
 

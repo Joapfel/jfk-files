@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3653.png
-
-Convert to Markdown6. Czechoslovakia- USSR
+6. Czechoslovakia- USSR
 
 a. Czech President and party boss Novotny has gone to Moscow, evidently for economic talks, judging by the composition of his delegation.
 

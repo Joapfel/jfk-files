@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5488.png
-
-Convert to Markdownof the conversation POWs had in their rooms, even including the extremely valuable specimen made by high-ranbing Luftwaffe "Jetistes" high-running fellow POWs at Cبرلمان mansion. Newsome were voted by the old hands for a month, to make sure they weren't stood on principle before they were given the privilege of addressing their fellow officers on some important aspect of the war. The excellent Britishмен picked it all up.
+of the conversation POWs had in their rooms, even including the extremely valuable specimen made by high-ranbing Luftwaffe "Jetistes" high-running fellow POWs at Cبرلمان mansion. Newsome were voted by the old hands for a month, to make sure they weren't stood on principle before they were given the privilege of addressing their fellow officers on some important aspect of the war. The excellent Britishмен picked it all up.
 
 In recent years, at least one Luftwaffe veteran association, that of J.G. 2, The Richtersteiger, sent people to London & get copies of the interrogation reports of their pilots. They did it chronologically and were so shunned at the very moment of vital date revealed by their bredder that, in acute revulsion, they stopped looking. I assumed there was someone behind "tutied," which is true.
 

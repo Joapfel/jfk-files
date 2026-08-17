@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13983.png
-
-Convert to Markdownof CIA was about to join the Board meeting, and that it would be well for
+of CIA was about to join the Board meeting, and that it would be well for
 the Board to defer bringing up the NRO subject at this time. In this
 connection, Mr. Clifford stated that he had recently been visited by NRO
 Director McMillan who had expressed his views as to the NRO problem and would

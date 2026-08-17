@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1867.png
-
-Convert to Markdown20 January 1970
+20 January 1970
 
 Underground Press
 

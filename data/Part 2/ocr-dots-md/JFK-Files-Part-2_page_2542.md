@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2542.png
-
-Convert to Markdown22
+22
 
 CI 375-77
 

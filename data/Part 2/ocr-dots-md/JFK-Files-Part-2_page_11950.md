@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11950.png
-
-Convert to MarkdownG. INFORMANTS' INFORMATION
+G. INFORMANTS' INFORMATION
 
 1. General instructions are oral and written information
 

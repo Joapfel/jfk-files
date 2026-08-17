@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9012.png
-
-Convert to MarkdownSHEET
+SHEET
 
 September 30, 1968
 

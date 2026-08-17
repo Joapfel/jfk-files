@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33957.png
-
-Convert to MarkdownDraft
+Draft
 
 29 Feb 1952
 

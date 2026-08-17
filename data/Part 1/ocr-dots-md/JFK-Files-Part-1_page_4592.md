@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4592.png
-
-Convert to Markdown<table><thead><tr><td>FORM<br/>8-64<br/>1401</td><td>CLASSIFICATION</td><td>PAGE NO.</td></tr></thead><tbody><tr><td>93a USE PREVIOUS EDITION.</td><td>☐ CONTINUED</td><td></td></tr></tbody></table>
+<table><thead><tr><td>FORM<br/>8-64<br/>1401</td><td>CLASSIFICATION</td><td>PAGE NO.</td></tr></thead><tbody><tr><td>93a USE PREVIOUS EDITION.</td><td>☐ CONTINUED</td><td></td></tr></tbody></table>
 
 6S OCT
 

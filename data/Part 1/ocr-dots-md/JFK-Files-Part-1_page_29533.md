@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29533.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 6 JUN 61<br/>TO : BELL<br/>FROM : JMBARR<br/>ACTION : BELL 15<br/>INFO : WH 4, BELL S/C</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 6 JUN 61<br/>TO : BELL<br/>FROM : JMBARR<br/>ACTION : BELL 15<br/>INFO : WH 4, BELL S/C</td><td></td></tr></tbody></table>
 
 OUTING
 

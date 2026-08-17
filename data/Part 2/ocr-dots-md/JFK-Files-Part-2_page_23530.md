@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23530.png
-
-Convert to Markdownassassinating Castro. After the Bay of Pigs, a Cuba Task Force was established, first chaired by Paul Nitze and then by Goodwin in his capacity as White House Staff Officer. At a meeting of the Task Force, held at the State Department, McNamara suggested "getting rid of Castro", someone from the CIA, perhaps Bissell, then asked if McNamara meant "Executive Action". McNamara responded that he did and stressed his interest in the idea. However, Goodwin did not bring the topic up later in the meeting after McNamara left. (See interview infra.)
+assassinating Castro. After the Bay of Pigs, a Cuba Task Force was established, first chaired by Paul Nitze and then by Goodwin in his capacity as White House Staff Officer. At a meeting of the Task Force, held at the State Department, McNamara suggested "getting rid of Castro", someone from the CIA, perhaps Bissell, then asked if McNamara meant "Executive Action". McNamara responded that he did and stressed his interest in the idea. However, Goodwin did not bring the topic up later in the meeting after McNamara left. (See interview infra.)
 
 C. The Goodwin Documents
 

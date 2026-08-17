@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31838.png
-
-Convert to Markdown# LIST ALL RESIDENCES FROM 1 JANUARY 1937
+# LIST ALL RESIDENCES FROM 1 JANUARY 1937
 
 <table><thead><tr><th colspan="2">MONTH AND YEAR</th><th rowspan="2">STREET AND NUMBER</th><th rowspan="2">CITY</th><th rowspan="2">STATE OR COUNTRY</th></tr><tr><th>FROM-</th><th>TO-</th></tr></thead><tbody><tr><td>1942</td><td>1949</td><td>2817 Pine Grove Street</td><td>Chicago</td><td>Illinois</td></tr><tr><td>1949</td><td>1950</td><td>Edwarde Street</td><td>Clovis</td><td>New Mexico</td></tr><tr><td>1950</td><td>1960</td><td>1932 Cabrillo Street</td><td>San Francisco</td><td>California</td></tr><tr><td>1960</td><td>1961</td><td>2850 Bzncroft Way</td><td>Berkeley</td><td>California</td></tr><tr><td>1961</td><td>1962</td><td>881 Clayton Street</td><td>San Francisco</td><td>California</td></tr><tr><td>1962</td><td></td><td>219 N. Bassett</td><td>Madison</td><td>Wisconsin</td></tr><tr><td>1963</td><td></td><td>215 Lake Lawn Avenue</td><td>Madison</td><td>Wisconsin</td></tr><tr><td>1963</td><td>1964</td><td>1427 University Avenue</td><td>Madison</td><td>Wisconsin</td></tr><tr><td>1964</td><td>1965</td><td>881 Clayton Street</td><td>San Francisco</td><td>California</td></tr><tr><td>1965</td><td>1966</td><td>435 W. North Avenue</td><td>Chicago</td><td>Illinois</td></tr><tr><td>1966</td><td></td><td>13 Rhonda Way</td><td>Mill Valley</td><td>California</td></tr><tr><td>1966</td><td></td><td>140 Langdon Street</td><td>Madison</td><td>Wisconsin</td></tr></tbody></table>
 

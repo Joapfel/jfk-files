@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13195.png
-
-Convert to Markdown| Name | Designated | Clearance Briefed (SI, TK, B) | Date and Place of Birth | Social Security No. |
+| Name | Designated | Clearance Briefed (SI, TK, B) | Date and Place of Birth | Social Security No. |
 | :--- | :---: | :---: | :---: | :---: |
 | Koscis, Susan | * | B 9/17 | 11-5-49 NY | 051-42-2418 |
 | Krauss, George Henry Jr.<sup>3</sup> | | | 9-9-16 Colo. | 385-01-1876 |

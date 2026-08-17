@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14459.png
-
-Convert to MarkdownBelmont to Boardman (2-6-58)
+Belmont to Boardman (2-6-58)
 
 re: COVERAGE OF MAIL TO THE U.S.S.R.
 

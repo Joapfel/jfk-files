@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23123.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Senator Schweiker. What was the relationship of your station and your assignment to General Lansdale? What role did he play?
 

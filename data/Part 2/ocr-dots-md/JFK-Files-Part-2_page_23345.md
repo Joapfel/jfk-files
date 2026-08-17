@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23345.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 It is perfectly obvious that the Agency felt that it had
 the support of the Executive in efforts to eliminate Lumumba.

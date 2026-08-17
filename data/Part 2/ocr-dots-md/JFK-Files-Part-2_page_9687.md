@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9687.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 On March 1, 1974, DRAGER and CARROLL were released on bond from the Sagamon County Jail. The subject's vehicle, a 1970 Ford pickup truck, with a camper truck unit, was left by DRAGER at the Sheriff's Impound Lot.
 

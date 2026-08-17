@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1730.png
-
-Convert to MarkdownU.S. House of Representatives
+U.S. House of Representatives
 
 3331 HOUSE OFFICE BUILDING, ANNEX 2
 WASHINGTON, D.C. 20515

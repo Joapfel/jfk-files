@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19640.png
-
-Convert to MarkdownNR 005 WF PLAIN
+NR 005 WF PLAIN
 
 7:11PM NITEL 4-10-71 GEA
 TO DIRECTOR

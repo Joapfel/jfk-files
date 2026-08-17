@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10709.png
-
-Convert to MarkdownOn August 22, 1971, at approximately 4:32 a.m., SA TERENCE P. KEIST and Ss MARION KARL YORK went to the door of the residence located at 21 North Fourth Street, Camden, New Jersey. SA YORK displayed his credentials to the individual who came to the door. The man was later identified as MILO HARTSHON BILLMAN. Ba KHUST announced that he and the others were Special Agents of the Federal Bureau of Investigation and thus they were there to execute arrest warrants.
+On August 22, 1971, at approximately 4:32 a.m., SA TERENCE P. KEIST and Ss MARION KARL YORK went to the door of the residence located at 21 North Fourth Street, Camden, New Jersey. SA YORK displayed his credentials to the individual who came to the door. The man was later identified as MILO HARTSHON BILLMAN. Ba KHUST announced that he and the others were Special Agents of the Federal Bureau of Investigation and thus they were there to execute arrest warrants.
 
 SA YORK told BILLMAN to come down the steps of the residence.
 

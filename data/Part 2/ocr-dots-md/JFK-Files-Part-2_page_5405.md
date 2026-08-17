@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5405.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16 June 1998
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26796.png
-
-Convert to MarkdownLEY DE NACIONALIDAD Y NATURALIZACIÓN, publicada en el "Diario Oficial" de 20 de enero de 1934.
+LEY DE NACIONALIDAD Y NATURALIZACIÓN, publicada en el "Diario Oficial" de 20 de enero de 1934.
 
 "ART. 17.- Por conducto del Juez, el interesado elevará una - solicitud a la Secretaría de Relaciones Exteriores pidiendo - su carta de naturalización y renunciando expresamente a su na cionalidad de origen, así como a toda sumisión, obediencia y fidelidad a cualquier gobierno extranjero, especialmente a -- aquel de quien el solicitante haya sido subdito; y a toda pro tección extraña a las leyes y autoridades de México y a todo- derecho que los Tratados o la ley internacional concedan a -- los extranjeros; protestando, además, adhesión, obediencia y sumisión a las leyes y autoridades de la República. Estas re nuncias y protestas serán ratificadas en la presencia del -- Juez, en el caso de naturalización ordinaria.
 

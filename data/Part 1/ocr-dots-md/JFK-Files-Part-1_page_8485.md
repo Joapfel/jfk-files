@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8485.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13 September 1967
 

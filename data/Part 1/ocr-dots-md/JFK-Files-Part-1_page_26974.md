@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26974.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tbody><tr><td colspan="2">CABLE DECIDED BY <u>z</u> PER TOTAL COPIES <u>14/1</u></td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED <u>S E C R E T</u></td></tr><tr><td colspan="2"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td style="padding: 5px;">ADVANCE COPY ISSUED SLOIITED<br/><b>ACTION UNIT</b><br/>1<br/><b>FULL NAME</b><br/><u>J.F. Kincaid</u><br/><u>Clerk</u><br/><u>Lynn D. Dodo</u></td><td style="padding: 5px; vertical-align: top;"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td style="padding: 5px;">BY A.I.</td><td style="padding: 5px;"></td></tr><tr><td style="padding: 5px;">P.O. BOX</td><td style="padding: 5px;"></td></tr><tr><td style="padding: 5px;">STAFF</td><td style="padding: 5px;"></td></tr><tr><td style="padding: 5px;">1</td><td style="text-align:right; padding: 5px;">4</td></tr><tr><td style="padding: 5px;">2</td><td style="text-align:right; padding: 5px;">5</td></tr><tr><td style="padding: 5px;">3</td><td style="text-align:right; padding: 5px;">6</td></tr></tbody></table></td></tr></tbody></table></td></tr><tr><td>T 256357</td><td>EIA471</td></tr></tbody></table>
 

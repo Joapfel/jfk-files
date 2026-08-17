@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12022.png
-
-Convert to MarkdownStudent National Coordinating Committee (SNCC)
+Student National Coordinating Committee (SNCC)
 
 charges of inciting to riot and arson, SNCC is presently
 under the titular leadership of William Edward Hunt.

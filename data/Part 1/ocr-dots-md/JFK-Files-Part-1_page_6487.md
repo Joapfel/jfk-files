@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6487.png
-
-Convert to MarkdownChief, New York Office
+Chief, New York Office
 
 4 August 1964
 

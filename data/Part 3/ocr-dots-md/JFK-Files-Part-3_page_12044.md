@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12044.png
-
-Convert to MarkdownINSPECTOR DONALD E. MOORE
+INSPECTOR DONALD E. MOORE
 (1-24-71 CGS:EWL:DEM/djw:ekn)
 
 The comments and observations of the Inspector dealing with a "POTENTIAL DOUBLE AGENT PROGRAM" have been carefully reviewed and the following comments are responsive to the questions raised:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13910.png
-
-Convert to Markdown203. Entrada 1155.- HF pregunta por ROGELIO y J.informa --- que no está. HF:¿que volverá a llamar dentro de 30 minútos para ver si ya llegó y caerle. J.que está bueno.-211.-
+203. Entrada 1155.- HF pregunta por ROGELIO y J.informa --- que no está. HF:¿que volverá a llamar dentro de 30 minútos para ver si ya llegó y caerle. J.que está bueno.-211.-
 
 211. Salidas sin contestación y ocupado.- 217.-
 

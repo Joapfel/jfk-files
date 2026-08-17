@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20467.png
-
-Convert to Markdown# HOW TO PROTECT YOURSELF FROM WAGE GARNISHMENTS
+# HOW TO PROTECT YOURSELF FROM WAGE GARNISHMENTS
 
 1. **GET A LAWYER IMMEDIATELY** if your wages are garnished. The Seattle Legal Services Center provides lawyers for people with low incomes who cannot afford to pay for a lawyer. A similar service for low-income workers is provided by the Tacoma Legal Assistance Office, 1501 South "M" Street, Tacoma.
 

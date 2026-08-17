@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14592.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO MADRID LISBON
 TYPIC AMAUTO OUTIMID

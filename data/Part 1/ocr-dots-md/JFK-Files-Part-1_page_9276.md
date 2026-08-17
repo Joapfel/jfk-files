@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9276.png
-
-Convert to Markdown19 Sept. '50
+19 Sept. '50
 
 Re your MS. P is in bed with some kind of favor. He got dick today to take the MS to Lloyd McCaffery, chief of research for Republican "hat'! C'ee, who will give it to the Col. Fellers who wrote the "How to Beat the Russians" article in the current "Colliers".
 

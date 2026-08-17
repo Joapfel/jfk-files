@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17133.png
-
-Convert to MarkdownFREE BREAKFASTS FOR CHILDREN
+FREE BREAKFASTS FOR CHILDREN
 
 Last week the democratic bistroge press carried an article which stated that the Black Panther Party in the City of Chicago was no longer feeding hungry school children. The article also stated that the Party was using the Breakfast money and food for their own personal use. This is totally incorrect, the Black Panther Party refuses to accept the ideology of this superstitious pig power structure which starves out 95% of its population and uses food funds to send their astrologers to the moon for the purpose of heightening exploitation.
 

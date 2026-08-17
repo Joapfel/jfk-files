@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32016.png
-
-Convert to MarkdownS-L-C-R-E-T
+S-L-C-R-E-T
 
 SECTION C, continued
 

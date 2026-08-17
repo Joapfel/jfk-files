@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_952.png
-
-Convert to MarkdownB. Extent to which the FBI should keep tabs on other Departments and Agencies through the development of sources and informants in those Agencies
+B. Extent to which the FBI should keep tabs on other Departments and Agencies through the development of sources and informants in those Agencies
 
 In regard to the present policy of not developing sources and informants in other Federal Departments and Agencies for the purpose of keeping tabs on those agencies, no issues are known to have been raised.
 

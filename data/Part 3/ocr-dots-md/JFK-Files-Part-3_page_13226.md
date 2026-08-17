@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13226.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 The minutes of the June 18, 1964, meeting (dated June 22, 1964) contained the following: [OBTAIN COPY] (signed by Peter Jessup)
 

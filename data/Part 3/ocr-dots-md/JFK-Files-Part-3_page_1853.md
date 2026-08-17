@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1853.png
-
-Convert to MarkdownL LIMITED OFFICIAL USE
+L LIMITED OFFICIAL USE
 
 FBB605
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20926.png
-
-Convert to Markdown13 May 1975
+13 May 1975
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 

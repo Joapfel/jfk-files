@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_480.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 In August, 1963, the FBI in Seattle, Washington, became aware that a factional problem existed in the Communist Party (CP) Northwest District as a result of the Sino-Soviet split in which the Communist Party, USA (CPUSA), supported the Soviet Union.
 

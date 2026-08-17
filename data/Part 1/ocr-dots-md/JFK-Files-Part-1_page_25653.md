@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25653.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>RELEASING OFFICER</td>
     <td>COORDINATING OFFICERS</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13789.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr><td>8.</td><td>Cuba</td><td>- Vilma Espin</td></tr>
     <tr><td>9.</td><td>Ecuador</td><td>- Marta Feijóo</td></tr>

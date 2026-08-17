@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5973.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>DISP: CH</td>

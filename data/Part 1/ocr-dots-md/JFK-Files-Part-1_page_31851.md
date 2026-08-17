@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31851.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PREVIOUS ASSIGNMENT
 

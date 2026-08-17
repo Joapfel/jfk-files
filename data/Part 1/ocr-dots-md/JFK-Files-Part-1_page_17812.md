@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17812.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="4">CONFIDENTIAL<br/>(COLLECTOR/E. U.A.: RECLASSIFY ACCORDING TO DATA ADDED BELOW)</td>
         <td colspan="2"></td>

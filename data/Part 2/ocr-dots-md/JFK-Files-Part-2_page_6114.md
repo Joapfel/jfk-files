@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6114.png
-
-Convert to Markdown13-00000
+13-00000
 
 Minnesota State Bar Association (1981 - present)
 

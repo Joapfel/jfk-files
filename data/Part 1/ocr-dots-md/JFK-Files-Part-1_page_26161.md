@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26161.png
-
-Convert to Markdown"¡A sus Ordenes, Jefazo-Pagés"
+"¡A sus Ordenes, Jefazo-Pagés"
 
 Por LEON GUZMAN
 

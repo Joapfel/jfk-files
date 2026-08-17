@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21063.png
-
-Convert to MarkdownDirector
+Director
 Central Intelligence Agency
 
 SECRET

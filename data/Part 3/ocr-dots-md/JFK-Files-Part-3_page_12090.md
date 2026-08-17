@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12090.png
-
-Convert to Markdown# SUPERVISORY NON-INVESTIGATIVE PERSONNEL
+# SUPERVISORY NON-INVESTIGATIVE PERSONNEL
 
 Special Coordination Unit 5
 New Left Report Unit 4

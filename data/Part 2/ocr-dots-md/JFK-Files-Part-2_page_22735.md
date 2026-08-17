@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22735.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Mr. Miller. What kind of volume did you put together in your years in this activity? If this is the product of one interrogation, what kind of volume did you put together to make a workable capability?
 

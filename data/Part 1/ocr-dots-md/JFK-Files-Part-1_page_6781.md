@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6781.png
-
-Convert to Markdownque operan en Venezuela, pero no nos dicen casi nada acerca de la economía nacional prepiamente dicha. Harvey O'Connor describe algunas de las realidades de esa economía:
+que operan en Venezuela, pero no nos dicen casi nada acerca de la economía nacional prepiamente dicha. Harvey O'Connor describe algunas de las realidades de esa economía:
 
 > "Antes del petróleo, Venezuela se alimentaba a si misma de algún modo. Hoy produce solamente la mitad del maíz, la mitad de la carne, una tercera parte de los vegetales y los granos y la mitad de la leche que consume. Hay menos ganado que en tiempos de la Revolución de 1812... La fanística prosperidad que ha descendido sobre Caracas es tan irreal como algo saludo de Hollywood... Todo eso es solamente motivo de curiosidad para las 9/10 partes del pueblo, que vive fuera del mundo encantado del petróleo. Ahuyentados por la enfermedad y disgregados por el hambre..., por lo menos 200,000 venezolanos han abandonado los campos para dirigirse a la dorada Caracas, en donde viven bajo los puentes, a lo largo de las camiadas, o en las laderas de los cerros en los irónicamente llamados 'ranchos', construidos con los desperdicios de la ciudad''¹².
 

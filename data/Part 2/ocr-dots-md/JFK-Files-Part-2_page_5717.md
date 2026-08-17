@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5717.png
-
-Convert to Markdown04/16/97
+04/16/97
 
 WED 16:11
 

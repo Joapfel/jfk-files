@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16691.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 Dolo February 18, 1970
 

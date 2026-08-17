@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_369.png
-
-Convert to Markdown104-10062-10005
+104-10062-10005
 
 MEMORANDUM
 OF CALL

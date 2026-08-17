@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22062.png
-
-Convert to MarkdownNO OBJECTION as excised
+NO OBJECTION as excised
 NATIONAL SECURITY COUNCIL
 
 CIA HAS NO OBJECTION TO

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24957.png
-
-Convert to Markdown300 Madison Avenue
+300 Madison Avenue
 (14th Floor)
 
 March 2, 1965

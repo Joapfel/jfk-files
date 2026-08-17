@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35571.png
-
-Convert to Markdown15 October 1964
+15 October 1964
 
 Two thousand seven hundred thirty-three and 75/100¢
 (Cashier's Check # 369794 )

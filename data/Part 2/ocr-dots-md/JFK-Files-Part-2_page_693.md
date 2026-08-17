@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_693.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED INFORMATION</td></tr></table>
+<table><tr><td>CLASSIFIED INFORMATION</td></tr></table>
 
 14-00000
 

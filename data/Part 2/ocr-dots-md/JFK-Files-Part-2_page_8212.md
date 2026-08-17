@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8212.png
-
-Convert to MarkdownLe peuple soviétique est fidèle à STALINE !
+Le peuple soviétique est fidèle à STALINE !
 
 Fondateur : Honoré WILLEMS, fusillé par les nazis, le 29 février 1944.
 

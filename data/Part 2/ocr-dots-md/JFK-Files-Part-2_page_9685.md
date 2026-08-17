@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9685.png
-
-Convert to Markdownformerly Grand Dragon of the Ku Klux Klan organization in New Jersey. He further stated that he has never been present at any meeting of any right wing organization nor does he know if DRAGER has attended, any meetings or has contacted any leaders of right wing organizations during their travels.
+formerly Grand Dragon of the Ku Klux Klan organization in New Jersey. He further stated that he has never been present at any meeting of any right wing organization nor does he know if DRAGER has attended, any meetings or has contacted any leaders of right wing organizations during their travels.
 
 He stated he knows no one in the State of Illinois and that DRAGER was not on his way to any meeting in Illinois at the time of their arrest in Springfield. They had only stopped overnight en route to New Jersey.
 

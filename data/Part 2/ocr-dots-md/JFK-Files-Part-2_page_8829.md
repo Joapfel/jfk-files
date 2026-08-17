@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8829.png
-
-Convert to Markdown14-08-96
+14-08-96
 
 104-10512-10101
 

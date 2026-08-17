@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31462.png
-
-Convert to MarkdownCOMMITTEE FOR CONSTITUTIONAL LIBERTIES
+COMMITTEE FOR CONSTITUTIONAL LIBERTIES
 (CCL), aka. Citizens Committee for
 Constitutional Liberties - San Francisco
 

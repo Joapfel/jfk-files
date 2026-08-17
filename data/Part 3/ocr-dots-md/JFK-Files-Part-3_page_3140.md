@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3140.png
-
-Convert to Markdown1752
+1752
 
 and it was an area where --
 The Chairman. Will the Senator yield at that point; please?

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1186.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 of the thinness of the cover, it is uncertain whether this will succeed.
 

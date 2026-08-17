@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22326.png
-
-Convert to Markdown733.
+733.
 
 ## 7. Tourist Department (1962-1964)
 

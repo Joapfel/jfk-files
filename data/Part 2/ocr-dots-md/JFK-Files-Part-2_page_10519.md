@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10519.png
-
-Convert to MarkdownFollowing their meeting on 22 July 1972 with the AWU delegation,
+Following their meeting on 22 July 1972 with the AWU delegation,
 the PRG officials held additional talks with sub-groups of the delegation.
 Additionally, at least one of the American participants was invited by
 the DRV officials to return for further discussions. At present, there

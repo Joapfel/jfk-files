@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6763.png
-
-Convert to MarkdownAlthough largely irrelevant to the question of who killed President Kennedy, these and other personal documents ultimately ended up in the sequestered collection of documents. I do not believe that the benefit to the public of disclosure of this information outweighs the clear privacy interest of the individuals in keeping this information confidential. Similar privacy concerns exist with documents containing derogatory information on particular individuals where the information is based on gossip or rumor.
+Although largely irrelevant to the question of who killed President Kennedy, these and other personal documents ultimately ended up in the sequestered collection of documents. I do not believe that the benefit to the public of disclosure of this information outweighs the clear privacy interest of the individuals in keeping this information confidential. Similar privacy concerns exist with documents containing derogatory information on particular individuals where the information is based on gossip or rumor.
 
 Our files also contain names of living individuals who provided us intelligence information on a promise of confidentiality. We would not disclose this information in breach of such a promise.
 

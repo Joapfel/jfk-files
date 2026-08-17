@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11969.png
-
-Convert to MarkdownSECTION 107. SECURITY INFORMANTS AND TECHNICAL SOURCES
+SECTION 107. SECURITY INFORMANTS AND TECHNICAL SOURCES
 
 10. If necessary, other field office, which have received information from the informant should also be requested to submit summary letters showing what corrections have been made.
 

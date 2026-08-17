@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17898.png
-
-Convert to Markdown3
+3
 12
 7
 1

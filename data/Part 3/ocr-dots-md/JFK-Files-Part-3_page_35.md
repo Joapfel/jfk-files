@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_35.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">62-116395-665</td>
     <td>ENCL.</td>

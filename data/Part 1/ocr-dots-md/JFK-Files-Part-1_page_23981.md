@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23981.png
-
-Convert to Markdownwho were unsatisfied with the reformist tactics the Social democratic
+who were unsatisfied with the reformist tactics the Social democratic
 tactics of the EGA and EDAMx youth. He got in contact with the magazine
 he wanted material to reproduce in Greek. I suppose he did. I took
 one year of Greek and I know nothing of modern Greek, I could just about

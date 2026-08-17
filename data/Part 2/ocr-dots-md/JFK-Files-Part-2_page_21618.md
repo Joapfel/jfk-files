@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21618.png
-
-Convert to Markdownas if Brazilian and the Brazilians were approached?
+as if Brazilian and the Brazilians were approached?
 
 Mr. Phillips. It never occurred to us in our wildest
 dreams to do that.

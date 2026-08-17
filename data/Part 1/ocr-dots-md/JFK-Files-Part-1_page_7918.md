@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7918.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES:
 
 <table><tr><td>ORIG: J. CARLSON</td></tr><tr><td>UNIT: S3/0/WN</td></tr><tr><td>EXT: 6412</td></tr><tr><td>DATE: 11 JAN 67</td></tr></table>

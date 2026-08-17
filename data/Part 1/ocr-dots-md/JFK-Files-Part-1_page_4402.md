@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4402.png
-
-Convert to Markdown14-0000
+14-0000
 
 Monarchio de Recuperación Revolucionaria
 2318 N. E. 3 COURT

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6459.png
-
-Convert to MarkdownJCS 2304/189
+JCS 2304/189
 (Rev. 5/13/63)
 
 **CONCLUSIONS**

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9070.png
-
-Convert to Markdown14-0000
+14-0000
 
 ☐ UNCLASSIFIED ☐ IN JIAL USE ONLY ☐ CONFID. TIAL ☐ SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26884.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Special Activities Staff. It was headed by Desmond Fitzgerald.
 And then, I believe after that it became the Cuban Operations

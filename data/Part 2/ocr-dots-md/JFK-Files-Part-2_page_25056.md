@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25056.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 but they did try to develop such a capacity versus Castro.
 

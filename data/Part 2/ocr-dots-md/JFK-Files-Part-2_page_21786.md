@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21786.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Sarno. Yes, sir.
 2. Mr. Wides. Would you describe that program?

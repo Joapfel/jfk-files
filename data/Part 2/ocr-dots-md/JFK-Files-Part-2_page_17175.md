@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17175.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 Brenda Harris, female Negro, age 17, residence,
 1848 South Hamlin, Chicago;

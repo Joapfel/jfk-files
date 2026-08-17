@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6444.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OUTGOING AND RECORD SHEET 3 March 1954
 

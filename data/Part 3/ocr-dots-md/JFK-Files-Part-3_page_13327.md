@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13327.png
-
-Convert to Markdownthat by and large the procedures for dealing with internal security and counterespionage information which needed to be brought to the attention of other agencies were effective.
+that by and large the procedures for dealing with internal security and counterespionage information which needed to be brought to the attention of other agencies were effective.
 
 12. Mr. Willems then asked if CIA's intelligence collection system was automated. Mr. Helms replied that we did in fact have a machine records system for recovering file information which was unique in that it had been designed specifically with the requirements of the CIA Clandestine Services in mind. Thus, any information reposing in our files could be recovered by means of this machine system rapidly and efficiently. Mr. Helms invited Mr. Rankin and members of his staff to visit the Langley Headquarters and inspect the machine records system which he had described.
 

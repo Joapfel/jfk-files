@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15577.png
-
-Convert to MarkdownLR:
+LR:
 
 HILLIARD stated the name of REID was familiar and
 the National BPP Headquarters had advised all

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30921.png
-
-Convert to Markdown# Review of Manuel Ray y Rivero Files - Volumes I - XVIII
+# Review of Manuel Ray y Rivero Files - Volumes I - XVIII
 
 May 1, 1978
 Volume XII - January 1964 - February 1964

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10540.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="3">INDEX ☐ YES ☐ NO</td>

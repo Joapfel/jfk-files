@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11622.png
-
-Convert to MarkdownIn view of the sensitivity of these particular
+In view of the sensitivity of these particular
 operations, it is suggested that I or my Number One Man
 be consulted for details.
 

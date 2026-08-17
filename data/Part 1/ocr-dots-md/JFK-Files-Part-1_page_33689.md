@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33689.png
-
-Convert to MarkdownSECRE
+SECRE
 
 said the first question the group would then ask is "What shall we do?" He said that question had to be answered. Barrett said, "We have a coordinating committee of Braden and Devine to work this problem out."
 

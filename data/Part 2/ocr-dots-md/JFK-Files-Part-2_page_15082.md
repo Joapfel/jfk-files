@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15082.png
-
-Convert to MarkdownDonahoe to DeLoach, 3/6/70
+Donahoe to DeLoach, 3/6/70
 
 Re: Attorney General's Staff Conference
 

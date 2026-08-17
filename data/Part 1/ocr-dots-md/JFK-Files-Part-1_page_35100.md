@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35100.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 | Date | Check No. | Total |
 | :--- | :--- | :--- |

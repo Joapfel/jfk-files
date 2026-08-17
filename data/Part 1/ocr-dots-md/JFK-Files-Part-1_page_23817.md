@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23817.png
-
-Convert to Markdownthis goal, but it is not certain that he could get the original fee
+this goal, but it is not certain that he could get the original fee
 back from Schwarzenberg.
 
 8. For future contacts, Rodigast gave S/1 "an alias I am using:

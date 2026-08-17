@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24722.png
-
-Convert to Markdownon September 21, 1960, Allen Dulles stressed the danger of Soviet influence in the Congo. Despite the fact that Lumumba had been deposed from his position as Premier and was in UN custody, Dulles continued to regard him as a threat, especially in light of reports of an impending reconciliation between Lumumba and the post-coup Congolese government:
+on September 21, 1960, Allen Dulles stressed the danger of Soviet influence in the Congo. Despite the fact that Lumumba had been deposed from his position as Premier and was in UN custody, Dulles continued to regard him as a threat, especially in light of reports of an impending reconciliation between Lumumba and the post-coup Congolese government:
 
 Mobutu appeared to be the effective power in the Congo for the moment but Lumumba was not yet disposed of and remained a grave danger as long as he was not disposed of. (NSC Minutes, 9/21/60.)
 

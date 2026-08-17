@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18172.png
-
-Convert to MarkdownWallach then asked if I had ever talked to any other newspaper people. I told him that I once talked to Irving R. Levine many years ago. He wanted to know if I knew of any other Agents of the FBI who were talking to people in the news media. I said that I did not.
+Wallach then asked if I had ever talked to any other newspaper people. I told him that I once talked to Irving R. Levine many years ago. He wanted to know if I knew of any other Agents of the FBI who were talking to people in the news media. I said that I did not.
 
 Wallach then made reference to newspaper articles of recent date concerning the FBI's relationship with newspaper people friendly to the FBI. In response to inquiry I told him that I knew absolutely nothing about this.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4168.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 THE SECRETARY OF STATE
 

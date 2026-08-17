@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27240.png
-
-Convert to Markdown- Memo to The Legal Staff; From Gray - Subj: The 693-page file - 12 Mar 75
+- Memo to The Legal Staff; From Gray - Subj: The 693-page file - 12 Mar 75
 
 B - M/R - Subj: Check of Executive Registry Files - 4 Apr 75 SECRET/SENSITIVE
 w/attachment

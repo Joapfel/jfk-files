@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13327.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OTHER ITEMS. (AMCLEVE-15 PROVIDED LIST AND PICTURE).
 

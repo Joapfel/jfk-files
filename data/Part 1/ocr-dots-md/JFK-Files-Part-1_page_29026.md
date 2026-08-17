@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29026.png
-
-Convert to Markdown1 MAR 1966
+1 MAR 1966
 
 MEMORANDUM FOR: Secretary, CS/CS Panel (Section A)
 

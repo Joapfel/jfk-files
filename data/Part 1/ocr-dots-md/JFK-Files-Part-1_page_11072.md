@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11072.png
-
-Convert to MarkdownHBOA-34623
+HBOA-34623
 
 10 May 1958
 19-120-13/1

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20908.png
-
-Convert to MarkdownNY 100-172487
+NY 100-172487
 
 the UN. VACEK had originally approached ENGLE for information, the latter turning to the FBI for assistance. ENGLE ceased cooperating with the Bureau due to anxieties stemming from her position as an informant. There are no further references to ENGLE in the files of the NYO.
 

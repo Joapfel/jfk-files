@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13278.png
-
-Convert to Markdownon stationery of the Senate Judiciary Committee and makes certain allegations bearing on the Commission's work. I do not know the writer and I have merely acknowledged the letter and stated I was referring it to the Commission. It may require no further answer.
+on stationery of the Senate Judiciary Committee and makes certain allegations bearing on the Commission's work. I do not know the writer and I have merely acknowledged the letter and stated I was referring it to the Commission. It may require no further answer.
 
 Here are one or two additional thoughts
 

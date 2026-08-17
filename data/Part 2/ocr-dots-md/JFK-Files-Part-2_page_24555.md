@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24555.png
-
-Convert to MarkdownMcCone pointed out that although the Cuban problem was discussed in terms of " dispose of Castro," or "knock off Castro", these terms were meant to refer to "the overthrow of the Communist Government in Cuba" and not a Castro assassi- nation. (McCone, p. 44; McCone Ex. 4, memorandum April 14, 1967, to Helms.)
+McCone pointed out that although the Cuban problem was discussed in terms of " dispose of Castro," or "knock off Castro", these terms were meant to refer to "the overthrow of the Communist Government in Cuba" and not a Castro assassi- nation. (McCone, p. 44; McCone Ex. 4, memorandum April 14, 1967, to Helms.)
 
 McCone further stated that "it is very hard for me to believe"
 that Robert Kennedy would have initiated a Castro assassination activity

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28860.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FILE TITLE/NUMBER/VOLUME:
 

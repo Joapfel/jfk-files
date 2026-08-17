@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17401.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 On February 9, and 10, 1969, the records of the Champaign County Sheriff's Office, Urbana, Illinois, and the Urbana, Illinois Police Department, disclosed the following descriptive data of the individuals arrested.
 

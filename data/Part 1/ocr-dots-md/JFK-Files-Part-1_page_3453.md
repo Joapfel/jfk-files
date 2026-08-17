@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3453.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AMHOLD Meeting in Washington, 19 May 1964
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3136.png
-
-Convert to Markdown1748
+1748
 
 give any direction to the Bureau in the matter that you know of?
 Mr. Adams. Yes, sir. I know that, of course, on the

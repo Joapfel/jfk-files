@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32703.png
-
-Convert to Markdownwhich they may deem necessary to ensure that the Government of Cuba cannot continue to receive from the Sino-Soviet powers military material and related supplies which may threaten the peace and security of the Continent and to prevent the missiles in Cuba with offensive capability from ever becoming an active threat to the peace and security of the Continent." The resolution also expressed "the hope that the Security Council will, in accordance with the Resolution introduced by the United States, dispatch United Nations observers to Cuba at the earliest moment."
+which they may deem necessary to ensure that the Government of Cuba cannot continue to receive from the Sino-Soviet powers military material and related supplies which may threaten the peace and security of the Continent and to prevent the missiles in Cuba with offensive capability from ever becoming an active threat to the peace and security of the Continent." The resolution also expressed "the hope that the Security Council will, in accordance with the Resolution introduced by the United States, dispatch United Nations observers to Cuba at the earliest moment."
 
 Following the meeting of the Council of the Organization of American
 States/Organ of Consultation and pursuant to the recommendations contained

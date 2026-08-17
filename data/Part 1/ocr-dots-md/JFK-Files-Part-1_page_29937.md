@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29937.png
-
-Convert to Markdown28 April 1969
+28 April 1969
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

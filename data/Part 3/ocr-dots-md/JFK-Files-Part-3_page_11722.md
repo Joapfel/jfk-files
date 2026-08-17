@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11722.png
-
-Convert to Markdownclosely with Mexican police require our agents to be on
+closely with Mexican police require our agents to be on
 the scene for anything but relatively routine investigations.
 The Legal Attache has for some time been considering
 possibility of opening one or more additional "Resident

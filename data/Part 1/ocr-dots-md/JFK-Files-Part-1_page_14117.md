@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14117.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. Education: Tulane University (1945-1948) - Subject obtained a BS in Psychology
 

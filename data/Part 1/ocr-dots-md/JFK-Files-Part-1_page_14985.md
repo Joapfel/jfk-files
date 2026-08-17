@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14985.png
-
-Convert to Markdownwere indeed in possession of a copy of the story. He went on
+were indeed in possession of a copy of the story. He went on
 to state that in answer to question (1) OCA's reply to the
 BFV was that Subject was of operational interest to AIS and
 would they please suspend their investigation until Subject

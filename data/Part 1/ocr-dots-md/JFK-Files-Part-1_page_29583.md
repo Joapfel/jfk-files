@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29583.png
-
-Convert to MarkdownJohn J. Hanrotty
+John J. Hanrotty
 
 7th S.F.O., Ft.Bragg, N.C.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2345.png
-
-Convert to Markdownit is most doubtful the CPUSA is relevant today. When it was proposed that there be some form of collectivity between the SDS and the CPUSA, the SDS leaders replied that the CPUSA is not involved in SDS collectives because the CPUSA has nothing to contribute.
+it is most doubtful the CPUSA is relevant today. When it was proposed that there be some form of collectivity between the SDS and the CPUSA, the SDS leaders replied that the CPUSA is not involved in SDS collectives because the CPUSA has nothing to contribute.
 
 Subsequently, a leader of the SDS in conversation with leaders of the CP of Illinois stated that the "Establishment" as it exists today must be changed, even if this change must be through force. He added that the "Establishment" must be replaced by a communist government. He further stated that there has to be a communist party and there has to be a communist revolution and that SDS is the only group to organize the youth, thus rejecting the CPUSA as a possible vehicle for bringing about this revolution.
 

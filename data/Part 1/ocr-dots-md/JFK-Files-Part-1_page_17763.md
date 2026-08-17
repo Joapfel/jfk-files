@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17763.png
-
-Convert to Markdown... heruanos trabaja en la Financiera. ENXXS LUCHITA que ahora que lo vea le entregará esa tarjeta. GUZMAN le llamará a su casa después de las 8:00 y media.- Y no tengo para cuando salir ya que no tienen como escenario. - 71-
+... heruanos trabaja en la Financiera. ENXXS LUCHITA que ahora que lo vea le entregará esa tarjeta. GUZMAN le llamará a su casa después de las 8:00 y media.- Y no tengo para cuando salir ya que no tienen como escenario. - 71-
 
 71- Entradas sin contestación.- 88-
 

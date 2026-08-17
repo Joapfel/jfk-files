@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11146.png
-
-Convert to MarkdownJANUARY 14, 1975
+JANUARY 14, 1975
 
 WWW 88608 DocID:32989628 Page-164
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23297.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Arthur O. Vaivada
 

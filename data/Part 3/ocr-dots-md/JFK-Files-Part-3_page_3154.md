@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3154.png
-
-Convert to Markdown1766
+1766
 
 to whom violent type activity, shooting and the like, is second
 nature."

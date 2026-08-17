@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2022.png
-
-Convert to Markdown24 JAN 1965
+24 JAN 1965
 
 MEMORANDUM FOR: Chief, CI/OA
 

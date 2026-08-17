@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14602.png
-
-Convert to MarkdownSAC, WFO
+SAC, WFO
 
 Re: THAILAND ACTIVITIES IN THE UNITED STATES
 

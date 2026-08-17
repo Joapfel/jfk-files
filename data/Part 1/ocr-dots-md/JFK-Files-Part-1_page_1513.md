@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1513.png
-
-Convert to MarkdownATLAS
+ATLAS
 
 R.C.74271, AGNE, Gerald MR53 FORDSON, John Newton -4-25
 48-558 2, APLAND, Glennon Edward (210260) 74264, FROST, Frank

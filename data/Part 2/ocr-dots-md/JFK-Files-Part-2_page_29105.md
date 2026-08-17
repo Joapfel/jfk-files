@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29105.png
-
-Convert to MarkdownSCHEDULE B
+SCHEDULE B
 (Form 1040)
 
 Department of the Treasury

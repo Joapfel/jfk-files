@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9127.png
-
-Convert to Markdown## Affiliates of General Electrica
+## Affiliates of General Electrica
 Espanola, S.A.:
 
 Sociedad Iberica de Construcciones Elricbicas, (SIZE).

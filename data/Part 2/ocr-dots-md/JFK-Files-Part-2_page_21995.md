@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21995.png
-
-Convert to MarkdownTOP 10
+TOP 10
 
 C-X-12 Memorandum/Meeting with JIMDECK 4, February 16, 1961
 

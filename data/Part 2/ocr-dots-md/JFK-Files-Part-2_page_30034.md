@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30034.png
-
-Convert to MarkdownDATE: 11/30/77
+DATE: 11/30/77
 
 OFFICE NAME: Select Comm. on Assassination
 PAYROLL CERTIFICATION

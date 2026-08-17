@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30263.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Klein. You went through the first part of the first volume, page by page?
 

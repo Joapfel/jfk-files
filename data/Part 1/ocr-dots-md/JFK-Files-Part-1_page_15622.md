@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15622.png
-
-Convert to MarkdownMr. Ernest C. Maycrink
+Mr. Ernest C. Maycrink
 
 Dear Mr. Maycrink:
 

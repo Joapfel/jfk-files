@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27239.png
-
-Convert to MarkdownB-G-G (II-U)
+B-G-G (II-U)
 
 A - Memo from Lloyd A. Free - "Potential Informants" - 6 Jan 74
 

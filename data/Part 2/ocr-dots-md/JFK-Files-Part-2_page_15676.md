@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15676.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 their name, ages and addresses. Source stated that
 the BPP lawyers then told the inquest that their

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14600.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">RICHARD WHEELER;ok</th></tr></thead><tbody><tr><td>DATE:</td><td>21 JANUARY 1970</td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>[x] INDEX [ ] NO INDEX [ ] RETURN TO __________ BRANCH [ ] FILE STD</td></tr><tr><td>BY [x] FEB [ ]</td><td></td></tr><tr><td>CONF: [x] WH-8<br/>[ ] FILE.VR. E.U.R.-6, KIDAN, C.D.O.P.S.</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">RICHARD WHEELER;ok</th></tr></thead><tbody><tr><td>DATE:</td><td>21 JANUARY 1970</td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>[x] INDEX [ ] NO INDEX [ ] RETURN TO __________ BRANCH [ ] FILE STD</td></tr><tr><td>BY [x] FEB [ ]</td><td></td></tr><tr><td>CONF: [x] WH-8<br/>[ ] FILE.VR. E.U.R.-6, KIDAN, C.D.O.P.S.</td><td></td></tr></tbody></table>
 
 **(Classification)**
 

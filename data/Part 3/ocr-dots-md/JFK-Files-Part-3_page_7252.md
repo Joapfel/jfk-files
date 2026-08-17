@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7252.png
-
-Convert to Markdownin Congress which caused the Attorney General and the White
+in Congress which caused the Attorney General and the White
 House to be concerned that it would be difficult to maintain
 appropriate security regarding the Committee's work with
 Judge Sharp as its head. Mardian stated that at a meeting at

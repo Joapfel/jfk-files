@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8308.png
-
-Convert to MarkdownSECURITY: CONFIDENTIAL
+SECURITY: CONFIDENTIAL
 
 S. P. MENS 588
 

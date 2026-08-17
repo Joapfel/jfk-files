@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5550.png
-
-Convert to Markdown# 1. Robin Moore
+# 1. Robin Moore
 
 a. Moore has just returned from Viet Nam where he participated in the combat operations of the American Special Forces in Viet Nam, after he had gone through about eight months of training at the Special Forces School at Fort Campbell, Kentucky. Some understanding of Moore's personality may be obtained from reading an interview between him and the magazine U. S. News and World Report, which was published recently, and copy of which was left with Maria. Further understandings and impressions of Moore may be obtained from reading his previously published book about Jack Youngblood, an American who participated in the events leading to Castro's overthrow of Battista.
 

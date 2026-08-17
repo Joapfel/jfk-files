@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29109.png
-
-Convert to MarkdownNW88326. DocId:32245535 Page 155
+NW88326. DocId:32245535 Page 155
 
 Form 1040 Combined with Form 1040A US Department of the Treasury / Internal Revenue Service
 Individual Income Tax Return 1969

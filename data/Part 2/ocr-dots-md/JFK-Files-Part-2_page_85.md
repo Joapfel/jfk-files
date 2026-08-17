@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_85.png
-
-Convert to MarkdownEPSA-701
+EPSA-701
 Page Four
 
 (2) Wilarid (TRIAD), Puerto Rican, formerly a warrant officer with the CIC and now operating a photo shop owned by his brother-in-law on Avenida Ponce de Leon, Stop 18-20, Santurce, Puerto Rico, visits the Dominican Republic frequently to go hunting with a prominent Dominican who is his close personal friend. Both TRAID and this Dominican are ardent cock fight fans and the Dominican often brings his cocks to fight in Puerto Rican rings. TRAID is recommended by SKEEDADDLE as completely trustworthy and could be approached should the need arise.

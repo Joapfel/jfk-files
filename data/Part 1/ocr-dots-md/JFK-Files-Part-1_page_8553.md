@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8553.png
-
-Convert to MarkdownTANG was a member of the Chinese Emb staff here, because he did not find his name in the diplomatic list. Further, he told S that he was doing a good job, which he appreciated, but he must be very cautious because the Chinese are clever people and extremely suspicious.
+TANG was a member of the Chinese Emb staff here, because he did not find his name in the diplomatic list. Further, he told S that he was doing a good job, which he appreciated, but he must be very cautious because the Chinese are clever people and extremely suspicious.
 
 6. In reply to S' question LOG stated that he for anyone of them (Sov Emb official) would meet with TANG, because that it too dangerous. S qu騅ied what was dangerous about it and LOG stated that there was always a chance that they (TANG and LOG or another Sov) might be seen together and that would be very bad. S went on to tell S that it would be his job to develop friendly relations with TANG ot possibly another Chinese official and slowly obtain from him the info LOG and his embassy needed; LOG will guide him as to how to go about it and if they show confidence in S he will have it made and Sovs ( LOG used the expression: WE ) would pay him very well for that job. S commented that he had believed that what he was doing he did out of personal friendship with LOG and not for money. LOG smiled at S' statement and added that in addition to meney they (Sovs) enable S to travel to Sov Union and have a vacation on the Black Sea.
 

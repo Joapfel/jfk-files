@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15393.png
-
-Convert to MarkdownMemorandum Donahoe to Belmont
+Memorandum Donahoe to Belmont
 
 Re: THAILAND ACTIVITIES IN THE UNITED STATES
 105-New

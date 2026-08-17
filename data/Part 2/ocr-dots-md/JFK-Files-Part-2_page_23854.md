@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23854.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 others, recommended very strongly that there be more unofficial
 2 cover.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10411.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Perdónde me si con intimidad no le había informado, pero consideré que era inodoro hacerlo mientras no se tuviera algo concreto como es la declaración de los testigos de descargo.
 

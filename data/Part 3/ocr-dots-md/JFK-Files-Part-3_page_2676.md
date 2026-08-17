@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2676.png
-
-Convert to Markdown1 occasion, be a designation of a special task force made up,
+1 occasion, be a designation of a special task force made up,
 2 perhaps, of division heads. That is most unlikely, but it is
 3 handled internally at present.
 

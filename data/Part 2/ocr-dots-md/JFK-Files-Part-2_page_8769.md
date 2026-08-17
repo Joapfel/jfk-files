@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8769.png
-
-Convert to Markdowncould do in a military way which would be capable
+could do in a military way which would be capable
 of overthrowing the present Government of Cuba. An
 FBI source advised on 16 Mar 62 that APARICIO and Rescate
 were making arrangements to picket the White House on

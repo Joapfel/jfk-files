@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21444.png
-
-Convert to MarkdownSAC, Chicago (100-41353)
+SAC, Chicago (100-41353)
 
 SECRET
 

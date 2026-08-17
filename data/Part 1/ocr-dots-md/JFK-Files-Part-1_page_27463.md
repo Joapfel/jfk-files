@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27463.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9. **Instructions.** Instructions received by you from the Government in briefing or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22213.png
-
-Convert to Markdown621.
+621.
 
 "NOSENKO's description of the secrecy agreement that he signed when entering on duty with the KGB is completely unlike the agreement that was in use at that time for staff employees. It may be significant that NOSENKO's description of the secrecy agreement he recalls signing resembles the secrecy agreements that were taken from agents.
 

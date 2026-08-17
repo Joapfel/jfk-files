@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17339.png
-
-Convert to MarkdownR. STEIN
+R. STEIN
 
 jueves 9 mayo 13.
 

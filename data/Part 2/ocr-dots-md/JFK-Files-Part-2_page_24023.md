@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24023.png
-
-Convert to MarkdownOctober 15
+October 15
 
 Karamessines met with Kissinger and Haig at the White House to discuss Track II. According to the CIA memorandum of conversation, Karamessines gave a run-down on Viaux, Canales and Tirado and "the general situation in Chile from the coup-possibility viewpoint." It was concluded that Viaux did not have more than one chance in twenty--perhaps less--to launch a successful coup. Kissinger ticked off the list of negative repercussions from an unsuccessful coup. The CIA record of the meeting continues:
 

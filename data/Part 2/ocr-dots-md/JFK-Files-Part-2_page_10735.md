@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10735.png
-
-Convert to MarkdownDo's: August 23, 1973
+Do's: August 23, 1973
 
 At approximately 4:35 a.m., entry was made into the Selective Service Board rooms. Fifth Floor, Federal Courthouse and Post Office, Camden. On entry, seven persons were seen standing in various positions. They were immediately advised that they were under arrest and that they were arrested by Special Agents of the FBI.
 

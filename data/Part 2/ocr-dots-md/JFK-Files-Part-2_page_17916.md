@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17916.png
-
-Convert to MarkdownNR002 NH CODE
+NR002 NH CODE
 
 1038PM NITEL MARCH 25,1975 LM
 

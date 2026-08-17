@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21944.png
-
-Convert to Markdowna. Agents Reporting on Military Attaches
+a. Agents Reporting on Military Attaches
 
 Asked in April 1964 to describe the agent network
 (_agentura_) at his disposal in operations against U.S. Mili-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2112.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tbody><tr><td colspan="4">SECTION 18. NEIGHBORS-THREE IN THE UNITED STATES AT YOUR LAST RESIDENCE</td></tr><tr><td>NAME</td><td>ADDRESS STREET AND NUMBER</td><td>CITY</td><td>STATE</td></tr><tr><td>Mr. Harry J. Hawley</td><td>205-K-10, retired, 3rd State Department, Washington</td><td></td><td></td></tr><tr><td>Mr. Don Morgan</td><td>4320 Glenwood Drive, R.T. 4, box 104, Riverside</td><td></td><td></td></tr><tr><td>Jr. R. G. Ledyard</td><td>Street Address: Unknown, Washington, D.C.</td><td></td><td></td></tr><tr><td colspan="4">SECTION 19. RESIDENCES FOR PAST 15 YEARS</td></tr><tr><td>FROM:</td><td>TO:</td><td>ADDRESS STREET AND NUMBER</td><td>CITY</td><td>STATE</td><td>COUNTRY</td></tr><tr><td>Jan. 1931</td><td>Oct. 1938</td><td>American Consulate, Ensenada, Jal., Mexico</td><td></td><td></td><td></td><td></td></tr><tr><td>Nov. 1938</td><td>Aug. 1941</td><td>American Consulate, Mazatlan, Sin., Mexico</td><td></td><td></td><td></td><td></td></tr><tr><td>Aug. 1941</td><td>Aug. 1944</td><td>American Consulate, Guadalajara, Jal., Mexico</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

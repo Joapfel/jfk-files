@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29169.png
-
-Convert to MarkdownSEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE none
+SEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE none
 
 <table><tr><td>(Country)</td><td>(Service)</td><td>(Rank)</td><td>(Dates of Service)</td></tr><tr><td>(Last Station)</td><td>(Serial Number)</td><td colspan="2">(Type of Discharge)</td></tr><tr><td>REMARKS:</td><td colspan="3"></td></tr><tr><td>SELECTIVE SERVICE BOARD NUMBER</td><td colspan="3">ADDRESS</td></tr><tr><td colspan="4">IF DEFERRED GIVE REASON</td></tr><tr><td colspan="4">INDICATE MEMBERSHIP IN MILITARY RESERVE ORGANIZATIONS</td></tr></table>
 

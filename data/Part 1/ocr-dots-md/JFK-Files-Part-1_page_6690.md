@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6690.png
-
-Convert to MarkdownAugust 5, 1963
+August 5, 1963
 
 Dear Dr. Guitart,
 

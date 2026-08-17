@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5877.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 BAYARD RUSTIN
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30083.png
-
-Convert to MarkdownHerman Edward Kinsey
+Herman Edward Kinsey
 
 December 11, 1915
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21983.png
-
-Convert to MarkdownThe Station maintained liaison with the City of Miami Police Department, especially with the Criminal Intelligence Section and the Detective Division. (these offices provided the station with access to police records on Cuban囚лыes)
+The Station maintained liaison with the City of Miami Police Department, especially with the Criminal Intelligence Section and the Detective Division. (these offices provided the station with access to police records on Cuban囚лыes)
 
 The Criminal Intelligence Section (1962-1966) was headed by Lt. (Harvard Switlley), a Sergeant (Gow was in charge) of the Detective Division⁶⁰ and a (Mr. Demby was chief) of the Communications Division.
 

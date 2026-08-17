@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17509.png
-
-Convert to MarkdownCOOK is allegedly going to testify at some school board which will allegedly attempt to expell WALLS.
+COOK is allegedly going to testify at some school board which will allegedly attempt to expell WALLS.
 
 COOK is to testify for the school against WALLS.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18895.png
-
-Convert to MarkdownForm OSA 1008
+Form OSA 1008
 
 OFFICE OF STRATEGIC SERVICES
 WASHINGTON, D. C.

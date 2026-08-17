@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26478.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: WH 8</td></tr><tr><td>INFO : CI, CI/OPS, CI/IC 2, FI, FI/INT 2, RF 2</td></tr></table>
 

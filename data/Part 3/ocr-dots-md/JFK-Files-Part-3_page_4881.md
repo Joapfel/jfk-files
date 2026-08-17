@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4881.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On April 3, 1967, MM T-3 advised that FABIO DE CRESTOFARO is now shylocking and pushing out money for NORMAN ROTHMAN who in turn has the backing of PATTY ERRA.
 

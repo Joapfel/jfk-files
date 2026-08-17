@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19609.png
-
-Convert to MarkdownUNITED STATES OF AMERICA
+UNITED STATES OF AMERICA
 GENERAL SERVICES ADMINISTRATION
 
 National Personnel Records Center

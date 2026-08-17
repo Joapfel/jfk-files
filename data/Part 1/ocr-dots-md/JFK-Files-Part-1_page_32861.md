@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32861.png
-
-Convert to Markdown-3-
+-3-
 
 Miguel - No hay nada mas lógica que el tu vas a .... tu raire, ni que la .... sigo que la veas. Il maire es una mujer due te voy a decir una cosa, todo lo que le ha hecho a Ciba ha sido bien. Toda en vida ha sido maestra, ha tenei muchos arıges, ha hecho mucho efectivamente en contra de Batista, te das cuenta! C sien que el estado ha tenido consideraciones con ella y con el resto de la familia por ...... morece tambien, aparto de lo que haya sido yo, eso es completamente apurte de mi, yo no tengo nada que ver con ella.
 

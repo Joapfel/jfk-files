@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29455.png
-
-Convert to MarkdownRYBAT
+RYBAT
 S E C R E T
 
 21 April 1967

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5748.png
-
-Convert to MarkdownMr. T. Jeremy Gunn
+Mr. T. Jeremy Gunn
 
 than 31 additional boxes of materials being sent for review.
 Included within this material were 19 boxes of JFK working

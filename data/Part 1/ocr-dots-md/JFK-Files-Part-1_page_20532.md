@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20532.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 81 APR 1970
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26348.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CLASSIFICATION - DISSEMINATION CONTROLS
 

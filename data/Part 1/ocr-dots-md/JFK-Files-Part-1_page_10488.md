@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10488.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Just before they arrived they heard on the police radio that the Army had just "shot down" a twin-engine beache craft. When they arrived, a search of the wreckage yielded a few weapons. A short firefight (about 15 minutes) ceased with insurgents that left two soldiers dead. Masferrer said he did not know the number of insurgent casualties. One insurgent was captured along with his .45 caliber pistol.
 

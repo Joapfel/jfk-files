@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8767.png
-
-Convert to MarkdownMEXI.6844 (IN 57745) dated 8 November 1963
+MEXI.6844 (IN 57745) dated 8 November 1963
 Cable to Hqs. DEGRIP reported that CASTRO visited restaurant at least once a month and was "a sitting duck." CEOCHI reported to be cowardly type."
 
 MEXI 0880 (IN 73754) dated 14 Sept 1964

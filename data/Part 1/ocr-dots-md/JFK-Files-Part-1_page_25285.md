@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25285.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and his wife, MAKOVIN and wife, RAIZOV and wife, AKOV and wife, and GELPANOV; he was not certain about GELPANOV's wife, who had a one-month old baby at home.
 

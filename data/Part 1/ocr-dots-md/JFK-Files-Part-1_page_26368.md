@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26368.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">REPORT COVER SHEET</td><td>SECRET<br/>NO FOREIGN DISSEM</td><td>PROCESSING ACTION</td></tr><tr><td>FROM</td><td>Mexico City</td><td>REPORT NO.</td><td>COVER SHEET<br/>MARKED FOR INDEXING</td></tr><tr><td>REPORTING OFFICER</td><td>Willard C. CURTIS</td><td>DATE OF REPORT</td><td>NO INDEXING REQUIRED<br/>FOR DATA REPORTED SEPARATELY</td></tr><tr><td>REPORTS OFFICER</td><td>Olivia C. RAGNITY</td><td>PROJECT</td><td>CIS DISSEMINATION</td></tr><tr><td>APPROVING OFFICER</td><td>Willard C. CURTIS</td><td>SOURCE CRYST</td><td>TOCS DISSEMINATION</td></tr><tr><td></td><td></td><td>LIENVOY</td><td></td></tr><tr><td></td><td></td><td>LIENVOY</td><td></td></tr></table>
 

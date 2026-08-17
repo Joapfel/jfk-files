@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3513.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Report # DD-764.
 

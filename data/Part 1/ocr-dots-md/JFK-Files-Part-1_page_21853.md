@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21853.png
-
-Convert to MarkdownB. Reasons for NOSENKO's Presence in Geneva (1962 and 1964)
+B. Reasons for NOSENKO's Presence in Geneva (1962 and 1964)
 
 1. TDY in 1962
 

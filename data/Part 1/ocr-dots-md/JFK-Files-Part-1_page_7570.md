@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7570.png
-
-Convert to Markdownof all basic revolutionary questions, and free play to
+of all basic revolutionary questions, and free play to
 orthodox as well as orthodox views. If your views
 were correct, I argued, it would be a distinct advan-
 tage to you to have such an opportunity to display their

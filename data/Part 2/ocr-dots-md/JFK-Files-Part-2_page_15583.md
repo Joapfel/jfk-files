@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15583.png
-
-Convert to MarkdownNEW DAY BOOKS, INC., dba
+NEW DAY BOOKS, INC., dba
 Modern Book Store (MBS)
 
 On April 22, 1969, a source advised MBS today is the direct line successor to the original Workers Book Store, 23 South Lincoln Avenue, Chicago, Illinois, established by the Communist Party (CP) in the 1920sostensiblyby under the ownership of S.M. HAMMERSMANN, a charter member of the CP.

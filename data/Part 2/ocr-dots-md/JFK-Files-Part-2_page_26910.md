@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26910.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1401 First Street, #4, Washington, D.C. 20003
 

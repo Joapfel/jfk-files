@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23963.png
-
-Convert to MarkdownIt was said to be the Department's considered opinion that "former objective cannot, repeat not, easily override latter." (State Dept. to Dearborn cable, 5/24/61 - not sent)
+It was said to be the Department's considered opinion that "former objective cannot, repeat not, easily override latter." (State Dept. to Dearborn cable, 5/24/61 - not sent)
 
 This State Department draft was forwarded to Under Secretary Bowles with the comment that Goodwin considered it "too negative" and that he would try his hand on a draft "for Bundy to present tomorrow morning." (Memo from Achilles to Bowles, 5/24/61)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20538.png
-
-Convert to MarkdownMr. F. Howard Hunt
+Mr. F. Howard Hunt
 11120 River Road
 Potomac, Maryland 20854
 

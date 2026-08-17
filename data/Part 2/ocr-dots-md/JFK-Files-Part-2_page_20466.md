@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20466.png
-
-Convert to MarkdownWashington welfare programs in the United States began with passage of the Social Security Act, --In 1935, authorizing federal grants to states for public assistance and child welfare programs. In 1937, the Washington Legislature repealed the Paupers Law of 1854 and enacted a State Social Security Law. "Welfare" has been a bone of contention ever since.
+Washington welfare programs in the United States began with passage of the Social Security Act, --In 1935, authorizing federal grants to states for public assistance and child welfare programs. In 1937, the Washington Legislature repealed the Paupers Law of 1854 and enacted a State Social Security Law. "Welfare" has been a bone of contention ever since.
 
 ### Greenleigh Report
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7290.png
-
-Convert to Markdown4.11 Voice:
+4.11 Voice:
 
 4.11.01 Is his voice pitched Low ____ Medium ____ High ____
 

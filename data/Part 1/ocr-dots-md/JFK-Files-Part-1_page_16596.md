@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16596.png
-
-Convert to MarkdownUSE PREVIOUS
+USE PREVIOUS
 EDITIONS
 
 MFG 0.71

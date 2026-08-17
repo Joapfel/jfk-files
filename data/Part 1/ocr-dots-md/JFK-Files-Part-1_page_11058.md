@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11058.png
-
-Convert to MarkdownLa Habana, 24 de Mayo de 1966
+La Habana, 24 de Mayo de 1966
 "ANO DE LA SOLIDARIDAD"
 
 Estimada compafiera:

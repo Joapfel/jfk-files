@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5134.png
-
-Convert to Markdown<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO</td><td>Chief of Station, San Jose</td></tr><tr><td>INFO.</td><td>Chief, Latin America Division</td></tr><tr><td>FROM</td><td>Chief of Station, Caracas</td></tr><tr><td>SUBJECT</td><td>REAM/HUFABRIC/WKBOXER<br/>Transmittal of Reference Passport</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td><td>REFERENCE: CAPACAS 31443<br/><br/>WARNING NOTICE--SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED<br/><br/>Forwarded herewith is the Xerox copy of the passport mentioned in reference.<br/><br/>Frederick C. BRADSPIES</td></tr></table>
+<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO</td><td>Chief of Station, San Jose</td></tr><tr><td>INFO.</td><td>Chief, Latin America Division</td></tr><tr><td>FROM</td><td>Chief of Station, Caracas</td></tr><tr><td>SUBJECT</td><td>REAM/HUFABRIC/WKBOXER<br/>Transmittal of Reference Passport</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td><td>REFERENCE: CAPACAS 31443<br/><br/>WARNING NOTICE--SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED<br/><br/>Forwarded herewith is the Xerox copy of the passport mentioned in reference.<br/><br/>Frederick C. BRADSPIES</td></tr></table>
 
 **Attachment!**
 Passport Xerox Copy, h/w

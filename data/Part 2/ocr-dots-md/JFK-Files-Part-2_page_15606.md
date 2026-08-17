@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15606.png
-
-Convert to Markdown"Nixon must die" These statements were made, according to KUTNER, to accentuate HAMPTON's statement that the BPP was a revolutionary party, but HAMPTON's statements concerning weapons were not made at the same time "Nixon must die".
+"Nixon must die" These statements were made, according to KUTNER, to accentuate HAMPTON's statement that the BPP was a revolutionary party, but HAMPTON's statements concerning weapons were not made at the same time "Nixon must die".
 
 KUTNER stated that HAMPTON spoke until approximately 3:40 p.m., and KUTNER stated he went to the meeting when he heard that a speaker from the BPP was on the program inasmuch as KUTNER has taken a personal interest in the BPP because of its "ranting and raving" and this personal interest on the part of KUTNER has reached the point where he would like to take legal action to silence the BPP. KUTNER stated that he intends to bring a civil action against the BPP, utilizing Title 42, U.S. Code, Section 1893.
 

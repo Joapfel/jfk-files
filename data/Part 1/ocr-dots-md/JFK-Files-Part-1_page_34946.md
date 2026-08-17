@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34946.png
-
-Convert to MarkdownJune 10, 1967
+June 10, 1967
 
 Your re.: Allotment HM
 

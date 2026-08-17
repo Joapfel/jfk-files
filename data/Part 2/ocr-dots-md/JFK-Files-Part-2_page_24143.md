@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24143.png
-
-Convert to Markdown49. MHRUCHE
+49. MHRUCHE
 
 A Liechtenstein anstalt which is a general use standby
 asset; no employees.

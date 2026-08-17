@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_520.png
-
-Convert to MarkdownORIG: UNIT: EXT:: DATE:
+ORIG: UNIT: EXT:: DATE:
 
 RESTRICTED HANDLING
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21199.png
-
-Convert to MarkdownFJIT 10,374, 31 May 63
+FJIT 10,374, 31 May 63
 
 <table><tr><td colspan="2">FITNESS REPORT</td><td>EMPLOYEE SERIAL NUMBER</td></tr><tr><td colspan="2"></td><td>025793</td></tr></table>
 

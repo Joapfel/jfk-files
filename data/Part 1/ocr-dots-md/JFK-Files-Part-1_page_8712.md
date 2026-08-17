@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8712.png
-
-Convert to Markdown11.03.03 Tipo bienhumorado que a veces puede ser considerado alegra y despreocupado. Sus chistes son avispados y oportunos. Es muy sensible a los estados de ánimo y sentimientos de otros, y a menudo puede animar una fiesta muy apropiadamente. Aunque hasta cierto punto le gusta bromear con otros, nunca es cruel o insensible.
+11.03.03 Tipo bienhumorado que a veces puede ser considerado alegra y despreocupado. Sus chistes son avispados y oportunos. Es muy sensible a los estados de ánimo y sentimientos de otros, y a menudo puede animar una fiesta muy apropiadamente. Aunque hasta cierto punto le gusta bromear con otros, nunca es cruel o insensible.
 
 11.03.04 Generalmente es tipo algo tranquilo y afable que a veces puede volverse sorprendentemente alegra y despreocupado. Sin embargo, cuando está alegra a veces se extralimita y molesta un poco a los que están a su alrededor. Sus bronas son a menudo avispadas pero puede volverse muy sarkástico y aun mordaz en ocasiones
 

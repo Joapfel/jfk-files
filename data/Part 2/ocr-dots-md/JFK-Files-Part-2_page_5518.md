@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5518.png
-
-Convert to MarkdownSECRET
+SECRET
 
 tending to confirm the liaison relationship. We request that the last seven words of line four, paragraph "h", be replaced with substitute wording such as "the public security facilities".
 

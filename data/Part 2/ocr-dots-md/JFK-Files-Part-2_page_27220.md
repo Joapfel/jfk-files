@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27220.png
-
-Convert to MarkdownCLAPPER FILES
+CLAPPER FILES
 
 C-A Letters: Form Responses
 C-B Letters: Form Responses

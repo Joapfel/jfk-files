@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8707.png
-
-Convert to MarkdownSi tu respuesta es negativa, ¿qué clase de deportes cree usted que le interesa más?
+Si tu respuesta es negativa, ¿qué clase de deportes cree usted que le interesa más?
 
 No es tipo para deportes
 De contacto físico (fútbol, rugby, soccer, etc.)

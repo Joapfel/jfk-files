@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7636.png
-
-Convert to MarkdownMemorandum T. J. Jenkins to Mr. Felt
+Memorandum T. J. Jenkins to Mr. Felt
 
 Re: Supervisory Reorganization of
 Functions and Personnel

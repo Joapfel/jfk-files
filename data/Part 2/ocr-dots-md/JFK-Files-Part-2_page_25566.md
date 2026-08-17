@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25566.png
-
-Convert to Markdown# COPY
+# COPY
 
 February 11, 1976
 

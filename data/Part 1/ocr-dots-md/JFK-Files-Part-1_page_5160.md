@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5160.png
-
-Convert to Markdown# FBI Told of Chilean Plot to Use Cubans to Kill Allende K
+# FBI Told of Chilean Plot to Use Cubans to Kill Allende K
 
 By Joe Crankshaw
 The Miami Herald

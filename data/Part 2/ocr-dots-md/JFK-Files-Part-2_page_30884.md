@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30884.png
-
-Convert to Markdown11:107:13
+11:107:13
 
 (2) When was the first time you ever heard this allegation that LHO was a CIA agent while stationed in Tokyo? 13-3
 

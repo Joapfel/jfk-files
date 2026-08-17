@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29082.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">SCHEDULE<br>A<br>FORM 540</td>

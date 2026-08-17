@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1794.png
-
-Convert to Markdown(202) 225-4624
+(202) 225-4624
 
 LOUIS STOKES, OHIO, CHAIRMAN
 RICHARDSON PREYER, N.C.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10543.png
-
-Convert to MarkdownPAGE TWO
+PAGE TWO
 
 CI: 90 PERCENT - TWO
 80 PERCENT - TWO

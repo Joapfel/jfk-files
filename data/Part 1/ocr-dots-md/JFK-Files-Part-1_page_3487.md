@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3487.png
-
-Convert to MarkdownThe remainder will follow by Dispatch.
+The remainder will follow by Dispatch.
 
 7. Guertler suggested Curapco as a suitable place for drydocking Adelaida for needed repairs after the operation. A-1 demurred, stating that it would be needed for an infiltration op on 3 May. A-19 was told that it was of the utmost importance that the AKL Dolores be provided with a top quality captain and engineer, regardless of cost or nationality, that the equipment was very sensitive and was irreplaceable. A-19 stated that it would be a problem, especially the engineer, but that he would do so. Guertler offered no suggestions where to look, merely commenting that not that AMWORLD had made many commercial contacts he should be able to obtain assistance in locating a good man for the job.*
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34443.png
-
-Convert to MarkdownDepartment of Justice
+Department of Justice
 Washington 20530
 
 October 20, 1963

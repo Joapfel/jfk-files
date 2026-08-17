@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34243.png
-
-Convert to Markdown"Turmoil in the Armed Forces".- Castro is worried over the obvious discontent that is rampant in the Armed Forces, where a document that criticizes the regime and calls for open rebellion has been secretly but widely circulated. Fidel Castro is doubling his precautions and shifting officers and units, but he is doing so somewhat blindly, as he does not know exactly where the focal point of discontent may be, nor what effects it may eventually have.
+"Turmoil in the Armed Forces".- Castro is worried over the obvious discontent that is rampant in the Armed Forces, where a document that criticizes the regime and calls for open rebellion has been secretly but widely circulated. Fidel Castro is doubling his precautions and shifting officers and units, but he is doing so somewhat blindly, as he does not know exactly where the focal point of discontent may be, nor what effects it may eventually have.
 
 January 15, 1966:
 

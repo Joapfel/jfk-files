@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10950.png
-
-Convert to MarkdownG. AREAS OF CONFLICT, FBI - CIA
+G. AREAS OF CONFLICT, FBI - CIA
 
 Any differences between FBI and CIA are first
 related to a basic problem existing in any country among

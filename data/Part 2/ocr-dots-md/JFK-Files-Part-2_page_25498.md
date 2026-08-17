@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25498.png
-
-Convert to MarkdownFS: Who are the people you are in touch with?
+FS: Who are the people you are in touch with?
 
 ML: Two agents, Murphy and Shannon. This was...
 

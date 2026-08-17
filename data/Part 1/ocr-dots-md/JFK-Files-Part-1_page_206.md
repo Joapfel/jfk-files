@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_206.png
-
-Convert to Markdown-5-
+-5-
 
 26. American Academy of Political and Social Science (no address) (6) 08
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_447.png
-
-Convert to Markdownof the park and continued their discussion. At this point the source noted for the first time a person of Cuban appearance sitting on a nearby park bench who remained in the area through the entire meeting. The source suspected this person as being connected with counter surveillance of the meeting.
+of the park and continued their discussion. At this point the source noted for the first time a person of Cuban appearance sitting on a nearby park bench who remained in the area through the entire meeting. The source suspected this person as being connected with counter surveillance of the meeting.
 
 Espinosa instructed the source to prepare in report from the answers to the second portion of the list of questions furnished to the latter on May 13, 1969. The answers in report form are to be placed in an empty cigarette package and dropped at 11:00 AM on August 20, 1969, or August 22, 1969, behind an iron gate fence at the northwest corner of Bronx Park East at Allerton Avenue, from two to five feet north of the concrete store pillar which anchors the fence. The source is to return to the drop site at 1:00 PM to check if the drop was covered. Two dates for the pickup were provided in the event there were too many persons in that area to risk covering the drop.
 

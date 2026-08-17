@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18516.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><td colspan="7">VERIFIED RECORD OF OVERSEAS SERVICE</td><td>150471</td><td>FEB 961</td></tr><tr><td colspan="8">TO:<br/>Office of Personnel, Statistical Reporting Branch, ROOM 102 Curie Hall</td></tr><tr><th>EMPLOYEE SERIAL NO.</th><th>NAME OF EMPLOYEE<br/>LAST</th><th>NAME OF EMPLOYEE<br/>FIRST</th><th>MIDDLE</th><th>OFFICE/COMPONENT</th><th></th><th></th><th></th></tr></thead><tbody><tr><td>1-8</td><td>(Print)</td><td>6-23</td><td></td><td>24-25</td><td></td><td>34</td><td></td></tr><tr><td colspan="8"><strong>INSTRUCTIONS</strong><br/>USE APPROPRIATE SPACE BELOW TO REPORT DATA FOR EITHER PCS OR TOY. INSERT APPROPRIATE CODE NUMBER IN "CODE" COLUMN TO DESIGNATE WHETHER SUBMISSION IS OF BASIC DATA, CORRECTION, OR CANCELLATION (One only). REPORT DATES BY USING THE NUMBER FOR THE MONTH, AND LAST TWO DIGITS ONLY FOR YEAR.</td></tr></tbody><tfoot><tr><td colspan="7"><strong>PCS DATES OF SERVICE</strong></td><td rowspan="2"><strong>COUNTRY</strong></td><td rowspan="2"><strong>OMIT</strong></td></tr><tr><td colspan="6">TYPE OF DATA</td><td>ARRIVAL</td><td>DEPARTURE</td><td>YEAR</td></tr><tr><td>1 - PCS (Basic)<br/>3 - CORRECTION<br/>5 - CANCELLATION</td><td>CODE</td><td>MONTH</td><td>DAY</td><td>YEAR</td><td>MONTH</td><td>DAY</td><td>YEAR</td></tr><tr><td></td><td>28</td><td>27-28</td><td>29-30</td><td>31-32</td><td>33-34</td><td>35-36</td><td>37-38</td></tr></tfoot></table>

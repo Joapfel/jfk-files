@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4356.png
-
-Convert to Markdownat the time of the inauguration. As far as former Pres.
+at the time of the inauguration. As far as former Pres.
 Figueres' activities in relation to the strike activity
 and assassination attempt on Samoza were concerned, AMBIDDY-1
 said Arrizurieta told him that he knew that there had been

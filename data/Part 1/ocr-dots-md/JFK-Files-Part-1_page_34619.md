@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34619.png
-
-Convert to MarkdownCELOTEX I
+CELOTEX I
 
 We will want more detail on the actual surveillance, including possible higher approval.
 

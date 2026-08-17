@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29619.png
-
-Convert to MarkdownSUBJECT: Recommendation for Promotion
+SUBJECT: Recommendation for Promotion
 
 ## 6. JUSTIFICATION FOR PROMOTION:
 

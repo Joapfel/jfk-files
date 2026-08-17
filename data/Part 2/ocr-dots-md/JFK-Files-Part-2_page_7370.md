@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7370.png
-
-Convert to Markdownnecessity to show intent to harm the United States. The reason for the application of strict compartmentation procedures to communications intelligence and other foreign intelligence activities reflects the extreme vulnerability of the sources. Once an opposition becomes aware of which of its communications we are intercepting, it can take swift remedial action, and the source can be forever lost.
+necessity to show intent to harm the United States. The reason for the application of strict compartmentation procedures to communications intelligence and other foreign intelligence activities reflects the extreme vulnerability of the sources. Once an opposition becomes aware of which of its communications we are intercepting, it can take swift remedial action, and the source can be forever lost.
 
 On Friday afternoon, copies of the secrecy oath used by the executive branch with respect to three compartmented access control systems were made available to you along with the revised forms developed for and executed by certain members of the staff of the Senate Select Committee to Study Intelligence Activities. I would hope that the enclosed agreement modified for the House Select Committee, combining all three compartments into one document, would meet your particular concerns.
 

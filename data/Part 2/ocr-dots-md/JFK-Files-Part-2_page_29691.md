@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29691.png
-
-Convert to Markdown**Classification:**
+**Classification:**
 
 (This document is a top secret item extracted from the State Department's controls. It contains classified information.
 

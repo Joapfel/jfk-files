@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11484.png
-
-Convert to MarkdownCertainly, the present Attorney General is a man of integrity. He has voiced his concern several times over regarding the abuses which have come to light through the investigations of the past year. He has been helpful to the Select Committee by providing documents and other information. I have full confidence in his good intentions and his respect for the law.
+Certainly, the present Attorney General is a man of integrity. He has voiced his concern several times over regarding the abuses which have come to light through the investigations of the past year. He has been helpful to the Select Committee by providing documents and other information. I have full confidence in his good intentions and his respect for the law.
 
 Nonetheless, the Attorney General faces an unfortunate dilemma. Since the Federal Bureau of Investigation is a subdivision of the Justice Department, it lies within the administrative responsibility of the Attorney General. He is thus placed in a position of investigating the very house over which he must preside.
 

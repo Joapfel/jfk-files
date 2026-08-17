@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3421.png
-
-Convert to Markdown6. We asked A-1 if he had any ideas of where AMBANG-1 is at present. A-1 is of the opinion that AMBANG-1 is probably hiding in some small island off Puerto Rico.
+6. We asked A-1 if he had any ideas of where AMBANG-1 is at present. A-1 is of the opinion that AMBANG-1 is probably hiding in some small island off Puerto Rico.
 
 7. A-1 inquired if he could sue the Newsweek magazine. We advised him that he could sue but the likelihood of him winning the case was slight. A-1 was referring to the article which stated he intended to draw the United States into an open conflict with Castro. We asked if there were any truth to the matter. A-1 laughed and said, "Of course not."
 

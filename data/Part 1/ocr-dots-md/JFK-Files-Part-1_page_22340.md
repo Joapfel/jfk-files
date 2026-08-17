@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22340.png
-
-Convert to Markdown747.
+747.
 
 Again to accommodate the added year in Chelyabinsk, KOSENKO said in 1966 that he spent half a year (actually, according to the rest of the story, about three months) in Baku before running away from school back to Moscow in January 1944. In earlier accounts he said he was at the preparatory school there from October 1942 until January 1944. Earlier he had also given expansive and changing accounts of his escape from school to join the Soviet front against the Germans at Tuapse; now he admitted that this was a lie. By cutting the time he was in Baku from 15 months to about three, KOSENKO also admitted implicitly that his accounts of the basic training he received in the preparatory school, of the summer he spent working at the school rather than returning to Moscow on vacation, and of his "certainty" that he celebrated his 15th birthday in Baku were also false.
 

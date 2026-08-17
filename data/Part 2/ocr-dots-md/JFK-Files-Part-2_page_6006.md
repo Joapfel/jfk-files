@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6006.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 incorporated in the Agency's JFK collection and will be
 processed for release to NARA.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14585.png
-
-Convert to Markdown18. Nevertheless, RUIZ has several times mentioned that he holds his really important conversations at home, and that he would rather see more people at his home instead of at his office. (In this connection, it is noted that the house next door to his --- Calle Triana 44 --- which used to be a home for the aged) is now empty. The owner of the apartment building where he lives is Ignacio ARTERO, a Spaniard.
+18. Nevertheless, RUIZ has several times mentioned that he holds his really important conversations at home, and that he would rather see more people at his home instead of at his office. (In this connection, it is noted that the house next door to his --- Calle Triana 44 --- which used to be a home for the aged) is now empty. The owner of the apartment building where he lives is Ignacio ARTERO, a Spaniard.
 
 19. RUIZ has even suggested installing a radio transmitter and speaking in code with Havana. The Cubans are in fact installing a transmitter on the Canary Islands, but RUIZ, characteristically keeping his actions correct, has stressed to the Spanish that Cuba will not use the transmitter for other than legitimate commercial purposes. RUIZ even offered to allow Spanish citizens to operate the station in order to emphasize his point.
 

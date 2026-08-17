@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23019.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 The ratings above, and narrative comments hereunder, are derived from a synthesis of all evaluations submitted on each respective trainee by the instructor staff.
 

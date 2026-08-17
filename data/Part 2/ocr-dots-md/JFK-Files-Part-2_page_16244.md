@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16244.png
-
-Convert to Markdown2. Outer city (State) /Same as inner/
+2. Outer city (State) /Same as inner/
 
 3. Air-trans, airports, air fields
 

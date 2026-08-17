@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22161.png
-
-Convert to MarkdownG. NOSENKO's KGB Promotions and Awards
+G. NOSENKO's KGB Promotions and Awards
 
 1. Rank
 

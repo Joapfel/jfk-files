@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3374.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 12. Oral History Interview: Richard Bissell by Jack B. Pfeiffer, 17 Oct 75, Tape 1, pp. 5-6.
 

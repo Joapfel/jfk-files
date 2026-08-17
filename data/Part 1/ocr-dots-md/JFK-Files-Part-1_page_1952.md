@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1952.png
-
-Convert to Markdown104-10122-10344
+104-10122-10344
 
 SECRET
 EYES ONLY

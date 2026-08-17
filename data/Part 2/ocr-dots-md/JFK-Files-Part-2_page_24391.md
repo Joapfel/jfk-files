@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24391.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 implement the specific objectives of NSC 5410/2. At the same time, however, the memorandum stated that even in the development of ideas or plans for action, it was incumbent upon the Agency not only to coordinate with other executive departments and agencies, but also to "obtain necessary policy approval" (emphasis added). The issue which faced the Committee, of course, was whether such approval was, in fact, sought and obtained for assassination plans, and whether CIA officials thought it was "necessary" to obtain express approval for these activities.
 

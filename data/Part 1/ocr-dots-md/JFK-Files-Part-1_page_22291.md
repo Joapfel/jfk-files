@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22291.png
-
-Convert to Markdownh. <u>NOSENKO's Operational Activities (1958-1969)</u>
+h. <u>NOSENKO's Operational Activities (1958-1969)</u>
 
 (i) General
 

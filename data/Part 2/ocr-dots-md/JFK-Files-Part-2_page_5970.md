@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5970.png
-
-Convert to MarkdownNew Memo\Standard
+New Memo\Standard
 
 26 November 1997
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18212.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CONTINUATION OF DISPATCH</td><td>CLASSIFICATION</td></tr><tr><td></td><td>SECRET</td></tr><tr><td colspan="2">BOOK DISPATCH 5961</td></tr></table>
 

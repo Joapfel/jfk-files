@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9445.png
-
-Convert to MarkdownUN-COCKING A REVOLVER (ADDED):
+UN-COCKING A REVOLVER (ADDED):
 
 Keep your finger off the trigger! With gun already cocked, place your thumb on the hammer firmly, Now with the gun firmly in your hand, pointed in a safe direction, and thumb firmly on the hammer (still cocked) squeeze the hammer releasing. IMMEDIATELY TAKE YOUR FINGER OFF THE TRIGGER and slowly let the hammer go down into place with your thumb still holding it. DO NOT TAKE YOUR THUMB OFF THE HAMMER, let your thumb ride with the hammer very slowly until it is completely depressed and uncocked. By leaving your finger in the trigger, or letting the hammer fly forward you will FIRE THE GUN. Practice cocking and uncocking your revolver with the gun unloaded. (Photo# 6)
 

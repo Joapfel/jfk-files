@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5156.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>OMF</td>
     <td>0</td>

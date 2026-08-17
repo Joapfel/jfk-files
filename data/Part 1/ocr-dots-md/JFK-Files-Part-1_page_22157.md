@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22157.png
-
-Convert to Markdown317.
+317.
 
 departure, NOSENKO said: "Oh, no. There is no contact like there was before. It was broken at the time BOLSHAKOV left. ZINCHUK was an agent or a cooptee....No, there is no such contact since BOLSHAKOV left. He passes no more messages."
 

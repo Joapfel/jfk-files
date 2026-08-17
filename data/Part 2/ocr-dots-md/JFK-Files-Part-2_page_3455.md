@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3455.png
-
-Convert to MarkdownSECRET SENSITIVE NOFORN
+SECRET SENSITIVE NOFORN
 
 These had been in a package delivered to a doctor in the
 Canal Zone, who turned them over to the Station which in

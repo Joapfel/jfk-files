@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6264.png
-
-Convert to Markdown(Hall) how was the cooperation of the DOD intelligence agencies including NSA / how much had they withheld ? -- Tilly said he found them cooperative but that the release was small. Did not know off hand how much was withheld. Hall considered so few record as "suspect" and ask if NARA had followed up. Tilly said no. NARA did not have the authority to question the agencies about their searches. He indicated that the Army among others had not responded to NARA's initial request. (During the public comments part of the meeting Newman and Lesar returned to the question of DOD compliance.)
+(Hall) how was the cooperation of the DOD intelligence agencies including NSA / how much had they withheld ? -- Tilly said he found them cooperative but that the release was small. Did not know off hand how much was withheld. Hall considered so few record as "suspect" and ask if NARA had followed up. Tilly said no. NARA did not have the authority to question the agencies about their searches. He indicated that the Army among others had not responded to NARA's initial request. (During the public comments part of the meeting Newman and Lesar returned to the question of DOD compliance.)
 
 Several members of the Board had questions about the Presidential Libraries; Tilly described his role and the process.
 

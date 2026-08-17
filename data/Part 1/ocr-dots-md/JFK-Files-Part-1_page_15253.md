@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15253.png
-
-Convert to Markdown20 August 1959
+20 August 1959
 
 TO: Contracting Officer
 

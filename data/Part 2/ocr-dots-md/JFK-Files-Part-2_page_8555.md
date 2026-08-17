@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8555.png
-
-Convert to MarkdownS E C R E T
+S E C R E T
 
 MEMORANDUM FOR: Mr. John K. Greaney
 Associate General Counsel

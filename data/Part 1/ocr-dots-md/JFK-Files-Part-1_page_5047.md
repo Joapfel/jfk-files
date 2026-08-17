@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5047.png
-
-Convert to Markdown<table><thead><tr><th>PERMIT NUMBER</th><th>COPY NUMBER</th></tr></thead><tbody><tr><td>L02-71083</td><td>39-2657</td></tr><tr><td>T 166233</td><td>EIA163</td></tr></tbody></table>
+<table><thead><tr><th>PERMIT NUMBER</th><th>COPY NUMBER</th></tr></thead><tbody><tr><td>L02-71083</td><td>39-2657</td></tr><tr><td>T 166233</td><td>EIA163</td></tr></tbody></table>
 
 T: SECRET 202108Z AUG 76 STAFF
 

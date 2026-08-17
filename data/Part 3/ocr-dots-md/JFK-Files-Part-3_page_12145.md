@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12145.png
-
-Convert to MarkdownSA Bowen F. Rose
+SA Bowen F. Rose
 (1-22-71 BFR:as)
 
 The case of Eric Nelson, PSI, IS-R,

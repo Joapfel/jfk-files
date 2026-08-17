@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8871.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>U.S. DEPARTMENT OF LABOR</td>
    </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5888.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO : Chief, Special Security Division
 Attn: Mr. Clayton

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21592.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of American counter-intelligence to determine the identity of and
 take appropriate action against KGB penetrations of the United

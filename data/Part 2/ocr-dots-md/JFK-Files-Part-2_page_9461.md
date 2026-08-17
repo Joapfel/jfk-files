@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9461.png
-
-Convert to MarkdownUUCV WITH THE OLD FLESH
+UUCV WITH THE OLD FLESH
 IN WITH THE NEW
 
 The pig media has been broad-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10228.png
-
-Convert to MarkdownSUBJECT: Sensitive activities Performed by the Office of Logistics
+SUBJECT: Sensitive activities Performed by the Office of Logistics
 
 The Maryland State Police have been briefed on the Agency's association with this proprietary and have assisted us in obtaining the appropriate State license. Similarly, a Federal license has been obtained for the proprietary through an arrangement with the Bureau of Alcohol, Tobacco, and Firearms of the Department of the Treasury. They, too, have been briefed on the Agency's association with this proprietary.
 

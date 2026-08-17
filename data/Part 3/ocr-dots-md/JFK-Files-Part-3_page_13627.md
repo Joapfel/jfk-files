@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13627.png
-
-Convert to Markdown1 the best of my knowledge, that he had come out from Cuba
+1 the best of my knowledge, that he had come out from Cuba
 2 since the Helsinki trip.
 3 Mr. Johnston. In other words, you're not aware of any
 4 prior contact between CIA or an intermediary and AMLASH?

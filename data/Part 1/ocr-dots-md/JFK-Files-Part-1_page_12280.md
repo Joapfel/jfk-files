@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12280.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FITNESS REPORT: Ricardo Morales
 SUBMITTED BY: William Robertson

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24560.png
-
-Convert to Markdownassassination, either explicitly or implicitly as a result of pressure
+assassination, either explicitly or implicitly as a result of pressure
 they exerted in the anti-Castro effort:
 
 "The Chairman: Based upon that acquaintanceship, do you believe, under any of the circumstances that occurred during that whole period, either one of them would have authorized the assassination of Fidel Castro?"

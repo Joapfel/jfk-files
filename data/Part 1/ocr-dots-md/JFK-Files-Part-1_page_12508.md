@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12508.png
-
-Convert to MarkdownSECRET
+SECRET
 
 S/C Attachment to HWSA-1473
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4280.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 Your authority is requested to continue the
 telephone surveillance at the headquarters of the Young Lords

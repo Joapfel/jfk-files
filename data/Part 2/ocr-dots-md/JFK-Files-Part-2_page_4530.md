@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4530.png
-
-Convert to Markdown104-10308-10189
+104-10308-10189
 
 # OUTGOING
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22851.png
-
-Convert to Markdowncb 12
+cb 12
 
 Mr. Schwarz. As Bundy Exhibit 2A, the minutes of the meeting of the 303 Committee dated June 22, 1964.
 

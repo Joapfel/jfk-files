@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10571.png
-
-Convert to MarkdownPODEMOS GANAR SOLOS LA GUERRA?
+PODEMOS GANAR SOLOS LA GUERRA?
 
 Yo creo que sí, pero ese no es el tema del artículo. Lo que sí creo es que los cubanos no estamos haciendo todo lo necesario para ganar. En efecto, podemos formar un ejército invasor de 25,000 cubanos bien odiestrados y apertrechados, adquiriendo armas, aviones y barcos para desembarcar por distintos puntos extrátégicos, al mismo tiempo que la resistencia interna inicie en toda la isla una campaña de sabotaje que propicie el triunfo.
 

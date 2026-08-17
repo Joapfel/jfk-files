@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21099.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 - Liaison
 1 - Mr. Cassidy

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4085.png
-
-Convert to MarkdownLA 65-7445
+LA 65-7445
 
 had cancer of the throat in 1962, RICHARD went to LOUIS and offered to help him. LOUIS later discovered he did not have cancer and also discovered that RICHARD was the one who needed help. LOUIS frequently saw RICHARD in 1962 and until about August of 1963 when RICHARD left the Los Angeles area.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2935.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 McNamara, Bundy and Lodge to discuss the situation in Vietnam.
 Lodge reported that the United States was in no way responsible for

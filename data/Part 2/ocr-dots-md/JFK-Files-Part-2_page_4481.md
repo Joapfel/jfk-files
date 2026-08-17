@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4481.png
-
-Convert to Markdownsubsidy and support of Cuban exile groups.
+subsidy and support of Cuban exile groups.
 
 E. It is recommended that the Mongoose operational mechanism be abolished.
 

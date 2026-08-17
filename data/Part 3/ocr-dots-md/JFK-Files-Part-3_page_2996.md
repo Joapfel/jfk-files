@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2996.png
-
-Convert to Markdowngsh 2.1
+gsh 2.1
 
 1934:
 

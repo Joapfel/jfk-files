@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6343.png
-
-Convert to MarkdownU. S. Senate Select Committee On
+U. S. Senate Select Committee On
 Intelligence Activities (SSC)
 
 Soviet Military Office, 2552 Belmont Road,

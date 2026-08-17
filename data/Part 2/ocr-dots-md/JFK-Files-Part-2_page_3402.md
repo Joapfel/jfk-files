@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3402.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 40. MR [from J. C. King?], 29 Nov 60, sub: Sabotage [of] Cuban Television Services. TS (no number).
 

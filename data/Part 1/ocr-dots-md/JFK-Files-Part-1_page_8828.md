@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8828.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Chief of Station, Mexico City.
 

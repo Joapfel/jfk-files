@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13796.png
-
-Convert to Markdown# OFFICIAL USE ONLY
+# OFFICIAL USE ONLY
 
 -3-
 

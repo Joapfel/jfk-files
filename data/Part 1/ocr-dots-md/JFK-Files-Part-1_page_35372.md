@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35372.png
-
-Convert to MarkdownRIGGS, THOMAS JOHN
+RIGGS, THOMAS JOHN
 
 OFFICE DEPARTMENT
 "LA ALBANIAN"

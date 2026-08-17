@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3016.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 State Department, that he was enroute to Cuba, ac-
 cording to Berle, "to see whether anything can be

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19097.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 OLEG D. KALUGIN
 

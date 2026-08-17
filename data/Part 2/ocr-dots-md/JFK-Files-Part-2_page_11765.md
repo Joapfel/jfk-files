@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11765.png
-
-Convert to Markdown# SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+# SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 ## B. FBI LAW ENFORCEMENT BULLETIN
 This publication is issued the first of each month by the Bureau for the benefit of law enforcement agencies.

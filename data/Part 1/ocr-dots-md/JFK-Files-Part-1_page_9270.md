@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9270.png
-
-Convert to Markdown6 Oct. 1930
+6 Oct. 1930
 
  Photo of DOSTOEVSKY
 

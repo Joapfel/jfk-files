@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29434.png
-
-Convert to MarkdownL. MATTSON:Jd
+L. MATTSON:Jd
 
 <table><tr><td>no</td><td>E/I PERS/TIE.</td></tr><tr><td>m</td><td>6588</td></tr><tr><td>n°</td><td>19 MARCH 1968</td></tr></table>
 

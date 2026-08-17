@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12727.png
-
-Convert to Markdown(c) Subjects tabbed for priority
+(c) Subjects tabbed for priority
 
 Security index card shall continue to be tabbed for prior-
 ity apprehension in new office of origin until such time

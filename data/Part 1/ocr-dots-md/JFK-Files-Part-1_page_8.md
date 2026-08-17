@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8.png
-
-Convert to Markdown1 June 1964
+1 June 1964
 
 # MEMO FOR THE RECORD
 

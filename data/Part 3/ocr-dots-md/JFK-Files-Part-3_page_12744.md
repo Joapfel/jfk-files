@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12744.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">All information contained herein is classified and subject to review by the FBI.<br>For personal use only</th></tr></thead><tbody><tr><td>DATE ID</td><td>17/08/95</td></tr><tr><td>MOD NO.</td><td>M0R-16</td></tr><tr><td>ISSUE DATE</td><td>02-1163 25-2150</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">All information contained herein is classified and subject to review by the FBI.<br>For personal use only</th></tr></thead><tbody><tr><td>DATE ID</td><td>17/08/95</td></tr><tr><td>MOD NO.</td><td>M0R-16</td></tr><tr><td>ISSUE DATE</td><td>02-1163 25-2150</td></tr></tbody></table>
 
 The United States of America
 Transportation Clearance

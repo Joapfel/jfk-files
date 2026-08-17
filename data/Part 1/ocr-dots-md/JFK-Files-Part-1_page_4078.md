@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4078.png
-
-Convert to Markdown# OFICIA DE APUNTES
+# OFICIA DE APUNTES
 
 El estudio de las necesidades del estilero, de las excedentes (de intensas) reparaciones que requieren las flotas, y del enorme volumen del industrializante, requisará el envío para que tengan que subirlo por los talleres duocánica y carpintería.
 

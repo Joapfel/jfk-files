@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32931.png
-
-Convert to MarkdownATTACHING 41
+ATTACHING 41
 
 4/30/67
 

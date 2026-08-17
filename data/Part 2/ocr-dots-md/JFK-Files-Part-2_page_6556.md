@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6556.png
-
-Convert to MarkdownDOD DIR 5200.10 DOES NOT APPLY
+DOD DIR 5200.10 DOES NOT APPLY
 
 SECRET
 

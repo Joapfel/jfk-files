@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13579.png
-
-Convert to Markdown12:17 MAIZ comunicó a ROGELIO RODRIGUEZ que allí está el señor SILVA, que quiere hablar con él. ROGELIO indies que le pasa.
+12:17 MAIZ comunicó a ROGELIO RODRIGUEZ que allí está el señor SILVA, que quiere hablar con él. ROGELIO indies que le pasa.
 
 13:30 JULIO CARMOÑA manifestó al Habajador PORTUONDO que debía serle para Centromérica, Honduras, Nicaragua y Guatemala, y no
 

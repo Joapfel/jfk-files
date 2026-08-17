@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22759.png
-
-Convert to Markdown<table><tr><td>CLASSIFICATION</td></tr></table>
+<table><tr><td>CLASSIFICATION</td></tr></table>
 
 VIA AIR
 (Specify Air or Sea Pouch)

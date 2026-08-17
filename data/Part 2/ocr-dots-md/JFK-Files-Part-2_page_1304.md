@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1304.png
-
-Convert to MarkdownItems 21 and 23, Form 57
+Items 21 and 23, Form 57
 
 I. Educational Background
 

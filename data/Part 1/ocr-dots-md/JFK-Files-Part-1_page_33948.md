@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33948.png
-
-Convert to Markdownthe interest of the Federal Republic. We objected to this on two grounds:
+the interest of the Federal Republic. We objected to this on two grounds:
 
 a) that such provision had no logical place in a technical license, and
 

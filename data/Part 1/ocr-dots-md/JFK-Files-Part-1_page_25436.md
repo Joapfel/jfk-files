@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_25436.png
-
-Convert to Markdown10/27/70 Called Joe Terek/ORD I know Joe Terk from previous encounters. He has been trying to peddle Hugh Mc Donald to various elements of the Agency without success. TSC has no interest as I checked it again with West/TSD-MPS. I strongly urged Terek to channel him to John Schubert-LANG so that we can establish what he has on his mind and just what he wants. Subject's file contains information of little or no value from previous contacts. G.J.M.
+10/27/70 Called Joe Terek/ORD I know Joe Terk from previous encounters. He has been trying to peddle Hugh Mc Donald to various elements of the Agency without success. TSC has no interest as I checked it again with West/TSD-MPS. I strongly urged Terek to channel him to John Schubert-LANG so that we can establish what he has on his mind and just what he wants. Subject's file contains information of little or no value from previous contacts. G.J.M.

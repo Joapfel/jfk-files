@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7194.png
-
-Convert to MarkdownSECRET
+SECRET
 
 through 1973, which totals 742. This averages out to
 82 per year, or better than one recruitment attempt per

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12240.png
-
-Convert to MarkdownG326 PARIS
+G326 PARIS
 R 17219 CZ FEB 76
 
 FM: DEA MIAMI FLO R/O

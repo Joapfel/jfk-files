@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8738.png
-
-Convert to Markdown# OUTLINE FOR INQUIRY PROCEDURES
+# OUTLINE FOR INQUIRY PROCEDURES
 
 It is hoped that these voluntary guidelines will permit the Select Committee investigation to proceed without undue delay, but it is also recognized that these guidelines do not cover all points or anticipate all problems and that, therefore, either the Select Committee or some agency under investigation may have reason not to follow these suggested guidelines.
 

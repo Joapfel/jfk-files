@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5882.png
-
-Convert to MarkdownFile Search on President Kennedy's Assassination - OCI Front Office
+File Search on President Kennedy's Assassination - OCI Front Office
 
 1. Office of D/OCI has a file labeled: 'Material regarding President Kennedy's Assassination.' It contains:
 

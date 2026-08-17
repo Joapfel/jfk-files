@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19426.png
-
-Convert to MarkdownSECRET (WHEN FILLED IN)
+SECRET (WHEN FILLED IN)
 
 <table><tbody><tr><td>1 EMP. SERIAL NO.</td><td>2</td><td>NAME</td><td>3. ASSIGNED ORGAN.</td><td>4 FUNDS</td><td>5. ALLOTMENT</td></tr><tr><td>103820</td><td></td><td>MOORE JAMES W</td><td>DDI/CONT</td><td>V-40</td><td></td></tr><tr><td colspan="6">6. OLD SALARY RATE</td></tr><tr><td>GRADE</td><td>STEP</td><td>SALARY</td><td>LAST EFFECTIVE DATE</td><td colspan="2">NEW SALARY RATE</td></tr><tr><td rowspan="2">GS 14</td><td rowspan="2">1</td><td rowspan="2">$10,320</td><td rowspan="2">NO 13 DA 57 TR</td><td rowspan="2">GRADE</td><td rowspan="2">STEP</td><td rowspan="2">$10,599<br/>11,595</td><td colspan="3">EFFECTIVE DATE</td></tr><tr><td>NO 07</td><td>DA 13</td><td>TR 58</td></tr><tr><td colspan="8">RENARRS</td></tr><tr><td colspan="8">CERTIFICATION</td></tr><tr><td colspan="8">I CERTIFY THAT THE SERVICE AND CONDUCT OF THE ABOVE NAMED EMPLOYEE ARE SATISFACTORY.</td></tr><tr><td colspan="2">TYPED, OR PRINTED, NAME OF SUPERVISOR</td><td>DATE</td><td colspan="5"></td></tr><tr><td colspan="2">ERNEST A. RISCHE</td><td>6 June 1958</td><td colspan="5">Cnest A. Riscze</td></tr><tr><td colspan="8">PERIODIC STEP INCREASE - CERTIFICATION</td></tr><tr><td colspan="8">FORM NO. 560</td></tr><tr><td>1 MAR '60</td><td></td><td>SECRET</td><td colspan="4">PERSONNEL FOLDER</td><td>(4)</td></tr></tbody></table>
 

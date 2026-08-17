@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4167.png
-
-Convert to MarkdownCONFIDENTIAL Attachment
+CONFIDENTIAL Attachment
 
 DEPARTMENT OF STATE
 EXECUTIVE SECRETARIAT

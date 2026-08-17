@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13123.png
-
-Convert to Markdown104-10178-10137
+104-10178-10137
 
 <table>
   <tbody>

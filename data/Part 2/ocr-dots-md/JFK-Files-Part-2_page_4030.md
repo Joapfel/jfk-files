@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4030.png
-
-Convert to Markdown13-00000
+13-00000
 
 Subject was very reluctant to furnish any information but identified himself as RICHARD CASE NAGELL, a former Special Agent for the Liquor Control Office, State of California, Los Angeles Office, and a former Captain in the United States Army with experience in intelligence work with the CIG.
 

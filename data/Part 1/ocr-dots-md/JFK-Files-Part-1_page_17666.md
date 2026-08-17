@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17666.png
-
-Convert to Markdownf. Selected telephone conversations originatino: within the Mexican Com-munist Party (PC) headquarters.
+f. Selected telephone conversations originatino: within the Mexican Com-munist Party (PC) headquarters.
 
 f. Telephone conversations from the residences of senior PCN and other Communist officials' residences.
 

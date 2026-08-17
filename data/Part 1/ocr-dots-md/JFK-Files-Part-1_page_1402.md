@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1402.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Cuban agent as early as July 1963 (which would have been
 when he was screening names for the AMTRUNK Operation), one

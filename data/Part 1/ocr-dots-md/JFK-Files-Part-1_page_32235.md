@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32235.png
-
-Convert to Markdown19 December 1963
+19 December 1963
 
 MEMORANDUM FOR: Clandestine Services, Career Services Panel
 

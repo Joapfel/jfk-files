@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3917.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Richard Case NAGELL
 

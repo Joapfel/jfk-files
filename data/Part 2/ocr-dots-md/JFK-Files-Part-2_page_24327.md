@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24327.png
-
-Convert to MarkdownThe following table shows the results of the first two months of fiscal 1970, compared with the same period in 1969. The comparisons are as follows:
+The following table shows the results of the first two months of fiscal 1970, compared with the same period in 1969. The comparisons are as follows:
 
 <table><thead><tr><th></th><th colspan="2">1970</th><th>1969</th></tr></thead><tbody><tr><td>Increase in sales of products</td><td>8.5%</td><td>4.3%</td><td>4.8%</td></tr><tr><td>Increase in sales of services</td><td>-2.7%</td><td>-1.4%</td><td>2.4%</td></tr><tr><td>Increase in sales of other goods and services</td><td>-5.8%</td><td>-7.9%</td><td>-1.1%</td></tr><tr><td>Total increase in sales</td><td>3.4%</td><td>6.0%</td><td>3.7%</td></tr><tr><td>Increase in advertising expenses</td><td>2.5%</td><td>2.3%</td><td>1.6%</td></tr><tr><td>Increase in research and development expenses</td><td>0.3%</td><td>0.2%</td><td>-0.5%</td></tr><tr><td>Increase in general operating expenses</td><td>1.3%</td><td>1.5%</td><td>1.7%</td></tr><tr><td>Increase in interest expense</td><td>1.3%</td><td>1.2%</td><td>0.6%</td></tr><tr><td>Increase in other expenses</td><td>0.3%</td><td>0.1%</td><td>-0.2%</td></tr><tr><td>Totals</td><td>11.4%</td><td>11.5%</td><td>11.1%</td></tr></tbody></table>
 

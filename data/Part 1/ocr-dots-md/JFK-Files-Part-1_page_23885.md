@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23885.png
-
-Convert to Markdownhis ambition, but his ambition seems to shift from one thing to the other.
+his ambition, but his ambition seems to shift from one thing to the other.
 You don't know exactly what does he want. When he started this magazine,
 obviously he wanted to play a role in Algeria and Africa. Driven out of
 Africa, he still thinks he's going to get back to Algeria within a

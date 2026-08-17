@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13892.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td><table><tr><td>S</td><td>SECRET</td></tr></table></td></tr><tr><td>TO : DIRECTOR<br/>FROM : MEXICO CITY<br/>ACTION : WH-8<br/>INFO : DOP, CI, CI/OPS, CI/OA, FI, FI/D 3, WH/SA 8, ER</td><td><table><tr><td colspan="2">ROUTE 5</td></tr><tr><td>1</td><td>✓</td></tr><tr><td>2</td><td></td></tr><tr><td>3</td><td>✓</td></tr><tr><td>4</td><td>✓</td></tr><tr><td>5</td><td></td></tr><tr><td>6</td><td></td></tr><tr><td>7</td><td></td></tr><tr><td>8</td><td></td></tr><tr><td>9</td><td></td></tr><tr><td>SEC NO</td><td></td></tr></table></td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td><table><tr><td>S</td><td>SECRET</td></tr></table></td></tr><tr><td>TO : DIRECTOR<br/>FROM : MEXICO CITY<br/>ACTION : WH-8<br/>INFO : DOP, CI, CI/OPS, CI/OA, FI, FI/D 3, WH/SA 8, ER</td><td><table><tr><td colspan="2">ROUTE 5</td></tr><tr><td>1</td><td>✓</td></tr><tr><td>2</td><td></td></tr><tr><td>3</td><td>✓</td></tr><tr><td>4</td><td>✓</td></tr><tr><td>5</td><td></td></tr><tr><td>6</td><td></td></tr><tr><td>7</td><td></td></tr><tr><td>8</td><td></td></tr><tr><td>9</td><td></td></tr><tr><td>SEC NO</td><td></td></tr></table></td></tr></table>
 
 23A CH 67848
 

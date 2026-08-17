@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24487.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 The reference to "direct positive action" is ambiguous and can be subject to a number of different interpretations, including a question suggesting exploration of assassination.* However, it is clear that at most a question was being asked. Moreover, assuming that "direct positive action" meant killing, it is significant that shortly after assassination plots were begun, the CIA Deputy Director told the Special Group that such action was "beyond our capabilities."
 

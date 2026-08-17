@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33593.png
-
-Convert to Markdown4. The officers of the National Information Bureau are as follows:
+4. The officers of the National Information Bureau are as follows:
 
 Board of Directors
 

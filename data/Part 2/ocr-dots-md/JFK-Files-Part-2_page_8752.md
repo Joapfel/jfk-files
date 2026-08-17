@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8752.png
-
-Convert to MarkdownMOVIMIENTO de RECUPERACION REVOLUCIONARIO (MRR) 19-120-18
+MOVIMIENTO de RECUPERACION REVOLUCIONARIO (MRR) 19-120-18
 
 (Revolutionary Recovery Movement)
 

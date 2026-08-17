@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_891.png
-
-Convert to MarkdownFIELD INFORMATION REPORT
+FIELD INFORMATION REPORT
 
 EVALUATION OF SOURCE: A. Completely reliable. B. Usually reliable. C. Fairly reliable. D. Not usually reliable. E. Not reliable. (Applied to accounts of doubtful honesty or loyalty, regardless of their competence). F. Reliability cannot be judged (√ Applied to contacted or insufficiently tested commercial)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14261.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>DISPATCH</td>
         <td style="text-align: center;">CLASSIFICATION</td>

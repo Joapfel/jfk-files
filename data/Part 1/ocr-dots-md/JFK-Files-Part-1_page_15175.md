@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15175.png
-
-Convert to Markdownthere are some really cute ones, and less cute also. you have to taste them to understand. Evidently, I'm speaking of the Brazilian women of the cities, because when one leaves the city its more like Verdet and one's reaction would be to buy a bottle of Airwick rather than stick his nose there.
+there are some really cute ones, and less cute also. you have to taste them to understand. Evidently, I'm speaking of the Brazilian women of the cities, because when one leaves the city its more like Verdet and one's reaction would be to buy a bottle of Airwick rather than stick his nose there.
 
 It's been rather hot lately. It's summer in this hemisphere, and when it rains the steam goes down your back. But with a good fan, a cold shower, and ice drinks, one manages not to melt completely.
 

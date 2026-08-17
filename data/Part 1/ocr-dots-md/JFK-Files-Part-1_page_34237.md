@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34237.png
-
-Convert to Markdownatons with Cuba, Red China has shown up at the Tricontinental Parley for a three-fold purpose: a) to frustrate all attempts at unity around the UESR; b) to charge the USFR with "treason" to Marxism-Leninism; and, c) to initiate the Chinese's revenge against Fidel Castro. On this basis, we forecast a tough offensive against Fidel by pro-Chinese Communists in the Americas. First, they will seek to destroy the image that they had built up of Castro, or what's left of it.
+atons with Cuba, Red China has shown up at the Tricontinental Parley for a three-fold purpose: a) to frustrate all attempts at unity around the UESR; b) to charge the USFR with "treason" to Marxism-Leninism; and, c) to initiate the Chinese's revenge against Fidel Castro. On this basis, we forecast a tough offensive against Fidel by pro-Chinese Communists in the Americas. First, they will seek to destroy the image that they had built up of Castro, or what's left of it.
 
 "The Venezuelan Gvt. on the Alert".- Through the Minister of the Interior, the Venezuelan gvt. has issued a timely and accurate statement on the significance of the Tricontinental Conference in terms of serious threats to continental security. The Venezuelan gvt. points out that it is time to take resource to force to counter aggression and subversion. It is indeed time to reactivate the 5th Resolution of the O.A.S. meting of 1964, whereby intervention is authorized in self-defense against aggression and to guarantee the security of the Hemisphere.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3749.png
-
-Convert to MarkdownSECRET
+SECRET
 
 12. Dec. 1967
 

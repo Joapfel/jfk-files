@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24776.png
-
-Convert to MarkdownThe cable also stated that Headquarters was prepared
+The cable also stated that Headquarters was prepared
 to deliver machine guns and ammunition to the dissidents when
 they developed a capability to receive them, but that security
 considerations precluded use of U.S. facilities as a carrier.*

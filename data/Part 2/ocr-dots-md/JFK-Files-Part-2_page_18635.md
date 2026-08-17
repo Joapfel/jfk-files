@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18635.png
-
-Convert to Markdown# Memorandum for Mr. McDermott
+# Memorandum for Mr. McDermott
 
 Re: REQUEST BY U. S. SENATOR WALTER F.
 MONDALE, SENATE SELECT COMMITTEE

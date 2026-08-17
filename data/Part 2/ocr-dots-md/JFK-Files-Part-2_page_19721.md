@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19721.png
-
-Convert to MarkdownUNITED STATES VERNMENT
+UNITED STATES VERNMENT
 
 Memorandum
 

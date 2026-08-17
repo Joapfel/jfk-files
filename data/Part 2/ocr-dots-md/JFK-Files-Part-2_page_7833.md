@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7833.png
-
-Convert to Markdown13-00000
+13-00000
 
 NR      WEIS BECG NAI      REQUES INFO     X
 IP/IN    X                               X   X       X

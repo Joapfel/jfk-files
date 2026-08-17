@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2663.png
-
-Convert to MarkdownSEC; 8 Step Father in law
+SEC; 8 Step Father in law
 
 Full Name: G. Arthur Dovey
 Living

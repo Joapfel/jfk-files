@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31382.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 A copy of the above mentioned documents are appended to this report as attachments.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22531.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 Comment: Farland was in Washington for consultations.
 

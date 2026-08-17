@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6168.png
-
-Convert to MarkdownSEP 5 14 PII-75
+SEP 5 14 PII-75
 
 123.75-5742
 

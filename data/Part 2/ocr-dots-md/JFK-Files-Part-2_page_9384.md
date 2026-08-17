@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9384.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 EDGAR ROBINSON, Detroit BPP, advised BPP National Headquarters that he had removed himself from the staff of the Detroit Chapter.
 

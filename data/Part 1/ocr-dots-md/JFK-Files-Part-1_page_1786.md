@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_1786.png
-
 s to the DCI, that daily staff meetings be held for a full exchange on the activities of the staff, and that all personnel in the Agency be advised as to how to keep the DCI's staff informed properly of the activities of the Agency.
 
 ## Comptroller

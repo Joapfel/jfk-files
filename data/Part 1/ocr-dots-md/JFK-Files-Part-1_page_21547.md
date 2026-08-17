@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21547.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NOSENKO has stated that the night before his departure from
 Geneva to the USSR he gave serious thought to defection but was not

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20205.png
-
-Convert to Markdown23 JUL 1969
+23 JUL 1969
 
 MEMORANDUM FOR: Mr. Balmes N. Hidalgo, Jr.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22802.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4 May 1961
 

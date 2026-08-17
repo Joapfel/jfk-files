@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6155.png
-
-Convert to MarkdownAPR 04 '97 10:09AM
+APR 04 '97 10:09AM
 
 n159. See R. Jeffrey Smith, Critics "Wrong," CIA Chief Says, Wash. Post, Sept. 6, 1996, at A21, available in 1996 WL 12392255 (noting CIA Director John M. Deutch's assertion that critics who allege that the CIA has done a poor job recruiting informants knowledgeable about terrorist activities are wrong).
 

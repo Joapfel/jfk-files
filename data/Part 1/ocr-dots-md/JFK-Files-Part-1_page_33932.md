@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33932.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. John C. Hughes,
 c/o McCampbell & Co.,

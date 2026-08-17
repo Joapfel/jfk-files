@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28084.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 FITNESS REPORT - Frederick C. Randall
 Section D - Narrative Comments

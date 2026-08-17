@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12033.png
-
-Convert to Markdown14-0000
+14-0000
 
 Form No. 95-8
 (Doc 197)

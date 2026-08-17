@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25374.png
-
-Convert to Markdownus from moving beyond speculation."
+us from moving beyond speculation."
 
 Madigan said the widespread reports after Giannana's death that his appearance before the committee was imminent were not true. That further indicates, he agreed, that Giannana's death was not directly related to his past CIA association.
 

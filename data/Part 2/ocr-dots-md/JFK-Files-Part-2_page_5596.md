@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5596.png
-
-Convert to MarkdownChicago Tribune, October 3, 1993
+Chicago Tribune, October 3, 1993
 
 What's especially galling, Posner said, is that Stone based his movie on the investigation of former New Orleans District Atty. Jim Garrison, including his prosecution of businessman Clay Shaw as an alleged conspirator.
 

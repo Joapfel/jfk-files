@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27027.png
-
-Convert to Markdownrequests that they be specified with an accompanying explanation of when and under what circumstances they were destroyed. If no information regarding their destruction is available, please specify the earliest time, and under what circumstances, CIA first became aware the items were missing.
+requests that they be specified with an accompanying explanation of when and under what circumstances they were destroyed. If no information regarding their destruction is available, please specify the earliest time, and under what circumstances, CIA first became aware the items were missing.
 
 We expect that staff representatives of the Committee and of CIA will expedite compliance with these requests, and indicate priorities for production through preliminary review of this notification and discussion of the files involved. It would also be helpful if CIA identifies those persons within each Directorate and Division or Office who are actually in charge of reviewing and assembling material, so that Committee staff can also discuss these requests with them and resolve rapidly any questions or difficulties which might arise.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6820.png
-
-Convert to MarkdownCongress or the Warren Commission. Under the joint resolution, documents originated by these entities can be released directly by the Executive Director of the Assassination Materials Review Board without any review by the President or other Executive Branch agencies.
+Congress or the Warren Commission. Under the joint resolution, documents originated by these entities can be released directly by the Executive Director of the Assassination Materials Review Board without any review by the President or other Executive Branch agencies.
 
 Fourth, the joint resolution provision for a 30-day period for agencies or departments to appeal decisions by the Executive Director to release information may not provide sufficient time for meaningful review of what could prove to be a large volume of material at one time.
 

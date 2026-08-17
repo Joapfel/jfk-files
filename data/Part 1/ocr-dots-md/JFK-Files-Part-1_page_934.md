@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_934.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>19555</td></tr><tr><td>SECRET</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14196.png
-
-Convert to Markdown(157. 10/15/62 Continued)
+(157. 10/15/62 Continued)
 
 TOP SECRET
 

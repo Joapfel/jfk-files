@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6559.png
-
-Convert to Markdowngreater credibility to the accusations of the Castro or Sino/Soviet Bloc and alert our enemies to the possibility that the U. S. may undertake actions of a less conventional nature.
+greater credibility to the accusations of the Castro or Sino/Soviet Bloc and alert our enemies to the possibility that the U. S. may undertake actions of a less conventional nature.
 
 **d. Visibility.**
 

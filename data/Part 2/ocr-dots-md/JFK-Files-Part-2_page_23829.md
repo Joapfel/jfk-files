@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23829.png
-
-Convert to Markdownand saying we examined proprietaries, we found them to be --
+and saying we examined proprietaries, we found them to be --
 they had problems but basically they were all right.
 
 Mr. Inderfurth. Couldn't that be in the body as well?

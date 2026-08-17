@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31603.png
-
-Convert to MarkdownJuly 26, 1945
+July 26, 1945
 
 The following report in one of the first full attacks on the recent "Balloon Operation" in Czechoslovakia. The text was read over Radio Prague on July 18, 1945:
 

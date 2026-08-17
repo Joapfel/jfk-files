@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9675.png
-
-Convert to Markdown20 July 1964
+20 July 1964
 
 MEMORANDUM FOR: CI/OA
 

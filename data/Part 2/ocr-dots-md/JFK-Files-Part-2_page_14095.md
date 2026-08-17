@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14095.png
-
-Convert to MarkdownRe: Interview of Retired Special Agent (SA) by Senator Walter F. Mondale and Staff Members of the Senate Select Committee (SSC)
+Re: Interview of Retired Special Agent (SA) by Senator Walter F. Mondale and Staff Members of the Senate Select Committee (SSC)
 
 Following being advised of his rights, Devlin
 was asked who sent him to Atlantic City and why he was sent.

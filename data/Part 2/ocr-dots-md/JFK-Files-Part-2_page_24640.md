@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24640.png
-
-Convert to MarkdownHedgman cautioned that he was recalling events long past:
+Hedgman cautioned that he was recalling events long past:
 
 Hedgman: Gentlemen, after fifteen years, I cannot be 100 per cent certain, but I have always, since that date, had the impression in my mind that these orders had come from the President. (Hedgman, 8/21/75, p. 34.)
 

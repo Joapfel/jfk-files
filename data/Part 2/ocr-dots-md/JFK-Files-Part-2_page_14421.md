@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14421.png
-
-Convert to MarkdownJAMES O. EASTLAND, MISS., CHAIRMAN
+JAMES O. EASTLAND, MISS., CHAIRMAN
 
 JOHN E. MCGEEHAN, A.K.A.
 SAM J. BROWN, JR., N.C.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24018.png
-
-Convert to MarkdownAttachment to CEA-42,410
+Attachment to CEA-42,410
 
 26 January 1965
 

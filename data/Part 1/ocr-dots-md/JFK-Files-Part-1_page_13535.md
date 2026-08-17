@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13535.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 DATE 081
 29 MAR '62 JO SECRET

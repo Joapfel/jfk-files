@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9376.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DE 157-3075
 

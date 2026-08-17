@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3132.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 and its conviction of its legal inter-national rights.
 

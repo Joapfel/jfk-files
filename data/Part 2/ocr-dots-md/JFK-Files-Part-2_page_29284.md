@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29284.png
-
-Convert to Markdown# INS File Reviews...page 12
+# INS File Reviews...page 12
 
 K. Norman Rothman
 

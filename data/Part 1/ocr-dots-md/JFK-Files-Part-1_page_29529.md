@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29529.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG:</td><td>RICHARD F. GILES</td></tr><tr><td>UNIT:</td><td>WH/L./PERSONNEL</td></tr><tr><td>EXT:</td><td>8717</td></tr><tr><td>DATE:</td><td>9 JUNE 1961</td></tr></table>
 

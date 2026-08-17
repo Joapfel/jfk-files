@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27755.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">COMMITTEE ON REVENUES</td>

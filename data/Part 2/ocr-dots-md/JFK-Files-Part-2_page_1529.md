@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1529.png
-
-Convert to MarkdownATTACHMENT TO FIELD REASSIGNMENT QUESTIONNAIRE:
+ATTACHMENT TO FIELD REASSIGNMENT QUESTIONNAIRE:
 
 Re Paragraph C - Preference for Next Assignment:
 

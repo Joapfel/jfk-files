@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13134.png
-
-Convert to Markdownthat he is still with WOFIRM until Subject finally told him in an offhand way, 'Sure I'm with WOFIRM,' but he does not know what effect this had on IDEN P or whether he has told anyone of his suspicions of Subject's WOFIRM involvement. He specifically denied that anyone other than these three persons were knowledgeable.
+that he is still with WOFIRM until Subject finally told him in an offhand way, 'Sure I'm with WOFIRM,' but he does not know what effect this had on IDEN P or whether he has told anyone of his suspicions of Subject's WOFIRM involvement. He specifically denied that anyone other than these three persons were knowledgeable.
 
 Does anyone in IDEN B know you have this meeting with us today? Answer: No.
 

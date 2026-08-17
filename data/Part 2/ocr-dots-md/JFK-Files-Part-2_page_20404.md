@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20404.png
-
-Convert to Markdown14707
+14707
 
 CONFIDENTIAL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18878.png
-
-Convert to MarkdownHON 105-6699
+HON 105-6699
 
 He was referred to the Consular Section of the American
 Consulate General, Hong Kong. As of this date JAFFE has

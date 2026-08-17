@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11745.png
-
-Convert to Markdown# SOCIAL NOTES
+# SOCIAL NOTES
 
 ## BRITISH LEGION
 

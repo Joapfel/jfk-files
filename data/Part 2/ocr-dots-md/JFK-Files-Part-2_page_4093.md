@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4093.png
-
-Convert to Markdown65-951
+65-951
 
 Kuriyama Matsuichi- CG, 6th
 Div. JGSDF

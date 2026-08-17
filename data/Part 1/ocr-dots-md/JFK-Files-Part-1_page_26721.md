@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26721.png
-
-Convert to MarkdownFrom 2140, 29 April (Thursday) to 0620, 30 April 1965
+From 2140, 29 April (Thursday) to 0620, 30 April 1965
 
 **2.0** In. Bailie Cordere with Victor Rico Galan (VKG), who answers. BC talked to VKG this afternoon about the attempt(ed coup d'etat) of 8 May 1962. Yes. BC just got a cable..American intervention is covered by Agreement with the U.S. of 1962. That is the Treaty at that BC showed VKG.
 

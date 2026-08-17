@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10730.png
-
-Convert to MarkdownANNE GRANT DUNHAM
+ANNE GRANT DUNHAM
 
 As previously noted, DUNHAM was apprehended by
 Special Agents of the FBI on August 22, 1971, in the court-

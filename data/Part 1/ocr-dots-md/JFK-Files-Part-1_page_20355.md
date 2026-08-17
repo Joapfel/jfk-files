@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20355.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <!-- Section 1: Employment Information -->
     <tr>

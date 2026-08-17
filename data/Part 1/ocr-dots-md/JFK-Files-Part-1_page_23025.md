@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23025.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM OF ORNL COMMITMENT
 

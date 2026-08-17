@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6271.png
-
-Convert to Markdown- Hand-written notes prepared by HSCA staffers
+- Hand-written notes prepared by HSCA staffers
 - 5x8 cards, note pads, sensitive operational information, some of it inaccurate
 
 - Identification aids (examples)

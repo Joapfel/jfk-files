@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6164.png
-
-Convert to Markdown2. (U) Background:
+2. (U) Background:
 
 a. On 7 August 1975, Ms. Nancy Barnes wrote the CIA requesting "...any information and documents that concern..." an organization called the African Research Group. Ms. Barnes explained that the African Research Group is "an inactive, but still existant" research group of which she is the president. Ms. Barnes also stated: "...as an individual I would like to request any information concerning my activities."
 

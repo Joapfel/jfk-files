@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30556.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">PERSONNEL ACTION REQUEST<br>SPECIAL FUNDS</td>

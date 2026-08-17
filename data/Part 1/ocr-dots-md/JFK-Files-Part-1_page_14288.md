@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14288.png
-
-Convert to MarkdownSECRET
+SECRET
 
 201-935296
 2 Dec 1967

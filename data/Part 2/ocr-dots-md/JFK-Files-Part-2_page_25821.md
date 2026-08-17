@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25821.png
-
-Convert to MarkdownJanuary 28, 1976
+January 28, 1976
 
 The Honorable Abraham Ribicoff, Chairman
 Committee on Government Operations,

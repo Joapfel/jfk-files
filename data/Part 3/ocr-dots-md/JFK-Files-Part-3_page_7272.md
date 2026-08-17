@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7272.png
-
-Convert to Markdownthis unit, and then proceed to remove the restreints as neces-
+this unit, and then proceed to remove the restreints as neces-
 sary to obtain such intelligence." [emphasis added]
 
 Dean's memorandum indicated that the creation of the Inter-Agency

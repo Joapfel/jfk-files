@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21141.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AMENDMENT TO ALLOWANCE COMMITTEE ADDENDUM
 For Staff Agent, (Thomas B. Cassatin)

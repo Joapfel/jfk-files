@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29499.png
-
-Convert to Markdown9 April '63
+9 April '63
 
 TO : COJ
 FROM : IRVING C DEVUONO

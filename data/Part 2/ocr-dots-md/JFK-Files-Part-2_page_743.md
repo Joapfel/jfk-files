@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_743.png
-
-Convert to Markdown2 JUL 1974
+2 JUL 1974
 
 MEMORANDUM FOR : Chairman, Board of Medical Examiners.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33824.png
-
-Convert to MarkdownIn reply refer to W-20/6
+In reply refer to W-20/6
 
 28 April 1952
 

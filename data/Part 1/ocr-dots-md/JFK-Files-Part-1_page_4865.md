@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4865.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">ALL SECRETS SHOWN ARE CONFIDENTIAL</td>
         <td>TOTAL COPY</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21728.png
-
-Convert to Markdown1. to me and I was surprised when on invasion day Castro was alive. I now realize from testimony that Harvey and others have given that the matter had been discussed long before my arrival on the scene and it was in hand one way or the other.
+1. to me and I was surprised when on invasion day Castro was alive. I now realize from testimony that Harvey and others have given that the matter had been discussed long before my arrival on the scene and it was in hand one way or the other.
 
 2
 

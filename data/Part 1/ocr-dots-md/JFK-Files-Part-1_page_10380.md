@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10380.png
-
-Convert to Markdown3.
+3.
 
 Development of Art by Houston:
 

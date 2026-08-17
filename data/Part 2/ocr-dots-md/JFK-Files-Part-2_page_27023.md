@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27023.png
-
-Convert to MarkdownMr. William E. Colby
+Mr. William E. Colby
 Page Four
 
 June 26, 1975

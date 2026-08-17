@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14683.png
-
-Convert to Markdown# HERBERT WILLIAM BOECKENHAUPT
+# HERBERT WILLIAM BOECKENHAUPT
 
 ## Boeckenhaupt, a Staff Sergeant, United States Air Force, entered military service in 1960. He is a cryptographic systems maintenance and repairman and possessed "Top Secret" clearance. On April 20, 1966, he was detected by FBI Agents in a clandestine meeting in suburban Virginia with Aleksey R. Malinin, Soviet Embassy employee and reportedly a Colonel of Soviet Military Intelligence.
 

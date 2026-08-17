@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25950.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 SIGNAL CENTER USE ONLY
 ORF 0 0 0 0 0 0 0 32-2 1

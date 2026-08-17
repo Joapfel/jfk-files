@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8337.png
-
-Convert to MarkdownSubject said that if LUGINOV received an invitation to ANDREA's party, that it might have come from CHIRNYSH (P-13.042). During his conversations with ANDREA, she never mentioned the fact that LUGINOV went to the party. She never told Subject exactly who went.
+Subject said that if LUGINOV received an invitation to ANDREA's party, that it might have come from CHIRNYSH (P-13.042). During his conversations with ANDREA, she never mentioned the fact that LUGINOV went to the party. She never told Subject exactly who went.
 
 3. Concerning ANDREA CATANO: P-13591
 

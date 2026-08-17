@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9665.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 It is further noted that DRAGER has been in the company of a WILLIAM ERIC CARROLL, date of birth August 30, 1955, Newark, NJ, and a DANIEL JAMES BRODERICK, date of birth June 4, 1944, Trenton, NJ.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15596.png
-
-Convert to Markdown**Signatures to be applied by Subject:**
+**Signatures to be applied by Subject:**
 
 1. Passport: Page three below picture on space provided. Regular pen and dark ink. No ball point pen.
 

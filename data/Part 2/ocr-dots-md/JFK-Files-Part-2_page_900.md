@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_900.png
-
-Convert to MarkdownConfirmation of Section B:
+Confirmation of Section B:
 
 Specific Duty No. 3
 

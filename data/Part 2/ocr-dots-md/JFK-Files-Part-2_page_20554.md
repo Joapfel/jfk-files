@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20554.png
-
-Convert to Markdown... 128-43809
+... 128-43809
 
 PAGE TWO
 

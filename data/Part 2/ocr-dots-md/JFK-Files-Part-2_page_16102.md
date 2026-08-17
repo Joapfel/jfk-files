@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16102.png
-
-Convert to MarkdownBLACK PANTIER PARTY (BPP)
+BLACK PANTIER PARTY (BPP)
 
 The release also stated that gunshots had not been fired by BPP personnel and that all of the shots fired by the police were in the bedrooms.
 

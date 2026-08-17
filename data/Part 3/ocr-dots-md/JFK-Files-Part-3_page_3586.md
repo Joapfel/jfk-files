@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3586.png
-
-Convert to MarkdownJuly 18, 1975
+July 18, 1975
 
 DR. MARTIN LUTHER KING, JR.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4424.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 advance concerning plans for Worker Student Alliance support
 and participation in demonstrations supporting antiwar groups

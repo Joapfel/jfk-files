@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9068.png
-
-Convert to Markdown2 February 1968
+2 February 1968
 
 MEMORANDUM FOR THE RECORD
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27681.png
-
-Convert to MarkdownPAYROLL AUTHORIZATION FORM
+PAYROLL AUTHORIZATION FORM
 
 (Please Use Typewriter - U.S. HOUSE OF REPRESENTATIVES
 or Ballpoint Pen) Washington, D.C. 20515

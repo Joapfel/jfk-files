@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8096.png
-
-Convert to Markdowna. Efforts of the FBI to ascertain the identity of confidential sources of the Central Intelligence Agency; and
+a. Efforts of the FBI to ascertain the identity of confidential sources of the Central Intelligence Agency; and
 
 b. Inspections and administrative inquiries relating to the disclosure of information by Dr. Joseph R. Smiley, then-President of the University of Colorado.
 

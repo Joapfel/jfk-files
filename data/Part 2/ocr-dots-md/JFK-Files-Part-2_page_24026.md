@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24026.png
-
-Convert to Markdownplan, since the cable had arrived that morning. However, General Haig
+plan, since the cable had arrived that morning. However, General Haig
 had no recollection of the meeting with Karamessines on the 19th. Nor
 did he believe he had been informed of the Valenzuela plan. "This
 is all very new to me. I hadn't seen any of this, and I was not familiar

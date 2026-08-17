@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5186.png
-
-Convert to Markdown/ bien inquirir al Sr. Embajador Salgado respecto delmodr operandi en el caso planteadoteniendo en consideración c el Pasaporte aludido es "ordinario", con tapas color rojo, tiona el Nº 26583, fue extendido el 25 de Septiembre de 197 a nombre de HECTOR EMILIO RAMON DAVANZO CINTOLESI y regist varias anotaciones de entrada y salida de diversion paisa.
+/ bien inquirir al Sr. Embajador Salgado respecto delmodr operandi en el caso planteadoteniendo en consideración c el Pasaporte aludido es "ordinario", con tapas color rojo, tiona el Nº 26583, fue extendido el 25 de Septiembre de 197 a nombre de HECTOR EMILIO RAMON DAVANZO CINTOLESI y regist varias anotaciones de entrada y salida de diversion paisa.
 
 En suma, después de las conversaciones acort tenidas con el Ministro Fatio y también con el Embajador de los Kh.UU., en Costa Rica, Mr. Terence Toimam, con quien man- tengo óptimas relaciones oficiales y de amistad, deduzco a los comentarios que circularon en torno al posible plan ov verativo para rostroar el Gobierno del Presidente Ouber, no han pasado más allá de ser moros rumores surgidos de hablar durías imputables a Orlando Beach; lo anterior, por cierto no es idólico para admitir la posibilidad de una estrategia marxista.
 

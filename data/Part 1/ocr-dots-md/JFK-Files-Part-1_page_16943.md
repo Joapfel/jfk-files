@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16943.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>RS: J. Zervance/kaw</td><td>☐ FILE AID</td><td rowspan="5"><table border="1"><tbody><tr><td colspan="3">MESSAGE PURA<br>TOTAL COPIES:</td></tr><tr><td colspan="2"><table border="1" style="border-collapse: collapse; width: 100%;"><tbody><tr><td style="background-color: #f2f2f2;">SECRET</td></tr></tbody></table></td></tr><tr><td>DLT: WH/1</td><td>☐ INDEX</td></tr><tr><td>CAT.: 3654</td><td>X INDEX</td></tr><tr><td>DATE: 26 August 1966</td><td>X FILE IN CS FILE NO.</td></tr></tbody></table></td></tr><tr><td>DIGITON BY</td><td>15</td><td>PER</td><td>3</td></tr><tr><td>FROM: DIRECTOR</td><td></td><td colspan="2"></td></tr><tr><td>COMP: WH8 ☑ RID COPY</td><td>INFO: VR</td><td>, FILE</td><td>: w/c 8, colors</td></tr></tbody></table>
 

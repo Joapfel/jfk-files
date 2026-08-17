@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10406.png
-
-Convert to MarkdownSE
+SE
 
 20 May, 1965
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29687.png
-
-Convert to MarkdownClassification:
+Classification:
 
 (This form is to be used for media extracted from CIA-approved documents.)
 TOP SECRET

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6346.png
-
-Convert to MarkdownFollowing are CIA's comments on specific sections of the
+Following are CIA's comments on specific sections of the
 Assassination Records Review Board's interpretive
 regulations, as published in the Federal Register, February
 8, 1995.

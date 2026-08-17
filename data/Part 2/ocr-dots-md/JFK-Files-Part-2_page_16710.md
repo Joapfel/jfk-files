@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16710.png
-
-Convert to Markdownlead shot, Q2, removed from the hole in the entrance hall, which hole was produced by the same shot producing the shot pattern in Q1, are either Number 7 1/2 or 8 in size based upon their weight.
+lead shot, Q2, removed from the hole in the entrance hall, which hole was produced by the same shot producing the shot pattern in Q1, are either Number 7 1/2 or 8 in size based upon their weight.
 
 The Q3 wad, found among the clothing wrapped in the chenille bedspread in the entrance hallway, is the over-powder wad from a 12-gauge shotshell. Over-powder wads of this design are in Winchester-Western shotshells.
 

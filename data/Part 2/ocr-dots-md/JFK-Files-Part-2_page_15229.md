@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15229.png
-
-Convert to MarkdownBAC, NRO
+BAC, NRO
 
 Director, FBI (105-97459-207)
 

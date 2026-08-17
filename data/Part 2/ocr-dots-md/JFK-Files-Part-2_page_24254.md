@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24254.png
-
-Convert to Markdownspecifically to look at the organization of the Airline." In this regard, it is noted that at the time the Agency purchased the Air-line it had formed a Delaware corporation to buy it which was first called the Airdale Corporation, counsel for which was Brackley Shaw. Shaw and Doole were both very concerned about the technical organization or lack of it, of the operation. Doole demonstrated to Houston
+specifically to look at the organization of the Airline." In this regard, it is noted that at the time the Agency purchased the Air-line it had formed a Delaware corporation to buy it which was first called the Airdale Corporation, counsel for which was Brackley Shaw. Shaw and Doole were both very concerned about the technical organization or lack of it, of the operation. Doole demonstrated to Houston
 
 to my satisfaction that it was an absolute situa-tion and that no one out there had the slightest understanding of the problem or what they were up against, or wanted to do anything about it (in terms of airline management).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_56.png
-
-Convert to MarkdownDistribution For
+Distribution For
 Book Dispatch No. 4726
 
 NE Division

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15752.png
-
-Convert to Markdown**Office Memorandum** • UNITED STATES GOVERNMENT
+**Office Memorandum** • UNITED STATES GOVERNMENT
 
 TO : Chief, Soviet Russia Division
 APTN : SR/DOE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23220.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 finding a way to sneak inside the U.N. guard to simply
 snatch Lumumba from custody, this was clearly access to assassin-

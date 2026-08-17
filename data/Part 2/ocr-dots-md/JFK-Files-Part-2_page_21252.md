@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21252.png
-
-Convert to MarkdownIt was noted that she reported this recruitment approach in January, 1959, and later furnished details of this attempt to a State Department security officer.
+It was noted that she reported this recruitment approach in January, 1959, and later furnished details of this attempt to a State Department security officer.
 
 This case is undoubtedly identical with a case previously reported by ANATOLIY GOLITZYN concerning an American secretary who rebuffed a recruitment attempt. The two cases had not been tied together prior to the current series of interviews of NOSENKO.
 

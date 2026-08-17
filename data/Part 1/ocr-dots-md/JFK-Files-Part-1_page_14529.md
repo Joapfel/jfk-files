@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14529.png
-
-Convert to MarkdownReport No. 262 (Contd).
+Report No. 262 (Contd).
 
 other such things. This amount could be reduced if we bring
 our Cuban architects, who were here two years ago, and

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35647.png
-
-Convert to MarkdownPonemos Fín al Comunismo en Cuba.
+Ponemos Fín al Comunismo en Cuba.
 
 La Organización de Estados Americanos está obligada por la Doctrina Monroee y por Pactos Interamericanos a poner fin proatamente el Comunismo en Cuba, bloqueando totalmente la isla, sin vacilación ni tenor, con la certidumbre de que Rusia ni China se stremeterán a romper el bloqueo; y si lo intentaran, eso originaría la guerra nuclear, (no la Terceira Guerra Mundial internacional, que no la habrá) para nosotros sería mucho mejor, porque en corto tiempo aquellas dos raciones serían aniquiladas, y no habría más tirantez internacional, porque nuestros ejércitos no saldrían de Rusia hasta que nos hubiéramos reembalado todo lo que nos debe, más los gastos y daños de guerra, inclusive indemnización por nuestros muertos en ella, y heridos; y restauraríamos a Chiang Kai-Shek en la China continental.- Así deben hablar, con altivez y valentía, los grandes vencedores de las raciones litres, si quieren que haya paz, libertad y justicia, que solo pueden mirterse por el imperio de la fuerza, que es el único medio para cometer a los perversos, con los cuales no hay que tener compación.- Así tontírse a afirmar en los vaciantes que, logicamente, quieren lo seguro.
 

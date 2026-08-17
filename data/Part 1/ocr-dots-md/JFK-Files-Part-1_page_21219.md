@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21219.png
-
-Convert to MarkdownDL8: 27 APR 65
+DL8: 27 APR 65
 
 SECRET
 (When Filled In)

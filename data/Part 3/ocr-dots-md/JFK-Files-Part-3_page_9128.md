@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9128.png
-
-Convert to MarkdownCONFISCATED PANTHER WEAPONS
+CONFISCATED PANTHER WEAPONS
 
 The perpetrators of the courtroom incident were lauded by the Panthers as setting another "revolutionary example for black people." In commenting further, *The Black Panther* of August 15, 1970, stated:
 

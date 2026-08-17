@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35340.png
-
-Convert to Markdown# DELEGATIONS (Special)
+# DELEGATIONS (Special)
 
 | | Annex "V" |
 |:---|---:|

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18804.png
-
-Convert to MarkdownOSB FORM 1001
+OSB FORM 1001
 (Rev. 6-11-80)
 
 OSS PERSONNEL ACTION REQUEST.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11769.png
-
-Convert to Markdown2. The WHU field Station, Santiago, Chile, will exercise field control of Project operations in accordance with instructions from Headquarters.
+2. The WHU field Station, Santiago, Chile, will exercise field control of Project operations in accordance with instructions from Headquarters.
 
 C. Personnel Required
 

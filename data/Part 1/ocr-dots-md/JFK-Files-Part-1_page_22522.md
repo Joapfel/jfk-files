@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22522.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 with the plotters in the Dominican Republic to Ambassador Farland. They describe him as a former FBI employee who considered himself quite a clandestine operator. Esterline, who later served under him in Panama, called him "a wild man who bugged the Agency to support a move to assassinate Trujillo." He had direct dealings with a number of the key plotters.
 

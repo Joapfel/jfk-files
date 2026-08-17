@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2256.png
-
-Convert to MarkdownFred Margeson Bishop
+Fred Margeson Bishop
 
 P-684-57 (contract #)
 DOB : 28 October 1909

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15801.png
-
-Convert to Markdownshotgun. The woman fired the shotgun and the police returned the fire. Sergeant GROTH stated the firing of the shotgun created enough light in the darkness to illuminate a man standing behind the door, also armed with a shotgun. One of the officers exchanged shots with this man. The individual was hit and was later identified as that of MARK CLARK. GROTH stated at this point he called for the Panthers to surrender and heard a man's voice reply, "Shoot it out." The statement was made from someplace in the apartment.
+shotgun. The woman fired the shotgun and the police returned the fire. Sergeant GROTH stated the firing of the shotgun created enough light in the darkness to illuminate a man standing behind the door, also armed with a shotgun. One of the officers exchanged shots with this man. The individual was hit and was later identified as that of MARK CLARK. GROTH stated at this point he called for the Panthers to surrender and heard a man's voice reply, "Shoot it out." The statement was made from someplace in the apartment.
 
 Shooting again resumed and one of the officers, JOHN CISZEWSKI, shouted that he had been shot. (Officer CISZEWSKI received minor wounds, was treated at the hospital, and released.) Later, Sergeant GROTH heard a man shout, "Shoot it out with the pigs." Shortly thereafter, the gunfire ceased and those arrested, as set forth above, surrendered to the police.
 

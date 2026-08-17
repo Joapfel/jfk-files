@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21991.png
-
-Convert to Markdown# 7 Supervisory Responsibilities and Knowledge of Tourist Operations
+# 7 Supervisory Responsibilities and Knowledge of Tourist Operations
 
 ## a. Information from NOSENKO
 

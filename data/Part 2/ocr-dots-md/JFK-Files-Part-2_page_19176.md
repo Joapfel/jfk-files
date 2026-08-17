@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19176.png
-
-Convert to MarkdownMemo to Mr. Sullivan
+Memo to Mr. Sullivan
 
 RE: DEMONSTRATION PROTESTING UNITED STATES
 POLICY IN VIETNAM, WASHINGTON, D. C.

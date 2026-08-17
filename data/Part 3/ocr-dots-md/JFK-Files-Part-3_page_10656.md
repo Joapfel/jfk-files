@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10656.png
-
-Convert to MarkdownUNITED STATES G IRNMENT
+UNITED STATES G IRNMENT
 
 # I/lemorandum
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11252.png
-
-Convert to Markdown## Index
+## Index
 
 - Defected subjects, 42
 - Defectors to Sino-Soviet-bloc countries, 57

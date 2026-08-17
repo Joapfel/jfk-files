@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8217.png
-
-Convert to Markdownpossible to determine specifically what material should be excised
+possible to determine specifically what material should be excised
 from these documents, the following illustrations are offered in
 certain likely categories. The criteria in all cases should meet
 the test mentioned above.

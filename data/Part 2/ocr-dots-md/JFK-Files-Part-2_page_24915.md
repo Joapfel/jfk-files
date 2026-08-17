@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24915.png
-
-Convert to Markdown-35-
+-35-
 
 was said to have been the basis upon which the Special Group agreed to the "limited supply" of small arms, did not mention assassination. To the contrary, it spoke of "sabotage potential" and stated that there "would be no thought of toppling the [government] by any such minor measure [as the supplying of small arms]."
 

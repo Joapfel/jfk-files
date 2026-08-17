@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32739.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OFFICE OF THE SECRETARY OF DEFENSE
 

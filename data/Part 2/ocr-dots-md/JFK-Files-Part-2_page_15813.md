@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15813.png
-
-Convert to Markdown# STATEMENT TO
+# STATEMENT TO
 THE BLACK COMMUNIT
 
 Hampton, 21, Chairman of the Illinois

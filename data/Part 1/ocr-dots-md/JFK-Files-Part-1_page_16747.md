@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16747.png
-
-Convert to Markdown<table><tr><td>ORIG: H. JUDKINS:<br/>UNIT: A WH/3/MEXICO<br/>EXT.: 5940<br/>DATE: 22 APRIL 1963</td></tr></table>
+<table><tr><td>ORIG: H. JUDKINS:<br/>UNIT: A WH/3/MEXICO<br/>EXT.: 5940<br/>DATE: 22 APRIL 1963</td></tr></table>
 
 CLASSIFIED MESSAGE
 

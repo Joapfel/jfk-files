@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26247.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 América Latina debido a que la víaばafliea en todo carillo, necesario, está bloqueada. Prosiguió elсыmánento de movimientos revolucionarios en toda la América Latina. Le preguntó sobre laREADVAKSARANDOY Y MUNICIPALIDOS de estos movimientos revolucionarios. Le respondió que son marxistas, pero con terminos liberales, no con la rigidez de la línea revolucionaria comunistista internacional.
 

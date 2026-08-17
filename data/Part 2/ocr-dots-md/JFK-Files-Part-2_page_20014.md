@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20014.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      WA -2- 3:08 PM EH

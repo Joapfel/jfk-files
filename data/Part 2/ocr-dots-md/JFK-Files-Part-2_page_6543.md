@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6543.png
-
-Convert to MarkdownCaptain Zurnwalt/DRAFT #2
+Captain Zurnwalt/DRAFT #2
 March 11, 1963
 
 IX.A.3.d. General Pressures to Create a Contingency

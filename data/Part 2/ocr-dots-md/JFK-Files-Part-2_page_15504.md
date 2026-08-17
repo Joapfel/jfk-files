@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15504.png
-
-Convert to MarkdownMemorandum to Mr. R. D. Cotter
+Memorandum to Mr. R. D. Cotter
 
 RE: NATIONALITY GROUP COVERAGE - ISRAEL
 105-97459-345

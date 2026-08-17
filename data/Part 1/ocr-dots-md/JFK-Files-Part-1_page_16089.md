@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16089.png
-
-Convert to MarkdownAt the end of Phase III there will be three
+At the end of Phase III there will be three
 Phase II units: one Special Operations and one Sniper
 unit. Phase III will be operating mainly in anti-terrorist
 operations.

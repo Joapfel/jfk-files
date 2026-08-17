@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11549.png
-
-Convert to Markdownfrom five to seven by assigning full time from within the Section SA L. E. Belanger, and on a rotating basis one Agent from the Middle and South American Unit (B. M. Perez). Perez was replaced by SA W. W. Hamilton on 8/16/71.
+from five to seven by assigning full time from within the Section SA L. E. Belanger, and on a rotating basis one Agent from the Middle and South American Unit (B. M. Perez). Perez was replaced by SA W. W. Hamilton on 8/16/71.
 
 On 8/13/71 two additional Agents were provided from outside the Section, one on a full-time basis and one on a rotating weekly basis. The Agent assigned on a full-time basis (T. J. Seabaugh) was immediately assigned to the McLek case. The Agent assigned on the weekly rotating basis was assigned to assist on one of the regular operational desks within the Section and an Agent who had been continuously on loan with the exception of an annual leave period of 8/6-16/71 (J. P. Benedict) was assigned full time to instant matters.
 

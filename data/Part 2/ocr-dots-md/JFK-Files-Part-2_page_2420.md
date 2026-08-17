@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2420.png
-
-Convert to MarkdownJalian KIDB Data/Reported from El Salvador
+Jalian KIDB Data/Reported from El Salvador
 
 GE-20981
 

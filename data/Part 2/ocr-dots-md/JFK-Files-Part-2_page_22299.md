@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22299.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Phone (Area 202) 544-6000
 

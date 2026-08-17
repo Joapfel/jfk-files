@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21385.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 30 Nov. 1961 (Detroit)
 

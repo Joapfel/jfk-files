@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25806.png
-
-Convert to MarkdownSECRET
+SECRET
 
 repairmen and others who might accidentally discover one of
 our LIPEAT taps. Also, should GERENDE be compromised

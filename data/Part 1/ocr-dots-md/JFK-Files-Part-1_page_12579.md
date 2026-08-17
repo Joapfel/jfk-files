@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12579.png
-
-Convert to MarkdownATTACHMENT TO HCA-17126
+ATTACHMENT TO HCA-17126
 
 TO : CH/MID
 FROM: COS/Caracas

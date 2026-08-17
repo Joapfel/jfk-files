@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4453.png
-
-Convert to Markdownc. **Economic.** The Agency was able to produce a continuous amount of intelligence from Agent sources on the Cuban sugar, oil and transportation industries, much of which was in the form-of statistical summaries. In a number of instances, this intelligence was provided by agents who had direct access to this information by virtue of their jobs. We also have been able to get continued reporting on general economic conditions and foreign trade. Among the most significant agents reporting economic information were:
+c. **Economic.** The Agency was able to produce a continuous amount of intelligence from Agent sources on the Cuban sugar, oil and transportation industries, much of which was in the form-of statistical summaries. In a number of instances, this intelligence was provided by agents who had direct access to this information by virtue of their jobs. We also have been able to get continued reporting on general economic conditions and foreign trade. Among the most significant agents reporting economic information were:
 
 1. A Cuban (insurance) salesman, previously noted, who through his extensive contacts and sub-agents has been able to provide information on sugar production, (insurance) affairs and the Cuban banking system.
 

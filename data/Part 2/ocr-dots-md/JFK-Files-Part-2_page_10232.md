@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10232.png
-
-Convert to Markdown8 MAR 1973
+8 MAR 1973
 
 MEMORANDUM FOR: Deputy Director for Operations
 

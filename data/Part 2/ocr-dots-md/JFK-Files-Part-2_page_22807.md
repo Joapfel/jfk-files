@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22807.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 actions were discussed in the Special Group. And as your Committee pursues its studies of covert action it will find that that group is the unodal point for policy decisions, good or bad, well or badly handled. And that was quite a small group.
 

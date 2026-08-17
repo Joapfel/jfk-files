@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6806.png
-
-Convert to Markdown# HALFERN
+# HALFERN
 
 Maurice HALPERN (201-
 

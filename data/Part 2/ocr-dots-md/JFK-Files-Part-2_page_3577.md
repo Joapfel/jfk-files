@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3577.png
-
-Convert to Markdownb. He has been visiting provincial cities to "explain" the military takeover and receive expressions of loyalty. He has continued to spread the idea that the coup was largely his own doing.
+b. He has been visiting provincial cities to "explain" the military takeover and receive expressions of loyalty. He has continued to spread the idea that the coup was largely his own doing.
 
 c. Dinh has directed provincial chiefs to submit to him daily reports on local politics. (INTERCEPTS)
 

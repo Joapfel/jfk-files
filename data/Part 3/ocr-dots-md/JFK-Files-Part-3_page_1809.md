@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1809.png
-
-Convert to Markdown# House Select Committee on Assassinations
+# House Select Committee on Assassinations
 
 Records at FBI Headquarters disclosed that the following individuals, formerly associated with the SCLC, were subjects of electronic surveillance by the FBI (Secret).
 

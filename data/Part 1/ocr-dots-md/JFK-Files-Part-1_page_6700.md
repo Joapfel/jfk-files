@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6700.png
-
-Convert to Markdown14-0000
+14-0000
 
 Hace once días Jun. 19 de 1963
 

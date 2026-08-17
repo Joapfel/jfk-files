@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13839.png
-
-Convert to Markdown(February 23, 1962)
+(February 23, 1962)
 
 u) Hilario L.U. looking for subject urgently. Leaves message about a "sick" person. (LILIANO 5 Mar 62)
 

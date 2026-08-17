@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7409.png
-
-Convert to MarkdownSECRET
+SECRET
 
 into making judgments on operational deployment of manpower such as what targets are in a country, what are the great power interests in a particular country, what is the operational environment in the country i. e., permissive or not, what are the cover possibilities, what are our liaison equities, and what are our needs for regional support from a particular country. These explanations are taken aboard by Mr. Snodgrass, but he is looking for something else which has less variables in it when, in fact, there is no magic formula for determining how one gets people to commit treason. This portion of the meeting ultimately ended on a friendly note but left unresolved the question of what was it that Mr. Snodgrass really wanted on the issue of manpower allocations and what could CIA tell him that we haven't already told him. (ACTION REQUIRED: Mr. Snodgrass is currently preoccupied with drafting his report on the House Appropriations Committee Mark-up of the DDO FY 77 budget. Once this task is completed Mr. Chin, OLC, will return to see Mr. Snodgrass and will try to obtain an elaboration of what specifically are the manpower issues that trouble Mr. Snodgrass. In this context Mr. Chin has been asked to try to determine if a review, position-by-position, of two or three typical Stations within the DDO might give Mr. Snodgrass the insight into manpower allocations that he is currently seeking.)
 

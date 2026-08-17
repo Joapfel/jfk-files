@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16167.png
-
-Convert to Markdown1.
+1.
 
 Date February 12, 1970
 

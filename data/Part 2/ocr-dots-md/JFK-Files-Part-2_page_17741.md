@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17741.png
-
-Convert to Markdown(n) Names of firms collaborating with US intelligence agencies in collection and assessment programs (especially those having large foreign clientele).
+(n) Names of firms collaborating with US intelligence agencies in collection and assessment programs (especially those having large foreign clientele).
 
 (o) Proprietary information relating to contractors or furnished in confidence.
 

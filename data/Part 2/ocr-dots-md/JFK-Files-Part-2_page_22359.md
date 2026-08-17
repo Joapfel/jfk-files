@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22359.png
-
-Convert to MarkdownAny investigation and review of C.I.A., or any other element
+Any investigation and review of C.I.A., or any other element
 of that community should be made within that context.
 
 After many years of service in the security field, I

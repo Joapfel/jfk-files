@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19365.png
-
-Convert to Markdown1/11/68
+1/11/68
 
 CODE
 

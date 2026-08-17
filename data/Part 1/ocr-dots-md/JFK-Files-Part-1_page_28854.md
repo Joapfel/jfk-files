@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28854.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="3">②<br>DATE OF EMPLOYMENT (month, year)<br>FROM: Oct. 1947 TO Dec. 1951<br>ASSISTANT ATTACH<br>PLACE OF EMPLOYMENT (City and State)</td>

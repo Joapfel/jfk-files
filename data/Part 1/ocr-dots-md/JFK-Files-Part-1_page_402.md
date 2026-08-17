@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_402.png
-
-Convert to Markdown14-00000
+14-00000
 
 8. WHITE, Allen Alan P. EOD: 10-20-46 DOB: 3-08-17 RET: 7-31-75 BLOCKED
 9. HELMS, Richard DCI - F

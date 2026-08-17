@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_82.png
-
-Convert to MarkdownSECRE
+SECRE
 
 * OPERATOR : SEEGER, EDWA
 * OFFICE : IMS/FABOSS

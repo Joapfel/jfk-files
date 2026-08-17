@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9032.png
-
-Convert to Markdownto follow the guidance of the Embassy and the Station in controlling travel to and from Cuba and the Soviet bloc. The activities of Cuban subversives in Ecuador, at least for the present, have been greatly inhibited by the mass arrests of Communists and pro-Cubans and by the outlawing of the Communist Party by the junta.
+to follow the guidance of the Embassy and the Station in controlling travel to and from Cuba and the Soviet bloc. The activities of Cuban subversives in Ecuador, at least for the present, have been greatly inhibited by the mass arrests of Communists and pro-Cubans and by the outlawing of the Communist Party by the junta.
 
 ## Honduras
 

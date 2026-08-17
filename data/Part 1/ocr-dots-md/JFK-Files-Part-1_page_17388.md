@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17388.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIG:</td>
     <td>C. BUSTOS</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25688.png
-
-Convert to Markdown22 MARCH 1962
+22 MARCH 1962
 
 MEMORANDUM FOR: CI/OA
 SUBJECT: Transfer of Agent Files to TFW

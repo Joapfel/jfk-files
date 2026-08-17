@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26057.png
-
-Convert to Markdownon trying to equip and train the national
+on trying to equip and train the national
 police to cope with it, and we Americans
 did that through our economic mission and
 through Michigan State University had a

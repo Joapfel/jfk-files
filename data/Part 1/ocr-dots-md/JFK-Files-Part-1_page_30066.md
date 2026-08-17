@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30066.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>SECTION A</th><td colspan="4">GENERAL</td></tr><tr><th>I. NAME (Last, First)</th><td>(Middle)</td><th>Father's Name</th><th>Mother's Name</th><th>DATE OF BIRTH</th></tr></thead><tbody><tr><td>KIMSEY, Herman E.</td><td></td><td>11 Dec 1916</td><td></td><td>M</td><td>CS-13</td></tr></tbody></table>
 

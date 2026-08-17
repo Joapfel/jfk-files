@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23261.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 yourself and Fields would indicate to you that he wasn't being considered at that point for an assassination mission?
 

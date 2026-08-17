@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25423.png
-
-Convert to MarkdownMM 105-1742
+MM 105-1742
 
 SOMOZA and the Central American Republics to put into effect without United States military and political support.
 

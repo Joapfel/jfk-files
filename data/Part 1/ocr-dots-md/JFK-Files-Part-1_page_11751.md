@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11751.png
-
-Convert to MarkdownThe city of San Francisco, Cali-
+The city of San Francisco, Cali-
 pria, looms largely as the back-
 round of films we saw during the
 week, and very nice it looks, too,

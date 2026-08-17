@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21814.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 figure in Cuba who came out and he goes to Louisiana or he
 2 goes to Chicago. Well, an AMOTS would be dispatched over to his

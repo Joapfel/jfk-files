@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12618.png
-
-Convert to Markdown(4) Office preparing summary report may include information originally obtained by another office but may not have necessary documentation. If office preparing report has copies of documents obtained by another office and identity of source, date of activity, date received, and receiving Agent are known, it is not necessary to obtain file number of original. Pertinent documentation, other than file number, should be obtained from auxiliary office.
+(4) Office preparing summary report may include information originally obtained by another office but may not have necessary documentation. If office preparing report has copies of documents obtained by another office and identity of source, date of activity, date received, and receiving Agent are known, it is not necessary to obtain file number of original. Pertinent documentation, other than file number, should be obtained from auxiliary office.
 
 (5) When report includes references to known subversives who have associated with subject, identify source of characterization in cover pages without further documentation.
 

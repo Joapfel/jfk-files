@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31979.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <td colspan="10">CONFIDENTIAL</td>

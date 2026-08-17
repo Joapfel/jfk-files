@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17462.png
-
-Convert to MarkdownOPTIONAL FORM NO. 19
+OPTIONAL FORM NO. 19
 MAY 15, 1969
 U.S. ARMY (AT CH) 101-31,8
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6578.png
-
-Convert to MarkdownSUBJECT: ALEXANDER-SIEGLAIR, John
+SUBJECT: ALEXANDER-SIEGLAIR, John
 
 1. Reference is made to the name check request from your office dated 28 January 1957, for information concerning John ALXIANDEE-SUECLAIR. The files of this office and those of a predecessor organization contains considerable information concerning Subject, the major part of which is not derogatory. This information includes reports of Subject's personal views as of January 1943 on political and economic conditions in Shanghai, China, which could be made available to your office upon request. Following is information which may be deemed derogatory in one case and of intelligence interest in the other.
 

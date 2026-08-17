@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2597.png
-
-Convert to MarkdownRouting Slip
+Routing Slip
 FD-4 (Rev. 4-20-81)
 
 Date 6/8/83

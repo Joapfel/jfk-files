@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1661.png
-
-Convert to Markdown<table><tr><td>62-117290-408</td></tr><tr><td>COPY<br/>63</td></tr><tr><td>DOC: ldr</td><td>12/29/77</td></tr></table>
+<table><tr><td>62-117290-408</td></tr><tr><td>COPY<br/>63</td></tr><tr><td>DOC: ldr</td><td>12/29/77</td></tr></table>
 
 The Deputy Attorney General HSCA
 HOUSE SELECT COMMITTEE ON

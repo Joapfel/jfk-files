@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15193.png
-
-Convert to MarkdownAttachment A
+Attachment A
 
 The following technical surveillances are being maintained
 at the specific request or with the specific approval of the office

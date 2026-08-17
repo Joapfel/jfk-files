@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30386.png
-
-Convert to MarkdownMr. Tovar. -- precisely what you wanted?
+Mr. Tovar. -- precisely what you wanted?
 
 2 Mr. Goldsmith. Yes.
 

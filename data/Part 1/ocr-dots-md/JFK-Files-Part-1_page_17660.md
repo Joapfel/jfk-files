@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17660.png
-
-Convert to MarkdownH. E. L. Zender and Cline Stahl, and loaned to confirm data on the same matters obtained through other station sources. LIBAT also added details which were not available to other station sources, such as the names of the persons who sought to help those prisoners. For example, LIEUT. E. R. Horsley, who was holding Com-unist leader, Curro Ojeda, an American citizen, in his cell, asked the passport of Jo. G. in a matter relating to the arrest; this fact, along with others, makes it appear to be one of the most important foreign Communists in Mexico. The below listed reports contain information of this type:
+H. E. L. Zender and Cline Stahl, and loaned to confirm data on the same matters obtained through other station sources. LIBAT also added details which were not available to other station sources, such as the names of the persons who sought to help those prisoners. For example, LIEUT. E. R. Horsley, who was holding Com-unist leader, Curro Ojeda, an American citizen, in his cell, asked the passport of Jo. G. in a matter relating to the arrest; this fact, along with others, makes it appear to be one of the most important foreign Communists in Mexico. The below listed reports contain information of this type:
 
 10-212, dated 6 March 1957
 

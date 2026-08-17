@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20464.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">PERIODIC SUPPLEMENT<br/>PERSONAL HISTORY STATEMENT</td>

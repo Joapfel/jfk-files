@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_389.png
-
-Convert to MarkdownDATOS BIOGRAFICOS DE CARLOS JURADO.
+DATOS BIOGRAFICOS DE CARLOS JURADO.
 
 Hace el 3 de noviembre de 1927 en la ciudad de México. Estudia durante un tiempo en la Escuela de Pintura y Escultura "La Esmeralda", donde es discípulo de María Izquierdo, Rivera, etc. Permanece por seis años en medios rurales del país, trabajando con el Instituto Nacional Indigenista. En 1960 obtiene un premio en el certamen "Nuevos Valores" en el Salón de la Plástica Mexicana del Instituto Nacional de Bellas Artes.
 

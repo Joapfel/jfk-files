@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4510.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>CONTINUATION OF</td>

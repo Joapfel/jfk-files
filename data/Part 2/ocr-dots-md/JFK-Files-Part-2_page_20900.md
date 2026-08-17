@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20900.png
-
-Convert to MarkdownMAR 5 1971
+MAR 5 1971
 
 TELETYP
 

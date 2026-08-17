@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24785.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">PROJECT EVALUATION</th><th>Initials</th><th>Date</th></tr></thead><tbody><tr><td>1.</td><td>C.C.A./P.E.C.</td><td></td><td>S. MPS/BC/CA</td></tr><tr><td rowspan="2">2.</td><td rowspan="2">C.C.A./P.E.C. (inhalation)</td><td></td><td>S. ADDP</td></tr><tr><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">PROJECT EVALUATION</th><th>Initials</th><th>Date</th></tr></thead><tbody><tr><td>1.</td><td>C.C.A./P.E.C.</td><td></td><td>S. MPS/BC/CA</td></tr><tr><td rowspan="2">2.</td><td rowspan="2">C.C.A./P.E.C. (inhalation)</td><td></td><td>S. ADDP</td></tr><tr><td></td><td></td></tr></tbody></table>
 
 <table><tbody><tr><td>P.G. Eval.</td></tr><tr><td>Off.:</td><td>Dated:</td></tr><tr><td>Date</td><td>Received: 13 July 1967</td></tr><tr><td>Date Due in</td><td>MPS/ADP:</td></tr><tr><td></td><td>17 July 1967</td></tr></tbody></table>
 

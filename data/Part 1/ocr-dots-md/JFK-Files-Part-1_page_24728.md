@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24728.png
-
-Convert to Markdown18 июня 1959 г. АПН
+18 июня 1959 г. АПН
 
 <table><tr><td>DOC. MICRO. SER.</td></tr><tr><td>FEB 11 1972</td></tr><tr><td>MICRO.</td></tr></table>
 

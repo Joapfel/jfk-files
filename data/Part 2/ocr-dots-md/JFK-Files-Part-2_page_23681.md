@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23681.png
-
-Convert to Markdown1 United States. We've been doing it in the United States
+1 United States. We've been doing it in the United States
 2 military for generations in giving earlier consideration for
 3 citizenship if he serves on active duty as an alien in the
 4 United States armed forces.

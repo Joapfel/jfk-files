@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20800.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 This investigation is predicated upon information
 that the Washington, D.C., (WDC), locals of the Young

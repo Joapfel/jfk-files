@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8606.png
-
-Convert to Markdown# SECRET
+# SECRET
 DRAFT
 
 MEMORANDUM FOR: The Record

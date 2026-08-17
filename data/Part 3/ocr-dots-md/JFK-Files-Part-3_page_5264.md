@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5264.png
-
-Convert to MarkdownThe Manual of Rules and Regulations, Part 2,
+The Manual of Rules and Regulations, Part 2,
 Section 5, Page 7, indicates that Bureau policy under
 Executive Order 10450 is to furnish the Civil Service
 Commission all pertinent identifiable, derogatory non-

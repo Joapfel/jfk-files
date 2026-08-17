@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4695.png
-
-Convert to MarkdownSECRET
+SECRET
 
 themselves for God's sake, not the mail opening but the wire tapping, and bugging offices or bug somebody elses or tell somebody to bug somebody. Hell, it started with Roosevelt himself, you know, nothing new.
 

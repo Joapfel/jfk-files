@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11753.png
-
-Convert to Markdown# MILLER
+# MILLER
 ## PROPIEDADES
 
 Sala de CONFERENCIA, FCS. 226-7-8

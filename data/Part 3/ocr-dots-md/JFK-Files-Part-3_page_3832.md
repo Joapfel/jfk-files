@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3832.png
-
-Convert to Markdowncollect positive foreign intelligence. The best example is the Attorney General's authorization of warrantless FBI electronic surveillance for foreign intelligence purposes. However, there is apparently no instruction from the Justice Department to the FBI directing the Bureau to initiate investigations of individuals or organizations which have a marked potential for use by a foreign intelligence service, but about which there is no information indicating intelligence activity. (See Staff Report, "Counterintelligence/Counterespionage: The Law and the Philosophy", October 14, 1975.)
+collect positive foreign intelligence. The best example is the Attorney General's authorization of warrantless FBI electronic surveillance for foreign intelligence purposes. However, there is apparently no instruction from the Justice Department to the FBI directing the Bureau to initiate investigations of individuals or organizations which have a marked potential for use by a foreign intelligence service, but about which there is no information indicating intelligence activity. (See Staff Report, "Counterintelligence/Counterespionage: The Law and the Philosophy", October 14, 1975.)
 
 In his testimony before the Committee, Deputy Associate FBI Director James Adams made no reference to clauses (2) and (3) as a possible legal basis for FBI intelligence investigations going beyond the investigation of specific federal crimes.
 

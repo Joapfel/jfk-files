@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26323.png
-
-Convert to Markdown19
+19
 
 <table><thead><tr><th>12 FEB.66</th><th>MICHAEL ANGEL LOZANO.</th></tr></thead><tbody><tr><td>15 FEB.66</td><td>BORA RAFAJLOVIC.</td></tr><tr><td>16 FEB.66</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>16 FEB.66</td><td>JOSÉ LUIS POSADA.</td></tr><tr><td>21 FEB.66</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>1 MAR.66</td><td>RAUL PEREIRA.</td></tr><tr><td>3 MAR.66</td><td>BORA RAFAJLOVIC.</td></tr><tr><td>7 MAR.65</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>12 MAR.66</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>19 MAR.66</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>25 MAR.66</td><td>JOSÉ LUIS POSADA.</td></tr><tr><td>5 ABR.65</td><td>JOSÉ LUIS POSADA.</td></tr><tr><td>19 ABR.65</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>30 ABR.65</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>15 MAY.66</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>17 MAY.66</td><td>JOSÉ LUIS POSADA.</td></tr><tr><td>24 MAY.66</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>25 MAY.66</td><td>JOSÉ LUIS POSADA.</td></tr><tr><td>15 JUN.66</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>24 JUN.66</td><td>JOSÉ LUIS POSADA.</td></tr><tr><td>4 JUL.66</td><td>MICHAEL ANGEL LOZANO Y MARIANO GARCÍA.</td></tr><tr><td>14 JUL.66</td><td>MICHAEL ANGEL LOZANO.</td></tr><tr><td>22 JUL.66</td><td>MARIANO GARCÍA.</td></tr></tbody></table>
 

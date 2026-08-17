@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22562.png
-
-Convert to MarkdownSECRET-ENCS ONLY
+SECRET-ENCS ONLY
 
 3 June 1961
 

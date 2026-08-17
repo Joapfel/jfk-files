@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24147.png
-
-Convert to Markdown# Operational Support
+# Operational Support
 WUTACTIC Complex
 
 The below 27 companies are managed by the Cover and Commercial Staff to provide operational support mechanisms for DDO foreign operations. Some companies are inactive and held for future use.

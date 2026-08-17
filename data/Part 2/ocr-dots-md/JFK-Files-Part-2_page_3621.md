@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3621.png
-
-Convert to Markdown1. South Vietnam
+1. South Vietnam
 
 a. Vietnamese Communist forces kept up their high post-coup level of activity over the weekend.
 

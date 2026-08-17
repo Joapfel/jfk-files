@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26546.png
-
-Convert to MarkdownTODAVIA, LA OSCURIDAD
+TODAVIA, LA OSCURIDAD
 
 Rico Galán, incommunicable.
 

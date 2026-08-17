@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6797.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIO: ELLY S. BATT
 UNIT: 12-1/SCHW

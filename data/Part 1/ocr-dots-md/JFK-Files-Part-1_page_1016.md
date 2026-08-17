@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1016.png
-
-Convert to MarkdownHSCA Request 3 Nov 77:
+HSCA Request 3 Nov 77:
 
 8. Uncropped copies of photographs of the "Mexico City Oswald" These include CIA photographs......
 

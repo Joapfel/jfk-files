@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7553.png
-
-Convert to Markdown## MAROLD RORERT ISAACS, continued
+## MAROLD RORERT ISAACS, continued
 
 "One Man's Fight against Corruption: the Story behind the Stilwell Incident," Newsweek, p. 44, 13 Nov. 1944
 

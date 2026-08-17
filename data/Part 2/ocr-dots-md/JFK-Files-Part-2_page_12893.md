@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12893.png
-
-Convert to MarkdownNW 88296 DocId:32989550 Page 34
+NW 88296 DocId:32989550 Page 34
 
 <table>
     <tr>

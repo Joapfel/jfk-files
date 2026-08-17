@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17156.png
-
-Convert to MarkdownNMC
+NMC
 BPP
 
 a defendant in the current anti-riot law trial being held in Chicago, Sidney Peck, an organizer and National Co-chairman of the NMC from Cleveland, Ohio, Sidney Lens, National Co-chairman of NMC and Terence Halliman, present West Coast organizer of the NMC were already present at Lens' home and did not want to let any BPP members into the meeting except Hewitt, however, the Panthers forced their way into the meeting with Hewitt's approval. Source stated that allegedly Hewitt, and other Chicago BPP leaders had decided prior to attending the meeting that all would attend or none would attend. Further, according to source, they decided that unless the NMC changed their philosophy to the Panther philosophy Hewitt would not accept the co-chairmanship.

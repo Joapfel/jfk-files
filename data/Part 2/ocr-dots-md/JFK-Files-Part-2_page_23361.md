@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23361.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Chiefs in the field, to a greater extent than Dr. Gottlieb would.
 2. The last thing I am doing is impugning his veracity and his testimony.

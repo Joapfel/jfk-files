@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6124.png
-
-Convert to MarkdownI am writing this letter on behalf of myself and Dr. Carlton Goodlett and Reporter Publications.
+I am writing this letter on behalf of myself and Dr. Carlton Goodlett and Reporter Publications.
 
 Pursuant to the Freedom of Information Act, 5 U.S.C. §552, as amended by Pub. L. 93-502, 88 Stat. 1561, we wish to obtain access to and the opportunity to copy the following documents:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17797.png
-
-Convert to Markdown99 PER No. 13
+99 PER No. 13
 
 JUDY: Lujer, ya te arreglaron el teléfono?
 

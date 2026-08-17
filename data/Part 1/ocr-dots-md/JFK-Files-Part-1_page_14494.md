@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14494.png
-
-Convert to MarkdownTO JOHN SMITH
+TO JOHN SMITH
 FROM WHEELER
 
 Would appreciate your comments in turn. I'd return for an on-site visit.

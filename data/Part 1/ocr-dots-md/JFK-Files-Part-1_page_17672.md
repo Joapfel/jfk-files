@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17672.png
-
-Convert to Markdown(7) CAROL L. ZIMMERMAN: Housewife
+(7) CAROL L. ZIMMERMAN: Housewife
 
 (8) LOUISE J. MARCHMILLER: Housewife, wife of LIPSTICK-19
 

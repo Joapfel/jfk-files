@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31084.png
-
-Convert to Markdown**Central Intelligence Agency**
+**Central Intelligence Agency**
 **has no Objection to Release**
 
 Date: ASSANITIZED

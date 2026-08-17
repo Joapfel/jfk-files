@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25282.png
-
-Convert to Markdownbecause (fmu) LIREPOSO had told him that they usually asked for the opinion of the embassies of each country to be certain that no country would object. Soviet opinion was positive. KOLOTYAKOV promised to go by one day and greet TOLEDO in person.
+because (fmu) LIREPOSO had told him that they usually asked for the opinion of the embassies of each country to be certain that no country would object. Soviet opinion was positive. KOLOTYAKOV promised to go by one day and greet TOLEDO in person.
 
 e. Jose Luis MARTINEZ of Eto informed MASTEKETCH that the article on the Russian ballet had been published.
 

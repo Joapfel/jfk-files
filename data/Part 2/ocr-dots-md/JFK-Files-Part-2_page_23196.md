@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23196.png
-
-Convert to Markdownnash
+nash
 
 1. TOP SECRET
 2. CONTENTS

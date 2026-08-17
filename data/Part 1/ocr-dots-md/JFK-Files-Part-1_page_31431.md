@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31431.png
-
-Convert to Markdown23 October 1952
+23 October 1952
 
 MEMORANDUM FOR: DEPUTY DIRECTOR (PLANS)
 

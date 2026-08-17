@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18666.png
-
-Convert to Markdown# Continuation Sheet
+# Continuation Sheet
 
 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4676.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Memorandum for Mr. Sullivan
 Re: ATTACK ON SPANISH VESSEL "SIERRA ARANZAZU," 9/13/64

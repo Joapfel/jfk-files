@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25424.png
-
-Convert to MarkdownLeta 20 August 1969
+Leta 20 August 1969
 
 MAYORAL DEC: Chief, LOS ANGELES FIELD OFFICE
 OFFICER:

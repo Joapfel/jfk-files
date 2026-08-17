@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15338.png
-
-Convert to MarkdownMemorandum for A. H. Belmont
+Memorandum for A. H. Belmont
 
 Re: Intelligence Coverage of Diplomatic
 Representatives of Friendly Foreign Nations

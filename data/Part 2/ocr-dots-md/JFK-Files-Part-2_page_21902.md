@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21902.png
-
-Convert to Markdown(Arnold Silver) had not previously used QJWIN as an assassination capability or even viewed him as such. (Harvey affidavit, p. )
+(Arnold Silver) had not previously used QJWIN as an assassination capability or even viewed him as such. (Harvey affidavit, p. )
 
 Although Harvey also had discussions with (Sidney Gottlieb) in connection with Project ZRRIFLE, he believed that (Gottlieb) never mentioned to him either QJWIN's activities in the Congo or (Gottlieb)'s own trip to Leopoldville (Harvey affidavit, p. ). Harvey had consented with (Arnold Silver) about the initiation of Project ZRRIFLE (Harvey, 6/25/75, p. 52).
 

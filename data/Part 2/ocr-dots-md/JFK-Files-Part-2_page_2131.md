@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2131.png
-
-Convert to MarkdownJames A. Noel
+James A. Noel
 
 Date of birth: 3/19/11 SCD: 1/26/31 ECD: 9/18/47
 

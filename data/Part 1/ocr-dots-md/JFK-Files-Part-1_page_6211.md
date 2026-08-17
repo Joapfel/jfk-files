@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6211.png
-
-Convert to MarkdownNOMBRE
+NOMBRE
 
 F (continuación)
 TORRES MENA, Pablo de la

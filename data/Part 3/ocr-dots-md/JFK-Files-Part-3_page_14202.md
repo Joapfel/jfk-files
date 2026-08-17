@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14202.png
-
-Convert to Markdown(184. 11/9/62 Continued)
+(184. 11/9/62 Continued)
 
 been prepared.); (3) The need for clandestine intelligence collection.
 (Hughes noting that we do not have espionage agents on the ground in

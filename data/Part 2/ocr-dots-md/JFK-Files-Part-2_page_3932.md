@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3932.png
-
-Convert to Markdown# 'I want to find my children'
+# 'I want to find my children'
 
 Ex-Army spook who fingered Oswald claims Uncle Sam hides his family / by Thomas C. Lucey
 

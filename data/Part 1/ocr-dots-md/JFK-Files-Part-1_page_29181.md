@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29181.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>Appropriation Title:</td>
     <td colspan="2">USDA Forest Fund, Interior, Board of Economic Studies, State, AOC. 1.</td>

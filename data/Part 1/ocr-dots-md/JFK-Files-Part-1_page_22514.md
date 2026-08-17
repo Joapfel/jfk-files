@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22514.png
-
-Convert to MarkdownSECRET-FILES ONLY
+SECRET-FILES ONLY
 
 From the records, we can trace the origins and the course of U.S. policy with respect to the overthrow of Trujillo. We also can ascertain from the files the nature and the extent of U.S. support of the plotters, including the passing to them of weapons out of the U.S. Consulate in Ciudad Trujillo. What we cannot discover from the files, despite quite massive documentation, is how the coup group was organized. The best single account we find, and it is not wholly accurate, is in a book by Robert Crassweller.* The main flaw in the story is its failure to identify the individuals with whom the U.S. Government was actually working. Excerpts follow:
 

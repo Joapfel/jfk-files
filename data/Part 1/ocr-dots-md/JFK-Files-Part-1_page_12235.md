@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12235.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="5">OUTGOING MESSAG:</td></tr><tr><td colspan="5">SIGNAL CENTER USE ONLY</td></tr><tr><td>DATE</td><td>CITY</td><td>STATE</td><td>FROM</td><td>TO</td></tr><tr><td>02/28/76</td><td>1976</td><td>-</td><td>-</td><td>-</td></tr></table>
 

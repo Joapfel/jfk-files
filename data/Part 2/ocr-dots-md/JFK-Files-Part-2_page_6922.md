@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6922.png
-
-Convert to Markdowncommunications intercepts might not be the same as those for searching the much less voluminous files of CIA stations and headquarters divisions. The Board could try, however, to ensure comparative uniformity in the diligence of searches.
+communications intercepts might not be the same as those for searching the much less voluminous files of CIA stations and headquarters divisions. The Board could try, however, to ensure comparative uniformity in the diligence of searches.
 
 The Board could try also to ensure comparative uniformity in definitions of what is to be withheld. It might urge, for example, that the intelligence sources and methods criterion apply only to sources and methods in current use, not just to any ever used.
 

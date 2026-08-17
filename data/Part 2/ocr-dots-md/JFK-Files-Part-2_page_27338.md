@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27338.png
-
-Convert to MarkdownA - Preface
+A - Preface
 
 B - Threats to Agency Installations and Personnel.
 

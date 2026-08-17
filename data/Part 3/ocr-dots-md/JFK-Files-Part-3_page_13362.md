@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13362.png
-
-Convert to MarkdownSTURGIS: Well, my thoughts were, and still is, the fact that there
+STURGIS: Well, my thoughts were, and still is, the fact that there
 is a good possibility that Cuban and Americans who are part of this crime
 syndicate, using the Cubans and then setting up possibly a conspiracy--
 there is a lot of talk of, you know, of wanting to kill Fidel. So if you

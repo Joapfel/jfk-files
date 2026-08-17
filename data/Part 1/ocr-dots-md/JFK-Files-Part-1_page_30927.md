@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30927.png
-
-Convert to MarkdownFor the period 1 December 1964 - 31 March 1965, BENADUM was paid quarters at the rate of $4,024.92 although the maximum allowance was $3,700 per annum. For the four months, BENADUM was overpaid $108.26 ($27.07 x 4).
+For the period 1 December 1964 - 31 March 1965, BENADUM was paid quarters at the rate of $4,024.92 although the maximum allowance was $3,700 per annum. For the four months, BENADUM was overpaid $108.26 ($27.07 x 4).
 
 Presuming the project has sufficient funds and the COS decides the maximum rate is applicable, the overpayment is to be offset against the increase.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10182.png
-
-Convert to MarkdownMaterial furnished includes policy, statutes,
+Material furnished includes policy, statutes,
 instructions and related matters covering FBI investigations
 in the security field generally. Limited, extremely sensitive
 material excluded but available for review by appropriately

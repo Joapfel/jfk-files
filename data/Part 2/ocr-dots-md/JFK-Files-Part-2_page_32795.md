@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32795.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 SECRET
 
 purpose of substantially reducing the time required for the U. S.

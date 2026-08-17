@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29851.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 REPORT OF INTERVIEW
 

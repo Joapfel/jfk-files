@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21173.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 [STORSBERG] at first stated that the approach was about four months before he left Moscow and then stated it was about one and one-half months and not more than two months. He claimed that he did not have long to go until the end of his tour of duty. He is certain that his replacement [ZUJUS] had not arrived at the time of the incident. [ZUJUS] arrived in Moscow in September, 1961.) He also stated the incident occurred after he saw the message which pertained to KEYZER'S homosexual activities. He believed the incident occurred quite sometime after the Ice Capades people were in Moscow because he had a good time when they were there and he did not have a good time after the approach. He stated that he did not believe he could have "sweated it out" for as long as six months; that regardless of how it may appear, his recollection is that the incident could not have happened more than two months before his departure.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7813.png
-
-Convert to Markdown13-00000
+13-00000
 
 LISTING OF ATTACHED DOCUMENTS
 

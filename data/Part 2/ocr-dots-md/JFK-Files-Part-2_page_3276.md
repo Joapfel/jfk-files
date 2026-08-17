@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3276.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 On 1 July 1960, Jake Esterline received an inter-
 esting telephone call from General Cushman, contain-

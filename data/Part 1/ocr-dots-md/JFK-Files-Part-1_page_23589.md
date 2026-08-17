@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23589.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13 August 1953
 

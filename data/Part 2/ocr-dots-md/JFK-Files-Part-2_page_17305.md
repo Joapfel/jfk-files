@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17305.png
-
-Convert to Markdown# Black Panther Medical Center
+# Black Panther Medical Center
 ## '60s Open Despite City Threats
 
 By TONI ANTHONY

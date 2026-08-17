@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19095.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Report No. : F-6937
 Date of Report : 28 April 1946

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24747.png
-
-Convert to MarkdownGoodpaster and Gray: The responsibility for national security affairs during the latter part of the Eisenhower Administration was borne by Andrew Goodpaster and Gordon Gray. However, there was no evidence which raised the name of either man in connection with the development of an executive action capability. Both Goodpaster and Gray testified to having no knowledge of it. (Goodpaster, p. 11; Gray, p. 56.)
+Goodpaster and Gray: The responsibility for national security affairs during the latter part of the Eisenhower Administration was borne by Andrew Goodpaster and Gordon Gray. However, there was no evidence which raised the name of either man in connection with the development of an executive action capability. Both Goodpaster and Gray testified to having no knowledge of it. (Goodpaster, p. 11; Gray, p. 56.)
 
 (c) Authorization or Knowledge of Executive Action Project by DCI
 

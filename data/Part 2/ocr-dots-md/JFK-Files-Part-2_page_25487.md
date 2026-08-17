@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25487.png
-
-Convert to Markdown-38-
+-38-
 
 FS: I would assume that these letters that were in code they would be classified material. Otherwise it wouldn't be in code.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6292.png
-
-Convert to MarkdownSECRET
+SECRET
 RYBAT
 
 d. Was a pictorial journalist for Life, 1938-1942.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4812.png
-
-Convert to MarkdownSECRET
+SECRET
 
 see Bill from time to time. We are still friends and all that kind of stuff. We say hello, sit at the same table, and everyting else. We just have a different view on how to run the show, in other words.
 

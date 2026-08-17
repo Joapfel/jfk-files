@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4789.png
-
-Convert to MarkdownSECRET
+SECRET
 
 aren't. And you can go back, like you did in your book, you
 can go back, it's there in the record book. Go find it. It's

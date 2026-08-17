@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24095.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the doctrine to the internal decision-making process of
 the Government is absurd. Any theory which, as a matter

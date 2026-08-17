@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7865.png
-
-Convert to Markdown280. Cable, dated 28 April 1968. (b)(1), (b)(3), (b)(6)
+280. Cable, dated 28 April 1968. (b)(1), (b)(3), (b)(6)
 
 281-282. Two Cables, dated 30 April 1968. (b)(1), (b)(3), (b)(6)
 

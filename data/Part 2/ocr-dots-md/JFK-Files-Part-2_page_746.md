@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_746.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th>NAME OF EMPLOYEE (Last-First-Middle)</th>

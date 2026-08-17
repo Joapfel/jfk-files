@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9185.png
-
-Convert to Markdownas they exceed his annual salary. I asked "What portion?" and Lyle said "oh, perhaps 4 or 1/3," which, if the excess were $12,000—a figure Lyle suggested as possible— would bring him in an extra $4 or $6,000.
+as they exceed his annual salary. I asked "What portion?" and Lyle said "oh, perhaps 4 or 1/3," which, if the excess were $12,000—a figure Lyle suggested as possible— would bring him in an extra $4 or $6,000.
 
 Shub's contract with CIA expires 31 Dec. 1951. His contract with Swen, Lyle pointed out, would still be in effect after that. / But his contract with Xerox CIA would still no doubt obligate him to return royalties to CIA, i.e. Swen, even after 31 Dec. 1951./
 

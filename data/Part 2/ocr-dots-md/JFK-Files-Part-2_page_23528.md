@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23528.png
-
-Convert to MarkdownJuly 17, 1975
+July 17, 1975
 
 To: F.A.O. Schwarz/Curtis Smothers
 

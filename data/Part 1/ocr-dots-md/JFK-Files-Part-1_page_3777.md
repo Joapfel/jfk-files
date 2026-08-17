@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3777.png
-
-Convert to Markdown<table><thead><tr><td>INDEX: ☐ YES ☑ NO</td><td></td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIES</td></tr></thead><tbody><tr><td colspan="4">FILE DSC RET. TO BRANCH ☐</td></tr><tr><td colspan="3">DESTROY ☐ SIC.</td><td></td></tr><tr><td>ACTION</td><td>c/wk/cor-5 ☑ RID COPY</td><td>ADVANCE COPY ☐</td><td>LIMIT wmk TIME 16:00Z BY G</td></tr><tr><td>Info</td><td>FILE x2 c/wk l c/sad 3 c/c1 of/12 csdo</td><td colspan="2"></td></tr></tbody></table>
+<table><thead><tr><td>INDEX: ☐ YES ☑ NO</td><td></td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIES</td></tr></thead><tbody><tr><td colspan="4">FILE DSC RET. TO BRANCH ☐</td></tr><tr><td colspan="3">DESTROY ☐ SIC.</td><td></td></tr><tr><td>ACTION</td><td>c/wk/cor-5 ☑ RID COPY</td><td>ADVANCE COPY ☐</td><td>LIMIT wmk TIME 16:00Z BY G</td></tr><tr><td>Info</td><td>FILE x2 c/wk l c/sad 3 c/c1 of/12 csdo</td><td colspan="2"></td></tr></tbody></table>
 
 SECRET 011405Z CITE JMWAVE 7476
 

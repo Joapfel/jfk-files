@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16497.png
-
-Convert to Markdown5 a qualitatively different nature from the way whites are treated.
+5 a qualitatively different nature from the way whites are treated.
 
 The police function first to maintain "law and order"; the law which the capitalist class has developed to protect its wealth and property and the order which it needs to maintain its power. The pigs are the armed force which is used to "Serve and Protect" the rulers of this country. Police are assigned to patrol the neighborhoods, schools, hangouts and parks. Any deviation from their ideas as to what constitutes "good behavior" is met with brutal force. They occupy and surround the high schools (black, brown and white) to keep any opposition to the rotten educational system from "getting out of hand". Actually they act more like guards in a prison, which is what the high schools function as. In the past year they have increased the size of the gang intelligence unit (GIU) from 38 to over 200. The GIU watches, spies on, harasses and intimidates anyone they define as being a member of a "gang".
 

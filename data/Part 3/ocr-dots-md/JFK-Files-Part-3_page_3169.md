@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3169.png
-
-Convert to Markdown1781
+1781
 
 request, and I want to make it clear it was his request, not the Bureau's, authors of books that were critical of the Warren Commission Report, the assassination of President Kennedy, were requested to file any pertinent personal data information, dossiers, etc., on seven individuals whose names I will not discuss.
 

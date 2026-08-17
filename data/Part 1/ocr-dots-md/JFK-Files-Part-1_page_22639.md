@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22639.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>DATE : 459 OMCL/MCD/27 Feb/K</td>
         <td>S-E-C-R-E-T</td>

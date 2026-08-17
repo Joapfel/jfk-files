@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28208.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Ltr, 6499th Support Group (CR), 11 June 1965, Letter of
 Commendation

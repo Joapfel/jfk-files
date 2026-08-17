@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14295.png
-
-Convert to MarkdownTAB B
+TAB B
 
 "KENNEDY BOARD"
 

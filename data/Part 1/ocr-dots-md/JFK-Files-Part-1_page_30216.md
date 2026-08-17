@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30216.png
-
-Convert to Markdown810 Pacific Avenue
+810 Pacific Avenue
 Simons, California
 
 July 20, 1951

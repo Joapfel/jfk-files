@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_37.png
-
-Convert to Markdown13-00000
+13-00000
 
 Divorced from BLINKOV May 57. Viktoriya still Intermist at Moskva July 57. Married JS 2 Nov 57. Lived (She or they?) at Hotel National til departure from USSR.
 

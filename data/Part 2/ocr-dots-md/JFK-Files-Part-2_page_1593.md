@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1593.png
-
-Convert to MarkdownF NOV 1960
+F NOV 1960
 
 MEMORANDUM FOR: Contract Personnel Division
 

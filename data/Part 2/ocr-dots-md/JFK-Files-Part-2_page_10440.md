@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10440.png
-
-Convert to MarkdownTOP SECRET UMBRA
+TOP SECRET UMBRA
 EYES ONLY
 
 4. A draft memorandum was jointly prepared by OCI and CI Staff and forwarded to the DCI. He passed this typescript memo, dated 15 November 1967, to the President personally. The White House copy is now in the files of President Johnson's papers at the library in Austin.

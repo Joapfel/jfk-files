@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9979.png
-
-Convert to Markdown3.
+3.
 
 8. Rowton, not excluding the possibility of Crozco's committing suicide in 1/3's apartment or attracting attention of the neighbors, recommended that L/3, Moreno and Valdez enter the apartment so soon and remain inside with Crozco until Rowton could work out some plan to remove him from the apartment early kxgxfz that same morning. L/3 promised to try but was not at all sure that he could convince Crozco to open the door (which he had bolted from the inside). In any case he assured Rowton that he and his two friends would remain on guard outside so that they could surveil or seize Crozco the moment he left the premises. L/3 stated that he was quite certain that Crozco was unarmed and without funds and could easily be controlled by Karmathrazakfa Moreno and Valdez, thus permitting him (L/3) to communicate with Rowton.
 

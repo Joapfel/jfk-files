@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5260.png
-
-Convert to Markdown# MR. CLEMARD JOSEPH CHARLES
+# MR. CLEMARD JOSEPH CHARLES
 
 President & General Manager, Banque Commeriale d'Haiti, Port-au-Prince.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3833.png
-
-Convert to Markdownby working on the outside,
+by working on the outside,
 
 8. In addition to his coal company, Mr. HUGHES stated he has various other business interests in Chicago, Florida and other parts of the United States. He is a partner in a real estate venture in the Ft. Lauderdale, Florida area. Mr. HUGHES claims a part-ownership of the Maryland Hotel in Chicago.
 

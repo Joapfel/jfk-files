@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4932.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHFNO: 97-7142690 SENSIND:
 

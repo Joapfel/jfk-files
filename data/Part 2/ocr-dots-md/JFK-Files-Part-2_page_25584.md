@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25584.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 To: Terry Lenzner
 

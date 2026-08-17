@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4876.png
-
-Convert to Markdown<table><thead><tr><th>DATE</th><th>TO</th></tr></thead><tbody><tr><td>LA/15<br/>FEB. 07</td><td>SantiAGO</td></tr></tbody></table>
+<table><thead><tr><th>DATE</th><th>TO</th></tr></thead><tbody><tr><td>LA/15<br/>FEB. 07</td><td>SantiAGO</td></tr></tbody></table>
 
 SECRET
 

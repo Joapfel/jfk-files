@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27622.png
-
-Convert to MarkdownOCCUPATION Household Last Employer None
+OCCUPATION Household Last Employer None
 EMPLOYER'S OR OWN BUSINESS ADDRESS Not Applicable
 MILITARY SERVICE FROM Not Applicable BRANCH OF SERVICE
 COUNTRY DETAILS OF OTHER GOVT SERVICE, U.S. OR FOREIGN.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28877.png
-
-Convert to MarkdownSECRET TELEPOUCH
+SECRET TELEPOUCH
 
 DISP NO - UWCS-705
 FILE NO - NONZ

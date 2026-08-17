@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10818.png
-
-Convert to MarkdownRecommendation number 17 emphasized that CIA should place emphasis on the establishment of unofficial cover throughout the world; recommendation number 20 was that CIA should increase intelligence support to unified and component commanders by direct dissemination from pertinent field stations.
+Recommendation number 17 emphasized that CIA should place emphasis on the establishment of unofficial cover throughout the world; recommendation number 20 was that CIA should increase intelligence support to unified and component commanders by direct dissemination from pertinent field stations.
 
 The report noted that CIA's main requirements problem related to clandestine collection and concerned the great number of requirements served on the Agency. .
 

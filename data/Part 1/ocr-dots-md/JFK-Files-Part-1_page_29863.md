@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29863.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LMP: 10 DEC 74
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25397.png
-
-Convert to MarkdownMEMORANDUM:
+MEMORANDUM:
 
 TO: TO THE FILES
 

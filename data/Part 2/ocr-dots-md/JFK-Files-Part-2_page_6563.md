@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6563.png
-
-Convert to MarkdownSECRET
+SECRET
 
 culminated in the abortive Bay of Pigs Operation in late April 1961. It has been conceded that the Bay of Pigs Operation caused many dis- aments and potential resistance groups to expose themselves and be "rolled up" in the Cuban security operations which came in the wake of this fatal operation.
 

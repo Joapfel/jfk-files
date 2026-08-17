@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16313.png
-
-Convert to Markdown# WHERE DOES YOUR TAX MONEY GO?
+# WHERE DOES YOUR TAX MONEY GO?
 
 Lying politicians say it goes to poor people, Negroes, Mexicans...
 

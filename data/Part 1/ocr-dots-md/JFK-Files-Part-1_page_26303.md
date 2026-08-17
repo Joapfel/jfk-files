@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26303.png
-
-Convert to Markdown14-00000
+14-00000
 
 ** entry no. : 2497.-**
 

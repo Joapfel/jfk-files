@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17276.png
-
-Convert to Markdown**ADRIAN KING (9/15/69)**
+**ADRIAN KING (9/15/69)**
 
 This person is a panther of the Chicago Chapter, however, not well known.
 

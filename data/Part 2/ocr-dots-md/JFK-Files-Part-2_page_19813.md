@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19813.png
-
-Convert to MarkdownFEB 8 1972
+FEB 8 1972
 
 AR 004 DE CODE
 

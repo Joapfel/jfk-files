@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21614.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Schwarz. And you offered through [Colonel Wimert],
 whom we will come to in a moment, $50,000 if they could

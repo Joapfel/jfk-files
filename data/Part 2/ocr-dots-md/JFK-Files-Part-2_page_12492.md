@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12492.png
-
-Convert to Markdownthe United States or any department or agency thereof, for the five years next following his conviction.
+the United States or any department or agency thereof, for the five years next following his conviction.
 
 "If two or more persons conspire to commit any offense named in this section, each shall be fined not more than $20,000 or imprisoned not more than twenty years, or both, and shall be ineligible for employment by the United States or any department or agency thereof, for the five years next following his conviction.
 

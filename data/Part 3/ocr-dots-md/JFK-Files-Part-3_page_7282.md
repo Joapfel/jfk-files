@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7282.png
-
-Convert to Markdownmaterials to the place of transcription, the securing of
+materials to the place of transcription, the securing of
 carbons, waste and notes and the return of the transcribed
 testimony to the committee for safekeeping in accordance
 with committee rules.

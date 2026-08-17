@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23990.png
-
-Convert to Markdowna. Collect intelligence on coup-minded officers;
+a. Collect intelligence on coup-minded officers;
 
 b. Create a coup climate by propaganda, disinformation, and terrorist activities intended to provoke the left to give a pretext for a coup;*(Hqs. 611, October 7, 1970)
 

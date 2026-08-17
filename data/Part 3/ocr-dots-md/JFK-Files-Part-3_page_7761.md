@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7761.png
-
-Convert to Markdown# INTELLIGENCE INVESTIGATIONS AND CIVIL LIBERTY
+# INTELLIGENCE INVESTIGATIONS AND CIVIL LIBERTY
 
 One of the biggest distinctions between the criminal and security-type investigations is the fact that national security investigations, which involved the ideological factor, are almost without exception concerned with the concept of political ideology. No matter how radical the political ideology might be, it is nevertheless considered by the people involved - and often by many intellectual idealists - as a right guaranteed under the Constitution. As a result of a great deal of liberal thinking on the part of the civil libertarians and groups such as the American Civil Liberties Union (ACLU), there is a much greater hue and cry when intelligence-type investigations are surfaced and it developed that the purpose of the investigation had something to do with an individual's so-called political beliefs. The potential problem for the FBI in conducting purely intelligence-type investigations, even when based on statutes, is when the investigation broaches or gets real close to rights protected under the First and Fourth Amendments.
 

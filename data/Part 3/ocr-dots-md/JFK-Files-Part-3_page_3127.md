@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3127.png
-
-Convert to Markdown1739
+1739
 
 conferring an honorary degree upon a man like Dr. Martin Luther King, who was not engaging in or suspected of engaging in criminal activity?
 

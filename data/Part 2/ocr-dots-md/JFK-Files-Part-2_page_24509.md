@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24509.png
-
-Convert to MarkdownIt is clear from the record, moreover, that the defeat at the Bay of Pigs had been regarded as a humiliation for the President personally and for the CIA institutionally.
+It is clear from the record, moreover, that the defeat at the Bay of Pigs had been regarded as a humiliation for the President personally and for the CIA institutionally.
 
 By July the Special Group had agreed that the basic objective "is to provide support to a U. S. program to develop opposition to Castro and to help bring about a regime acceptable to the U. S." (Memo for the Record, July 21, 1961.) Occasional harrassment operations were mounted during the summer but there was neither over- all strategy nor much activity.
 

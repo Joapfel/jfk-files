@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13883.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 -2-- 398, DECEMBER 27, FROM GUATEMALA CITY
 

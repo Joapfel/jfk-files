@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6049.png
-
-Convert to MarkdownDKE
+DKE
 
 DIRECTORIO REVOLUCIONARIO ESTUDIANTIL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4802.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 The Keystone Sales Company, Inc. lists its President as JOSEPH REGINO and its Vice President as SEBASTIAN JOHN LA ROCCA who is a reported member of the La Cosa Nostra.
 

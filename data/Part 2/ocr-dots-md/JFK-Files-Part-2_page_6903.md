@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6903.png
-
-Convert to Markdownyear 2029.
+year 2029.
 
 To date, these records have been withheld from the public due
 to a variety of concerns: the fear of damaging foreign relations

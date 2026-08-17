@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33550.png
-
-Convert to Markdown14-0000
+14-0000
 
 OMF 0 0 0 0 0 0
 

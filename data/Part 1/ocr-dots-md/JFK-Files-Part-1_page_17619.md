@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17619.png
-
-Convert to MarkdownAttachment to 1954-A-1019B
+Attachment to 1954-A-1019B
 
 Kap0k-ltOl
 

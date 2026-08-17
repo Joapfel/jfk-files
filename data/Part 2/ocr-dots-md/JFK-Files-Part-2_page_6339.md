@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6339.png
-
-Convert to Markdown**TO:** John N. Greer @ DCI
+**TO:** John N. Greer @ DCI
 **FROM:** John F. Pereira
 **DATE:** 03/02/95 05:07:45 PM
 **SUBJECT:** Re: Proposed Regs by JFK Assassination Records Review Board

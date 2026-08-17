@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22714.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Mr. Johnson. So both of you left the CIA in December, 1974.
 2. Since that time we understand there have been some changes

@@ -1,3 +1,1 @@
-# JFK-Files-Part-3_page_13299.png
-
-Convert to MarkdownStates to take action against Fidel Castro. He also said that he hated Castro and thought that his story about Oswald, if believed, would help cause the U. S. to take action against Castro.
+States to take action against Fidel Castro. He also said that he hated Castro and thought that his story about Oswald, if believed, would help cause the U. S. to take action against Castro.

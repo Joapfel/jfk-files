@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34862.png
-
-Convert to MarkdownRECEIPT
+RECEIPT
 
 5 April 1968
 

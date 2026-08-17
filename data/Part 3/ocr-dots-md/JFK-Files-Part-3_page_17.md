@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_17.png
-
-Convert to MarkdownIn mid-February, Bromley Smith said that the
+In mid-February, Bromley Smith said that the
 
 Vietnam Situation Report, which OCI had begun sending to the White House
 daily at 8 a.m., was proving to be very useful; it was going up to the

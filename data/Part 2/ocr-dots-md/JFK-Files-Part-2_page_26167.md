@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26167.png
-
-Convert to Markdownthink it was '59--that sergeants and junior
+think it was '59--that sergeants and junior
 lieutenants and so on would come up and talk
 to him, and I'd moved in close enough to
 eavesdrop on some of the conversations, and

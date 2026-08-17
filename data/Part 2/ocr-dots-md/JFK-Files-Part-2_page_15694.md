@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15694.png
-
-Convert to Markdownadvised on January 5, 1970, that no-
+advised on January 5, 1970, that no-
 proximately 1,500 people of all ages, with about 25
 per cent white, attended a rally held at the Afro-
 Arts Theater, 3937 South Drexel Boulevard, Chicago.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2428.png
-
-Convert to Markdown14. Kapalkin - a general, in 1950 was a deputy of chief the Military diplomatic academy. He has two sons: Kapalkin Sergey - finished this academy in 1950, works in GRU, worked in Italy and in France, his wife - a daughter of Marshal Timoshenko - Olyga (finished the institute of foreign trade); Kapalkin Victor - in 1940 he studied as a student in the USF, also works in GRU.
+14. Kapalkin - a general, in 1950 was a deputy of chief the Military diplomatic academy. He has two sons: Kapalkin Sergey - finished this academy in 1950, works in GRU, worked in Italy and in France, his wife - a daughter of Marshal Timoshenko - Olyga (finished the institute of foreign trade); Kapalkin Victor - in 1940 he studied as a student in the USF, also works in GRU.
 
 15. Kaba linov Vladimir - a major, a senior officer of the navy intelligence. of F Fleet in 1950-52.
 

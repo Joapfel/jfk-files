@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25812.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>FORM<br/>105-53<br/>(4)</td>
     <td>LAP PERSONAL EDITION<br/>REPLACES FORMS<br/>5128, 519A AND 519B<br/>NOT FOR GENERAL USE</td>

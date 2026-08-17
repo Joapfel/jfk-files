@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24694.png
-
-Convert to MarkdownWIROGUE only as a CIA officer would "normally do ... when you speak in a derogatory manner of an asset." (Hedgman, 8/21/75, p. 101)
+WIROGUE only as a CIA officer would "normally do ... when you speak in a derogatory manner of an asset." (Hedgman, 8/21/75, p. 101)
 
 The Chief of Station maintained that WIROGUE's proposition
 to QJWIN to join an "execution squad" could be attributed to

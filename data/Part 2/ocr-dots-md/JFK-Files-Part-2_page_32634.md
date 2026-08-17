@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32634.png
-
-Convert to MarkdownSECRET
+SECRET
 
 them mortars. It is always possible, of course, that
 he is fabricating to build up the morale of his units,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22643.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 of the Watergate, and we had all of these things. And so a great deal of this stuff was there, but it wasn't being professionally worked upon.
 

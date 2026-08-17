@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2026.png
-
-Convert to Markdownof her father's intention to come to Washington to make
+of her father's intention to come to Washington to make
 inquiry at the Russian Embassy in regard to his visit to
 Russia. Subject's father wished Subject to accompany him
 but she indicated that as a government employee she did

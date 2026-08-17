@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26342.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>6501</td></tr><tr><td>Extended Data Figure 2. <i>Serotaxin</i> and its derivatives, compared with the standard anti-malarial, artesunate. <i>N</i> is the number of experiments.</td></tr></table>
 

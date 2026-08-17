@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34028.png
-
-Convert to Markdownthe unstable political situation under the Batista regime and the economic insecurity of the new Castro regime.
+the unstable political situation under the Batista regime and the economic insecurity of the new Castro regime.
 
 Of the above mentioned exports, 97.8% were to Free World countries and only 2.2% to Communist countries. Import-wise, 99.9% were made from Free World countries, while 0.1% were made from Communist countries.
 

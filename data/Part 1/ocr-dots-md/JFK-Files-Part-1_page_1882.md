@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1882.png
-
-Convert to Markdown20 February 1961
+20 February 1961
 
 21 FEB 1961
 

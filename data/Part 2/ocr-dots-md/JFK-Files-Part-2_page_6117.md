@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6117.png
-
-Convert to Markdown19. Congressional Testimony: Have you ever testified before a Committee of the Congress? If so, please provide details, including date(s).
+19. Congressional Testimony: Have you ever testified before a Committee of the Congress? If so, please provide details, including date(s).
 
 No.
 

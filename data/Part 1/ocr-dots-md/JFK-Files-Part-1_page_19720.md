@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19720.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10 April 1967
 

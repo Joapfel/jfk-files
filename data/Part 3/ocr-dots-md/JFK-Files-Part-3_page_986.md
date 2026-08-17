@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_986.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 The Philadelphia FBI Office was authorized to mail an anonymous letter to Robert Shelton, Imperial Wizard, United Klans of America (UKA), Tuscaloosa, Alabama, from a "member of the Minutemen" in Pennsylvania, urging that Shelton drop Roy Frankhouser from Ku Klux Klan leadership in Pennsylvania. This letter would also suggest that Pennsylvania authorities, although not true, were considering Frankhouser as a murder suspect at that time.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_150.png
-
-Convert to MarkdownC. TRETTIN:jaf
+C. TRETTIN:jaf
 WH/COG/CICS
 5106
 

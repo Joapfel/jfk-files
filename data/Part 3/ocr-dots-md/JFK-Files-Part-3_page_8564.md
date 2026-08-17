@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8564.png
-
-Convert to MarkdownSECRET
+SECRET
 
 27 October 1958
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8478.png
-
-Convert to MarkdownExtracts from LIREALM-1 contact reports
+Extracts from LIREALM-1 contact reports
 
 **Extracts from LIREALM-1 contact reports**
 

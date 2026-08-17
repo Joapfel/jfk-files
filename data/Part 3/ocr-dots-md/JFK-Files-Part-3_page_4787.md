@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4787.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 Date 7/5/68
 

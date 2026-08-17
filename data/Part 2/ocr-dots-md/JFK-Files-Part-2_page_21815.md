@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21815.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. AMOT'S in regard to any kind of harrassing action against those groups?
 

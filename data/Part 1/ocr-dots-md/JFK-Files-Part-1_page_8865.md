@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8865.png
-
-Convert to Markdown33. Antecedentes de Corte - La Corte, feoha, detenciones, oargos, fallos, etc.
+33. Antecedentes de Corte - La Corte, feoha, detenciones, oargos, fallos, etc.
 
 34. Descripción:
 

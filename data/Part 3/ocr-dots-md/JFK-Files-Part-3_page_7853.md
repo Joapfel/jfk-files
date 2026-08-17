@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7853.png
-
-Convert to MarkdownRE: INTERVIEW OF FBI SA BY SSC
+RE: INTERVIEW OF FBI SA BY SSC
 
 A: That is correct. My function in this matter was very limited and I recollect I was simply to go, monitor, and return.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8221.png
-
-Convert to Markdownthat if given the chance he would, within eighteen
+that if given the chance he would, within eighteen
 months, stage a demonstration. He has suggested that
 if his colleagues can supply marijuana and find a way
 to export it, he could guarantee an outlet in the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4629.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 <table><tr><td>DD/078:7248</td></tr><tr><td>Executive Registry</td></tr><tr><td>78-7213</td></tr></table>
 

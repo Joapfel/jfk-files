@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13711.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>RODRIGUEZ, LOPEZ, ROSELIO<br/>201-332665<br/>SEX M DOB ?<br/>CUBA ?<br/>CIT CUBA?<br/>OCC IS AGENT<br/>Δ MEXICO, MEXICO CITY<br/>DGI OFFICIAL AND COMPLEMENT OF MANUEL<br/>VEGA PEREZ /201-334253/.</td>
     <td>201-334253<br/>HIMTA-24080 E01<br/>11 AUG '64<br/>P12</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4301.png
-
-Convert to Markdownmuch encouragement to Costa Rica's support of Artime as possible
+much encouragement to Costa Rica's support of Artime as possible
 without showing his activities.
 
 General Carter mentioned the eagerness of William D. Pawley to implement an operational plan against Cuba, purportedly designed to create a situation which might ultimately require U.S. intervention. The consensus of the Special Group was that an independent operation organized by Pawley, would not be desirable. Efforts should be made to bring him into CIA's current operational thinking.

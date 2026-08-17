@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15719.png
-
-Convert to Markdownwould dictate that one should be alert when opening one's door
+would dictate that one should be alert when opening one's door
 to strangers, lat at night, in the wee晨evening - even when
 these strangers wear the uniform of policemanship. History teaches
 us that the man in the uniform may or may not be a policeman

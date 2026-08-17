@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2298.png
-
-Convert to Markdowncommittee is authorized to specify any type or kind of intelligence
+committee is authorized to specify any type or kind of intelligence
 activity as to which in its judgment such committee should be given notice
 prior to any executive decision to carry out any such activity. No de-
 partment or agency of the United States may engage in, directly or in-

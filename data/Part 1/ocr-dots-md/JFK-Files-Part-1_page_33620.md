@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33620.png
-
-Convert to Markdown10/52
+10/52
 
 Mr. Wiener —
 

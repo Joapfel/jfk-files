@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24767.png
-
-Convert to Markdowndocumentary evidence of which the Committee is aware which would establish this to be the case.
+documentary evidence of which the Committee is aware which would establish this to be the case.
 
 On January 19, 1961, the last day of the Eisenhower administration, Consul General Dearborn was advised that approval had been given for supplying arms and other material to the Dominican dissidents (HQS to Station cable, 1/19/61). Shortly thereafter, Dearborn informed Devine that the dissidents were "delighted" about the decision to deliver "exotic equipment." (Dearborn to Devine cable, 1/31/61)
 

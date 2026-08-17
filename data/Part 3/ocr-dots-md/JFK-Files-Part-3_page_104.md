@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_104.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 - Mr. J. B. Adams
 1 - Mr. J. A. Mintz

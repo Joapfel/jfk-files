@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2566.png
-
-Convert to Markdownimposed on you by paragraph 8 of this contract and the provisions of
+imposed on you by paragraph 8 of this contract and the provisions of
 any secrecy agreement which you have signed with the CENTRAL
 INTELLIGENCE AGENCY.
 

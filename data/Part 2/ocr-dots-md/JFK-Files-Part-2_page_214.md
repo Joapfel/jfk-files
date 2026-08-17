@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_214.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG : PATRICIA L. JOHNSON:car
 UNIT : WH/C/CA/PA

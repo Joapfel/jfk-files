@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27278.png
-
-Convert to Markdownaa. M/R - Subj: Mrs. Evelyn De Pue - 22 Jan 74
+aa. M/R - Subj: Mrs. Evelyn De Pue - 22 Jan 74
 
 bb. Description of Contents of File of Stenographic Notes on General Cushman's Telephone Conversation
 

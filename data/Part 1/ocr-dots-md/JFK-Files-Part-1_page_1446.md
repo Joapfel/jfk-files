@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1446.png
-
-Convert to MarkdownRETURN TO DIA
+RETURN TO DIA
 Background Use Only
 Do Not Reproduce
 

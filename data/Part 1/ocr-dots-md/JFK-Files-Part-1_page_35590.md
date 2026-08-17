@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35590.png
-
-Convert to Markdown1 October
+1 October
 
 79 84
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9756.png
-
-Convert to Markdownappropriated for the implementation of Executive Order 10422 and
+appropriated for the implementation of Executive Order 10422 and
 this Bureau is proceeding with investigations under this Order and
 submitting reports to the Civil Service Commission for appropriate
 adjudication.

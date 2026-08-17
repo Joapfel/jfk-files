@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29124.png
-
-Convert to Markdown36-2586182
+36-2586182
 The Stanley-Oliver Mfg. Co.
 1001 S. California Ave.
 Chicago, Ill. 60612

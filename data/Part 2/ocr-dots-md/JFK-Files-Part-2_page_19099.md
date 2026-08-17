@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19099.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 LEONID ZAMAYATIN, Chief of the Press Office of the Soviet Foreign Ministry, he was treated most cordially. When this former informant's exit visa was finally issued, he found that it was good for a period of in excess of a week after the seven day period in which he was to depart from the Soviet Union. -C-
 

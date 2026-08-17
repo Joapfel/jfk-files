@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7321.png
-
-Convert to Markdown1 - Mr. McDermott
+1 - Mr. McDermott
 
 1 - Mr. Gebhardt
 

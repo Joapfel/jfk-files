@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21610.png
-
-Convert to Markdown# INTERVIEW AND MEETING SUMMARY
+# INTERVIEW AND MEETING SUMMARY
 
 FILE:
 

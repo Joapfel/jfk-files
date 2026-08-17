@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19587.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      23. REFERENCES - List three persons living in the United States or Territories of the United States who have NOT related to you or to whom you have been biographical by your qualifications and fitness for the job which you are applying (Do not list names of superintendents listed under Item 16 (E) (i.e. D).)

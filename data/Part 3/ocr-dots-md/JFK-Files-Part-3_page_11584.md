@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11584.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 ## SPECIAL INVESTIGATIONS UNIT-EAST
 
 Incidents of sabotage currently being investigated by the Bureau, are, for the most part, the "home grown variety" occasioned by attacks against the military and related operations on the part of New Leftists, dissidents, and elements opposed to U.S. participation in the Vietnam War.

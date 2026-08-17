@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7250.png
-
-Convert to Markdown1. Concerning the telephone call of 8 December 1965 from Carlos BLANCO to Valentin B. LOGINOV at the Soviet Embassy in which BLANCO told LOGINOV that "El comandante Carlos" (Carlos CASAMADRID Miranda) wanted to see Pavel A. YATSKOV on an urgent matter, the following information may pertain to this discussion :
+1. Concerning the telephone call of 8 December 1965 from Carlos BLANCO to Valentin B. LOGINOV at the Soviet Embassy in which BLANCO told LOGINOV that "El comandante Carlos" (Carlos CASAMADRID Miranda) wanted to see Pavel A. YATSKOV on an urgent matter, the following information may pertain to this discussion :
 
 a. On 11 October 1965 at 2200 hours Pavel A. YATSKOV was seen having dinner with an unidentified Mexican male at the "La Tablita" restaurant on the corner of Ejercito Nacional and Gutenborg. At the end of their meal the Mexican pushed a small object across the table towards YATSKOV. YATSKOV covered this object with his napkin and then put the object in his pocket. It was obvious that this object was passed in a clandestine manner. They then left the restaurant together and separated. The Mexican then went to a jeep with ID license 11-63 (1964-1965 issue) and drove off alone. This jeep had a seal reading "Procuraduría General de Justicia del Distrito y Territorios Federales - Policial Judicial." Thus, it can be assumed that the person is an employee of the Judicial Police.
 

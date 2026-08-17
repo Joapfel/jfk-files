@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6098.png
-
-Convert to Markdown" Eisenhower and the National Security Process," Lecture, Eisenhower Center, University of New Orleans, October, 1990.
+" Eisenhower and the National Security Process," Lecture, Eisenhower Center, University of New Orleans, October, 1990.
 
 "The Evolution of the American Foreign Policy Process from Roosevelt to Reagan," Lecture, Foreign Relations Association of New Orleans, April 1990. (notes only)
 

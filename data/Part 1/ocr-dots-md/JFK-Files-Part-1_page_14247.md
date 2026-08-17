@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14247.png
-
-Convert to Markdown14-00000
+14-00000
 
 Madrid, 22 de diciembre de 1967
 Asunto: CRISTÓS-GUILLERMO RUIZ PEREZ, ENCARGADO DE NEGOCIOS DE CUBA EN MADRID.-

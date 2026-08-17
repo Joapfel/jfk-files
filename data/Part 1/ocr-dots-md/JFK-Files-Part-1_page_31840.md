@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31840.png
-
-Convert to MarkdownSSOT Joseph S. Piccolo, AFF292891U
+SSOT Joseph S. Piccolo, AFF292891U
 121st Tactical Fighter Squadron
 Andrews Air Force base
 Washington 25, D. C.

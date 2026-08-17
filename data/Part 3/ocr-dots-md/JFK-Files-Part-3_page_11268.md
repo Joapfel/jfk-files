@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11268.png
-
-Convert to MarkdownREC'D Mar 25, 1975
+REC'D Mar 25, 1975
 APR, REPR
 DIVISION
 

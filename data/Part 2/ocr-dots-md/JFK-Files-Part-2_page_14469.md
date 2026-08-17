@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14469.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 - M. J. Triplett
 1 - W. O. Cregar

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8817.png
-
-Convert to MarkdownCODE
+CODE
 
 3/2/70
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29651.png
-
-Convert to Markdown38
+38
 
 <table><thead><tr><th colspan="2">Serial No.</th><th>Name</th><th>Cost Center Number</th><th>LWOP Hours</th></tr></thead><tbody><tr><td colspan="2"></td><td>035695</td><td>MAKSYMIKC MYHOSLAW A</td><td>72 150 V</td></tr></tbody></table>
 

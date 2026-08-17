@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32982.png
-
-Convert to Markdown12 February 1978
+12 February 1978
 
 SUBJECT: Contact Report on Miguel Diaz Isaguy.
 

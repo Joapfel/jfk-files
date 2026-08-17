@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34964.png
-
-Convert to MarkdownDOCTOR JOSE MARIA DIAZ DE VILLEGAS Y MARTINEZ, JUEZ MUNICIPAL Y EN CARGADO DEL REGISTRO CIVIL DE LA CIUDAD DE HOLGUIN.
+DOCTOR JOSE MARIA DIAZ DE VILLEGAS Y MARTINEZ, JUEZ MUNICIPAL Y EN CARGADO DEL REGISTRO CIVIL DE LA CIUDAD DE HOLGUIN.
 
 CERTIFICICO:- Que al folio 383 del Tomo 19 de la Seccion de Matrimo - nios de este Registro Civil a mi cargo, aparece la inscripción que - copiada dice así:
 

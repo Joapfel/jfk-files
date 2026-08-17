@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15317.png
-
-Convert to Markdownbrought to a Lieutenant who took him to a Colonel. The latter, having heard that David wanted to get employed, this means that he did not belong to the organization, got mad, did not believe that an unauthorized person could have penetrated so far, (into a top secret area), and asked how he learned about the place. David told his story. The colonel checked on phone with the police H.o. and got the reply that they have such a man. David, then, was asked what he could do, his name was registered, and he was told that he will be contacted later.
+brought to a Lieutenant who took him to a Colonel. The latter, having heard that David wanted to get employed, this means that he did not belong to the organization, got mad, did not believe that an unauthorized person could have penetrated so far, (into a top secret area), and asked how he learned about the place. David told his story. The colonel checked on phone with the police H.o. and got the reply that they have such a man. David, then, was asked what he could do, his name was registered, and he was told that he will be contacted later.
 
 79. Through a chain of persons, linked to LUCAS, David got a request to prepare documents for a Belgian girl's journey to Paris. He consented.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15769.png
-
-Convert to Markdownhave been accumulated, doesn't make any
+have been accumulated, doesn't make any
 difference whether he's guilty or innocent.
 Many of these men and women who plead guilty
 are in fact innocent. We have what we call

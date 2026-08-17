@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10302.png
-
-Convert to Markdown# AGREEMENT
+# AGREEMENT
 
 I have read the foregoing employee notice concerning treatment of confidential material and have read the Resolution establishing the Senate Select Committee to Study Governmental Operations With Respect to Intelligence Activities, and the Committee Rules.
 

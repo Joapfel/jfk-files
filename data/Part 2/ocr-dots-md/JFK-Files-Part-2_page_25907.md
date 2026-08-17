@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25907.png
-
-Convert to MarkdownFBI that Rosselli wanted to “keep square with the bureau” but was afraid that the mob might kill him for talking.
+FBI that Rosselli wanted to “keep square with the bureau” but was afraid that the mob might kill him for talking.
 
 In 1967, after he was arrested for gambling fraud at the Friars Club in Beverly Hills, Rosselli approached his former CIA case officer, William Harvey, who sought unsuccessfully to intercede in the prosecution.
 

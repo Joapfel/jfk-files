@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24084.png
-
-Convert to Markdown#072258K
+#072258K
 
 SEPARATE COVER ATTACHMENT TO:
 

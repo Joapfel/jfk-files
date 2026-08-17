@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11223.png
-
-Convert to Markdown(c) Large contributions by known party groups or front organizations
+(c) Large contributions by known party groups or front organizations
 
 (d) Identity of any new party "angels"
 

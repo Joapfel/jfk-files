@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29775.png
-
-Convert to MarkdownPREVIOUS ARRESTS
+PREVIOUS ARRESTS
 
 SEE ATTACHED TRANSCRIPT.
 

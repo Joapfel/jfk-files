@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4500.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CENTRAL INTELLIGENCE AGENCY
 

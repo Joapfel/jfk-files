@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2469.png
-
-Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+# Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : SAC, WFO (65-8300)
 

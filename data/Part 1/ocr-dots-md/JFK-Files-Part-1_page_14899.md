@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14899.png
-
-Convert to Markdownand when he feels he is crossed. He needs a lot of sensual experience
+and when he feels he is crossed. He needs a lot of sensual experience
 and his sensuality and desire for emotional experience is not too well
 controlled. He especially likes new and novel experiences, which he
 will go after with little attention to the probable consequences.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2661.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 ## CHAPTER V
 ### AMERICAN EMBASSY SECTION OF AMERICAN DEPARTMENT

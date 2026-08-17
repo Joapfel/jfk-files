@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33865.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6 November a cable (IN 39122) was received from Opc Athens referring to
 the unsatisfactory situation resulting from Rampft's appearance in Athens

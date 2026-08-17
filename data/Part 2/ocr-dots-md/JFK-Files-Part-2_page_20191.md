@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20191.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 These individuals considered to be key people
 in D.C. WONAC all have or are the subjects of WFO investi-

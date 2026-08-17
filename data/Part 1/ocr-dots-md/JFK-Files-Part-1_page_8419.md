@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8419.png
-
-Convert to MarkdownUna Recepción de Valentin Loguinov
+Una Recepción de Valentin Loguinov
 
 DOCTOR LAURIDO y Candia, Valentin S. Loguinov, Antonio Certosimo y Jiri Svestka, durante la recepción. (Foto de Jaime González)
 

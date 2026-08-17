@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1337.png
-
-Convert to Markdown<table><thead><tr><th>TRANSMIT VIA:</th><th>PRECEDENCE:</th><th>CLASSIFICATION:</th></tr></thead><tbody><tr><td>[ ] Teletype</td><td>[ ] Immediate</td><td>[ ] TOP SECRET</td></tr><tr><td>[ ] Facsimile</td><td>[ ] Priority</td><td>[ ] SECRET</td></tr><tr><td>[XX] Airtel</td><td>[ ] Routine</td><td>[ ] CONFIDENTIAL<br/>[ ] EFTO<br/>[ ] CLEAR</td></tr><tr><td colspan="2"></td><td>Date 2/1/78</td></tr></tbody></table>
+<table><thead><tr><th>TRANSMIT VIA:</th><th>PRECEDENCE:</th><th>CLASSIFICATION:</th></tr></thead><tbody><tr><td>[ ] Teletype</td><td>[ ] Immediate</td><td>[ ] TOP SECRET</td></tr><tr><td>[ ] Facsimile</td><td>[ ] Priority</td><td>[ ] SECRET</td></tr><tr><td>[XX] Airtel</td><td>[ ] Routine</td><td>[ ] CONFIDENTIAL<br/>[ ] EFTO<br/>[ ] CLEAR</td></tr><tr><td colspan="2"></td><td>Date 2/1/78</td></tr></tbody></table>
 
 TO : DIRECTOR, FBI (62-117290) (Attention: Congressional Inquiry Unit, Records Management Division)
 

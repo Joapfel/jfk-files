@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9470.png
-
-Convert to Markdown"I say hungry children should be fed. Not because they got money but because they're hungry.. This morning the children sitting here at this free breakfast for children program. This is Chairman Bobby Seale's idea. He organized the breakfast for childrens program for you children and you know where Chairman Bobby Seale is right now? He's in Connecticut. There fascist pigs tried to murder him in the electric chair for feeding all the children.
+"I say hungry children should be fed. Not because they got money but because they're hungry.. This morning the children sitting here at this free breakfast for children program. This is Chairman Bobby Seale's idea. He organized the breakfast for childrens program for you children and you know where Chairman Bobby Seale is right now? He's in Connecticut. There fascist pigs tried to murder him in the electric chair for feeding all the children.
 
 "Now you children know what we are going to do to the pigs for that? Right on. (Group in background replies "Right On.")
 

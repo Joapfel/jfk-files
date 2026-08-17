@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4158.png
-
-Convert to Markdown3. Covert Economic Activities.
+3. Covert Economic Activities.
 
 a) Intensify covert activities directed against critical commodities destined for Cuba with resort, if necessary, to carefully considered and controlled preclusive buying.
 

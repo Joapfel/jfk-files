@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25948.png
-
-Convert to Markdown"Maybe R Roselli's information
+"Maybe R Roselli's information
 was the vital nerve of the Kennedy
 assassination," a Senate source told
 The Herald

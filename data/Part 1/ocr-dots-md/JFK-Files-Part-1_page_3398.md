@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3398.png
-
-Convert to Markdownthe situation on the island and treat with Castro as if they believed that all hope of liberation had expired. Can you tell us something about the internal struggle against communism?
+the situation on the island and treat with Castro as if they believed that all hope of liberation had expired. Can you tell us something about the internal struggle against communism?
 
 A. - To think that all hope of liberation has expired in Cuba is to show a complete lack of knowledge of the condition and character of the Cuban people. The history of Cuba is a history of repeated martyrdom in search of real liberty.
 

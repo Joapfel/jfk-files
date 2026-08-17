@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7691.png
-
-Convert to Markdownwas going to go to the U.S. on vacation and mentioned that Daniel *SEIN* (no traces) had asked about Subject. Subject said he would call her later. On 24 Aug 1966 FEDOR told Subject that there would be a discussion about India at her house on 26 Aug, and Subject said he would try to go. Stxx Subject asked her whether she knew the Soviets working on a United Nations project, but she said she did not. (1). (Comment: FEDOR may work at the United Nations in Mexico City.)
+was going to go to the U.S. on vacation and mentioned that Daniel *SEIN* (no traces) had asked about Subject. Subject said he would call her later. On 24 Aug 1966 FEDOR told Subject that there would be a discussion about India at her house on 26 Aug, and Subject said he would try to go. Stxx Subject asked her whether she knew the Soviets working on a United Nations project, but she said she did not. (1). (Comment: FEDOR may work at the United Nations in Mexico City.)
 
 19. (D). fu FLORES, man employed at Mex-American travel agency.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28748.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. Travel to your post of duty overseas and your return travel to the United States, as well as travel performed overseas which is consistent with your cover designation, will normally be at the direction of your cover facility. Such travel will be accomplished in conformance with applicable regulations of your cover facility except when you are directed for operational reasons to perform travel in accordance with the regulations of this organization.
 

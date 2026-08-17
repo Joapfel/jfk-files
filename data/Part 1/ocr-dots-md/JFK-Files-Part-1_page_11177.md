@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11177.png
-
-Convert to MarkdownLa Habana, 5 de octubre de 1966
+La Habana, 5 de octubre de 1966
 "ALO LA SOLIDARIDAD"
 
 Comp. Jemís Durán

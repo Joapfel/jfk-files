@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26109.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>(stating the number, kind, and description of all equipment used in the investigation)</td></tr><tr><td>REPORT ON THE CONDITION OF</td></tr><tr><td>SUBMITTED</td></tr></table>
 

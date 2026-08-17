@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31383.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 13. On 15 July 1969, JOHN C. LYNCH, SMSgt, FR215-22-3876, First Sergeant, AFATL, Eglin AFB, Florida, furnished to the writer the AF Forms 1072 (AUTHORIZED LONG DISTANCE TELEPHONE CALLS) for the period from 1 December 1968 to date. A review of these forms disclosed that SUBJECT placed seven long distance telephone calls to either Mr. FRED BROWN or Sionics at telephone numbers 404-873-3672, 404-873-3673, and 404-366-7120 during the period from 2 December 1968 to 9 July 1969. The documents for the pertinent periods are being retained in the files of OSI District 7, available to proper authority upon request.
 

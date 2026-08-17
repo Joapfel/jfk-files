@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7623.png
-
-Convert to MarkdownCONTACT REPORT
+CONTACT REPORT
 
 SUBJECT: MIRANDA KATZ
 DATE OF MEETING: 23 March 1967 (La Pergola Restaurant, 1100-1615)

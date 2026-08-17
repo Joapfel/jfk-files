@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28731.png
-
-Convert to MarkdownDISTRICT ATTORNEY
+DISTRICT ATTORNEY
 
 OF THE
 COUNTY OF NEW YORK

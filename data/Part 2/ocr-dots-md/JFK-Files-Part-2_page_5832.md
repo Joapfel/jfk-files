@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5832.png
-
-Convert to MarkdownEMPLOYEE ⚙️ BULLETIN
+EMPLOYEE ⚙️ BULLETIN
 
 OIM
 

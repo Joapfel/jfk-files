@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17400.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Waller continued to relate that later in the evening, the Urbana Police Department surveilled the Sheraton Motor Inn, and two cars containing Bobby Rush and Ted Boston, with an undetermined number of associates, were observed to proceed North on U. S. Highway 45 towards Chicago, Illinois. The two cars were observed until they reached Thomasboro, Illinois, at which time the surveillance was discontinued.
 

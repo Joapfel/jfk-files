@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6347.png
-
-Convert to Markdown3. Section 1400.5 Requirement that assassination records be released in their entirety
+3. Section 1400.5 Requirement that assassination records be released in their entirety
 
 The introductory paragraph specifies that “no portions of any assassination record shall be withheld—solely on grounds of non-relevance.” This appears to open the door for access to entire documents that contain information on sensitive activities even when the documents contain information that is only incidental to the assassination, such as a passing reference to a name. There is a potential risk that sensitive, non-relevant sources and methods would be compromised.
 

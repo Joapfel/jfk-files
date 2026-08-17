@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4817.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTERVIEWER: Other than Mr. Colby, who was the most influential person from the Agency in dealing with these Committees?
 

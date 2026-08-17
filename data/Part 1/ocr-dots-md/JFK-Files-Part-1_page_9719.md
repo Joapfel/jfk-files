@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9719.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CASE SECRETLY DISCLOSED</td></tr><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>TOTAL CIRCITS</td></tr><tr><td>REPRODUCTION OF THIS COPY IS FORBIDDED.</td></tr><tr><td>FOR RELEASE IF DIRECTORS' CONSIDERATION allows, BUT NOT BEFORE NOVEMBER 23.</td></tr><tr><td>ADVANCE COPY ISSUED SLotted</td></tr><tr><td>BY __________ AT __________</td></tr><tr><td>ISSUED BY __________ PER __________</td></tr><tr><td>ACTION __________</td></tr><tr><td>RUD COPY NO FILE NO CHANGED</td></tr></table>
 

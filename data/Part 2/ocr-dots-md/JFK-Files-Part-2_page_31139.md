@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31139.png
-
-Convert to MarkdownSECRET
+SECRET
 
 When Longelle returned to the United States, he continued working for the State Department. He resumed his CIA duties on a part-time basis in 1961. He dealt with communications between Washington and Moscow. In September 1961 he resumed his CIA duties on a full-time basis at Headquarters. He worked mainly in the Soviet Russia Division, External Operations, Africa and Europe. He is still with the CIA and is still paid by the State Department, but he plans to retire soon.
 

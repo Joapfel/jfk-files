@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21339.png
-
-Convert to Markdownand assassinate. Three months ago at the Puerto de Somiedo, they machine-gunned a bus with travellers in it and the Civil Guard retreated. They are assisted by the discontented peasants and their families. If they came to Franco, with their hands free of blood, he would pardon them.
+and assassinate. Three months ago at the Puerto de Somiedo, they machine-gunned a bus with travellers in it and the Civil Guard retreated. They are assisted by the discontented peasants and their families. If they came to Franco, with their hands free of blood, he would pardon them.
 
 TERROR — At the beginning they shot many people, especially to pay off personal scores. Now it is done through the tribunals. It is a fact that shooting continues, but only for those condemned to death.
 

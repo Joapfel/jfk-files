@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17344.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 Hampton reportedly stated "let's start violence. The white man is in power so he can stop it." Hampton also called on blacks to reject capitalism as offered by the white man stating "if a white man offers you black capitalism, don't take it - it's evil if he offers it. He offered slavery."
 

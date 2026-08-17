@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21606.png
-
-Convert to MarkdownFILE: SECRET
+FILE: SECRET
 
 on personal relationships going back to World War II. In the late 1960's, the FBI went into El Salvador and Papich thought this was a waste of FBI manpower.
 

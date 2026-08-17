@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11321.png
-
-Convert to Markdown# CH-22A/108V 3.22E
+# CH-22A/108V 3.22E
 **Date**: 6-24-1975
 **Time**: 11:04
 **Station**: S/N 2508, R/S 2508, E/M 7122, 7123, 7124

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11172.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 18
 
 <table><tr><td>BRG: J. STEWART<br/>DRT: WH/1<br/>ET: <br/>DATE: 3 NOV. 66</td><td><input type="checkbox"/> FILE RID<br/><input type="checkbox"/> INDEX<br/><input type="checkbox"/> NO INDEX<br/><input type="checkbox"/> FILE IN CS FARE NO.</td></tr></table>

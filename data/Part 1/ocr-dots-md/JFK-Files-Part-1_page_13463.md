@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13463.png
-
-Convert to Markdown6. It looks that our friend who talked to Pico in Medellin and Bogota was disgusted because Pico was satisfied with the results of the meeting. Pico's satisfaction stemmed from the strong anti-Gastro stand the Council adopted and it is obvious that the running problem so important to us could not a upset him.
+6. It looks that our friend who talked to Pico in Medellin and Bogota was disgusted because Pico was satisfied with the results of the meeting. Pico's satisfaction stemmed from the strong anti-Gastro stand the Council adopted and it is obvious that the running problem so important to us could not a upset him.
 
 7. Pico reports that there is a good chance that Dagoberto Gonzalez (Sec.Gen.of Trabajadores Copeyanos) will be elected as CLASC president at the next CLASC Congress. According to him Jose Goldsack will become Treasurer and present treasurer Alfredo di Pacce will head a new CLASC office dedicated to raise funds from the LA affiliates.
 Pico considers Gonzalez as a staunch anti-communist and better disposed toward | than Raspero. He thinks that flanked by Gonzalez and Goldsack, Maspere will not have so much to say and his power will be limited. Gonzalez is apparently a much more forceful personality than Goldsack, who doesn't have enough guts to oppose Maspere.

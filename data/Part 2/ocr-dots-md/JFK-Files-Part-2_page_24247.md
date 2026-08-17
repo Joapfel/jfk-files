@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24247.png
-
-Convert to MarkdownAs to the issue of safeguards against misuse of project funds or insider information by the Agency, the Chief CCS has told the Committee that compartmentation, the honesty of the Chief of CCS, and display of the portfolios to appropriate congressional committees are what have prevented or will prevent such abuse.
+As to the issue of safeguards against misuse of project funds or insider information by the Agency, the Chief CCS has told the Committee that compartmentation, the honesty of the Chief of CCS, and display of the portfolios to appropriate congressional committees are what have prevented or will prevent such abuse.
 
 Houston agreed with the three safeguards outlined by the CSS Chief. However, he added a fourth:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31858.png
-
-Convert to Markdown30 January 1957
+30 January 1957
 
 Mr. Joseph B. Piccolo
 2210 - 20th Street, N. W.

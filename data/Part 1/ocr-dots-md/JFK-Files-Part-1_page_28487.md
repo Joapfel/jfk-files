@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28487.png
-
-Convert to MarkdownMay 25, 1951
+May 25, 1951
 
 BAGLEY, Tennant Harrington Nov. 21, 1925 PL 724 79th
 

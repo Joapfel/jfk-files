@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22177.png
-
-Convert to Markdown23 February 1965: NOSENKO commented further on his social encounters with GRIBANOV and TARABRIN. The following, which was not included in the protocol quoted above, is taken from case officer notes.
+23 February 1965: NOSENKO commented further on his social encounters with GRIBANOV and TARABRIN. The following, which was not included in the protocol quoted above, is taken from case officer notes.
 
 **Question:** Tell me about the occasions when you were with GRIBANOV and TARABRIN.
 

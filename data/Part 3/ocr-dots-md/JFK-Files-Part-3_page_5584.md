@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5584.png
-
-Convert to Markdown2 - Mr. J. A. Mintz
+2 - Mr. J. A. Mintz
 
 (1 - Mr. J. B. Hotis)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30416.png
-
-Convert to MarkdownIUP SEUZEI
+IUP SEUZEI
 
 40
 

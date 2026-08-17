@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8159.png
-
-Convert to Markdown14. Does the FBI think that Ray was hired to assassinate King?
+14. Does the FBI think that Ray was hired to assassinate King?
 
 15. If so, is there any indication that Communists or a foreign power were involved?
 

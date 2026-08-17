@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6373.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table>
   <caption>SECRET<br/>ANALYSIS REPORT</caption>

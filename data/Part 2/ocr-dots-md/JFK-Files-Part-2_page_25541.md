@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25541.png
-
-Convert to Markdowndiamonds, and Al, what do I do. Go ahead, talk to him about diamonds. So I said Oleg, what do you mean by diamonds? He said uncut stones for cash. I am a Soviet official, I cannot go into a jewelry store like you and buy them. I want diamonds. I'm willing to pay a hundred thousand dollars for them. I said, I said tell me why, Oleg. And he said, "Money, why does anybody want diamonds." I said it's a good enough reason. So I said, "Hey, Louis, what can we do for Oleg about his diamonds?" And Louis said we'll figure something out. And then Oleg said, this was at a dinner party up in their house. Hot diamonds, he wanted hot, uncut, raw diamonds. So he was serious, he was dead serious. He said he would buy them for cash.
+diamonds, and Al, what do I do. Go ahead, talk to him about diamonds. So I said Oleg, what do you mean by diamonds? He said uncut stones for cash. I am a Soviet official, I cannot go into a jewelry store like you and buy them. I want diamonds. I'm willing to pay a hundred thousand dollars for them. I said, I said tell me why, Oleg. And he said, "Money, why does anybody want diamonds." I said it's a good enough reason. So I said, "Hey, Louis, what can we do for Oleg about his diamonds?" And Louis said we'll figure something out. And then Oleg said, this was at a dinner party up in their house. Hot diamonds, he wanted hot, uncut, raw diamonds. So he was serious, he was dead serious. He said he would buy them for cash.
 
 FS: How serious was he? Did you ever get any for him?
 

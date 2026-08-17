@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31725.png
-
-Convert to MarkdownMr. Braden:
+Mr. Braden:
 
 Ellen says a clearance has been in since 1 Dec 1952 on Allen Michie.
 Nothing has been done in Security on it and possibly they can get to it next

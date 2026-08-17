@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13753.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CASTRO'S SUBVERSIVE
 CAPABILITIES IN LATIN

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17197.png
-
-Convert to MarkdownC. As in the past, Raymond H. GERNSTEIN will submit bi-weekly accountings for all Project expenditures with appropriate receipts or certifications. There will be no requirements for foreign currency beyond the Station's capability to provide.
+C. As in the past, Raymond H. GERNSTEIN will submit bi-weekly accountings for all Project expenditures with appropriate receipts or certifications. There will be no requirements for foreign currency beyond the Station's capability to provide.
 
 **EMERGENCY CONDITIONS.**
 

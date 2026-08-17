@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4800.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 (First name unknown) HUGO and TERRY DEUTSCH,
 who were contacted through Las Vegas telephone number

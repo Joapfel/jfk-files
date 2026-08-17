@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13516.png
-
-Convert to Markdowncb 3
+cb 3
 
 1 could precisely and tightly control it.
 

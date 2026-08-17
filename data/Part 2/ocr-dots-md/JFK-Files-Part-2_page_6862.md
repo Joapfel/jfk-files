@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6862.png
-
-Convert to MarkdownU1A3U/98 FKI 11.54 FAA 202 724 0431
+U1A3U/98 FKI 11.54 FAA 202 724 0431
 
 The Honorable Dan Burton
 January 30, 1998

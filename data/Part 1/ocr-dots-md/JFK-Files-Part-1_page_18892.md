@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18892.png
-
-Convert to MarkdownIRIS
+IRIS
 STATE DEPARTMENT
 OFFICE OF STRATEGIC SERVICES
 

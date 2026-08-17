@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25793.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OPERATIONAL SECURITY REVIEW OF
 RAYMOND H. GERENDE'S

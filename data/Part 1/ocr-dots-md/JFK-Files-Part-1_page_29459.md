@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29459.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Irving C. Devuono
 

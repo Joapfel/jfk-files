@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8576.png
-
-Convert to Markdownwas not his intention to cut us short, but to the contrary, he wanted
+was not his intention to cut us short, but to the contrary, he wanted
 to be of help to us. Fcally stated that S was still able to do that
 if he timely reports acquaintance with any other Gov official and follows
 our instruction for every further step he makes in relationship with.

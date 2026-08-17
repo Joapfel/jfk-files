@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_3426.png
-
 to Martin Luther King, Jr., at the Southern Christian Leadership Conference, Atlanta, Georgia.
 
 Wigington indicated to Blackwell a desire for King to write "an anti-Goldwater letter" which Wigington's Committee intends to distribute in Texas among labor groups. Blackwell stated that King may go to Texas prior to the forthcoming presidential election and Blackwell inquired as to whether King would be "in any danger." Wigington stated that he would contact one Larry Goodman concerning any possible danger to King in Texas. This Bureau's source had no information concerning the identity of Goodman.

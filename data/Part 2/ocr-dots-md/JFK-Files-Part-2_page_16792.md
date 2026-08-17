@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16792.png
-
-Convert to MarkdownThe small hole in specimen Q159 bore deposits of a gray metallic material. A microscopic examination of these deposits was made and no copper-like metal smears or particles were present. However, a spectrographic examination of these deposits revealed the presence of foreign lead, copper and antimony.
+The small hole in specimen Q159 bore deposits of a gray metallic material. A microscopic examination of these deposits was made and no copper-like metal smears or particles were present. However, a spectrographic examination of these deposits revealed the presence of foreign lead, copper and antimony.
 
 The copper coating and underlying lead of the Q253 bullet previously examined were analyzed and compared with the deposits surrounding the small hole in Q159. The copper coating of the Q253 bullet contains tin which was not detected in the deposits around the small hole in specimen Q159.
 

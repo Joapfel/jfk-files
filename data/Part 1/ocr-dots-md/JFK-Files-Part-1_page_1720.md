@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_1720.png
-
-Convert to MarkdownD. J. Baker, and 11 of his pupils, were at a college meeting during the school year of 1957-58. (See [i] and [ii] above.) The president of the college, Dr. Walter M. B. D., was present in absentia and attended the meeting as an observer. When the vote ofok-
+D. J. Baker, and 11 of his pupils, were at a college meeting during the school year of 1957-58. (See [i] and [ii] above.) The president of the college, Dr. Walter M. B. D., was present in absentia and attended the meeting as an observer. When the vote ofok-

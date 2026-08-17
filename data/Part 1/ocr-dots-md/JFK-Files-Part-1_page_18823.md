@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18823.png
-
-Convert to MarkdownFVO: 3 NOV 70
+FVO: 3 NOV 70
 
 SECRET
 (When Filled In)

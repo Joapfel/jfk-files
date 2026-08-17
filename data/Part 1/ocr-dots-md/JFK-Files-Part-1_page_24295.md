@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24295.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C. To become of long-term operational use to us in the sense of exploiting his possible long-term use to the Chicoms, QRPHONE/1 should do two things: join an existing "acceptable" organization such as the Trotskyite Party or a black radical party and, at the same time begin a serious study of Marxist/Maoist doctrine. As he gets into this program (preceded by some ten days training and close Headquarters direction) he should begin to seek out Communist intellectuals, party members, leaders of radical groups, etc., to ask questions about the dialectic, seek additional guidance, borrow books and so forth. In doing this he will in time come into the attention of the professional spotters the Chicoms have and begin to develop the sort of bona fides that the Chicoms, in time, will find appealing. He should also in this period seek out Chicom officials with the same requests for help. The key here is to demonstrate not that QRPHONE/1 is simply sympathetic, with Maoism or any other Communist shading but that he is a dedicated serious revolutionary.
 

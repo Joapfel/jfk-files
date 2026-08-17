@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9950.png
-
-Convert to Markdown3 August, '67
+3 August, '67
 
 three page type written letter and 27/10/67
 1. LIAING/3 received/latter from René Cohna Firmers (Rivier) & 8/27x

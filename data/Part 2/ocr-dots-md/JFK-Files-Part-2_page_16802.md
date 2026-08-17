@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16802.png
-
-Convert to MarkdownEXAMINATION OF SUIT OF CLOTHES
+EXAMINATION OF SUIT OF CLOTHES
 
 Specimen Q279, a suit of clothes consisting of a coat and one pair of pants on a wire hanger was found to have been struck with #8 shot from two shotgun charges. One charge struck the lower left front of the coat below the pocket opening. The shot penetrated the pants near the belt line and through the rear pocket which was probably hanging downward from the pants on the hanger. The pellets exited through the lower left back of the coat. The shot dispersal is typical of that which would be fired at roughly a 45º angle to the right of the front of the coat. The pattern is typical of one produced at a distance of from six to nine feet.
 

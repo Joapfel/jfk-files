@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18469.png
-
-Convert to Markdown# G. "Notional" Organizations
+# G. "Notional" Organizations
 
 The Committee is examining the FBI's alleged creation of the support for "notional" organizations for intelligence or counterintelligence purposes. Although it may rely upon informants and other clandestine operatives, this alleged practice is sufficiently novel to require separate attention.
 

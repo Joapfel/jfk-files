@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18268.png
-
-Convert to Markdown-2-
+-2-
 
 Previous interpretations which have been furnished to you
 as to what may constitute trespass in the installation of microphones,

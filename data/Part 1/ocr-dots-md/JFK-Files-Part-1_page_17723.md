@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17723.png
-
-Convert to MarkdownReel 80-B.JR-6
+Reel 80-B.JR-6
 
 From 1950, 7 June (Tuesday), to 0700, 3 June 1956
 

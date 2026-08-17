@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27277.png
-
-Convert to MarkdownINDEX
+INDEX
 
 A. Memo for Record - Gervenot. Project ANABDUCT. 19 Nov 71 SECRET
 B. Memo for Chief, TYPIC, signed by A. R. Ponchay - 17 Mar 72 SECRET

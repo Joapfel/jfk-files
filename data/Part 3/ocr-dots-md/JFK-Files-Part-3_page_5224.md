@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5224.png
-
-Convert to MarkdownA review of your file 137-5207, Bureau file 137-20313 concerning SF 3208-C-TE indicates the source was last contacted on June 26, 1970. The file indicates this source sold his business and left for Los Angeles and this information was learned by your office on August 13, 1970. The file also indicates this TE left the New York area because of being a victim of a shylock loan. In view of this information you should closely follow this informant's activities and be circumspect in dealing with the informant to prevent any possible embarrassing situation from arising.
+A review of your file 137-5207, Bureau file 137-20313 concerning SF 3208-C-TE indicates the source was last contacted on June 26, 1970. The file indicates this source sold his business and left for Los Angeles and this information was learned by your office on August 13, 1970. The file also indicates this TE left the New York area because of being a victim of a shylock loan. In view of this information you should closely follow this informant's activities and be circumspect in dealing with the informant to prevent any possible embarrassing situation from arising.
 
 The following is a rating of the PCs and a comparison with the ratings at the time of the last inspection:
 

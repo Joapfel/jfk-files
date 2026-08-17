@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26810.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM</td></tr><tr><td>ORIG, WAYNE H. CARLEY</td></tr><tr><td>UNIT, C/V 11/2/CI</td></tr><tr><td>EXT., 6026</td></tr><tr><td>DATE, 18 FEBRUARY 1976</td></tr></table>
+<table><tr><td>MESSAGE FORM</td></tr><tr><td>ORIG, WAYNE H. CARLEY</td></tr><tr><td>UNIT, C/V 11/2/CI</td></tr><tr><td>EXT., 6026</td></tr><tr><td>DATE, 18 FEBRUARY 1976</td></tr></table>
 
 <table><tr><td rowspan="4">MESSAGE FORM 3283<br/>SECRET</td><td colspan="3">ROUTING</td></tr><tr><td>1</td><td>5</td><td></td></tr><tr><td>2</td><td>6</td><td></td></tr><tr><td>3</td><td>7</td><td></td></tr><tr><td>4</td><td>8</td><td></td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23643.png
-
-Convert to Markdownso far would have legislative authority over. So we're really just recommending here that in this statute they provide the framework under which these kinds of reprogramming can be done in view of the fact that we are extending the DCI from his own little bailiwick to the entire intelligence community.
+so far would have legislative authority over. So we're really just recommending here that in this statute they provide the framework under which these kinds of reprogramming can be done in view of the fact that we are extending the DCI from his own little bailiwick to the entire intelligence community.
 
 Mr. Kirbow. If that's the intent of the committee, I have no reservations about it.
 

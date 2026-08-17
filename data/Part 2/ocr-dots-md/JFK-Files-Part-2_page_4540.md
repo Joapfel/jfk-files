@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4540.png
-
-Convert to MarkdownSECRET
+SECRET
 
 October 1976
 

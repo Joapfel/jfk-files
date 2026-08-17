@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30872.png
-
-Convert to Markdown11110755
+11110755
 
 THE NAMES OF GOV.IST OFFICALS ARE ILEGIBLE
 ON S.D.V. GAVT. Dox's

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13294.png
-
-Convert to MarkdownSECRET
+SECRET
 
 P. 5 and footnote #12
 

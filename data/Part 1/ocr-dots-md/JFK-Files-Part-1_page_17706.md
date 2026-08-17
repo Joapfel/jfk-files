@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17706.png
-
-Convert to Markdown12. LIESMUE-8: Relative of LIESMUE-4. They reside together. This agent is a widow and ostensibly lives on an inheritance.
+12. LIESMUE-8: Relative of LIESMUE-4. They reside together. This agent is a widow and ostensibly lives on an inheritance.
 
 13. LESTONE-9: Housewife.
 

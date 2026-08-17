@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18599.png
-
-Convert to MarkdownMay 17, 1985
+May 17, 1985
 
 Memorandum for Messrs. Tolson, Belmont, DeLoach, Sullivan
 

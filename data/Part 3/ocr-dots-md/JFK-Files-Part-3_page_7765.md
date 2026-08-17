@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7765.png
-
-Convert to Markdownindividuals unsympathetic to the FBI, we cannot glibly state
+individuals unsympathetic to the FBI, we cannot glibly state
 that whatever the intention or unintention may have been, Truman
 signed the order and therefore it made everything fine.
 

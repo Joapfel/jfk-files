@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10993.png
-
-Convert to Markdownthat the synopsis of this memorandum which appears on
+that the synopsis of this memorandum which appears on
 the "buck slip" was the usual practice at that time to
 identify the documents attached to it. SCHEWE added
 that this was the only document he was able to locate

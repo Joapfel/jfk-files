@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15798.png
-
-Convert to MarkdownFRED HAMPTON, Deputy Chairman;
+FRED HAMPTON, Deputy Chairman;
 
 BILLY BROOKS, Deputy Minister of Education;
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6073.png
-
-Convert to Markdown"The Changing Supreme Court," Public Lecture, Smithsonian Institution, Washington, D. C., October 1992.
+"The Changing Supreme Court," Public Lecture, Smithsonian Institution, Washington, D. C., October 1992.
 
 "Public Libel Law and Modern American Morality," Humanities Lecture Series, Kansas State University, Manhattan, Kansas, September 1992.
 

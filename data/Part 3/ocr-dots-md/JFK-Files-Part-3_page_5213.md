@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5213.png
-
-Convert to MarkdownLEAHY's operation normally consists of a separate phone man for horse racing action and sports bets, at least two pay & collect men, and several runners operating in the vicinity of three San Francisco bars in which LEAHY reportedly has a hidden interest. The persons believed to be associated with LEAHY as bookmakers and/or split bookmakers are ROBERT MAGIDSON, ATTILIO SPAGNUOLA, VICTOR FORNER, KENNETH ZAHND, MORRIS COOPER, and ALBERT CARLSON.
+LEAHY's operation normally consists of a separate phone man for horse racing action and sports bets, at least two pay & collect men, and several runners operating in the vicinity of three San Francisco bars in which LEAHY reportedly has a hidden interest. The persons believed to be associated with LEAHY as bookmakers and/or split bookmakers are ROBERT MAGIDSON, ATTILIO SPAGNUOLA, VICTOR FORNER, KENNETH ZAHND, MORRIS COOPER, and ALBERT CARLSON.
 
 With respect to LEAHY's handle it is to be noted that a review of records seized at the time of his arrest on 8/4/70 discloses a daily handle for horse action in the approximate amount of $2,000 or approximately $50,000 per month. Data regarding LEAHY's sports handle is incomplete but it is estimated that this handle is comparable to that of ECKSTEIN.
 

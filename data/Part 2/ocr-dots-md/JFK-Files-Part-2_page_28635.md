@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28635.png
-
-Convert to Markdown# RESUME
+# RESUME
 
 Miriam Rudder
 4927 Fitch Place, N.E.

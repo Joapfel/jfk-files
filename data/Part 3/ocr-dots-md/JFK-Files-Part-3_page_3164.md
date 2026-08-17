@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3164.png
-
-Convert to Markdown1776
+1776
 
 to have that might hold potential for danger to this country is an exceedingly vague, difficult, if not impossible to define area and an area which has got the FBI into an awful lot of trouble, including today's hearings.
 

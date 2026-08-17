@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3217.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Part V
 Direct Action Programs

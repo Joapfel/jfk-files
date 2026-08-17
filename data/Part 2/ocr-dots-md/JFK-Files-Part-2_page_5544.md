@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5544.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 August 5, 1997
 

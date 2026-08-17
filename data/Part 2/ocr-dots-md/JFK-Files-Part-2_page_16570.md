@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16570.png
-
-Convert to MarkdownSSC LETTER 8/20/75
+SSC LETTER 8/20/75
 
 PART II
 

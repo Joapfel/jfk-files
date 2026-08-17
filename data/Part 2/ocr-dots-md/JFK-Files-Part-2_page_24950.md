@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24950.png
-
-Convert to Markdownwhen I arrived in Rome I read that Lumumba was captured. I learned
+when I arrived in Rome I read that Lumumba was captured. I learned
 from Mobutu and Casavubu that Lumumba would be imprisoned in Thys-
 ville.
 

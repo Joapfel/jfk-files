@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29779.png
-
-Convert to MarkdownMEMO
+MEMO
 
 8/5/77
 

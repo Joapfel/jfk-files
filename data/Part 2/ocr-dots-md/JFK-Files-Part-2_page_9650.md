@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9650.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 1973 Ford Pinto, Dark Green, Bearing
 Vehicle Identification Number 3T11X211332

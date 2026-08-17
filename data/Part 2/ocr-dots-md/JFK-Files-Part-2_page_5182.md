@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5182.png
-
-Convert to MarkdownSUBJECT: Memo to JFK Assassination Records Review Board
+SUBJECT: Memo to JFK Assassination Records Review Board
 
 DC/OCC/OSG/EMathias:lae/37076 (6 Dec 95)
 

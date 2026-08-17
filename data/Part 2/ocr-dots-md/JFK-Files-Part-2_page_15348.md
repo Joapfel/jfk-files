@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15348.png
-
-Convert to Markdown# Office Memorandum
+# Office Memorandum
 
 UNITEL GOVERNMENT
 

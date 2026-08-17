@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24886.png
-
-Convert to MarkdownCoups involve varying degrees of risk of assassination.
+Coups involve varying degrees of risk of assassination.
 
 The possibility of assassination in coup attempts raises questions concerning the propriety of United States involvement in coups, particularly in those where the assassination of a foreign leader is a likely prospect.
 

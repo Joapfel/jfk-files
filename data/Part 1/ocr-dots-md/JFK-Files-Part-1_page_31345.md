@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_31345.png
-
 s. (Details on extra sheet)</td>
      <td></td>
      <td></td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30873.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>A. PERSONAL INFORMATION</td>
    </tr>

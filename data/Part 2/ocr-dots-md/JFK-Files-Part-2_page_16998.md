@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16998.png
-
-Convert to Markdown12/9/69
+12/9/69
 
 $19,000 in promised donations, $11,500 of which has either been given in cash or cash; HAMPTON's family has also received several thousand. None of the money has been seen, only the Chicago BPP leaders word that this is the amount.
 

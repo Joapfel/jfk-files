@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9163.png
-
-Convert to MarkdownOUT
+OUT
 
 <table><tr><td>LOG #</td></tr></table>
 

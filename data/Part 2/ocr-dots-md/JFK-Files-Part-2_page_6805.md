@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6805.png
-
-Convert to Markdown10 April 1996
+10 April 1996
 
 HPSCI BRIEFING - JFK DECLASSIFICATION
 

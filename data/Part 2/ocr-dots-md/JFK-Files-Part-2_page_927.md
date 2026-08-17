@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_927.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## TRAINING PROGRAM FOR ENLISTED PERSONNEL
 

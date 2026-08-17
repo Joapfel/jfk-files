@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17605.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE 11</th></tr></thead><tbody><tr><td>DATE</td><td>022 ER/WS 5/27<br/>22 JULY 1958</td></tr><tr><td>TO</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>MEXICO CITY</td></tr><tr><td>ACTION</td><td>WH 5</td></tr><tr><td>INFO</td><td>C1, C1/OPS, C1/IC, C1/OA, S/C 2</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE 11</th></tr></thead><tbody><tr><td>DATE</td><td>022 ER/WS 5/27<br/>22 JULY 1958</td></tr><tr><td>TO</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>MEXICO CITY</td></tr><tr><td>ACTION</td><td>WH 5</td></tr><tr><td>INFO</td><td>C1, C1/OPS, C1/IC, C1/OA, S/C 2</td></tr></tbody></table>
 
 <table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>I</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>4</td></tr></tbody></table>
 

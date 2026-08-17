@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25014.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Force, and maybe still was at that time.
 

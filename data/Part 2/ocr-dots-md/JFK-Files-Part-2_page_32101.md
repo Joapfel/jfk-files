@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32101.png
-
-Convert to Markdown<table><thead><tr><th>Unit Name - First Name - Middle Initial</th><th>Grade</th><th>Social Security Number</th></tr></thead><tbody><tr><td>TRINKALA VICTOR L</td><td>Pt 2</td><td>186-42-1155</td></tr><tr><td colspan="2">Unit being assigned to: RVN</td><td>AUTH:</td></tr><tr><td>Roster Number (if applicable)<br/>7 V 4 L-25</td><td>Reporting Date<br/>7 Nov. 69</td><td>Have you been seen here before?<br/>( ) Yes (X No</td></tr></tbody></table>
+<table><thead><tr><th>Unit Name - First Name - Middle Initial</th><th>Grade</th><th>Social Security Number</th></tr></thead><tbody><tr><td>TRINKALA VICTOR L</td><td>Pt 2</td><td>186-42-1155</td></tr><tr><td colspan="2">Unit being assigned to: RVN</td><td>AUTH:</td></tr><tr><td>Roster Number (if applicable)<br/>7 V 4 L-25</td><td>Reporting Date<br/>7 Nov. 69</td><td>Have you been seen here before?<br/>( ) Yes (X No</td></tr></tbody></table>
 
 I request a interview for the following reason(s):
 

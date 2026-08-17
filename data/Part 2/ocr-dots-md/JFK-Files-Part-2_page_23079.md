@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23079.png
-
-Convert to MarkdownSECRET- EYES ONLY
+SECRET- EYES ONLY
 
 delivery either to Maceo, to Varona, or to Varona's con-in-law.
 Evidently Harvey and Roselli had not yet come to trust each other.

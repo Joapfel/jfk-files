@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19103.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16. The following excerpts from CADI documents indicate CADI's activity in organising the immigrant laborers into submissive groups ready to follow CADI-COT-Communist orders
 

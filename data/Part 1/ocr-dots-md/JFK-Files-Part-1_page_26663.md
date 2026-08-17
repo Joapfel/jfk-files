@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26663.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">MESSAGE FORM<br/>TOTAL COPIES: 26</th></tr></thead><tbody><tr><td>C.R.Hallwell</td><td>WII/1</td></tr><tr><td>4523</td><td></td></tr><tr><td>21 Jun 65.</td><td></td></tr><tr><td>☐ INDEX</td><td>☑ SECRET</td></tr><tr><td>☐ NO INDEX</td><td></td></tr><tr><td>☑ FILE IN C8 FILE NO. 201-336474</td><td></td></tr></tbody></table>
 

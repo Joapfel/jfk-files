@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13049.png
-
-Convert to MarkdownNY 100-136585
+NY 100-136585
 
 ( What LEVISION particularly wanted GUS HALL to know is that "KING is a wholehearted Marxist, who has studied it (Marxism), believes in it, and agrees with it, but because of his being a minister of religion, does not dare to espouse it publicly. "
 

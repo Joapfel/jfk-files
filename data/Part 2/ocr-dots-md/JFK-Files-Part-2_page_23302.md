@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23302.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 it and having shown it to President Kennedy, are you testifying
 that it was your understanding that the meaning of that

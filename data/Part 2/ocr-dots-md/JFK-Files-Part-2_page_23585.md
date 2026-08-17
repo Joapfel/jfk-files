@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23585.png
-
-Convert to MarkdownMONGOOSE
+MONGOOSE
 
 10 August 1962
 

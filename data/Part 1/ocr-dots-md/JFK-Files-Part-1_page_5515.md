@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5515.png
-
-Convert to MarkdownNY 406-67
+NY 406-67
 Case 47,540 (Reopened)
 page 8
 

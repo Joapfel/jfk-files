@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19185.png
-
-Convert to MarkdownLA 100-70701
+LA 100-70701
 
 Source One LA 4490-S
 Source Two NELL BORDEN, Screen Actors Guild, Hollywood (request)

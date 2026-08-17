@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24505.png
-
-Convert to Markdownsaid he discussed the general Cuban situation with the President many times (Smathers, p. 6). Smathers had many Cuban constituents, was familiar with Latin American affairs, and was a long-time friend of the President (Smathers, p. 6).
+said he discussed the general Cuban situation with the President many times (Smathers, p. 6). Smathers had many Cuban constituents, was familiar with Latin American affairs, and was a long-time friend of the President (Smathers, p. 6).
 
 Smathers had the "impression" that the President raised the subject of assassination with him because someone "had apparently discussed this and other possibilities with respect to Cuba" with the President (Smathers, pp. 16, 25). Smathers had no direct knowledge of any such discussion, nor did he know who might have been involved (Smathers, pp. 18-19, 25). The President did not indicate directly that assassination had been proposed to him (Smathers, p. 18).
 

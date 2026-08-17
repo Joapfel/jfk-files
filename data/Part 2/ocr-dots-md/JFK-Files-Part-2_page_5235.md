@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5235.png
-
-Convert to MarkdownNOV. 07 '97 10:31AM
+NOV. 07 '97 10:31AM
 
 AIVO
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23488.png
-
-Convert to Markdown3
+3
 
 3) EQUIPMENT & COSTS:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4011.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 July 16, 1962 to July 23, 1962
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31548.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mfm
 
 The records also revealed that MARILYN MILLIGAN was arrested on December 3, 1964, under S/O #641125 in connection with a sit-in demonstration at Sproul Hall, UCB. She was charged with resisting arrest, failure to disperse and trespassing. On June 28, 1965, she was found guilty of the trespassing and resisting arrest charges and the failure to disperse charge was dismissed. On July 29, 1965, she refused probation and was sentenced to $100.00 or 10 days in jail on the trespassing charge, and $150.00 or 15 days in jail on the resisting arrest charge. She has appealed the convictions.

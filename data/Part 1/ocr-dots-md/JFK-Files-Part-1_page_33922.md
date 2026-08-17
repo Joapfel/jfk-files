@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33922.png
-
-Convert to MarkdownCONVERSE, INDIANA
+CONVERSE, INDIANA
 
 "My sincere congratulations and gratitude that you are presenting the matter of united prayer for freedom ... I assure you also that I will present the challenge ... to our people and that we'll join with you and all churches of America in praying for the freedom that we believe is the natural right of all men."
 

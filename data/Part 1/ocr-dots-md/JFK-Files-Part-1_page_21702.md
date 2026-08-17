@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21702.png
-
-Convert to Markdownhas never plausibly explained the circumstances which prompted his retention of the list until 1964, when he produced it for CIA in Geneva.
+has never plausibly explained the circumstances which prompted his retention of the list until 1964, when he produced it for CIA in Geneva.
 
 During current interviews, the matter of the above list has been covered in considerably greater detail with NOSENKO than had been done before. His explanation, both of the circumstances which led to his acquiring the list as well as of his still having it in his possession at the time of his defection, is considered plausible, contrary to the judgment of the previous summary.
 

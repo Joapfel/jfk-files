@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1074.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SUPERCEDES INTERIM
 

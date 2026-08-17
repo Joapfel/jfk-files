@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17655.png
-
-Convert to MarkdownGovernment and then appear to be conducting a drive to cultivate other Latin American countries. The reactions of both the Mexicans and the Latin Americans in these advances are often shown in later traffic. Firstly, the Soviets do not seem to get a very good reception from the Latin Americans, but are well received by the diplomatic representatives of India and Indonesia. The reports have shown an improvement in Soviet relations with the Russians, which were practically non-existent for several years in Mexico City. These reports show further that the Russians, Poles and Czechs have frequent business and social interchanges. The following reports are cited as examples of this type of information.
+Government and then appear to be conducting a drive to cultivate other Latin American countries. The reactions of both the Mexicans and the Latin Americans in these advances are often shown in later traffic. Firstly, the Soviets do not seem to get a very good reception from the Latin Americans, but are well received by the diplomatic representatives of India and Indonesia. The reports have shown an improvement in Soviet relations with the Russians, which were practically non-existent for several years in Mexico City. These reports show further that the Russians, Poles and Czechs have frequent business and social interchanges. The following reports are cited as examples of this type of information.
 
 1957, dated 16 January 1957, "Diplomatic Activities of the Soviet Embassy, Mexico City, November 1956."
 

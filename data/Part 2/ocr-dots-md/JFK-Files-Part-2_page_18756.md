@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18756.png
-
-Convert to MarkdownThe informant told subject that his father furnished him the names of several individuals who have spoken in favor of trade with Red China.
+The informant told subject that his father furnished him the names of several individuals who have spoken in favor of trade with Red China.
 
 Most of the conversation at informant's home on the evening of December 31, 1958, was of a social nature, however, subject showed a definite interest in the information which informant gave to him about business concerns interested in trade with Red China,' and accordingly, informant arranged to have lunch with subject on January 5, 1959.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7644.png
-
-Convert to MarkdownWe received communications from the Navy, and from other agencies.
+We received communications from the Navy, and from other agencies.
 Mr. DULLES. Is there any general procedure with respect to Americans abroad
 who get into trouble. Do you get informed so in case they come back you can
 take adequate precautionary measures? Is that established SOP?

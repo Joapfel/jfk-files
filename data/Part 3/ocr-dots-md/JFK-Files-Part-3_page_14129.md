@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14129.png
-
-Convert to MarkdownNWI85
+NWI85
 DocId:2601
 
 Page 17

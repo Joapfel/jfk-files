@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8238.png
-
-Convert to Markdownparticular Committee members have concerning the inquiry. We
+particular Committee members have concerning the inquiry. We
 need to understand the specific objectives the Committee seeks
 and relate these to the priorities of the materials you will need.
 I believe we can be helpful if we know these. Again, I am convinced

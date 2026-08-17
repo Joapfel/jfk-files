@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2911.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 JOHN A. McCONE
 

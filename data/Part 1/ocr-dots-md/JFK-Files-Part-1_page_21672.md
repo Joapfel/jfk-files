@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21672.png
-
-Convert to Markdownit is not considered that there is an adequate basis for questioning
+it is not considered that there is an adequate basis for questioning
 this claim.
 
 The previous summary contained a conclusion that the claim

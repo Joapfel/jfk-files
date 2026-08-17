@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13253.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 MR. ROETHE: At hose request were you trying to recruit
 2 these gentlemen?

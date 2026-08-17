@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28275.png
-
-Convert to Markdown# If typewriter is not available, bear down with ball-point pen to make legible copies.
+# If typewriter is not available, bear down with ball-point pen to make legible copies.
 
 NWW 88326-
 DocId:322443901

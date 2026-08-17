@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31343.png
-
-Convert to MarkdownADDITIONAL MATERIAL FOR THE #18 (EDUCATION):
+ADDITIONAL MATERIAL FOR THE #18 (EDUCATION):
 
 A. I attended Boston University, College of Liberal Arts from September 1941 until February 17, 1943. On the latter date, I was called to active duty with the Army Enlisted Reserve Corps after completing one and one-half years (three semesters) of work. By intention had been to major in history.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12847.png
-
-Convert to MarkdownSECRET
+SECRET
 
 P 111845Z OCT 77
 FM BUENOS AIRES (15 7-35) (P)

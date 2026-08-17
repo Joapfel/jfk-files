@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12415.png
-
-Convert to Markdownhan construido pequenas o improvisadas aroas -- puertos en las cercanías de la región del Guaniam y más pequeñas aún en cada una de los més que van apureciendo y donde se agrupan tomó por lo malo gran número de personas.
+han construido pequenas o improvisadas aroas -- puertos en las cercanías de la región del Guaniam y más pequeñas aún en cada una de los més que van apureciendo y donde se agrupan tomó por lo malo gran número de personas.
 
 Puntualizando lo antes dicho existió un aeropuerto que sirva como Base de Operaciones en la región, identificado como Aeropuerto de "La Contella", con una longitud de ochocientos (800) metros de pista de tierra, siendo este el de mayor tamaño y donde donde se hacen los -- traumbordos en avionetas más pequeñas que salen a los propios campos mineros, situados en un área no mayor de quince (15) minutos de vuelo.
 

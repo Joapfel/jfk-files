@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30371.png
-
-Convert to Markdownwith regard to the American exhibit, as a result of a statement by Mr. Klein which I understand you did not disagree with, the American exhibit ended on September 4th, 1959? That's when the termination of the exhibit was?
+with regard to the American exhibit, as a result of a statement by Mr. Klein which I understand you did not disagree with, the American exhibit ended on September 4th, 1959? That's when the termination of the exhibit was?
 
 Mr. Nosenko. Yes, he showed me an article.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16386.png
-
-Convert to MarkdownALINOIS BLACK PANTHER SOCIETY
+ALINOIS BLACK PANTHER SOCIETY
 
 2350 W. Madison Street
 Chicago, Illinois

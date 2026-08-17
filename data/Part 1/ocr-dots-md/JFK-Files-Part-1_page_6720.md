@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6720.png
-
-Convert to Markdown17 JUN 1963
+17 JUN 1963
 
 TO SAS/Opz Suggest
 FR SAS/FCSB/DE

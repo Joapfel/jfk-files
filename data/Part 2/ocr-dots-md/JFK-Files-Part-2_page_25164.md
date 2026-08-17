@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25164.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>CONEIN</td><td>23 August 1963</td><td>DIEM ✓</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>CONEIN</td><td>23 August 1963</td><td>DIEM ✓</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

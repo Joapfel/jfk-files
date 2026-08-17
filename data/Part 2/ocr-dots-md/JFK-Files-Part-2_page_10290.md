@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10290.png
-
-Convert to MarkdownSUBJECT: Sensitive Activities Performed by the Office of
+SUBJECT: Sensitive Activities Performed by the Office of
 Logistics
 
 Executive Fellowship. The book is entitled "Where's What -- Sources of Information for Federal Investigators." It is a full treatise on the existence of sources of information that may be useful to an investigator. The book's first printing of 500 copies was made in June 1967. Due to demand, a second printing of 600 copies was made in September 1968. The title page of the book gives attribution to Mr. Murphy, Office of Security, Central Intelligence Agency, and the Brookings Institution. Federal Executive Fellowship. The book is classified Confidential, and it is our understanding that the distribution was made to appropriate agencies of the Federal Government. A copy of Mr. Murphy's book can be made available for review if desired.

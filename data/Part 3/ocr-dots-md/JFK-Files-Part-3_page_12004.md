@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12004.png
-
-Convert to Markdownsince February, 1969, has limited investigative and re-
+since February, 1969, has limited investigative and re-
 porting activity in this field. As of 1/11/71 there were
 18 active and 78 inactive case in the Cuban Special
 Section of the Security Index (19% of the 96 case total)

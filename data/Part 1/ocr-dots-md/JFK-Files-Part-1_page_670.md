@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_670.png
-
-Convert to Markdown3 June 1952
+3 June 1952
 
 Washington
 

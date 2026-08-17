@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15843.png
-
-Convert to MarkdownS & C R E T
+S & C R E T
 
 Chief, KURKIOT/AB
 Chief of Station, Germany Chief, K. K. C./AF

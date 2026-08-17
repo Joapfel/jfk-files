@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15147.png
-
-Convert to Markdownb) Die ausländische Ehefrau eines Chilenen wird als Inhaberin einer Visa-cion de RESIDENTE TEMPORARIO betrachtet, wenn sie mit einem chilenischen Pass nach Chile kommt oder im Pass ihres Ehemannes eingetreten ist.
+b) Die ausländische Ehefrau eines Chilenen wird als Inhaberin einer Visa-cion de RESIDENTE TEMPORARIO betrachtet, wenn sie mit einem chilenischen Pass nach Chile kommt oder im Pass ihres Ehemannes eingetreten ist.
 
 c) Die Visumgebühren betragen DD 36,20 pro Pass.
 

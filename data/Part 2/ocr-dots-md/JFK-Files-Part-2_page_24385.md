@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24385.png
-
-Convert to Markdown(1) Whether United States officials initiated the plot or were responding to requests of local dissidents for aid.
+(1) Whether United States officials initiated the plot or were responding to requests of local dissidents for aid.
 
 (2) Whether the plot was specifically intended to kill a foreign leader, or whether the leader's death was a reasonably foreseeable consequence of an attempt to overthrow the government.
 

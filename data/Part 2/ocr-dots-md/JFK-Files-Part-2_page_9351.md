@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9351.png
-
-Convert to MarkdownFREE LUNCH PROGRAM
+FREE LUNCH PROGRAM
 and
 LIBERATION SCHOOL
 

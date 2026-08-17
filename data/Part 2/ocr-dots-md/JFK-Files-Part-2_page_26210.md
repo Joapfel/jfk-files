@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26210.png
-
-Convert to Markdownto get the Vietnamese coping with their own problems more effectively than they were doing.
+to get the Vietnamese coping with their own problems more effectively than they were doing.
 
 O'BRIEN: Yeah, Well, between this time and the time of the Taylor-Rostow mission, are you involved in Vietnam on a kind of regular basis or ...
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1022.png
-
-Convert to Markdown4 September 1973
+4 September 1973
 
 Mr. Joseph B. Smith
 1213 North 2nd Street

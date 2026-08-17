@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25295.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: RECORD
 FROM: HOWARD S. LIEBENGOOD

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18757.png
-
-Convert to Markdownto include a building. It was the subject's opinion that somebody from Washington, D.C. would accompany Mikoyan for the purpose of inspecting this property, inasmuch as the Soviets did not get an opportunity to visit San Francisco too often. Subject mentioned to informant that he traveled through San Francisco on his way from Japan to Russia during World War II.
+to include a building. It was the subject's opinion that somebody from Washington, D.C. would accompany Mikoyan for the purpose of inspecting this property, inasmuch as the Soviets did not get an opportunity to visit San Francisco too often. Subject mentioned to informant that he traveled through San Francisco on his way from Japan to Russia during World War II.
 
 During lunch, subject asked informant about the information he had obtained concerning business concerns on the West Coast of the United States desirous of doing business with Red China.
 

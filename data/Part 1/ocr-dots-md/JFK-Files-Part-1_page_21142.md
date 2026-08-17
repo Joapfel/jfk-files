@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21142.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ADDENDUM TO STAFF AGENT SUPPLEMENT
 For Thomas B. CASASIN, Effective 5 August 1962

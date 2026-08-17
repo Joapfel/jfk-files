@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30321.png
-
-Convert to Markdown1
+1
 
 and that is why when I contacted CIA in '62, I -- psychologically
 I was ready, ideologically was ready and psychologically ready

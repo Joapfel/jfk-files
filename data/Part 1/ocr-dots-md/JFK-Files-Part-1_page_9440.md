@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9440.png
-
-Convert to Markdown"Cuno"
+"Cuno"
 
 Bericht Nr.14.
 

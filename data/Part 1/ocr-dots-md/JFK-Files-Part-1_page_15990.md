@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15990.png
-
-Convert to MarkdownPOWDER
+POWDER
 KEG AT
 POWDER
 SPRINGS

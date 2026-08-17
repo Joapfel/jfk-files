@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20625.png
-
-Convert to MarkdownCODE
+CODE
 
 TELETYPING
 

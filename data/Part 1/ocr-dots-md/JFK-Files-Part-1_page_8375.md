@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8375.png
-
-Convert to Markdown13
+13
 
 CONTACT REPORT
 

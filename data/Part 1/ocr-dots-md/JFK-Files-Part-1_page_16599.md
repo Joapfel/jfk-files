@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16599.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>RIO:</td><td>B. TUNNEVILLE:all</td></tr><tr><td>NIF:</td><td>WH/COG/OPS</td></tr><tr><td>ST:</td><td>7111/1819</td></tr><tr><td>ATE:</td><td>5 JANUARY 1971</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9134.png
-
-Convert to Markdown# Harvard's Business School
+# Harvard's Business School
 
 ... and many of the advisors and visiting professors are also from the "other side" of the Charles River." On the detached side, I have listed the names of IBM people who have attended Harvard's business school.
 

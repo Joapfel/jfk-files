@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23547.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 subversive activities of Cuban agents; (3) preventing
 arms shipments to Castro; (4) limiting economic rela-

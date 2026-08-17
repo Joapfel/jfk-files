@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31266.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The Cartier leave of J. The SSC, in its Final Report, feel that this very fact, together with the ANLHST operation actually going on, are the main reasons for the present situation. The Cartier seemed to be tailord!
 

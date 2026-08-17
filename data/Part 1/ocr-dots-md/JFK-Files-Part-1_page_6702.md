@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6702.png
-
-Convert to MarkdownHolguín, Nov. 8 - 1963
+Holguín, Nov. 8 - 1963
 
 Muy estimado amigo:
 

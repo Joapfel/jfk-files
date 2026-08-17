@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33725.png
-
-Convert to MarkdownRESTRICTED
+RESTRICTED
 (Classification)
 
 FOREIGN SERVICE DESPATCH

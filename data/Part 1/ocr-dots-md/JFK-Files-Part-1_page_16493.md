@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16493.png
-
-Convert to MarkdownFORM 3020b
+FORM 3020b
 7-71 AUG. 3/74
 
 CABLE SEC DISSEM BY Z PER TOTAL COPIES 18/1 RUN BY

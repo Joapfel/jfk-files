@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18741.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 Committee, anti-Secretary of State JOHN FOSTER DULLES, and anti just about everything. He said that MC WILLIAMS is a fanatical and extreme liberal.
 

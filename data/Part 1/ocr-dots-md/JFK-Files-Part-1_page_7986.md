@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7986.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>FORM DS 929</td>

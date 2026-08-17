@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8982.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee, etc.
 
 Other minor changes were considered and an effort will be made to correct the language so that the agencies will be obliged to make reasonable efforts to comply with all Committee requests instead of being required to furnish "all information" absolutely.

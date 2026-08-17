@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23935.png
-
-Convert to Markdownat the February 10 or February 15 meetings included poisoning
+at the February 10 or February 15 meetings included poisoning
 Trujillo's food or medicines, ambushing his automobile, and
 attacking him with firearms and grenades. (CIA memo for the
 record, 2/13/61; 2/16/61)*

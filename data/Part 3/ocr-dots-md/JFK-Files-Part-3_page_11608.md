@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11608.png
-
-Convert to Markdownof badly wanted extremist fugitives, confiscation of explosives and firearms in possession of extremists, the prevention of violence and the saving of lives. In addition, these informants have been responsible for bringing about the arrest of 630 individuals since the last inspection, 145 of these individuals were Bureau fugitives, as well as being responsible for the recovery of $327,760.53.
+of badly wanted extremist fugitives, confiscation of explosives and firearms in possession of extremists, the prevention of violence and the saving of lives. In addition, these informants have been responsible for bringing about the arrest of 630 individuals since the last inspection, 145 of these individuals were Bureau fugitives, as well as being responsible for the recovery of $327,760.53.
 
 Concerning the development of information as to black extremist activities outside the United States effecting the United States, we have placed an informant in Canada under the direction of, the Royal Canadian Mounted Police. This operation is commented on in detail in the extremist informant write-up.
 

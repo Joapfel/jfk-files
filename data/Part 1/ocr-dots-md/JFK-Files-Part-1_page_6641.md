@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6641.png
-
-Convert to Markdown<table><tr><td>DATE :</td><td>S-E-C-R-E-T</td></tr><tr><td>TO :</td><td></td></tr><tr><td>FROM :</td><td></td></tr><tr><td>ACTION:</td><td></td></tr><tr><td>INFO :</td><td></td></tr></table>
+<table><tr><td>DATE :</td><td>S-E-C-R-E-T</td></tr><tr><td>TO :</td><td></td></tr><tr><td>FROM :</td><td></td></tr><tr><td>ACTION:</td><td></td></tr><tr><td>INFO :</td><td></td></tr></table>
 
 <table><tr><td colspan="3">CLASSIFIED MESSAGE</td></tr><tr><td colspan="2">S-E-C-R-E-T</td></tr><tr><th colspan="2">ROUTING</th></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
 

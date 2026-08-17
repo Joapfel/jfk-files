@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5243.png
-
-Convert to Markdownaudio-visual contacts, movies with well-balanced programs.
+audio-visual contacts, movies with well-balanced programs.
 
 However, the transfer of part of the agricultural labor to Industry, to be appreciable, shall necessitate the creation, besides the agricultural industries, of other enterprises to process either the resources of our sub-soil, or imported raw-materials.
 

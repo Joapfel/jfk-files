@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8085.png
-
-Convert to MarkdownPHILIP A. HART, MICHAEL
+PHILIP A. HART, MICHAEL
 WALTER F. MONDALE, MINN.
 WALTER D. HUDSON, KY.
 ROBERT MCGowan, N.C.

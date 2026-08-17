@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29953.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Director of Personnel
 

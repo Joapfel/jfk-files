@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15522.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE: 5 JUL 61<br/>TO: DIRECTOR<br/>FROM: LEOPOLDVILLE<br/>ACTION: C/AF 3 (TEMPO COPY SLOTTED AF AT 1845, 5 JUL)<br/>INFO: COP, C/C1, C/F1 2, C/WE 2, S/C 2</td><td>SECRET</td></tr><tr><td colspan="2"><table border="1"><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>Lg. 70</td><td>4</td></tr><tr><td>2</td><td>Stap</td><td>5</td></tr><tr><td>3</td><td>Clinw</td><td>6</td></tr></tbody></table></td></tr><tr><td colspan="2">JUL 5 2200Z 61</td></tr><tr><td colspan="2">PRIORITY</td></tr><tr><td colspan="2">IN 34522</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE: 5 JUL 61<br/>TO: DIRECTOR<br/>FROM: LEOPOLDVILLE<br/>ACTION: C/AF 3 (TEMPO COPY SLOTTED AF AT 1845, 5 JUL)<br/>INFO: COP, C/C1, C/F1 2, C/WE 2, S/C 2</td><td>SECRET</td></tr><tr><td colspan="2"><table border="1"><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>Lg. 70</td><td>4</td></tr><tr><td>2</td><td>Stap</td><td>5</td></tr><tr><td>3</td><td>Clinw</td><td>6</td></tr></tbody></table></td></tr><tr><td colspan="2">JUL 5 2200Z 61</td></tr><tr><td colspan="2">PRIORITY</td></tr><tr><td colspan="2">IN 34522</td></tr></tbody></table>
 
 PRITY DIR INFO PRITY ROME CITE LEOP 1597
 

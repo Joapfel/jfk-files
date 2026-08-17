@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11068.png
-
-Convert to MarkdownFederal laws. To assist in cataloguing the level of dangerousness of those individuals and to retrieve quickly information concerning them, the Domestic Intelligence Division maintains a card file known as the Administrative Index.
+Federal laws. To assist in cataloguing the level of dangerousness of those individuals and to retrieve quickly information concerning them, the Domestic Intelligence Division maintains a card file known as the Administrative Index.
 
 ## Administrative Index
 

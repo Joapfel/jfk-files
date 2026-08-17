@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5820.png
-
-Convert to MarkdownSECRET
+SECRET
 
 S. Antonio CUESTA came to the U.S. from Cuba on 31 May 1960 as a refugee. According to his 201 file, he has had the following U.S. Government association:
 

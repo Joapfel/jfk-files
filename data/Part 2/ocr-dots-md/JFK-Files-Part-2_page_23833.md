@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23833.png
-
-Convert to Markdown1. report to the oversight committee as well as such independent
+1. report to the oversight committee as well as such independent
 2. GAO audits as the committee shall direct. As part of its
 3. annual report to the oversight Committee" -- "As part of its
 4. report to the oversight Committee, the CIA shall report," and

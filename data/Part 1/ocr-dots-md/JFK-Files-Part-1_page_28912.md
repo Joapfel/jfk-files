@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28912.png
-
-Convert to Markdown5 OCT 1973
+5 OCT 1973
 
 MEMORANDUM FOR: Chief, Contract Personnel Division/CP
 SUBJECT: SCHRICKBATH, Arthur R.

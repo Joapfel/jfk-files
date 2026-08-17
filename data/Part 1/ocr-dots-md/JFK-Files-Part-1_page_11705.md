@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11705.png
-
-Convert to MarkdownFORM NO.
+FORM NO.
 DEC. 1947 35-5
 
 INCOMING CLASSIFIED MESSAGE

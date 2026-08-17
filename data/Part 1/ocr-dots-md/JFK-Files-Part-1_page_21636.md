@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21636.png
-
-Convert to Markdowninformation concerning his own agents is believed of sufficient weight
+information concerning his own agents is believed of sufficient weight
 to accept the statement of NOSENKO that work against American cor-
 respondents was his assignment from mid-March 1953 to mid-1954.
 

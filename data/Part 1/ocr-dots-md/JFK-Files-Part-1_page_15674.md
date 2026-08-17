@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15674.png
-
-Convert to Markdown13. You were in Paris during France until March 1946.
+13. You were in Paris during France until March 1946.
 
 14. April 1946. Clermont-Ferrand, France employed in
 

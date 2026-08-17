@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_3405.png
-
 s say in private that you are an Antillean version of him. Is this true?
 
 A. - It is a fact that I am familiar with Primo Rivera's ide-

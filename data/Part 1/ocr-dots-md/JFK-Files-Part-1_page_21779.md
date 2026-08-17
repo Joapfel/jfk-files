@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21779.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 SUMMARY OF CONCLUSIONS
 CONCERNING NOSENKO'S BONA FIDES

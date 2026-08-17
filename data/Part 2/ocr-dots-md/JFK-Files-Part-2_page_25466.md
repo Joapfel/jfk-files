@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25466.png
-
-Convert to MarkdownML: I guess if something happens somebody's gonna know, you know.
+ML: I guess if something happens somebody's gonna know, you know.
 
 FS: Somebody has to know. Now at the beginning you and your husband, your husband was manager...
 

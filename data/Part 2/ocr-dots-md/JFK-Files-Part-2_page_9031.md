@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9031.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ANMEX A
 

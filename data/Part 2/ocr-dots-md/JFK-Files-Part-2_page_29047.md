@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29047.png
-
-Convert to Markdown# PART I.—Additional Exemptions (Complete only for other dependents claimed on line 10)
+# PART I.—Additional Exemptions (Complete only for other dependents claimed on line 10)
 
 <table><thead><tr><th>32 (a) NAME</th><th>(b) Relationship</th><th>(c) Months lived in your home:<br>If born or died during year, write B or D.</th><th>(d) Did dependent have income of $675 or more?</th><th>(e) Amount YOU furnished for dependent's support. If 100 is write ALL.<br>$</th><th>(f) Amount furnished by OTHERS including dependent.<br>$</th></tr></thead><tbody><tr><td colspan="6">33 Total number of dependents listed above. Enter here and on line 10.</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_612.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>IN 59319 PAGE</td></tr></table>
 

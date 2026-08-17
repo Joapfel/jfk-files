@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24936.png
-
-Convert to Markdown14-0000
+14-0000
 
 CIG: ELISABETH VETTER:BA
 UNIT:

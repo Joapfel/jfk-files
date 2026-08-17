@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1734.png
-
-Convert to MarkdownV.C. 26 March 1952
+V.C. 26 March 1952
 
 ACD
 

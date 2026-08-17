@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10568.png
-
-Convert to Markdown1 - Mr. Adams
+1 - Mr. Adams
 
 1 - Mr. Wannall
 

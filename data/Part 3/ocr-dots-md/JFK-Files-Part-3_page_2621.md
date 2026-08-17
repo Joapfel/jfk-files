@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2621.png
-
-Convert to MarkdownWARD: GSH
+WARD: GSH
 
 1. HIA Open
 2. .2/10/75

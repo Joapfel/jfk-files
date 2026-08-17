@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15452.png
-
-Convert to MarkdownSee memo Wannall to Sullivan, 5/21/62, "Intelligence Coverage of Non-Soviet-Bloc Countries (Annual Evaluation)."
+See memo Wannall to Sullivan, 5/21/62, "Intelligence Coverage of Non-Soviet-Bloc Countries (Annual Evaluation)."
 
 Attachment B
 

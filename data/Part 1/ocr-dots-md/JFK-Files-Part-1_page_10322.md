@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10322.png
-
-Convert to MarkdownMexico, I should be very happy to provide the Officers to take a name and realistic position vis-a-vis their revolution. I welcome this suggestion, assuming that I could and would make a trip to Juana as soon as feasible. Since I was not certain of my wife's whereabout, I asked the brothers to leave their representative in Mexico, whom they described simply as 'Travel,' contact me through
+Mexico, I should be very happy to provide the Officers to take a name and realistic position vis-a-vis their revolution. I welcome this suggestion, assuming that I could and would make a trip to Juana as soon as feasible. Since I was not certain of my wife's whereabout, I asked the brothers to leave their representative in Mexico, whom they described simply as 'Travel,' contact me through
 
 **Identity C**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7561.png
-
-Convert to MarkdownREPORT ON VISIT OF FOREIGN SCIENTISTS, OCTOBER 4, 1971
+REPORT ON VISIT OF FOREIGN SCIENTISTS, OCTOBER 4, 1971
 
 There were four guests in the group:
 

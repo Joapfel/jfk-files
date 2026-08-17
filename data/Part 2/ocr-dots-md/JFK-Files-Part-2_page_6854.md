@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6854.png
-
-Convert to MarkdownGates, is that everything that can be released should be released?
+Gates, is that everything that can be released should be released?
 
 GATES: Absolutely, Mr. Schiff.
 

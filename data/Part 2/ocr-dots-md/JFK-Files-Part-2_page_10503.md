@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10503.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>SENDER</td>
         <td>TO</td>

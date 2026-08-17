@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21554.png
-
-Convert to Markdown1. Mr. Wides. Were you ever aware, whether you were formally notified or just got a rumble or heard through the grapevine, that the CIA was getting some information about these threats, or some information about groups who might pose a threat in the Washington area, not from Bureau sources or military sources, but from CIA sources, did you ever hear any rumble of that kind?
+1. Mr. Wides. Were you ever aware, whether you were formally notified or just got a rumble or heard through the grapevine, that the CIA was getting some information about these threats, or some information about groups who might pose a threat in the Washington area, not from Bureau sources or military sources, but from CIA sources, did you ever hear any rumble of that kind?
 
 2. Mr. O'Connell. Yes.
 

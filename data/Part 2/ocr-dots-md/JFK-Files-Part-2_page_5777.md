@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5777.png
-
-Convert to MarkdownRonald Haron, Esq.
+Ronald Haron, Esq.
 
 potentially relevant to the subject matter of the search. An RVO
 also has authority to execute affidavits or to testify under oath

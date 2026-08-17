@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2913.png
-
-Convert to Markdown2499
+2499
 
 1 revolutionary and violence-prone groups.
 

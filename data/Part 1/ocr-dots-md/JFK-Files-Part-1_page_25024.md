@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25024.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>CROSS REFERENCE TO</td><td>OFFICE SYMBOL AND NUMBER</td><td>DATE</td></tr></thead><tbody><tr><td></td><td>HMMW-17908<br/>CLASSIFICATION</td><td>27 MAY 1970<br/>14 May 1970<br/>HOS FILE NUMBER 201-305052</td></tr><tr><td></td><td>SECRET</td><td></td></tr></tbody></table>
 

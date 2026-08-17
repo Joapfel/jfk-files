@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8145.png
-
-Convert to MarkdownEXCELSIOR 16A Lunes 18 de Diciembre de 1961
+EXCELSIOR 16A Lunes 18 de Diciembre de 1961
 
 ENCUENTA
 

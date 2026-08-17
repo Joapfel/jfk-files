@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14542.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">LABLE SECRETARIAT DISSEMINATION</td>
         <td>CLASSIFIED MESSAGE * TOTAL COPIES 18</td>

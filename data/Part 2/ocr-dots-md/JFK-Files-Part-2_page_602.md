@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_602.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 2 MEXICO CITY 1851 SECRET
 

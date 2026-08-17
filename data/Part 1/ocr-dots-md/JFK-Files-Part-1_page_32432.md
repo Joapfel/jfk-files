@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32432.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td>FILE PUNCHED BY RT</td></tr></table>

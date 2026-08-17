@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28455.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 September 14, 1977
 

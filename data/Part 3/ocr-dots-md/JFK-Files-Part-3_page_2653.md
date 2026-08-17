@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2653.png
-
-Convert to Markdown2497
+2497
 
 Mr. Kelley. I don't think they're asking for files.
 I think they're asking for what testimony was given by

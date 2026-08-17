@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30395.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## SEC. VIII. PUBLICATIONS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5319.png
-
-Convert to MarkdownSECRET
+SECRET
 
 organization be processed as a assassination record, and that the remainder of the CIA *Ramparts* Memorandum be declared NBR. The memorandum discusses the truth or fallacy of the allegations in *Ramparts* the Agency used non-governmental organizations for support and funding of worldwide anti-Communist operations. Over one hundred organizations are mentioned in the *Ramparts* article. The relevant organization is the International Rescue Committee; the IRC aided Oswald on his return to the US.
 

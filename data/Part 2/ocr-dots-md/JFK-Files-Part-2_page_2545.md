@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2545.png
-
-Convert to MarkdownDear
+Dear
 
 Reference is made to your contract with the United States
 Government, as represented by the Central Intelligence Agency,

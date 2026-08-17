@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13707.png
-
-Convert to MarkdownPhone (Area Code) 246-503
+Phone (Area Code) 246-503
 
 WARD & PAUL
 

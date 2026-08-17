@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20839.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">REPORT OF HONOR AWARDS BOARD</td>

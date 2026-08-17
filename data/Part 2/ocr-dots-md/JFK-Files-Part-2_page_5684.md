@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5684.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Release of JFK Documents
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3855.png
-
-Convert to MarkdownNEW ORLEANS, LA.
+NEW ORLEANS, LA.
 STATES-ITEM
 
 FEB 2 4 1968

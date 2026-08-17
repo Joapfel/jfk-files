@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32735.png
-
-Convert to Markdownresolve all the problems that have arisen in connection with this
+resolve all the problems that have arisen in connection with this
 affair, they believe that, in view of the degree of understanding
 reached between them on the settlement of the crisis and the
 extent of progress in the implementation of this understanding, it

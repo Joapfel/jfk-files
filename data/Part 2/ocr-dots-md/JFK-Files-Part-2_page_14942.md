@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14942.png
-
-Convert to Markdown12/14/66
+12/14/66
 
 W. V. Cleveland
 

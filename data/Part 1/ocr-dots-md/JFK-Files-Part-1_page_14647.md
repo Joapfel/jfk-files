@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14647.png
-
-Convert to MarkdownItem #4 (continued)
+Item #4 (continued)
 
 that he is going to Mexico and Venezuela in December and
 if he can combine it he would like to go to Cuba also. He

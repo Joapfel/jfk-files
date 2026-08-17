@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6846.png
-
-Convert to MarkdownS-R-C-M-E-T
+S-R-C-M-E-T
 
 Attached copy of letter taken from HU-1-A-13957 dated 23 Oct. 59 (has been CSCI'd to FBI)
 

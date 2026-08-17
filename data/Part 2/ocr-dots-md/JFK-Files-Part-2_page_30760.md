@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30760.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Volume C1/OA - No notes necessary.
 

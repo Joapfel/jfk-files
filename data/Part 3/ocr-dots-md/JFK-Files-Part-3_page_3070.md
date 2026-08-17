@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3070.png
-
-Convert to MarkdownNR201 MM CODE
+NR201 MM CODE
 
 16:13PM IMMEDIATE AUGUST 23, 1975 JWB
 

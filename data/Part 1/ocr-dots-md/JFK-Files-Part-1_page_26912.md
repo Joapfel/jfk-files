@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26912.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, Personnel Security Division, CO
 

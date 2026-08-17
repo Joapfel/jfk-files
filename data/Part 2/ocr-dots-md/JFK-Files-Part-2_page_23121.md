@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23121.png
-
-Convert to MarkdownI did not find any text in the image.
+I did not find any text in the image.
 
 TOP SECRET
 

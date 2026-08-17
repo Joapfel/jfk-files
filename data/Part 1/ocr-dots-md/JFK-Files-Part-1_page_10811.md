@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10811.png
-
-Convert to MarkdownAPG
+APG
 NUEB
 
 MIAMI, FLORIDA

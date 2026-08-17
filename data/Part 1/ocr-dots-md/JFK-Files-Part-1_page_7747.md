@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7747.png
-
-Convert to MarkdownCollecting (What does he collect? Guns, stamps,
+Collecting (What does he collect? Guns, stamps,
 coins, books, butterflies, etc.)
 
 As a collector, is he Avid ____ Moderately dedicated ____ Only casual ____

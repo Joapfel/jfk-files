@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9722.png
-
-Convert to MarkdownThrough the many years of failure for the Right Wing no-one has succeeded in stopping the Zionist-Jew-Communist revolution that has taken place throughout the world. In this time the politicians have deserted us, our Presidents have sold us out for more power for themselves and our money has been consumed by the very sows who are chewing away at our society.
+Through the many years of failure for the Right Wing no-one has succeeded in stopping the Zionist-Jew-Communist revolution that has taken place throughout the world. In this time the politicians have deserted us, our Presidents have sold us out for more power for themselves and our money has been consumed by the very sows who are chewing away at our society.
 
 Our cities are almost completely destroyed by junkies, queers and degenerates of inimaginable sorts. There is the smell of a hospital in the air, as a conglomeration of sick people gather in the hearts of our once beautiful cities.
 

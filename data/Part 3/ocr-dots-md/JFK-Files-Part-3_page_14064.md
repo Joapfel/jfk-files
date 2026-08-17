@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14064.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 April 2 Agenda (Continued):
 

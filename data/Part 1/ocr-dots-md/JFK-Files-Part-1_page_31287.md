@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31287.png
-
-Convert to MarkdownWitron, Lee H.
+Witron, Lee H.
 
 Instruction was given in general photography, and its application to the specific problems of round intelligence photography, document copying with two methods, casing, fixing and moilie surveillance, available light, small object and ID photography and photography in room search.
 

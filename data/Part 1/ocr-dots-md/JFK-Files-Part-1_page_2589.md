@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2589.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 ## Introduction
 

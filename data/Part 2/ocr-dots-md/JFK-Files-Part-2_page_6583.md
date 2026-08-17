@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6583.png
-
-Convert to Markdowna) programs now underway in the psychological field;
+a) programs now underway in the psychological field;
 
 b) U.S. capabilities in this field with a view to exposing any obvious remediable gaps in our resources for conducting a significant psychological effort against Cuba;
 

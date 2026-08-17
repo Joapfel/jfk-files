@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24761.png
-
-Convert to MarkdownFootnotes to LEONOV Monograph
+Footnotes to LEONOV Monograph
 
 1. MRXI 839, 26 June 1956, S: LIVESTOCK-3.
 

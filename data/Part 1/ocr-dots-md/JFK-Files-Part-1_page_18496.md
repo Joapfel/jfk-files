@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18496.png
-
-Convert to Markdownpresenting his arguments and in holding to them until their
+presenting his arguments and in holding to them until their
 fact and logic prevail or until policy factors override, makes
 him a highly valuable asset to CIA.
 

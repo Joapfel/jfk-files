@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12472.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">PERSON/UNIT NOTIFIED</td>

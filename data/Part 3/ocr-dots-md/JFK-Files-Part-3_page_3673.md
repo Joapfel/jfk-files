@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3673.png
-
-Convert to MarkdownRE: SENSTUDY, 75
+RE: SENSTUDY, 75
 
 The second position paper which was prepared by John T. Elliff begins by a six-page statement and analysis of the Bureau's current authority to conduct domestic intelligence investigations. He then lists four options for the Committee.
 

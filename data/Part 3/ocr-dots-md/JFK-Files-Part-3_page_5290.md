@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5290.png
-
-Convert to Markdown3. Any internal FBI materials produced as part of the activity;
+3. Any internal FBI materials produced as part of the activity;
 
 4. Any NSA or Department of Defense materials (including correspondence and reports) regarding the watch list activity sent to the FBI.
 

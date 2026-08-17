@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8226.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Deputy Director for Plans
 SUBJECT : Utilization of Harpers for Nominal Cover

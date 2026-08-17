@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_699.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WA CITE NYOR 9236
 

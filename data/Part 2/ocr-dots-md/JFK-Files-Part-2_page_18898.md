@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18898.png
-
-Convert to Markdown1 - Mr. W.A. Branigan
+1 - Mr. W.A. Branigan
 
 1 - Mr. M.A. Jones
 

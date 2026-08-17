@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10815.png
-
-Convert to MarkdownPHI 52-7165-SUB-S
+PHI 52-7165-SUB-S
 
 At approximately 10:26 a.m., she was allowed to place a collect call to a person she claimed as being a friend by the name of MARY ANN WOODWARD, area code 617-281-3801, which she stated was in Boston, Mass. TOSI stated that WOODWARD wasdivorced, and when he broke to the party on the other end of the line, he told the party that she was under arrest and requested the party to call her mother in care of a Mr. A. W. GEROSA and to call a lawyer, and "I am only being held on a conspiracy charge, no big thing." TOSI advised that A. W. GEROSA was a great-uncle by marriage and lived in East Marion, Long Island, N. Y.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_921.png
-
-Convert to Markdown# The Deputy Attorney General
+# The Deputy Attorney General
 
 designation of the FBI as an independent agency would simply mean that the Director would no longer report to the Attorney General, but would instead be responsible directly to the White House, as is the case with existing independent agencies. There appears to be some serious doubt whether an FBI Director would be more or less subject to political pressure when placed in this posture. The FBI must be responsive to the desires and needs of the American public and in this sense only should it be considered politically responsive. The danger of becoming enmeshed in partisan political dealings might easily be increased by removing this additional layer of Executive Branch responsibility which now exists in the person of the Attorney General.
 

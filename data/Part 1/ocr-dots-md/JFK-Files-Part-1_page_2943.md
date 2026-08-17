@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2943.png
-
-Convert to MarkdownSUMMARY OF CONCLUSIONS
+SUMMARY OF CONCLUSIONS
 CONCERNING NOSENKO'S BONA FIDES
 
 NOSENKO claims that he served for a decade in the KGB in successively senior positions of authority from which he derived extensive knowledge of the scope, character, and results of KGB operations against Americans in the Soviet Union in the period 1953-1963. To substantiate his claim, he provides an impressive array of information about KGB personnel, organization and operations which, to the extent that it has been confirmed, is presumptive evidence of his bona fides. Various Soviet officials, including intelligence officers, have generally corroborated NOSENKO's claims.

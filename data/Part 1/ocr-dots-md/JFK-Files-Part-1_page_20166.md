@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20166.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td>SECTION XII</td></tr><tr><td>CHILDREN AND OTHER DEPENDENTS</td></tr><tr><td>1. NUMBER OF CHILDREN (Including stepchildren and adopted children) WHO ARE UNMARRIED, UNDER 21 YEARS OF AGE, AND ARE NOT SELF-SUPPORTING.</td></tr><tr><td>2.</td></tr><tr><td>3. NUMBER OF OTHER DEPENDENTS (including spouse, parents, stepparents, aunts, etc.) WHO DEPEND ON YOU FOR AT LEAST 50% OF THEIR SUPPORT, OR, CHILDREN OVER 21 YEARS OF AGE AND ARE NOT SELF-SUPPORTING.</td></tr></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25671.png
-
-Convert to MarkdownSECRET 092228Z
+SECRET 092228Z
 
 DIR INFO WAVE CITE MEXI 3735
 

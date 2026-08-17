@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22532.png
-
-Convert to MarkdownThe file contains handwritten notes of interviews with Wiley, dated 5 and 9 March 1966; 3, 7, 14, '17 and 27 February 1966; and a copy of an article from the "National Review," dated 5 October 1965, by Robert Peter, captioned, "Communist Priests in South America."
+The file contains handwritten notes of interviews with Wiley, dated 5 and 9 March 1966; 3, 7, 14, '17 and 27 February 1966; and a copy of an article from the "National Review," dated 5 October 1965, by Robert Peter, captioned, "Communist Priests in South America."
 
 Wiley prepared a fairly extensive report circa late
 captioned "Brazilian Intelligence, Recife," but which

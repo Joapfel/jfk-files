@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28637.png
-
-Convert to MarkdownS I. C R. L. T
+S I. C R. L. T
 
 ARTICLE VI. Retirement: The Employee occupies a position within the purview of the Civil Service Retirement Act. Accordingly, deductions shall be made at the rate provided by law (presently 6%) from the Employee's basis salary and placed in the Civil Service Retirement Fund. The Employee may not avail himself of the provisions of the Foreign Service Retirement and Disability System, provided for in Title VIII of the Foreign Service Act of 1946.
 

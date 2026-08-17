@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13743.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 DISTR:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17748.png
-
-Convert to Markdown211. Entrada.- 1330 hre.- HF do la Agregación Militar de la C cabanada de Venezuela, quiere saber el el Agregado Militar do la Península ve a ir a la Asociación de Agregados Militares. MARINA dice que no están los militares y que mañana le podrá informar. HF que resulta que están en reunión los agregados y lo están esperando. MARINA va a tratar de localizarlo para darle su recado.- HF que ella está en el 14-36-20.- 261-
+211. Entrada.- 1330 hre.- HF do la Agregación Militar de la C cabanada de Venezuela, quiere saber el el Agregado Militar do la Península ve a ir a la Asociación de Agregados Militares. MARINA dice que no están los militares y que mañana le podrá informar. HF que resulta que están en reunión los agregados y lo están esperando. MARINA va a tratar de localizarlo para darle su recado.- HF que ella está en el 14-36-20.- 261-
 
 261. Salida al 49-12-92.- 1333 hrs.- MARINA pregunta por el Coronel MARCO JORGE MORINO. HF EDUARDA dice que no está. NO es TITO LIMA y dice que llamaron de la Asociación de - Agregados Militares y que los están esperando o que llame al 14-36-20. MARINA que está bien.-286-
 

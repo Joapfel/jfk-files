@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21455.png
-
-Convert to MarkdownSECRET
+SECRET
 NO FOREIGN DISSEM
 
 APR-06-1968

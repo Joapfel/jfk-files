@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22008.png
-
-Convert to Markdownit was necessary to go, to hear her. Not because
+it was necessary to go, to hear her. Not because
 you do not believe GRYAZNOV. No. But, you see,
 to hear from the source [emphasized], directly,
 what is going on, and how it is going on, to get

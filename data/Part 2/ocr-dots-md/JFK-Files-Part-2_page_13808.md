@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13808.png
-
-Convert to Markdown# J. Alleged Political Misuse of the FBI
+# J. Alleged Political Misuse of the FBI
 
 The Committee is investigating allegations that the intelligence and investigative resources of the FBI have been misused by various Presidents, Attorneys General, Members of Congress, and FBI executives themselves. This subject may involve specific allegations of abuse and other controversial matters where there is reason to believe improprieties may have occurred.
 

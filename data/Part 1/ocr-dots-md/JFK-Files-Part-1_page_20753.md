@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20753.png
-
-Convert to MarkdownMr. Phillips continues to show excellent growth potential and his breath of capabilities qualifies him for advancement to senior echelons.
+Mr. Phillips continues to show excellent growth potential and his breath of capabilities qualifies him for advancement to senior echelons.
 
 I rate Mr. Phillips as very <u>Strong</u> as Chief of Station, Brasilia.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5128.png
-
-Convert to Markdownfollowing: SNCC, Institute for Policy Studies, Clergy and Laymen Concerned About Vietnam, and Jeremy Stone.
+following: SNCC, Institute for Policy Studies, Clergy and Laymen Concerned About Vietnam, and Jeremy Stone.
 
 10. Copies of the 90-day status letters on COINTELPRO activities submitted by the Chicago FBI field office to the Bureau.
 

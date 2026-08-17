@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13052.png
-
-Convert to MarkdownNY. 100-149194
+NY. 100-149194
 
 that at a National Negro Commission meeting held on
 11/19, 20/60, at CP Headquarters, 23 West 26th Street,

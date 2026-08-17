@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6050.png
-
-Convert to MarkdownUNITED STATES GOV
+UNITED STATES GOV
 Memorandum
 
 TO: Mr. Belmont

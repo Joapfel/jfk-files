@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15326.png
-
-Convert to MarkdownADDITIONAL QUESTIONS.
+ADDITIONAL QUESTIONS.
 
 C. 1. a. When was David sent to the courses of N.C.Os?
 b. Who was the officer in charge of these courses? or

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1382.png
-
-Convert to Markdown31 March 1963
+31 March 1963
 
 PROJECT AMTRUNK OPERATIONAL REVIEW
 

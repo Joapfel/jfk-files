@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25550.png
-
-Convert to MarkdownJune 7, 1976
+June 7, 1976
 
 Honorable Daniel K. Inouye
 United States Senate

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24270.png
-
-Convert to Markdownkinds realized in 1975 ($4 million), the total gross income would have aggregated $116 million. Actually, the CIA reports that for this period gross income aggregated at $1,606 million.
+kinds realized in 1975 ($4 million), the total gross income would have aggregated $116 million. Actually, the CIA reports that for this period gross income aggregated at $1,606 million.
 
 By this measure, CIA's biggest proprietaries are shadows of their former selves; their annual gross income of $4 million is about one-fourteenth of the average gross annual income of $55 million during the 29-year span. Shrinkage would be even greater if these figures were adjusted for the effect of inflation.
 

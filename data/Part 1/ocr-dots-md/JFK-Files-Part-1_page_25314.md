@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25314.png
-
-Convert to MarkdownSECRET
+SECRET
 
 B84-1524 (9 Apr 56)
 

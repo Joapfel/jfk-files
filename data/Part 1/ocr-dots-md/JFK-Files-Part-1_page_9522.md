@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9522.png
-
-Convert to Markdown# AROUND AFTER THE CONGRESS IS OVER
+# AROUND AFTER THE CONGRESS IS OVER
 
 On pp. 1-3 supra, I indicated the general lines that would make the Reichstag dedication as a House of European Freedom effective. This ceremony, together with the other events of the week Berlin cultural Congress of June 1950, will be broadcast--as indicated supra--over a worldwide network. That is the strategic spectacle where everything worth saying on the subject of freedom and the dignity of man will be compressed into a few days. (Further comment later during the conference would be a special performance of Sauerbraten's play Parnassus at theacob Theatre. If possible get Walter Scholoff from Hollywood for the Robespierre role. He did it for Max Reinhardt. I trust he's still alive). Assuming that the show is a success, that only discharges half the mission. The other half is to build up the Reichstag structure, stone by stone, in line with the political and moral ideals indicated above. The Reichstag as House of European Freedom:
 

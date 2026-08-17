@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20117.png
-
-Convert to MarkdownThe Women's National Abortion Action Coalition
+The Women's National Abortion Action Coalition
 
 followed the instructions set forth for them at the SWP-YSA Fuction meeting held before this conference. Five additional resignations followed Rose Weber from WONAC. They all stressed the fact that they would continue their work in the abortion right outside of this organization.
 

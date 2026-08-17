@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1059.png
-
-Convert to MarkdownSECRET
+SECRET
 
 This Notice Expires 9 September 1957
 

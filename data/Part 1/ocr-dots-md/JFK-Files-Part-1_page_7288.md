@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7288.png
-
-Convert to Markdown4.09.16 When talking, does he tend to
+4.09.16 When talking, does he tend to
 
 Close his eyes
 Put his hand over his eyes

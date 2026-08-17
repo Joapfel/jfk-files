@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21306.png
-
-Convert to MarkdownDECODED COPY
+DECODED COPY
 
 ☐ Radio
 

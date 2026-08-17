@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1036.png
-
-Convert to Markdown14-00000 TRAFFICANTE, Santos
+14-00000 TRAFFICANTE, Santos
 
 1. Blakey to Adm. Turner, 21 Oct 77 (IG 77-2252; EX REG #77-6724/2
 The HSCA has subpoenaed Santos TRAFFICANTE....

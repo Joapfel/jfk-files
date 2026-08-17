@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4041.png
-
-Convert to MarkdownThree Repair Yard $12,000
+Three Repair Yard $12,000
 Water Tank with Well $500
 Electric Wiring, Drainage, Plumbing, etc. $ 1,000
 Total - $55,000

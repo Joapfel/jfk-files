@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20420.png
-
-Convert to MarkdownLS 100-4998
+LS 100-4998
 
 report of SA LEON F. SCHWARTZ dated 5/29/52 at New York entitled "COMMUNIST INFILTRATION OF THE PROGRESSIVE PARTY, IS - C," (Bureau file 100-357934 and Louisville file 100-3284-249) which reflects one Vincent Hallinan, California attorney, was the 1952 Progressive Party candidate for President of the United States.
 

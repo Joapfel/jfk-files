@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23593.png
-
-Convert to MarkdownFILE:
+FILE:
 
 "Executive Action." McNamara responded that he did and stressed his interest in the idea. However, Goodwin did not bring the topic up later in the meeting after McNamara left. To Goodwin, the idea was not reasonable even apart from moral objections, for the Bay of Pigs had shown that Cuba was politically stable; Castro would merely have been replaced with Raul or with Che Guevara, both worse than Castro. Somewhat later, Goodwin sat in on an interview Tad Szulc had with Kennedy in which the President pledged not to kill Castro. Szulc reported that pledge in an article in *Esquire*. When he finished his period as Chairman of the Cuba Task Force, Goodwin wrote a memo recommending that the United States let Castro alone; anything the United States did to him could only but- tress his position in Latin America.
 

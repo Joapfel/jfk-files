@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28972.png
-
-Convert to MarkdownSEPTEMBER
+SEPTEMBER
 OFFICE OF THE GENERAL SURGEON
 WASHINGTON, D.C.
 

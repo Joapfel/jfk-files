@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22607.png
-
-Convert to Markdown642
+642
 
 CLASSIFIED MESSAGE
 

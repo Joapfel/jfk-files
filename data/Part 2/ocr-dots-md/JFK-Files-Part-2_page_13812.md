@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13812.png
-
-Convert to MarkdownB. The Internal Security Section (formerly Division)
+B. The Internal Security Section (formerly Division)
 
 The Committee is examining the activities of the
 Internal Security Section of the Justice Depart-

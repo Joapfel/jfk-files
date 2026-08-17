@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_21984.png
-
-Convert to MarkdownOSWALD attempted to renounce his U.S. citizenship at the American Embassy on 31 October, three days after leaving the hospital. From his diary, the Warren Commission concluded he received permission to reside in the Soviet Union on a year-to-year basis about - January 1960, approximately the time he moved to Minsk.
+OSWALD attempted to renounce his U.S. citizenship at the American Embassy on 31 October, three days after leaving the hospital. From his diary, the Warren Commission concluded he received permission to reside in the Soviet Union on a year-to-year basis about - January 1960, approximately the time he moved to Minsk.

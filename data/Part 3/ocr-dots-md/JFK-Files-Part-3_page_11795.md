@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11795.png
-
-Convert to Markdown# ADEQUACY OF PERSONNEL
+# ADEQUACY OF PERSONNEL
 
 6-E
 

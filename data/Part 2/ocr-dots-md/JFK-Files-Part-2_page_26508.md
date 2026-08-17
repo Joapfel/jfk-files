@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26508.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 20 February 1964
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1022.png
-
-Convert to MarkdownOSWALD, Lee Harvey
+OSWALD, Lee Harvey
 
 1. HSCA Request, 22 December 1977 (OLC #77-5685/4) for access to files or documents on or referring to:
 

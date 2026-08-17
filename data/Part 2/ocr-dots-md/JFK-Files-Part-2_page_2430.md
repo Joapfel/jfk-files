@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2430.png
-
-Convert to Markdown:TI-125-73
+:TI-125-73
 
 Chief, Domestic Collection Division
 ATTN : Deputy for Field Operations (Starling)

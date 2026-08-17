@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3071.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 become the holiest of grails -- constantly, and un-
 successfully, to be sought throughout the course of

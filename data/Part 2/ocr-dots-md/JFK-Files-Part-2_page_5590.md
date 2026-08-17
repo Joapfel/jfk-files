@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5590.png
-
-Convert to Markdown20/20 (ABC), August 27, 1993
+20/20 (ABC), August 27, 1993
 
 Sheriff BOWLES: You have to ask them.
 

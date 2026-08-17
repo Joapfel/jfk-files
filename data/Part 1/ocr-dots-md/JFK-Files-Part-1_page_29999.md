@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29999.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="5">VERIFIED RECORD OF OVERSEAS SERVICE</td></tr><tr><td>TO:</td><td colspan="4">Office of Personnel, Statistical Reporting Branch, RDM 5 E 2506 Headquarters</td></tr><tr><th rowspan="2">EMPLOYEE SERIAL NO.</th><th colspan="3">NAME OF EMPLOYEE</th><th rowspan="2">OFFICE/COMPONENT</th></tr><tr><th>LAST</th><th>FIRST</th><th>MIDDLE</th></tr><tr><td>1-8</td><td>(Print)</td><td>7-24</td><td></td><td>25-30</td></tr><tr><td>58700</td><td>Marphy</td><td>Davis</td><td>E</td><td>48</td></tr></table>
 

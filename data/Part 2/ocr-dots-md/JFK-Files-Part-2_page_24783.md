@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24783.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 * Similarly, there is no evidence that the passage of the pistols or the carbines or the pouching of the machine guns to the Dominican Republic was disclosed to anyone outside of the CIA during this period.**
 

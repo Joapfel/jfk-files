@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5513.png
-
-Convert to Markdown# Society for Haiti
+# Society for Haiti
 
 Miss Ella F. Harllee - President of Educational Communications
 

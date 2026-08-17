@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24198.png
-
-Convert to MarkdownSECRET
+SECRET
 
 QKFEARFUL
 - This foundation type proprietary provided support to a bona fide international organization interested in international legal matters. At the time the Agency withdrew its support for the activity in 1969 the assets of the proprietary plus termination funding were turned over to the witting Board of Directors. The organization, now under a new name, continues to exist without Agency support.

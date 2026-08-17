@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7941.png
-
-Convert to Markdown13-00000
+13-00000
 
 and the weight of evidence," *Newweek*, 9 December 1963, pp. 364.
 Diary Publication Stire Puror." *Editor and Publisher*, 4 July 1964, p. 14.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7852.png
-
-Convert to Markdownpossessing very strong and fixed ideas. KORNYUKHIN did not appear to be awed by KAZANTSEV's official position and spoke openly and forcefully to him.
+possessing very strong and fixed ideas. KORNYUKHIN did not appear to be awed by KAZANTSEV's official position and spoke openly and forcefully to him.
 
 20. On 29 November, during the course of a discussion, KAZANTSEV and KORNYUKHIN again became embroiled in an animated debate. KORNYUKHIN debated KAZANTSEV in an effective and energetic manner seemingly unafraid of correcting or disputing KAZANTSEV. The argument was not personal nor was there any apparent evidence of rancor between the two.
 

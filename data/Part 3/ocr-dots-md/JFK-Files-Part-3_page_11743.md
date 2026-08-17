@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11743.png
-
-Convert to Markdownand Canada. These contacts were planned to serve as a basis for his contact with the Chicom Embassy in Ottawa as the last phase of his trip.
+and Canada. These contacts were planned to serve as a basis for his contact with the Chicom Embassy in Ottawa as the last phase of his trip.
 
 Nine individuals are being considered for use along DESECO lines with the expectation that we will be able to target them against the Chicoms, either in Canada or in the U. S.
 

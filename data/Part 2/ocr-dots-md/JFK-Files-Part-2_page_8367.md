@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8367.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 Office Memorandum • UNITED STATES GOVERNMENT

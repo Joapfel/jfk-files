@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12431.png
-
-Convert to Markdown3. Inquiries of discreet nature concerning individual's personal history (date and place of birth, etc.), patriotism, health, reliability, stability, integrity, general reputation, present and past employments, and business connections. Investigation must definitely establish that individual can be used without danger of future embarrassment due to instability or unreliability. Securing background information from individual is not sufficient; his background must be established by investigation, including discreet inquiries among persons personally acquainted with him.
+3. Inquiries of discreet nature concerning individual's personal history (date and place of birth, etc.), patriotism, health, reliability, stability, integrity, general reputation, present and past employments, and business connections. Investigation must definitely establish that individual can be used without danger of future embarrassment due to instability or unreliability. Securing background information from individual is not sufficient; his background must be established by investigation, including discreet inquiries among persons personally acquainted with him.
 
 4. Check of local credit and arrest records. Submit FD-165 to Identification Division to obtain any record he may have and to place stop against fingerprints if on file.
 

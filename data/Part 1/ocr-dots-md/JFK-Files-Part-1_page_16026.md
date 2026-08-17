@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16026.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>MEMORANDUM FOR</td>
     <td>Mr. Ron Joseph J. Liebling</td>

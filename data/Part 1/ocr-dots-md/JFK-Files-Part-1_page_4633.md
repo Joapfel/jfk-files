@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4633.png
-
-Convert to Markdown<table><tr><td>RECORD COPY</td></tr></table>
+<table><tr><td>RECORD COPY</td></tr></table>
 
 L
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31643.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      Executive Summary

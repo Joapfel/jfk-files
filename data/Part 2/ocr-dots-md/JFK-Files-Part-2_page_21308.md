@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21308.png
-
-Convert to MarkdownSECRET
+SECRET
 
 It is pointed out that CIA in both
 Managua, Nicaragua, and Guatemala City, Guatemala

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_885.png
-
-Convert to Markdownc. <u>Ramparts' Tours - New York Media Workshop's</u>
+c. <u>Ramparts' Tours - New York Media Workshop's</u>
 
 Womens' Tour: Acting on a suggestion proposed by Mr. Jason
 Horn, CI/SO, the undersigned raised the subject of the Women's

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1127.png
-
-Convert to Markdown# HR 20-54
+# HR 20-54
 
 ## PERSONNEL
 

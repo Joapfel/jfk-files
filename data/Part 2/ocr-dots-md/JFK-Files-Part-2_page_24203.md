@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24203.png
-
-Convert to Markdown# THE SALE
+# THE SALE
 
 In 1972 it became apparent that the Agency's air capabilities were becoming excess to its needs, and that political realities and future operational requirements in the post-war era of Southeast Asia would not require large air proprietary assets. On April 21, 1972, the Director of Central Intelligence approved in principle the divestiture of CIA ownership and control of the Air America complex and Southern Air Transport. He approved recommendations calling for Air America to be retained until the end of the war in Southeast Asia, the immediate elimination of the Pacific Division of SAT, the sale of the two 727 aircraft leased to SAT by Air America, and subsequent divestiture of Agency ownership and control of the remainder of SAT.* Specific note was made that conflict of interest should be avoided and that no employee should receive a windfall benefit as a result of these transactions,**
 

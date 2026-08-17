@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27976.png
-
-Convert to MarkdownSECRET
+SECRET
 
 responsibilities. In the most recent recommendation, Chief of Station, Tokyo emphasized that Mr. Randall's performance was characterized by exceptional proficiency in all respects of his assigned duties, and, therefore, endorsed his previous recommendation, and strongly recommended Mr. Randall's promotion to GS-14 at an early date.
 

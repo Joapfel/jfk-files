@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30205.png
-
-Convert to Markdownhad a shelf or a drawer in it. He also stated that at this
+had a shelf or a drawer in it. He also stated that at this
 time he did not observe any of the photos to be out of
 the plastic sheeting which ordinarily held them in the
 black binder. Mr. Blahut denied however that he opened the

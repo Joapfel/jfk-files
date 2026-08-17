@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1069.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 The Cincinnati Office advised on March 19, 1969, that Reverend Augustus Taylor, Steubenville, Ohio, had visited Huey Newton, Black Panther Party (BPP) leader, and as a result wrote an article favorable to Newton published in the "National Catholic Reporter." Since Taylor had a regular television show on WSTV-TV, Steubenville, Ohio, to air his black nationalist views, FBI Headquarters approved on March 28, 1969, that an anonymous letter be mailed to WSTV-TV criticizing Taylor and revealing that his article had been reprinted in the BPP newspaper.
 

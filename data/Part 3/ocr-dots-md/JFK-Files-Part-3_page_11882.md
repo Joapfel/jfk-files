@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11882.png
-
-Convert to MarkdownINSPECTION
+INSPECTION
 
 DOMESTIC INTELLIGENCE DIVISION
 

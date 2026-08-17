@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29.png
-
-Convert to Markdown13-00000
+13-00000
 
 DRA - 76999, July 64, p. 4.
 

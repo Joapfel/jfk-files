@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6744.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">TRANSMITTAL SLIP</th><th>DATE:</th></tr><tr><td colspan="3">TO:</td></tr><tr><th>ROOM NO.</th><th>BUILDING</th><th></th></tr><tr><td colspan="3">REMARKS:</td></tr><tr><td colspan="3">Traces, please, on Agustin GUITAR.</td></tr><tr><td colspan="3">RI, IANS.</td></tr></thead><tbody><tr><td>FROM: Trettin - SAS/DCB/DE</td><td></td><td></td></tr><tr><td>ROOM NO.</td><td>BUILDING</td><td>EXTENSION</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28909.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">DEPARTMENT OF<br>HEALTH, EDUCATION, AND WELFARE<br>SOCIAL SECURITY ADMINISTRATION<br>BUREAU OF OLD-AGE AND SURVIVORS INSURANCE</td>

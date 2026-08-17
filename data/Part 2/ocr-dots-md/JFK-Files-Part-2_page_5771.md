@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5771.png
-
-Convert to MarkdownGuitart Camizano, Agustin
+Guitart Camizano, Agustin
 Gutierrez Menoyo, Eloy
 Hall, Loren Eugene
 Halperin, Maurice Hyman

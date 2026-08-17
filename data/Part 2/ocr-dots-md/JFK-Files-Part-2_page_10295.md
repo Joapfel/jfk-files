@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10295.png
-
-Convert to Markdown11 MAY 1973
+11 MAY 1973
 
 MEMORANDUM FOR: Director, Central Intelligence Agency
 

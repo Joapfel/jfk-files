@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11234.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 CONSEJO NACIONAL DE CULTURA
 

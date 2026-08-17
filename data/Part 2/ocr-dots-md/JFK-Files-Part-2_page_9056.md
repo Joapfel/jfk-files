@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9056.png
-
-Convert to MarkdownU.S. GOVERNMENT
+U.S. GOVERNMENT
 Memorandum
 
 TO The Director

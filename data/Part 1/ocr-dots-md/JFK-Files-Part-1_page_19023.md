@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19023.png
-
-Convert to Markdown5. The study states that it would be very difficult-to re-fuse these NPD defenses in court. The government would have to adapt that since early 1968 there have been very few statements made by NPD leaders, or incidents caused by the NPD, which could be used to support the government's case. Objectively, it would have to be admitted that many incidents of violence in which the NPD has been involved were initiated by opponents of the party.
+5. The study states that it would be very difficult-to re-fuse these NPD defenses in court. The government would have to adapt that since early 1968 there have been very few statements made by NPD leaders, or incidents caused by the NPD, which could be used to support the government's case. Objectively, it would have to be admitted that many incidents of violence in which the NPD has been involved were initiated by opponents of the party.
 
 6. The study predicts the following probable results should the government win its case against the NPD:
 

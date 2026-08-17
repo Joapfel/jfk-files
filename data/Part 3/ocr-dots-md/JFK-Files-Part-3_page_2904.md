@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2904.png
-
-Convert to Markdown1
+1
 
 Mr. Kelley. Not too much, Senator. I think we learned a great lesson by virtue of Watergate, the revelations that have come up as a result of this Committee's inquiries, the fact that I think that we have a different type of spirit today in the Bureau, the fact that, as I said before, you came in, that I think the Bureau is a matchless organization, and they are eager to do that which is vital and proper, and the fact that we are getting a number of very fine young people in the organization, people of the other ethnic backgrounds than we had years ago. I think there is a greater understanding in the Bureau today of what is the proper type of conduct.
 

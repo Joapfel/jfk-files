@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23127.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Mr. Halley. From Cuba or in Cuba?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9468.png
-
-Convert to Markdown17 May 1950
+17 May 1950
 
 Subject: Report on Distribution of Der Monat through an Exemplary Outlet
 

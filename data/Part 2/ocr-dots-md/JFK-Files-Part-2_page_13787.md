@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13787.png
-
-Convert to Markdown3. Surveillance of Dr. Martin Luther King
+3. Surveillance of Dr. Martin Luther King
 
 This investigation examines the authorization for,
 conduct and termination of, and deliberations

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14771.png
-
-Convert to MarkdownYevgeniy SURGANOV
+Yevgeniy SURGANOV
 Vladimir MOLOCHKO(V)
 (FNU) BORICH (correct spelling?)
 

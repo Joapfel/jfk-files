@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10127.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPED
 UNITED
 STATES

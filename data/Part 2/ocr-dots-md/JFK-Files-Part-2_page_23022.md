@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23022.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 of 1960 involving connections between CIA officials and people
 2 who have been characterized as members of the Mafia, of the

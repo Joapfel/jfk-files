@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6340.png
-
-Convert to MarkdownADMINISTRATIVE - INTERNAL USE ONLY
+ADMINISTRATIVE - INTERNAL USE ONLY
 
 From the Desk of John N. Greer
 OCA

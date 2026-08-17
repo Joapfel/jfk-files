@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5988.png
-
-Convert to MarkdownDeclaration of Teresa F. Wilcox
+Declaration of Teresa F. Wilcox
 
 I, Teresa F. Wilcox, hereby declare and say as follows:
 

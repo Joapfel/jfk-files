@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6074.png
-
-Convert to Markdown"Terrei algumas dúvidas a respeito do Marxismo e entendi que algumas interpretações foram equivocadas, e será preciso revê-las? Não tenho a menor dúvida sobre ele !"
+"Terrei algumas dúvidas a respeito do Marxismo e entendi que algumas interpretações foram equivocadas, e será preciso revê-las? Não tenho a menor dúvida sobre ele !"
 
 "Algumas pessoas têm me indagado se eu pensava, quando do ataque ao Quartel Moncada (26-7-53) como penso hoje".
 

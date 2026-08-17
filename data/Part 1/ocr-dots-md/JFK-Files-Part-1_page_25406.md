@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25406.png
-
-Convert to MarkdownWorld Associates Incorporated
+World Associates Incorporated
 
 GComsulin/bn
 DCS/Operational Support Staff

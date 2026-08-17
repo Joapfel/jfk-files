@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3355.png
-
-Convert to Markdown13-00000
+13-00000
 
 CLASSIFIED MESSAGE R: 3343
 PAGE 2 OF 5

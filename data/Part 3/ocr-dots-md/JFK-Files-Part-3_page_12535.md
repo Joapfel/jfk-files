@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12535.png
-
-Convert to Markdown# EXPELLED
+# EXPELLED
 
 WEEKS, EXPELLED
 ALL POWER TO THE PEOPLE

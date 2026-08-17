@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4498.png
-
-Convert to Markdown<table><tr><td>INDEX ☐ YES ☐ NO</td></tr><tr><td colspan="2">CLASSIFY TO FILE NO ________</td></tr><tr><td colspan="2">X REF TO FILE NO ________</td></tr></table>
+<table><tr><td>INDEX ☐ YES ☐ NO</td></tr><tr><td colspan="2">CLASSIFY TO FILE NO ________</td></tr><tr><td colspan="2">X REF TO FILE NO ________</td></tr></table>
 
 CLASSIFIED MESSAGE
 

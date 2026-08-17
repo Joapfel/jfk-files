@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8716.png
-
-Convert to Markdown**ITEM 339 Page 5**
+**ITEM 339 Page 5**
 
 1402 hours - Call to Embassy
 

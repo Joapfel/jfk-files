@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_311.png
-
-Convert to Markdown217.- Entrada a las 1119hs.- MF Dic. Leon Giraldo -Colombia- no- por su vísula.- Aracely; us llano mañana.-- 230.
+217.- Entrada a las 1119hs.- MF Dic. Leon Giraldo -Colombia- no- por su vísula.- Aracely; us llano mañana.-- 230.
 
 252.- Entrada a las 1129hs.- MF para el pasaporte de Othón González.- Aracely; quo llano en diez minutos.-- 260.
 

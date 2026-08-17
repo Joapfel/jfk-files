@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22881.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Margaret SEEGER's half brother Peter SEEGER is reported
 to have been a member of the Communist Party in 1945.

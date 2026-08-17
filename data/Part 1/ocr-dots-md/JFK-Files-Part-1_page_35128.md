@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35128.png
-
-Convert to MarkdownACTIVOS
+ACTIVOS
 
 ARTIXC "I-B"
 ACCT. No. 3

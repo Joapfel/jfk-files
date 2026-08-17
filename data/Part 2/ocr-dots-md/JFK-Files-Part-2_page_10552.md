@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10552.png
-
-Convert to MarkdownJuly 16, 1975
+July 16, 1975
 
 1 - Mr. Wannall (Detached)
 1 - Mr. Mintz (Detached)

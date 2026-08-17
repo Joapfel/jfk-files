@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3667.png
-
-Convert to Markdownd. They call into question especially the contract for the Soviets to set up in India a facility to assemble MIG fighters--an enterprise which has appeared somewhat impractical from the beginning.
+d. They call into question especially the contract for the Soviets to set up in India a facility to assemble MIG fighters--an enterprise which has appeared somewhat impractical from the beginning.
 
 e. We do note, however, that Soviet aircraft specialists working on the project were still in New Delhi in early November. (INTERCEPTS)
 

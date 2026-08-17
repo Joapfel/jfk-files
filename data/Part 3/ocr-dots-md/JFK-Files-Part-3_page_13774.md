@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13774.png
-
-Convert to MarkdownOFFICIAL USE ONLY
+OFFICIAL USE ONLY
 
 and entertainment, it transmits special programs--"sponsored" by so-called exile groups--the evident intent of which is to encourage subversion of the incumbent governments of Peru, Guatemala, and the Dominican Republic. Programs with similarly subversive intent were formerly beamed to Nicaragua and Honduras; these were discontinued in September 1962.
 

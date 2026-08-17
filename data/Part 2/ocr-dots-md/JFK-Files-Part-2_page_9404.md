@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9404.png
-
-Convert to MarkdownDE T-2
+DE T-2
 
 April 12, 1972
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2229.png
-
-Convert to MarkdownCIA INTERNAL USE ONLY
+CIA INTERNAL USE ONLY
 
 <table><tr><td>J-22</td></tr><tr><td>HS CHA</td></tr><tr><td>77-0007/16</td></tr></table>
 

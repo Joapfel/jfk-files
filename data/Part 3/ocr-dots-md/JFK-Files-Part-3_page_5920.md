@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5920.png
-
-Convert to MarkdownIn B pks. Please Refer to
+In B pks. Please Refer to
 10-11-76 157-3597
 
 NATHANIEL WALTER JUNIOR

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_493.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 Philadelphia Office submitted anonymous letter to Gus Hall, General Secretary of the Communist Party, USA (CPUSA), and Mortinor Daniel Kubia, responsible for Party youth activities discrediting Jarvis Tyner as being ineffective in making arrangements for a convention and establishing a working organization.
 

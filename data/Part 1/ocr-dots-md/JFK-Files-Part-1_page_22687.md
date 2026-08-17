@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22687.png
-
-Convert to Markdown<table><tr><td>350 BD/LR/LR</td></tr><tr><td>DATE : 23 DEC 58</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: WH 5 (MR REYNOLDS, VH DIV, NOTIFIED AT 1725 23 DEC)</td></tr><tr><td>INFO : CI/OPS, FI, FI/OPS, S/C 2</td></tr></table>
+<table><tr><td>350 BD/LR/LR</td></tr><tr><td>DATE : 23 DEC 58</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: WH 5 (MR REYNOLDS, VH DIV, NOTIFIED AT 1725 23 DEC)</td></tr><tr><td>INFO : CI/OPS, FI, FI/OPS, S/C 2</td></tr></table>
 
 CLASSIFIED MESSAGE
 

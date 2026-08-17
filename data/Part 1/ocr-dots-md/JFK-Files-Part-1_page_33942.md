@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_33942.png
-
 , Mr. Miller, has written to Leon Dennen telling Dennen that Miller has been called in by our shop and questioned in detail about recent Dennen accounting.
 
 Whether or not he was questioned in detail is a matter on which he and I might disagree but it is really of no consequence since the accounting by Dennen should normally go through us to Miller, and I think you would agree that we had a right to ask questions about it. What bothers me a little, however, is Miller's writing to Dennen, giving details of how our two offices work together. Dennen, it turns out, was annoyed by the content of Miller's letter, not so much at Miller as at us. His annoyance is misplaced but if there had been no mention by Miller of details of our relationship there would have been no annoyance.

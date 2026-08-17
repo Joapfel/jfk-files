@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27191.png
-
-Convert to Markdown# Baker-Weidner Files
+# Baker-Weidner Files
 
 ## I. Depositions
 

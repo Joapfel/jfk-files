@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12091.png
-
-Convert to MarkdownINTERNAL SECURITY SECTION
+INTERNAL SECURITY SECTION
 
 |                 | Cases   | Men    | Average |
 |:----------------|--------:|-------:|---------:|

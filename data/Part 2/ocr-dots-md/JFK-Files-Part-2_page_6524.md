@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6524.png
-
-Convert to Markdown(2) The designation of a single point in the Govern-
+(2) The designation of a single point in the Govern-
 ment to be held responsible for supervising the execution of the total
 program,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23030.png
-
-Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
 
 <table><tr><td>ORIG : W. 'WAINWRIGHT:tw</td></tr><tr><td>UNIT : SAS/EOB</td><td><input type="checkbox" checked disabled/> INDEX</td></tr><tr><td>EXT : 6153</td><td><input type="checkbox" disabled/> NO INDEX</td></tr><tr><td>DATE : 18 JUNE 1963</td><td><input type="checkbox" disabled/> FILE IN CS FILE NO.</td></tr></table>
 

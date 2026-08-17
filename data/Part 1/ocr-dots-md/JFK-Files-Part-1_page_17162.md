@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17162.png
-
-Convert to Markdown1. Following the daily comings and goings of FISTINAL personnel and indigenous employees.
+1. Following the daily comings and goings of FISTINAL personnel and indigenous employees.
 
 2. Confirming the identities of FISTINAL staffers and their visitors (some of whom are HUAYA citizens).
 

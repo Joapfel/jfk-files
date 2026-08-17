@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28097.png
-
-Convert to MarkdownREVIEWING OFFICIALS COMMENTS (Frederick C. Randall)
+REVIEWING OFFICIALS COMMENTS (Frederick C. Randall)
 
 I concur generally with the comments of the rating officer.
 I believe Mr. Randall has shown improvement in his handling of his

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6551.png
-
-Convert to MarkdownIt should be emphasized to the rebel leaders that the U.S. does not expect
+It should be emphasized to the rebel leaders that the U.S. does not expect
 the clock to be turned back with regard to social conditions.
 
 Still later a complete orchestration should be woven together,

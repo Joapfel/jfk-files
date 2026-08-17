@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30046.png
-
-Convert to MarkdownDATE: 10-28-77
+DATE: 10-28-77
 
 OFFICE NAME: Select Committee on
 OFFICE CODE: 83000

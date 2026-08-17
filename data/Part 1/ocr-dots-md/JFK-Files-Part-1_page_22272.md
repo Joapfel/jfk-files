@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22272.png
-
-Convert to Markdown679.
+679.
 
 ## 2. Naval GRU Service
 

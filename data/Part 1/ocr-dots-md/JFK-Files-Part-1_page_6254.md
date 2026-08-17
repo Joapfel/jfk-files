@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6254.png
-
-Convert to Markdown# STUDENT NEWS SHEET
+# STUDENT NEWS SHEET
 
 ## GUATEMALA UNIVERSITY STUDENTS START A "LITERACY DRIVE".
 The Association of University Students of Guatemala has pledged itself to undertake an alphabetization campaign on a national scale. It is expected that a good number of students from the two universities in the country will cooperate in this effort to reach the illiterate.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25112.png
-
-Convert to Markdown157-10014-10227
+157-10014-10227
 
 JFK Assassination System
 Identification Form

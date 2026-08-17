@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9400.png
-
-Convert to MarkdownG. Propensity for Violence and Preparation
+G. Propensity for Violence and Preparation
 for Confrontation
 
 The BPP has a shooting range in the basement of

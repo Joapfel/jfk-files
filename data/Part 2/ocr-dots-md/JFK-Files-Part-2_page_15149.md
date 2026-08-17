@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15149.png
-
-Convert to MarkdownCHINESE COMMUNIST INTELLIGENCE ACTIVITIES
+CHINESE COMMUNIST INTELLIGENCE ACTIVITIES
 
 Communist China today has no diplomatic establishment in the United States and its major intelligence efforts directed against this country emanate from two major sources,
 

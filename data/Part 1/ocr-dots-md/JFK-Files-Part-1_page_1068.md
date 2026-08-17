@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1068.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 0040 BUTLER, FNU
 

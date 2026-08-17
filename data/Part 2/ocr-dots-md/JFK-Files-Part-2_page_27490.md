@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27490.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 
 1977 JUN -6 PM 2:44
 

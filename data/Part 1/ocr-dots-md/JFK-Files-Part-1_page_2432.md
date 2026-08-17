@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2432.png
-
-Convert to MarkdownThe commander-in-chief of 4 Fleet was admiral Golovko H. G. The chief of my navy intelligence point was captain of the work Ryzantsev. Here were officers: Vingradlov, Bulakh, Demchenko and others with sergeant and privates.
+The commander-in-chief of 4 Fleet was admiral Golovko H. G. The chief of my navy intelligence point was captain of the work Ryzantsev. Here were officers: Vingradlov, Bulakh, Demchenko and others with sergeant and privates.
 
 Before my arrival (2 days) this navy intelligence point was transferred from east Germany in Soviet. If in Germany the work of the point was connected with agent's work, now there was another task - a preparation of an agent-observation post in a case of new war (3-4 persons each post). - an absolutely monkey business.
 

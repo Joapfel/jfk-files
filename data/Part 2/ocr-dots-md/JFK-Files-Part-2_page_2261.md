@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2261.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 11 February, 1947
 

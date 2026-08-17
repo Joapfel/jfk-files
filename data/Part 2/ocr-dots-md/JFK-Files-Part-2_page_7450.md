@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7450.png
-
-Convert to Markdown104-10408-10078
+104-10408-10078
 
 Select Committee on Assassinations
 U.S. House of Representatives

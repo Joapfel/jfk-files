@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18266.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">CLASSIFIED MESSAGE</th></tr><tr><td>DATE:</td><td colspan="2"><strong>SECRET</strong></td><td><strong>ROUTING</strong></td></tr><tr><td>TO:</td><td></td><td></td><td><table><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>FROM:</td><td></td><td></td><td></td></tr><tr><td>ACTION:</td><td></td><td></td><td></td></tr><tr><td>INFO:</td><td></td><td></td><td></td></tr><tr><td colspan="2"></td><td>WAVE 4077 IN 41885</td><td></td></tr></thead></table>
+<table><thead><tr><th colspan="4">CLASSIFIED MESSAGE</th></tr><tr><td>DATE:</td><td colspan="2"><strong>SECRET</strong></td><td><strong>ROUTING</strong></td></tr><tr><td>TO:</td><td></td><td></td><td><table><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>FROM:</td><td></td><td></td><td></td></tr><tr><td>ACTION:</td><td></td><td></td><td></td></tr><tr><td>INFO:</td><td></td><td></td><td></td></tr><tr><td colspan="2"></td><td>WAVE 4077 IN 41885</td><td></td></tr></thead></table>
 
 CHECKS WITH KNOWLEDGEABLE CONTACTS HAS PRODUCED LITTLE OTHER THAN 2 WILLIAM S. WIRALDA'S STATEMENT THAT BUCHANAN JOURNALISTIC REPUTATION INDICATES HE INACCURATE AND SENSATIONALIST. AMCLATTER-I AND PASSOVY ATTEMPTING DISCREETLY TRACE BUCHANAN SOURCE FOR "U.S. BLESSING."
 

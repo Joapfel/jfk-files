@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_10805.png
-
-Convert to Markdown# JOHN ROBERT SWINGLISH
+# JOHN ROBERT SWINGLISH
 
 As previously noted, SWINGLISH was apprehended by Special Agent N. O. The FBI on August 22, 1971, at 21 North Fourth Street, Camden, N. J. On the same date he was afforded a hearing before U. S. Magistrate CHARLES L. RUDD, Camden, N. J., and was remanded to the custody of the U. S. Marshal in lieu of $50,000 good bail. He was released on September 7, 1971, after posting ten per cent cash or security on a $15,000 bond which had been set by the Third Circuit Court of Appeals, Philadelphia, Pa., on September 3, 1971.

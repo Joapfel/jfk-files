@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7833.png
-
-Convert to Markdown# Intelligence Community Staff
+# Intelligence Community Staff
 
 ATTN: Central Index
 

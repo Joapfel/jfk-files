@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4470.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">NAME CHECK AND CONSOLIDATION REQUEST</td>

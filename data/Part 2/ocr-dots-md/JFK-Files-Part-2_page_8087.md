@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8087.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SECRET TELEPOUCH
 

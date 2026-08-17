@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10828.png
-
-Convert to MarkdownIn April, 1963, we received information indicating that CIA Director John McCone was considering expansion of CIA operations in the United States -- specifically intelligence coverage and the development of sources in this country. The Director made a note on the memorandum recording this: "McCone is trying to do another 'Donovan.' If he injects himself into the U. S., the FBI gets out. Too many cooks spoil the broth."
+In April, 1963, we received information indicating that CIA Director John McCone was considering expansion of CIA operations in the United States -- specifically intelligence coverage and the development of sources in this country. The Director made a note on the memorandum recording this: "McCone is trying to do another 'Donovan.' If he injects himself into the U. S., the FBI gets out. Too many cooks spoil the broth."
 
 In December, 1963, the Director inquired as to the nature and extent of intelligence operations wherein CIA had established contact with a diplomat, operated him in the U. S. with our coordination, and continued to operate him upon his having departed this country. Four such cases were cited. On the memorandum, the Director noted: "I have little confidence in CIA abiding by agreements if it serves its purpose better not to do so."
 

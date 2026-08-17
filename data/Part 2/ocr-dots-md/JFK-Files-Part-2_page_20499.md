@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20499.png
-
-Convert to MarkdownUNITED STATES C TERNMENT
+UNITED STATES C TERNMENT
 Memorandum
 
 TO : DIRECTOR, FBI

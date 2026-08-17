@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14805.png
-
-Convert to MarkdownII. 10 May 72
+II. 10 May 72
 
 EAST GERMANY
 

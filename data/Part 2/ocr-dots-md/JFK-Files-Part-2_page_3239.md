@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3239.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Prop, will be used in Cuban propaganda" -- something of an understatement!* 26/
 

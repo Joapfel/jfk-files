@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3324.png
-
-Convert to Markdowndescribed PROENZA as a cold-blooded emotionless woman
+described PROENZA as a cold-blooded emotionless woman
 who is nicknamed "the mummy".
 
 o. Silvino SORHEGUY Matos is listed as the Cuban Minister to Saudi Arabia with residence in Cairo. Subject knows SORHEGUY to have been once a Cuban foreign service representative to Honduras and to have been declared PNG by that country.

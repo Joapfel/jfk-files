@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20959.png
-
-Convert to Markdown7 February 1955
+7 February 1955
 
 MEMORANDUM FOR: CHIEF, SCAPS
 VIA : Contract Approving Officer, PP Staff

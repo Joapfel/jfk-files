@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9251.png
-
-Convert to MarkdownDE T-3
+DE T-3
 May 1, 1973
 
 VI. CONNECTIONS WITH OTHER

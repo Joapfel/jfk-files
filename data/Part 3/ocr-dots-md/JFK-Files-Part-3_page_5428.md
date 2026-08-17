@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5428.png
-
-Convert to Markdown**QUESTION:** You imply then that the others concern domestic security or did it go beyond that?
+**QUESTION:** You imply then that the others concern domestic security or did it go beyond that?
 
 **ANSWER:** This implication is yours, Mr. Rogers, but....
 

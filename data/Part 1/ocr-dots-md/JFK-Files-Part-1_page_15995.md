@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15995.png
-
-Convert to MarkdownPOWDER KEG
+POWDER KEG
 Continued
 
 officer and acquaintance of WerBell's who was introduced to Watkins. There is also some talk about approaching the Organization of American States and the United Nations. And about a referendum on Abaco July 5 — the day before Bahamian independence — on whether to unilaterally declare Abaco a free nation. "We are putting to bear all our activity and friends to tell the world, 'Here's a country that doesn't want to go this way,'" says WerBell.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31391.png
-
-Convert to MarkdownPhotograph of the weapons contained in packing crate Nr 1.
+Photograph of the weapons contained in packing crate Nr 1.
 
 Reviewed By AFOSI
 For Public Disclosure

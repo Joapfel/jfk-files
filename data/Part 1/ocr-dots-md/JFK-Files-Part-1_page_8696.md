@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8696.png
-
-Convert to Markdown9.03.04 Persona de comer sensual que tiende a comer solo si puede. Parece comer de todo y tiene cierto aire de glotón. Come con visible fruición, saborea sus cigarrillos y luego se queda a la mesa solo, regodeándose. Es fácil imaginarlo solo rondando la mesa de los bocadillos en un ceduel, golosinando.
+9.03.04 Persona de comer sensual que tiende a comer solo si puede. Parece comer de todo y tiene cierto aire de glotón. Come con visible fruición, saborea sus cigarrillos y luego se queda a la mesa solo, regodeándose. Es fácil imaginarlo solo rondando la mesa de los bocadillos en un ceduel, golosinando.
 
 9.03.05 Persona de comer rutinario que generalmente hace lo que los demás. Probablemente padece de alergias que le impiden comer ciertos alimentos. En la impresión de gustarle más fumar que comer, pero sus modales a la mesa se adaptan a cualquier situación. Es fácil imaginarlo tomando pastillas digestivas en su cuarto.
 

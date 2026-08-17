@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10727.png
-
-Convert to MarkdownUNITED STATES C
+UNITED STATES C
 
 TRNMENT
 # Memorandum

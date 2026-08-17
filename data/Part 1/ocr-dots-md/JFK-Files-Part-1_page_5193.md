@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5193.png
-
-Convert to MarkdownFBI DOCUMENT
+FBI DOCUMENT
 
 DATE: 5 OCTOBER 1976
 

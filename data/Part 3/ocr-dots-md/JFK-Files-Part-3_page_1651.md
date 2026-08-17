@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1651.png
-
-Convert to Markdown1 - Mr. Foster
+1 - Mr. Foster
 1 - Legal Counsel Div.
 (Attn: Mr. Coulson)
 

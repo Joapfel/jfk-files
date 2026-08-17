@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35703.png
-
-Convert to Markdown4. In view of the above, no further investigation is contemplated by this office unless advised to the contrary.
+4. In view of the above, no further investigation is contemplated by this office unless advised to the contrary.
 
 McGRATH/mla
 

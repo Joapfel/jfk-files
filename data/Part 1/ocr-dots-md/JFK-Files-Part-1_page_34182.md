@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34182.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 TO: Sr. Jeimé Lozano
 President,

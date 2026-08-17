@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15916.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIG: John Kelly</td>
     <td rowspan="2">CLASSIFIED MESS-GE</td>

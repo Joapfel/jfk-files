@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29112.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td colspan="2">SECTION E</td></tr><tr><td colspan="2">NARRATIVE DESCRIPTION OF MANNER OF JOB PERFORMANCE</td></tr><tr><td colspan="2">Stress strengths and weaknesses demonstrated in current position. Indicate suggestions made to employees for improvement of his work. Give recommendations for his training. Describe, if appropriate, his potential for development and for assuming greater responsibilities. Amplify or explain, if appropriate, ratings given in SECTIONS B, C, and D to provide the best basis for determining future personnel actions.</td></tr><tr><td colspan="2">This outstanding employee has maintained the high standard of performance set forth in the report of this supervisor until now. There is possible, also, that he has exceeded her earlier performance record. During the past year this office acquired considerable new personnel, which subject trained in a highly capable manner to guarantee the smooth-functioning of the office. The undersigned hopes this employee will continue to serve this organization indefinitely notwithstanding her marriage during the past year.</td></tr><tr><td colspan="2">FEB 12 11:43 AM '62</td></tr></table>

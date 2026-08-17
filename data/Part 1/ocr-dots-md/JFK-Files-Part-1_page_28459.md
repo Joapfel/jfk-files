@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28459.png
-
-Convert to Markdown14-0000
+14-0000
 
 VIA: L. ATCH NO. EAVA-7068
 (SPECIFY AIR OR SEA POUCH)

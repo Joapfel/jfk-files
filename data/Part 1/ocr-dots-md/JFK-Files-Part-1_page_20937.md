@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20937.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10 MAR 1975.
 

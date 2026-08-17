@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14526.png
-
-Convert to Markdown- 7 -
+- 7 -
 
 Report No. 259 (Cont'd).
 

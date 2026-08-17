@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11563.png
-
-Convert to Markdown(E) Membership or affiliation of any other close relatives in subversive groups
+(E) Membership or affiliation of any other close relatives in subversive groups
 
 (F) Information regarding defection, expulsion, inactivity, and present sympathies of the subject and, if married, of the spouse
 

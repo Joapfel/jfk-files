@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19248.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 PORTLAND WOMEN FOR PEACE
 P. O. BOX 13061

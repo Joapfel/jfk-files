@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14372.png
-
-Convert to Markdowntalk that he will not return.
+talk that he will not return.
 
 D. Heré has taken over the control of the Consular Section and appears to be directing the functions that DIEN VIGIL had. No one has been appointed to take DÉN VIGIL'S post.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33366.png
-
-Convert to MarkdownConsidering that this small group of pampered exiles is preaching revolution even here and with a full stomach, it may be useful to point out a few facts. These are facts which are well known in the Ministry in The Hague but for some reason never made it to the Netherlands press.
+Considering that this small group of pampered exiles is preaching revolution even here and with a full stomach, it may be useful to point out a few facts. These are facts which are well known in the Ministry in The Hague but for some reason never made it to the Netherlands press.
 
 ## Facts
 

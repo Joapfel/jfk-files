@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34158.png
-
-Convert to MarkdownDECLARACIONES DE RAUL DE LA RUIZ CASTRO
+DECLARACIONES DE RAUL DE LA RUIZ CASTRO
 
 Mi nombre es Raúl de la Rúa Castro y hasta el 20 de marzo de 1966 desempeñó el cargo de Jefe de Maquinas de la Notonave SIERRA MAESTRÍ, cargo este que abandone en Mercán, Japón.
 

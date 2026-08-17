@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32008.png
-
-Convert to Markdown<table><tr><td>1. NAME OF SUBJECT OR TITLE OF INCIDENT<br/>SCHEER, Robert<br/>Pre-Inductee<br/>DOB: 4 April 1936<br/>POB: Bronx, New York</td><td>2. DATE SUBMITTED<br/>27 October 1958<br/><br/>3. CONTROL SYMBOL OR FILE NUMBER<br/>H1-016940</td></tr></table>
+<table><tr><td>1. NAME OF SUBJECT OR TITLE OF INCIDENT<br/>SCHEER, Robert<br/>Pre-Inductee<br/>DOB: 4 April 1936<br/>POB: Bronx, New York</td><td>2. DATE SUBMITTED<br/>27 October 1958<br/><br/>3. CONTROL SYMBOL OR FILE NUMBER<br/>H1-016940</td></tr></table>
 
 4. REPORT OF FINDINGS
 

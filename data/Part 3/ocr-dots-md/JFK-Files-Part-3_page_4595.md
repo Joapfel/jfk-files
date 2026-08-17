@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4595.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 Since that time, according to NK T-1, subject has made no further mention of this matter, although he has seen her on several occasions. NK T-1 said he had heard it rumored that the subject has been involved in the sale of guns to Cuba in the past, as well as having visited Cuba since CASTRO took power, but did not know this of his own knowledge.
 

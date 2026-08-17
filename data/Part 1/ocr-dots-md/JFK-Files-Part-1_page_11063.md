@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11063.png
-
-Convert to Markdown## OMPA, PROS.
+## OMPA, PROS.
 
 Las Organizaciones de Masa del Consejo Nacional de Cultura, en saludo al VI Aniversario de la Federación de Muje - ros Cubanas, presentarán a la contante norteamericana BARBARA DANE el próximo viernes 19 a las 4:30 pm.
 

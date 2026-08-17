@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1827.png
-
-Convert to Markdowngive it greater support than it has previously received. We recommend that the police group in the CI Staff receive such augmentation as is necessary, and that Project ENDOMORPH (police training school) be transferred from the NE Division to the CI Staff.
+give it greater support than it has previously received. We recommend that the police group in the CI Staff receive such augmentation as is necessary, and that Project ENDOMORPH (police training school) be transferred from the NE Division to the CI Staff.
 
 ## Liaison with Department of State
 

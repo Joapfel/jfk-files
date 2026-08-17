@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8515.png
-
-Convert to Markdown050-3/JF
+050-3/JF
 
 February 10, 1968. 2100-0200 hours
 Home of Gloria and Pope Pinto

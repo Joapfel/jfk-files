@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16047.png
-
-Convert to MarkdownRE: BLACK PANTHER PARTY
+RE: BLACK PANTHER PARTY
 
 The foregoing documents were seized and are being held as evidence at the Chicago Office of the FBI.
 

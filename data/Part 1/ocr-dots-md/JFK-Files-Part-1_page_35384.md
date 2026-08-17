@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35384.png
-
-Convert to MarkdownSupreme Court, but that now he considered LABAU unfit to hold any judicial position.
+Supreme Court, but that now he considered LABAU unfit to hold any judicial position.
 
 ## 8. Members of the Revolutionary Council
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33353.png
-
-Convert to Markdownrevealed as, at least, equivalent. He officially rejected MIR's violence, yet he never permitted the Army to root out their para-military groups. When they stigmatised his land-reform programme as "inadequate" and seized hundreds of farms at gun-point he rebuked them in occasional speeches but did nothing to reverse their actions.
+revealed as, at least, equivalent. He officially rejected MIR's violence, yet he never permitted the Army to root out their para-military groups. When they stigmatised his land-reform programme as "inadequate" and seized hundreds of farms at gun-point he rebuked them in occasional speeches but did nothing to reverse their actions.
 
 When they hijacked lorry-loads of valuable manufactured goods, to raise funds by selling them on the black market, he rarely tried to redress the crime. The Left said this was because the MIR truly represented "the People" against whom Allende dated not act. But the truth, I fear, was morequalist: For one thing, the MIR had close friends in the Socialist Party and in Allende's own entourage whom the President did not want to offend. For another, as long as their activities did not actually split the Popular Unity coalition, it was often convenient to see them pushing along
 

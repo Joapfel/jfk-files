@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_23354.png
-
-Convert to Markdown<table><tr><td>RECIBO POR DINERO</td></tr><tr><td>Nº</td><td>009</td><td>30 de Abril</td><td>de 195...</td><td>53</td></tr><tr><td colspan="5">RECIBI de ... Cash</td></tr><tr><td colspan="5">la suma de ... Eight hundred colones 00/100</td></tr><tr><td colspan="5">por ... Services rendered, 16-30 April</td></tr><tr><td>(¢ 800.00)</td><td>Ross L. Graces</td><td></td><td></td><td></td></tr></table>
+<table><tr><td>RECIBO POR DINERO</td></tr><tr><td>Nº</td><td>009</td><td>30 de Abril</td><td>de 195...</td><td>53</td></tr><tr><td colspan="5">RECIBI de ... Cash</td></tr><tr><td colspan="5">la suma de ... Eight hundred colones 00/100</td></tr><tr><td colspan="5">por ... Services rendered, 16-30 April</td></tr><tr><td>(¢ 800.00)</td><td>Ross L. Graces</td><td></td><td></td><td></td></tr></table>

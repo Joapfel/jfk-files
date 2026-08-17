@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5436.png
-
-Convert to Markdown13-00000
+13-00000
 
 CIA SPECIAL COLLECTIONS
 RELEASE IN FULL

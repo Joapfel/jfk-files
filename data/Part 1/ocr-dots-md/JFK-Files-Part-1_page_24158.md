@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24158.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, KUWOLF
 Chiefs: HEDRICH, HERIOT; CER, FRANKFURT (PETOPAL for CZECHY);

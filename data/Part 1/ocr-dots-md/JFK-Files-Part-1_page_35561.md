@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35561.png
-
-Convert to Markdown14 January 65
+14 January 65
 
 One thousand three hundred sixteen and 25/100
 in form of Cashier's Check #382709 for "RJ"

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7698.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 2
 
 young daughter who lived with her grandparents in Russia. In 1961 she was permitted to visit Source and his wife abroad, and this triggered his defection. Overall, the case is one where we unwittingly had an agent in place in the KGB who was breaking down Soviet compartmentation of the KGB, both in the First and in the Second Chief Directorate. His purpose was to obtain information of great value to the West should he have the opportunity to defect.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33381.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="3">CABLE SEC. TERM #38 PER</td>

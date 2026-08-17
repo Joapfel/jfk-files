@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16635.png
-
-Convert to Markdown<table><tr><td>SEE COPY</td></tr><tr><td>DATE</td></tr><tr><td>JAN. 13</td></tr><tr><td>TOTAL CHARGES</td></tr></table>
+<table><tr><td>SEE COPY</td></tr><tr><td>DATE</td></tr><tr><td>JAN. 13</td></tr><tr><td>TOTAL CHARGES</td></tr></table>
 
 200 UNITS Cl. Serv. 2.03 CrClD Tel?4-3-2017
 

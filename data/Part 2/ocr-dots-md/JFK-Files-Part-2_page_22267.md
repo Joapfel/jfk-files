@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22267.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 almost any kind of paramilitary operation, such as the Guatemalan operation, the Bay of Pigs itself is, the earlier operation that has been discussed in the press [in Iran], and which resulted in the ouster of Mossedegh and the return of the Shah, there is an expectation that such operations will involve military or semimilitary action, and that some people will lose their lives in the process.
 

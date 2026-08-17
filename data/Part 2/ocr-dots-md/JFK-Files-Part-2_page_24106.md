@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24106.png
-
-Convert to Markdown# EPILOGUE
+# EPILOGUE
 
 We do not believe that the acts which we have examined represent the real American character. They do not reflect the ideals which have given the people of this country and of the world hope for a better, fuller, fairer life. We regard the assassination plots as aberrations.
 

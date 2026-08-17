@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5332.png
-
-Convert to MarkdownSUBJECT: Analysis of ARRB and DO Memoranda re Treatment of CIA Officer Names in JFK Collection (Prepared by Gary Breneman, 11 Feb 97)
+SUBJECT: Analysis of ARRB and DO Memoranda re Treatment of CIA Officer Names in JFK Collection (Prepared by Gary Breneman, 11 Feb 97)
 
 1. **ARRB Memorandum.** The Gunn memorandum sets out the criteria required to meet the burden under several situations.
 

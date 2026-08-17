@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7405.png
-
-Convert to MarkdownAugust 18, 1976
+August 18, 1976
 
 MEMORANDUM FOR: Mr. Philip F. Fendig
 SA/DO/O

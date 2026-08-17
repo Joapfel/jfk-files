@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4963.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHFNO: 96-3469532
 

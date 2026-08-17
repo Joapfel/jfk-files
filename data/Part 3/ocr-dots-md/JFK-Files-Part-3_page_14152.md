@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14152.png
-
-Convert to Markdown(34. 5/31/62 Continued)
+(34. 5/31/62 Continued)
 
 "missile bases in Cuba until they had been checked out with NPIC." Between 14 August and mid-October one CIA office sent NPIC 13 memoranda "asking for a check on 25 separate reports containing information which was thought to raise the possibility of Soviet offensive weapons in Cuba. A great many more such reports were checked with NPIC informally by telephone. In all cases, NPIC either lacked the necessary coverage or made a negative finding."
 

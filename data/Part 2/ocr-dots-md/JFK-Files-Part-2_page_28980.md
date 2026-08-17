@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28980.png
-
-Convert to Markdown# CALIFORNIA
+# CALIFORNIA
 ## CAPITAL GAINS AND LOSSES
 
 Attach to Form 540 or 540NR

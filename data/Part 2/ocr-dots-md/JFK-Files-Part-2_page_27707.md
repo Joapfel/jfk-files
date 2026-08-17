@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27707.png
-
-Convert to Markdown(NW 88326
+(NW 88326
 
 Copy for Initiating Office or Committee
 

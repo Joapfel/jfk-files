@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25087.png
-
-Convert to MarkdownTOP SECRET - SENSITIVE
+TOP SECRET - SENSITIVE
 
 SQUARE DANCE (U)
 

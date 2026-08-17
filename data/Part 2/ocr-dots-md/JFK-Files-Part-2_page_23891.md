@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23891.png
-
-Convert to Markdown1 the Committee that the CIA do it, because the CIA regulations may or may not issue, and they can be changed at any time without notice.
+1 the Committee that the CIA do it, because the CIA regulations may or may not issue, and they can be changed at any time without notice.
 
 2
 3

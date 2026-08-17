@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33772.png
-
-Convert to Markdown14-00000
+14-00000
 
 June 13, 1958
 

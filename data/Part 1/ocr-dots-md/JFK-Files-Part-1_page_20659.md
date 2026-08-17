@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20659.png
-
-Convert to MarkdownDavid Philips
+David Philips
 
 Per Mr. Washkis x8r8r
 Philip is previously contract agree.

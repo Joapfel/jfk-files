@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21143.png
-
-Convert to MarkdownSupplement to Staff Agent, Personal Action
+Supplement to Staff Agent, Personal Action
 
 For Thomas U. Cassacin Effective 5 AUG 1970
 

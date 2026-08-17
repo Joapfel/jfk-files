@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29210.png
-
-Convert to MarkdownRichard Dennis Call
+Richard Dennis Call
 
 ment the unit used. Mr. Call stated that he was Oswald's immediate supervisor. He was not a close friend of Lee Harvey Oswald but the interest they shared was mainly the game of chess. Oswald would play chess with him quite often. He described Oswald as being quiet. He didn't talk very much. During any conversation that went on, the other person had to solicit it from him. He described him as being a loner, staying off to himself, not having very many friends or having very much contact with other people in the unit. In his words, Mr. Call described Oswald as being "an oddball." Call stated that he had never gone off the base or socialized off the base with Lee Harvey Oswald. He knew of no civilian or military personnel who he was particularly friendly with.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8627.png
-
-Convert to Markdownpressures of inflation. The advisers to me on economics are trying to assess all Government programs and private actions that contribute to inflationary pressures. When this analysis is done I will use every means that I have available to me to express these concerns and possibly corrective actions to the American people as well.
+pressures of inflation. The advisers to me on economics are trying to assess all Government programs and private actions that contribute to inflationary pressures. When this analysis is done I will use every means that I have available to me to express these concerns and possibly corrective actions to the American people as well.
 
 And the last point is that we will have a complete analysis underway now on deregulation. And the first question is the deregulation of the air lines. Legislation is in the Congress now. We'll be submitting a message to Congress very shortly on that subject. We will not submit administration legislation because the Congress has already moved substantially forward in dealing with this important issue.
 

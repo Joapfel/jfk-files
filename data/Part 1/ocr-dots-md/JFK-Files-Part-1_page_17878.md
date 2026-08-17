@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17878.png
-
-Convert to Markdown14-0000
+14-0000
 
 CLASSIFIED MESSAGE TOTAL COPIES 16 .□ copy. □ forward.
 

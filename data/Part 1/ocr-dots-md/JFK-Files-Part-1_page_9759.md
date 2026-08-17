@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9759.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONF: WH 8</td>
     <td>□ NO MHS</td>

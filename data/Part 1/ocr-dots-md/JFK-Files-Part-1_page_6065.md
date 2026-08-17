@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6065.png
-
-Convert to Markdown# CUBA SOCIALISTA
+# CUBA SOCIALISTA
 
 - A palavra é para dizer a venlade, não para encobertá-la.
 

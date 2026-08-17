@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31250.png
-
-Convert to MarkdownMEMORANDUM FOR: Official Personnel File
+MEMORANDUM FOR: Official Personnel File
 
 SUBJECT : Wigren, Lee H.
 

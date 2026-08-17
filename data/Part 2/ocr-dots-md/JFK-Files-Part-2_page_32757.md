@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32757.png
-
-Convert to MarkdownThe two companies submitted their new proposals in September 1962. These proposals were reviewed by the Evaluation Group and the Source Selection Board, which made its report on November 2.
+The two companies submitted their new proposals in September 1962. These proposals were reviewed by the Evaluation Group and the Source Selection Board, which made its report on November 2.
 
 At the risk of repetition, I want to read to you again the general conclusions of the Evaluation Group which were restated verbatim by the Air Council, with the concurrence of Admiral Anderson, Chief of Naval Operations, and General LeMay, Chief of Staff of the Air Force:
 

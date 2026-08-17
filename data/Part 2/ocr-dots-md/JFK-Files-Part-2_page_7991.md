@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7991.png
-
-Convert to Markdown# Strategy and Action on World Trade
+# Strategy and Action on World Trade
 
 James H. Binger, Chairman
 Honeywell Inc.

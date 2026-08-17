@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18884.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO : DIRECTOR, FBI (105-28333)
 

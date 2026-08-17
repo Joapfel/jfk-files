@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13790.png
-
-Convert to MarkdownCLASSIFIED MESSAGE.
+CLASSIFIED MESSAGE.
 
 DATE: 21 NOV 1964
 

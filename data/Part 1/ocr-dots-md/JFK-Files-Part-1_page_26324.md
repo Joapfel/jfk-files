@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26324.png
-
-Convert to Markdown- 20 -
+- 20 -
 
 | FICHA | CONTACTO | MOTIVO DEL CONTRATO |
 |---|---|---|

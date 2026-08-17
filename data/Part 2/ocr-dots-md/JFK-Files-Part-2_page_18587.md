@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18587.png
-
-Convert to MarkdownUnited States Senate Select Committee
+United States Senate Select Committee
 To Study Governmental Operations With
 Respect To Intelligence Activities (SSC)
 Re: Documents Pertaining To The

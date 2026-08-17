@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10832.png
-
-Convert to MarkdownDate 9/15/71
+Date 9/15/71
 
 EDWARD J. MC GOWAN, 220 West 98th Street, New York City (NYC), New York, who identified himself as a Roman Catholic priest in the Society of Jesus, was advised of the identities of ROBERT P. SADOWSKI and ROGER J. CORKE as Special Agents (SAS) of the Federal Bureau of Investigation (FBI) by SA SADOWSKI in the lobby of 201 East 69th Street, NYC, in the presence of MARTIN R. STOLAR, who had introduced himself to SAS CORKE and SADOWSKI as the attorney representing MC GOWAN. MC GOWAN was then placed under arrest by SA SADOWSKI, who advised MC GOWAN of his rights as they appear on the "Interrogation; Advice of Rights" form. SA SADOWSKI then advised MC GOWAN of the charges against him, Conspiracy, relative to the following: Crime on a Government Preservation-Breaking and Entering; Theft of Government Property; Destruction of Government Property; Removal and Mutilation of Public Records and Unlawful Interference with the Military Service Act of 1967.
 

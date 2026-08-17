@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24125.png
-
-Convert to MarkdownBalances of each of these accounts are monitored periodically
+Balances of each of these accounts are monitored periodically
 to assure that balances do not exceed a level warranted by the activity
 for which the respective account was established. Balances excess
 to current requirements and balances for entities which are dissolved

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9697.png
-
-Convert to MarkdownHonorable Ronald V. Dellums
+Honorable Ronald V. Dellums
 
 As I have already indicated, the FBI does not
 conduct "political" investigations, nor do we conduct

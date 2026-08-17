@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11100.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>PROVISIONAL OPERATIONAL APPROVAL</td></tr></table>
 

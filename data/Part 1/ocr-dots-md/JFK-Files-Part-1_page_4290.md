@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4290.png
-
-Convert to MarkdownSECRET
+SECRET
 
 20 September 1965
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17404.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 DATE : 9 AUG 62
 TO : DIRECTOR

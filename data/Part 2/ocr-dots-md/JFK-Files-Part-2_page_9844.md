@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9844.png
-
-Convert to Markdown1 - Mr. D A. Brumble
+1 - Mr. D A. Brumble
 
 SAC, Chicago (157-2832)
 

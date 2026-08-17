@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3054.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Gray commented that a problem would be posed for administration officials if a decision should be taken to change our attitude toward Castro, as outlined earlier in the meeting. He acknowledged that any such decision must be kept highly secret, but he foresaw difficulties which would arise, for example, during testimony by the Secretaries of Defense and Treasury before Congress, at public gatherings, etc., if they should have to give an impression that the US was not doing anything about Cuba. 14/
 

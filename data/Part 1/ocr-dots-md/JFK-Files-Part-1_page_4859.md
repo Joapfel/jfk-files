@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4859.png
-
-Convert to MarkdownU.S. SECRET SERVICE CABLE
+U.S. SECRET SERVICE CABLE
 
 DATE: 18 FEBRUARY 1976
 

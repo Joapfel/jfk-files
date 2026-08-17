@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31439.png
-
-Convert to Markdown14-0000
+14-0000
 
 ME:J. RANKLE FOR: Chief, IO Division
 SUBJECT: Library of Congress Eastern European Accessions

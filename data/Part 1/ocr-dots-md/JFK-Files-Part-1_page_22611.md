@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22611.png
-
-Convert to MarkdownC-82713 (S-8644)
+C-82713 (S-8644)
 
 Argelia Cordero de CRUZIER
 

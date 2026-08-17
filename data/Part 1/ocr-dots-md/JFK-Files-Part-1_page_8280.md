@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8280.png
-
-Convert to Markdowncommented that the existing problem was created by Subject and his
+commented that the existing problem was created by Subject and his
 not compliance with the instruction; the only way out of it now is
 to do what I told him in the car.
 

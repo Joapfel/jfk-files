@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_214.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 On May 14, 1965, the Charlotte Office confidentially alerted W. G. O'Neal, Chief Investigator, North Carolina State Insurance Department, that the United Klans of America (UKA), Knights of the Ku Klux Klan, through Marshall Kornegay, a member, was promoting a group health insurance plan for members of the UKA. O'Neal agreed to have his Department investigate the plan to determine if it met state requirements.
 

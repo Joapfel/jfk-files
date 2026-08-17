@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28180.png
-
-Convert to MarkdownCOLLEEN T. BOLAND
+COLLEEN T. BOLAND
 
 3529 O Street, N. W.
 Washington, D. C. 20007

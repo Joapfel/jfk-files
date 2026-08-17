@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24060.png
-
-Convert to Markdowndoubt concerning whether assassination was authorized by
+doubt concerning whether assassination was authorized by
 the Administrations. Even if the plots were not expressly
 authorized, it does not follow that the Agency personnel
 believed they were acting improperly.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3631.png
-
-Convert to MarkdownDCI/DDCI
+DCI/DDCI
 
 Inputting Slip
 

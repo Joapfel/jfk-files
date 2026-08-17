@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26379.png
-
-Convert to Markdown<table><tr><td colspan="3">CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>SECRET<br/>(When Filled In)</td><td>TDCS DB-3/656,830</td><td>IN 25834</td></tr></table>
+<table><tr><td colspan="3">CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>SECRET<br/>(When Filled In)</td><td>TDCS DB-3/656,830</td><td>IN 25834</td></tr></table>
 
 PLUS AIRBORNE, MARINE, AND ARMOR ELEMENTS READY TO PARTICIPATE IN THE COUP. BRIGADIER GENERAL DO CAO TRI IS ALSO WORKING WITH THE GROUP.
 

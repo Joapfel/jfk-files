@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8482.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the African American Institute, which published Africa Report, is included in a list of Agency proprietaries in Book VI of the Senate Select Committee Final Report, pg. 263. However, the Report gave as its source for the list the book The Invisible Government, by Wise and Ross, pp. 247n-248n. This citation should not be considered official Government disclosure of Agency sponsorship of the Institute. NOTE: CA Staff confirms the need for continued classification and will comment separately.
 

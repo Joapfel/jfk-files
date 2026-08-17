@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34755.png
-
-Convert to Markdown<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>CLASSIFICATION</td><td>SECRET</td></tr><tr><td>MILEAGE</td><td>X NO. INDEXING REQUIRED ONLY QUALIFIED DEEM CAN JUDGE INDEXING</td></tr><tr><td>FROM Chief, Western Hemisphere Division</td><td>MICROFILM</td></tr><tr><td>SUBJECT Operational/AMBUD/TYPIC AMBUD Dependency Payments</td><td>ACTION REQUIRED REFERENCES ACTION REQUIRED: Para 2 REFRERENCES: A. UFGW-6351 (19 January 1967) B. UPGA-26078 (31 January 1967)</td></tr></table>
+<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>CLASSIFICATION</td><td>SECRET</td></tr><tr><td>MILEAGE</td><td>X NO. INDEXING REQUIRED ONLY QUALIFIED DEEM CAN JUDGE INDEXING</td></tr><tr><td>FROM Chief, Western Hemisphere Division</td><td>MICROFILM</td></tr><tr><td>SUBJECT Operational/AMBUD/TYPIC AMBUD Dependency Payments</td><td>ACTION REQUIRED REFERENCES ACTION REQUIRED: Para 2 REFRERENCES: A. UFGW-6351 (19 January 1967) B. UPGA-26078 (31 January 1967)</td></tr></table>
 
 1. Headquarters is in general agreement with JENAVE recommendations concerning payments to Subjects of references. However, it is requested that a discreet investigation be conducted to determine the physical condition of the mother of Manuel GUILLOT Castellanos. Possibly the AMOTs could be used for this purpose.
 

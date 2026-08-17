@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17873.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELEYPREVISED
 
 7/25 PM 7:30

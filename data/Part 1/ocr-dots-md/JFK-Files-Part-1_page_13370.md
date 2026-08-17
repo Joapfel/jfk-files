@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13370.png
-
-Convert to MarkdownFID FILES REVIEWED 15 October 1969. Contained following info:
+FID FILES REVIEWED 15 October 1969. Contained following info:
 
 PICO Ramon, Reinaldo name contained in list of cubans traveling
 to Latin America in document dated 12 Sept. 1967. PICO had requested

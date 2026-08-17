@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_318.png
-
-Convert to Markdown# Intelligence Information Cable
+# Intelligence Information Cable
 
 IN-60597
 

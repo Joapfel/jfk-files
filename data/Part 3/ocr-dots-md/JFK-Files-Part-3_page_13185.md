@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13185.png
-
-Convert to MarkdownMM 92-1047
+MM 92-1047
 
 MART stated that during the late evening hours of May 31, 1967, an explosion occurred at the back end of the American Epicure Market which is situated next door to Alfies Sundries. He stated that he was in the area at the time of the explosion and had seen no one in the area whom he considered a suspect. He did receive some information shortly after the explosion that one of the employees of the market considered himself to be an expert in the field of demolition. He was also aware of the fact that ED THAL, had fired on May 29, 1967, a Negro employee who was very irate at THAL for this action.
 

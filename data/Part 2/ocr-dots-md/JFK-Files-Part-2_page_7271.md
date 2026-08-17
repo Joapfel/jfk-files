@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7271.png
-
-Convert to Markdown13-00000
+13-00000
 
 CABLE SEC DISSEM BY Z PER LAB (G'd) TOTAL COPIES 61/ RUN BY 8
 PERSON/UNIT NOTIFIED ________ SECRET

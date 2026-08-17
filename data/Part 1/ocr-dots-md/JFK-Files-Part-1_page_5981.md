@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5981.png
-
-Convert to MarkdownFRANK SUSAN 201-191048 (Vol. 4 of 47)
+FRANK SUSAN 201-191048 (Vol. 4 of 47)
 3rd AGENCY DOCUMENTS:
 
 FBI NY 2/19/75 ne CHANG, Hsi-hsion (No File No.)

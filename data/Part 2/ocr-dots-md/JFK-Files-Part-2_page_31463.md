@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31463.png
-
-Convert to Markdown1.
+1.
 
 CITIZENS COMMITTEE FOR CONSTITUTIONAL
 LIBERTIES (NEW YORK CITY)

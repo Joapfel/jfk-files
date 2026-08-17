@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17457.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 20 JAN 62</td><td><table><tr><th colspan="3">ROUTING</th></tr><tr><td>1</td><td>4</td><td rowspan="3" style="vertical-align: top;"></td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table></td></tr><tr><td colspan="2">TO : DIRECTOR</td></tr><tr><td colspan="2">FROM : MEXICO CITY</td></tr><tr><td>ACTION : C/WH 5</td><td>JAN 20 0834Z 62</td></tr><tr><td>INFO : DCI, D/DCI, DDP, S/C 2*</td><td>PRIORITY</td></tr><tr><td colspan="2">IN 14775</td></tr></table>
 

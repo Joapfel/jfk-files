@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10810.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">
      A. J.

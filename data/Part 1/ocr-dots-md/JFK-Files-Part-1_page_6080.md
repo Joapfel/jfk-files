@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6080.png
-
-Convert to MarkdownOs "Comités" estão organizados por kairros e centros de trabalho e estão integrados pelos piosr elementos populares. Una ilícia disso em-nos cada pelas próprias palavras de Fidel Castro: "... temos o parálogo ele que enquadra intervinhamos nas sociedades da burguesia e havíamos estabelecido nela um Comité de Defesa... Comité de Defesa que tinha esses lugares num abandono espontoso, que mais parecia um "chiquetro" que outra coisa".
+Os "Comités" estão organizados por kairros e centros de trabalho e estão integrados pelos piosr elementos populares. Una ilícia disso em-nos cada pelas próprias palavras de Fidel Castro: "... temos o parálogo ele que enquadra intervinhamos nas sociedades da burguesia e havíamos estabelecido nela um Comité de Defesa... Comité de Defesa que tinha esses lugares num abandono espontoso, que mais parecia um "chiquetro" que outra coisa".
 
 * Sobre os teníveis agentes do Departamento de Segurança do Estado ouçamos de novo a Castro: "Basta que qualquer companheiro uma granja, numa cooperativa, numa usina de açucar, venha a ceder que é membro da Segurança... e que tem polteres comprovados sobre a liberdade das pessoas, qualquer trabalhador, qualquer camponês, qualquer cidade pode se ver preso durante 15 dias ou 20, sem ser a sua mulher, sem os filhos, sem ver ninguém, e isso é realmente uma iniquidade".
 

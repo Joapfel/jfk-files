@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1811.png
-
-Convert to Markdownrecommend that as a matter of priority the USIB have this matter reviewed and insure that any increased flow of raw material does not result in slowing down the prompt and complete processing so urgently required.
+recommend that as a matter of priority the USIB have this matter reviewed and insure that any increased flow of raw material does not result in slowing down the prompt and complete processing so urgently required.
 
 ## Caliber of Personnel
 

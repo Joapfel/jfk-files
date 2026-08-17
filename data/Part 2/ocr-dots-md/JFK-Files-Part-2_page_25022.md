@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25022.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Management Corporation, which was a US corporation. And they had signed a resources development contract in the Congo.
 

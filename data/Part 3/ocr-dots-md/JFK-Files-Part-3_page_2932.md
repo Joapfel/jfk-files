@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2932.png
-
-Convert to Markdown2519
+2519
 
 Putting aside for one moment the counterespionage effort, and looking strictly at what we have been calling the Domestic Intelligence, is it your view that the retention of this function in the Bureau is critical to the Bureau's law enforcement position?
 

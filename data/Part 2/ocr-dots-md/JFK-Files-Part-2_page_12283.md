@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12283.png
-
-Convert to Markdown12. **Bull.** By: *Informant*
+12. **Bull.** By: *Informant*
 
 When a source submits bulky material other than a statement and is certain to a specific investigative matter, bulky material may be filed in the Investigative case file, together with a copy of executed form FD-306 or channelizing memorandum containing all applicable items set forth on form FD-306. In such a case, the original form FD-306 or channelizing memorandum should be filed in the subfile of the informant or source and the file and serial number where the bulky material is located should be noted thereon.
 

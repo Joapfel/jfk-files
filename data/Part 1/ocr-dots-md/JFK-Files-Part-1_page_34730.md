@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34730.png
-
-Convert to MarkdownMarch 20, 1967
+March 20, 1967
 
 SUBJECT: Review of Certain Hero and Martyr Case Files
 

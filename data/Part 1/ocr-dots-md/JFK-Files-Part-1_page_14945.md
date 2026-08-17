@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14945.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFIED</th></tr></thead><tbody><tr><td>EDgar C.B. Pash<br/>SR/DOB<br/>4705<br/>5 Sept. ber 1958<br/>FRANKFURT, PARIS</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFIED</th></tr></thead><tbody><tr><td>EDgar C.B. Pash<br/>SR/DOB<br/>4705<br/>5 Sept. ber 1958<br/>FRANKFURT, PARIS</td></tr></tbody></table>
 
 FROM: DIRECTOR
 

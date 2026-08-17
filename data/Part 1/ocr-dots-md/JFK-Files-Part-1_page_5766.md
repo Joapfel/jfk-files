@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5766.png
-
-Convert to MarkdownSF-68-72
+SF-68-72
 
 ATTN : Director, Domestic Contact Service
 International Division (CC/Durbin)

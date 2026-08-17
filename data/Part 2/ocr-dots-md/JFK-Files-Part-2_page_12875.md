@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12875.png
-
-Convert to MarkdownSAC, NEW YORK (100-111180)
+SAC, NEW YORK (100-111180)
 
 SA FRANCIS T. LEONARD (415)
 

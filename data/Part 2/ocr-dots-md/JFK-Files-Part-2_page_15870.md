@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15870.png
-
-Convert to MarkdownSource stated that representatives of the CP of Illinois contacted BPP Headquarters to advise that they had held a bazaar that date and had a considerable amount of food left and wanted to donate it to the BPP. The food was accepted.
+Source stated that representatives of the CP of Illinois contacted BPP Headquarters to advise that they had held a bazaar that date and had a considerable amount of food left and wanted to donate it to the BPP. The food was accepted.
 
 12/7/69)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25021.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Head of the CIMCO Company that had this huge contract in the Congo, met with people at the State Department to discuss the situation as to whether the contract was going to be performed or not in the Congo.
 

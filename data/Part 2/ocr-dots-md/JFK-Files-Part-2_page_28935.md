@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28935.png
-
-Convert to MarkdownFORM OA-C790 (IDP) 1.62
+FORM OA-C790 (IDP) 1.62
 
 SS-5 REMOVED BY
 

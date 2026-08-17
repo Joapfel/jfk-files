@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22477.png
-
-Convert to Markdown2 August 1978
+2 August 1978
 
 MEMORANDUM FOR : General Counsel
 Director of Security

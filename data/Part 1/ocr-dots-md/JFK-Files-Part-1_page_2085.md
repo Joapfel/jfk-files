@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2085.png
-
-Convert to Markdown# POSITION CONTROL REGISTER
+# POSITION CONTROL REGISTER
 
 Doc1:32396657 Doc1:32399957 Page 28
 Page 1

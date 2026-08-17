@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4488.png
-
-Convert to Markdown2. Review of these files turned up the following documents:
+2. Review of these files turned up the following documents:
 
 TDCSDB-3/654-571, dated 9 May 63: Concerns efforts of Cuban lawyer Paulino A SIERRA of Chicago to unify exiles and an offer by Chicago businessmen to support the overthrow of CASTRO.
 

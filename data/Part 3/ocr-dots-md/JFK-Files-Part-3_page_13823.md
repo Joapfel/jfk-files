@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13823.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **General:** Immediately after Castro siezed Cuba, Latin Americans began to visit Cuba at the invitation of the new Cuban Regime. Shortly thereafter reports of training activities conducted by veterans of the Sierra Maestra for these visitors began to come in. Initially, the training was badly handled, poorly organized, and consisted primarily of indoctrination in the techniques employed by the 26th of July Movement in its struggle against Batista. New graduates of these courses were greatly impressed by what they had been taught. As Soviet advisors arrived and made their influence felt, training improved and training facilities were expanded.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33380.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C/WH/6
 DC/WH/6

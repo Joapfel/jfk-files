@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1317.png
-
-Convert to Markdowninformation), which might tend to identify
+information), which might tend to identify
 a confidential source.
 
 B. Information concerning sensitive investi-

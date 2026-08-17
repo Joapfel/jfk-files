@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15084.png
-
-Convert to Markdown6. **PROFESSION:** Electro-technician, an equivalent of German 'Ingeneur without diploma' (no college graduate)
+6. **PROFESSION:** Electro-technician, an equivalent of German 'Ingeneur without diploma' (no college graduate)
 
 A. LAST OCCUPATION: Chief electrician (starshiy elekto-tekhnik) with MIKHA-TSKHAKAYA RTS.
 

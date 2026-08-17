@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25757.png
-
-Convert to MarkdownRECORD COPY
+RECORD COPY
 
 RECORD COPY
 

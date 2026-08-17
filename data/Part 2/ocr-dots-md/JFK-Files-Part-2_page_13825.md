@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13825.png
-
-Convert to MarkdownDAVID E TODD
+DAVID E TODD
 20 COZZOLINO DR
 MILLBRAE CA 94030
 

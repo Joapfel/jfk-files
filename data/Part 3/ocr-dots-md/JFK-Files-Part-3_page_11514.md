@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11514.png
-
-Convert to MarkdownWilliam H. Lawrence
+William H. Lawrence
 314 Swiss Pine Lake Dr.
 Spruce Pine, N.C 28777
 

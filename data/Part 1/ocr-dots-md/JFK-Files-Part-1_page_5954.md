@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5954.png
-
-Convert to MarkdownRETURN TO A
+RETURN TO A
 Background Use Only
 Do Not Reproduce
 

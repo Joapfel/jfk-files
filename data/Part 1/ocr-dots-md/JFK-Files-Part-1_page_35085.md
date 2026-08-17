@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35085.png
-
-Convert to Markdown# GASTOS RELATIVOS A CHEQUE No. 419
+# GASTOS RELATIVOS A CHEQUE No. 419
 FOR $6,937.52 - PARILLA AND SOSA"
 
 ## Partida No. 15

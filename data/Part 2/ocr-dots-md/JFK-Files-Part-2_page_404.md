@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_404.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MEMORANDUM FOR:</td><td>J. Taufman</td></tr><tr><td colspan="2">T. Polzar would like to talk to you before sending attached. He seems to believe that it's redundant</td></tr><tr><td colspan="2">Also said T.Flores was with him and believes same.</td></tr><tr><td>J Stewart</td><td>(DATE)</td></tr></table>
 

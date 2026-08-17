@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12295.png
-
-Convert to MarkdownPERSONAL INFORMATION IF NEEDED
+PERSONAL INFORMATION IF NEEDED
 
 One of employee in full: Ricardo Chibin NOUFS Harroette
 ___

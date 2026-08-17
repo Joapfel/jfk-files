@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24972.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MY 104-65
 19 February 1966

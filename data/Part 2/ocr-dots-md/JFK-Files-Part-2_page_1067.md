@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1067.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: FE/Personnel
 FROM : Chief, FE/S

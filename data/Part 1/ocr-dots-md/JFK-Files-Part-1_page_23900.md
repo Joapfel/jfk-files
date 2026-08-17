@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23900.png
-
-Convert to Markdown18 Feb 1965 10 to 11:30
+18 Feb 1965 10 to 11:30
 
 the magazine.
 

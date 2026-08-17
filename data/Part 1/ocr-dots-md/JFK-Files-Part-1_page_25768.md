@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25768.png
-
-Convert to Markdown22 July 1959
+22 July 1959
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 SUBJECT: Contract Amendment for Raymond J. GARENO (ps)

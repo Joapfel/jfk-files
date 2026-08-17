@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15100.png
-
-Convert to Markdown14-0000-
+14-0000-
 
 Date: 28 June 62
 

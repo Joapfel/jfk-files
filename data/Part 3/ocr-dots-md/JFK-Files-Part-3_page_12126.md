@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12126.png
-
-Convert to MarkdownRACIAL INFORMANT ACCOMPLISHMENTS
+RACIAL INFORMANT ACCOMPLISHMENTS
 
 (Summarize Informant Accomplishments for Previous Month re Racial Intelligence Information.)
 

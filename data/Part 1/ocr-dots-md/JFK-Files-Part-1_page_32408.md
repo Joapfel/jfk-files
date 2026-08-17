@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32408.png
-
-Convert to Markdown# C-O-N-F-I-D-E-N-T-1-A-L
+# C-O-N-F-I-D-E-N-T-1-A-L
 
 ## TRAINING REPORT
 

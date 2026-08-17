@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34236.png
-
-Convert to Markdown# "HARINA... UNIDAD REVOLUTIONARIA" (W.R.U.L.)
+# "HARINA... UNIDAD REVOLUTIONARIA" (W.R.U.L.)
 
 JANUARY 5, 1966:
 

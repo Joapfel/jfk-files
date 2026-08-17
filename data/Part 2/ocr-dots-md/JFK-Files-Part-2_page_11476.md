@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11476.png
-
-Convert to Markdown"Out of the Country," and "Imprisoned." The unavailable section shall be maintained in accordance with the following instructions:
+"Out of the Country," and "Imprisoned." The unavailable section shall be maintained in accordance with the following instructions:
 
 ### (A) Missing subjects
 

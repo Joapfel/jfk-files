@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21994.png
-
-Convert to MarkdownC-IX-28 Letter, Dearborn to Mann, October 27, 1960
+C-IX-28 Letter, Dearborn to Mann, October 27, 1960
 
 C-IX-29 Memorandum of conversation re assassination, May 3, 1961
 

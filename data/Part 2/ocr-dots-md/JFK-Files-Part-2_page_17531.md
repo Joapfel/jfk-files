@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17531.png
-
-Convert to MarkdownAugust 7, 1969
+August 7, 1969
 
 # Chicago Chapter, Blackstone Rangers (BR)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3026.png
-
-Convert to Markdownindividual. There didn't have to be a conspiracy. This was a problem that the whole country was grappling with--the President of the United States, Attorneys General--we were in a situation where we had rank lawlessness taking place. As you know from the memorandum we sent you that we sent to the Attorney General the accomplishments we were able to obtain in preventing violence and in neutralizing the Klan and that was one of the reasons.
+individual. There didn't have to be a conspiracy. This was a problem that the whole country was grappling with--the President of the United States, Attorneys General--we were in a situation where we had rank lawlessness taking place. As you know from the memorandum we sent you that we sent to the Attorney General the accomplishments we were able to obtain in preventing violence and in neutralizing the Klan and that was one of the reasons.
 
 **QUESTION:** ...A local town meeting on a controversial social issue might result in disruption. It might be by hecklers rather than by those holding the meeting. Does this mean that the Bureau should investigate all groups organizing or participating in such meetings because they may result in violent government disruption?
 

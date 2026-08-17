@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16073.png
-
-Convert to Markdown# Organization and Management (See Figure 2)
+# Organization and Management (See Figure 2)
 
 Because of the importance which SIONICS, Inc. attaches to the proposed program, we will keep close to top management throughout this project. The responsible officer (Mr. Werbell) is a Director and Vice President of SIONICS and will report directly to the President of the Corporation. In this manner, we can assure you that to the extent necessary, the full resources of the Corporation can be made available to guarantee a full, satisfactory program.
 

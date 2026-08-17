@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24711.png
-
-Convert to MarkdownThe NSC meeting of August 18, 1960, was held three weeks before the "quasi-coup" in the Congo -- the dismissal of Lumumba by Kasavubu -- which Johnson remembers as taking place "not long after" he heard the President's statement. The only other meeting at which Johnson could have heard the statement by the President was held on September 7, two days after this event.
+The NSC meeting of August 18, 1960, was held three weeks before the "quasi-coup" in the Congo -- the dismissal of Lumumba by Kasavubu -- which Johnson remembers as taking place "not long after" he heard the President's statement. The only other meeting at which Johnson could have heard the statement by the President was held on September 7, two days after this event.
 
 Robert Johnson's memorandum of the meeting of August 18, 1960, indicates that Acting Secretary of State C. Douglas Dillon* introduced
 

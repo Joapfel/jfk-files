@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13549.png
-
-Convert to MarkdownHonorable Frank Church, Chairman
+Honorable Frank Church, Chairman
 United States Senate Select Committee
 on Intelligence Activities
 

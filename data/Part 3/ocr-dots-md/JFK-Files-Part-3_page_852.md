@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_852.png
-
-Convert to Markdownaffecting national security, and stated that Title III or Section
+affecting national security, and stated that Title III or Section
 605 of the Federal Communications Act did not affect any such
 powers he might have.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34681.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>S-E-C-R-E-T</td><td><table border="1"><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>/</td><td></td></tr><tr><td>2</td><td>5</td><td>-</td></tr><tr><td>3</td><td>6</td><td></td></tr></tbody></table></td></tr></table>
 

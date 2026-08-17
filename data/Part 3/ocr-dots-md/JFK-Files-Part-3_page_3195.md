@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3195.png
-
-Convert to Markdown1807
+1807
 
 local papers in Memphis.
 

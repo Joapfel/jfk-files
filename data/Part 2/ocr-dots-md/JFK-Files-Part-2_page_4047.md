@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4047.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 STANGA stated that since his arrest and incarceration at the El Paso County Jail for bad checks, he has become quite friendly with RICHARD CASE NAGELL. He stated that NAGELL was a very mixed-up individual, but that he enjoyed the company of STANGA and confided in him. He went on to say that NAGELL had recently confided in him to the extent that he had told him why he attempted to hold up the State National Bank of El Paso, Texas. NAGELL told STANGA that after his release from the United States Army, he drifted from job to job and became more and more mentally confused as to his political, religious, and economic allegiances. During this confused period, NAGELL apparently became a member of the Communist Party of the United States and told STANGA that he did some minor work for this organization prior to his trip to El Paso. NAGELL also explained to STANGA that he divorced his wife during this period, and after making several scenes with his wife, was barred by court order from seeing his children. During this period of his life, NAGELL told STANGA that he lived in the Los Angeles, California, area.
 

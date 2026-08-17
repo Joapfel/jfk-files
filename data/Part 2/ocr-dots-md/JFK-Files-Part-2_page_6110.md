@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6110.png
-
-Convert to Markdownthe kinds of records sought, but that these should be as broad as possible.
+the kinds of records sought, but that these should be as broad as possible.
 
 IV. Relations With Congress
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10667.png
-
-Convert to MarkdownSECRET
+SECRET
 
 theory, O'Brien said absolutely not, it was pure speculation.)
 

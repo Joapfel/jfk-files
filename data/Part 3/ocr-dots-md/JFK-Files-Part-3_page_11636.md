@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11636.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 # Survey Regarding Potential for Racial Violence
 

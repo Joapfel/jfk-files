@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21860.png
-
-Convert to Markdownrestricted to the PROP channel and that the assassination mission was to move forward. He went on to request Hedgman's reaction to the prospect of sending a senior CIA case officer to the Congo on a "DIRECTED ASSIGNMENT ... TO CONCENTRATE ENTIRELY THIS ASPECT" (CIA Cable OUT 81396), Tweedy to Chief of Station, 10/15/60). This referred to CIA officer Justin O'Donnell who testified that in late October he was asked by Richard Bissell to undertake the mission of assassinating Lumumba.*
+restricted to the PROP channel and that the assassination mission was to move forward. He went on to request Hedgman's reaction to the prospect of sending a senior CIA case officer to the Congo on a "DIRECTED ASSIGNMENT ... TO CONCENTRATE ENTIRELY THIS ASPECT" (CIA Cable OUT 81396), Tweedy to Chief of Station, 10/15/60). This referred to CIA officer Justin O'Donnell who testified that in late October he was asked by Richard Bissell to undertake the mission of assassinating Lumumba.*
 
 In the course of suggesting the assignment of an additional officer to the Congo, the cable provided insight into the reason that the assassination mission had not progressed more rapidly under the Chief of Station:
 

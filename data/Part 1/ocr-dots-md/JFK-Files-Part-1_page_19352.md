@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19352.png
-
-Convert to MarkdownForm No. 83-6
+Form No. 83-6
 April 1947
 
 INCOMING CLASSIFIED MESSAGE

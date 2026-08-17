@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23741.png
-
-Convert to MarkdownI think that the end product has to be looked at in the recruitment of spies, and secondly you have to look at what kinds of assurances could be made in any branch of the government if overt collection is being done as to whether that information would be used by another branch of the government.
+I think that the end product has to be looked at in the recruitment of spies, and secondly you have to look at what kinds of assurances could be made in any branch of the government if overt collection is being done as to whether that information would be used by another branch of the government.
 
 IF DCD were entirely overt, and a promise were made to Mr. Bader that this would never be used for an operational purpose or you would never be asked as a consenting adult to aid in an operational purpose, then the end production might well be that the FRD is going to be sending people out covertly within the United States to covertly obtain information to determine if they are going to make a covert approach to an foreign spy, and I think that I have real hesitation about rather than the information being available from consenting individuals on an open basis.
 

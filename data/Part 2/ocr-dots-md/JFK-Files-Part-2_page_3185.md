@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3185.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In one of the longer and more detailed papers
 being prepared toward the close of the Eisenhower

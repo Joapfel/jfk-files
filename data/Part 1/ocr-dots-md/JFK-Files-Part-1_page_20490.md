@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20490.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AES:25 NOV 1960
 

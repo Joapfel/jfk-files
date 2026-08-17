@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25336.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **NAME:** ANUREY, Georgiy Izarovich
 **NATIONALITY:** Russian

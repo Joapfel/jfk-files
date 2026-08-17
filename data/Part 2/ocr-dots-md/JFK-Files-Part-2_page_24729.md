@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24729.png
-
-Convert to MarkdownOther Eisenhower Administration officials who were active in the Special Group in late 1960--Assistant Secretary of Defense John N. Irwin II, Undersecretary of State for Political Affairs Livingston Merchant, and Deputy Secretary of Defense James Douglas--stated that they did not recall any discussion about assassinating Lumumba (Irwin affidavit, 9/22/75, pp. 1-2; Merchant affidavit, 9/8/75, p. 1; Douglas affidavit, 9/5/75).
+Other Eisenhower Administration officials who were active in the Special Group in late 1960--Assistant Secretary of Defense John N. Irwin II, Undersecretary of State for Political Affairs Livingston Merchant, and Deputy Secretary of Defense James Douglas--stated that they did not recall any discussion about assassinating Lumumba (Irwin affidavit, 9/22/75, pp. 1-2; Merchant affidavit, 9/8/75, p. 1; Douglas affidavit, 9/5/75).
 
 (c) Richard Bissell Testified That, Despite His Lack of a Specific Recollection, He "Strongly Inferred" That the Assassination Effort Against Lumumba Was Authorized by President Eisenhower and Allen Dulles
 

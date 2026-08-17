@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25211.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>CONEIN</td><td rowspan="5">12 October 1963</td><td rowspan="5">DIEM ✓</td></tr><tr><td>MC NAMARA</td></tr><tr><td>NGU YEN QUANG</td></tr><tr><td>PHAM NGOC THAO</td></tr><tr><td>OCCURRENCE: When CONEIN was asked to explain the reference to Secretary MC NAMARA at p. 5, Exhibit 1, he stated that there were different elements contacting the same group, i.e., NGU YEN and THAO. But did not explain the reference to MC NAMARA. p. 29</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>CONEIN</td><td rowspan="5">12 October 1963</td><td rowspan="5">DIEM ✓</td></tr><tr><td>MC NAMARA</td></tr><tr><td>NGU YEN QUANG</td></tr><tr><td>PHAM NGOC THAO</td></tr><tr><td>OCCURRENCE: When CONEIN was asked to explain the reference to Secretary MC NAMARA at p. 5, Exhibit 1, he stated that there were different elements contacting the same group, i.e., NGU YEN and THAO. But did not explain the reference to MC NAMARA. p. 29</td></tr></table>
 
 TOP SECRET
 

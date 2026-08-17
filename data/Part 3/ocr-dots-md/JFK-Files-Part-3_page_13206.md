@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13206.png
-
-Convert to MarkdownChesapeake and Potomac Telephone Co.; that the CIA might have travel voucher records showing his travel during that year and that CIA should also have records on the dates on which he took sick leave or annual leave.
+Chesapeake and Potomac Telephone Co.; that the CIA might have travel voucher records showing his travel during that year and that CIA should also have records on the dates on which he took sick leave or annual leave.
 
 Mr. Hunt categorically denies that he has been involved in any way whatsoever with the assassination of President Kennedy, Senator Robert Kennedy, Martin Luther King, or any other person either within or without the United States. He similarly denies any participation or involvement whatever in the attempted assassination of Governor Wallace, the disappearance of Congressman Hale Boggs or the shooting of Senator Stennis.
 

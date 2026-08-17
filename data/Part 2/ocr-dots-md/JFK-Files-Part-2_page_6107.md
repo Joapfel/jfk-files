@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6107.png
-
-Convert to MarkdownPRE-HEARING QUESTIONS
+PRE-HEARING QUESTIONS
 ASSASSINATION RECORDS REVIEW BOARD
 
 I. Nomination Process and Potential Conflicts

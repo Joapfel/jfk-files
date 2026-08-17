@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12182.png
-
-Convert to MarkdownFORM 80208
+FORM 80208
 
 271 MPS 7-76
 

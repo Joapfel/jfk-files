@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9603.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 begin work on a new special bulletin such as the one done by the SAO on PETER GEORGE BOHMER. However, this time the target of the bulletin would be a nationally-known figure of the New Left Movement.
 

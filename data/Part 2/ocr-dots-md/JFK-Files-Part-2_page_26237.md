@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26237.png
-
-Convert to MarkdownJune 30, 1961
+June 30, 1961
 
 MEMORANDUM FOR THE PRESIDENT
 

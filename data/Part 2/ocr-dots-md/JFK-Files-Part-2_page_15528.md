@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15528.png
-
-Convert to MarkdownCharacterizations of the Black Panther Party (BPP), The Students For A Democratic Society (SDS), and the African - American Heritage Association (AAHA) are set forth in the appendix section of this report.
+Characterizations of the Black Panther Party (BPP), The Students For A Democratic Society (SDS), and the African - American Heritage Association (AAHA) are set forth in the appendix section of this report.
 
 I. REVOLUTIONARY PROGRAM AND POLICIES AS EXPRESSED BY BPP LEADERS
 

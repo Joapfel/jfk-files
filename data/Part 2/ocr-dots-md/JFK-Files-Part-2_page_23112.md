@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23112.png
-
-Convert to MarkdownConsideramos que el análisis de las informaciones que aportamos, las públicamente conocidas y las que las autoridades norteamericanas poseen y no han sido publicadas, permiten afirmar que la eliminación física de dirigentes de la Revolución Cubana, principalmente del Primer Ministro Fidel Castro Ruz, ha constituído una política reiterada de los Estados Unidos a través de sus agencias subversivas, utilizando para ello a contrarrevolucionarios-cubanos, ciudadanos norteamericanos y todo tipo de elemento corrompido, tanto interna como externamente, sin tomar en consideración las víctimas que ocasionarían estas acciones.
+Consideramos que el análisis de las informaciones que aportamos, las públicamente conocidas y las que las autoridades norteamericanas poseen y no han sido publicadas, permiten afirmar que la eliminación física de dirigentes de la Revolución Cubana, principalmente del Primer Ministro Fidel Castro Ruz, ha constituído una política reiterada de los Estados Unidos a través de sus agencias subversivas, utilizando para ello a contrarrevolucionarios-cubanos, ciudadanos norteamericanos y todo tipo de elemento corrompido, tanto interna como externamente, sin tomar en consideración las víctimas que ocasionarían estas acciones.
 
 Con este objetivo han sido facilitadas en grandes cantidades, armas, explosivos, mediciones técnicos, de transporte y comunicación a los participantes, para la realización de sus planes.
 

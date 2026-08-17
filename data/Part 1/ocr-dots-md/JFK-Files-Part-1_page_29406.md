@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29406.png
-
-Convert to Markdown<html><body><table><tr><td>14-00000</td></tr></table></body></html>
+<html><body><table><tr><td>14-00000</td></tr></table></body></html>
 
 Subject
 Gravitated on

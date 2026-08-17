@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4654.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MongOOSE and its antecedent follow-on. He's got so
 many mistakes in there it's not even funny. On the

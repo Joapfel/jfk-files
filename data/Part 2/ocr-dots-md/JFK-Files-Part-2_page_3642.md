@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3642.png
-
-Convert to MarkdownNOTES
+NOTES
 
 A. Ethiopia-Congo Haile Selassie has acceded to our ambassador's request and is rescinding his earlier decision to withdraw the 1,743-man Ethiopian contingent from the UN force in the Congo.
 

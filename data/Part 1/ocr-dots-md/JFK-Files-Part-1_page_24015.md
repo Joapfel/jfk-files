@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24015.png
-
-Convert to Markdown(a) denouncing, in 1958, an unidentified negro, possibly a Communist, who was expelled from France;
+(a) denouncing, in 1958, an unidentified negro, possibly a Communist, who was expelled from France;
 
 (b) informing the publication's contacts in China that "Revolution" was disintegrating;
 

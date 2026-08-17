@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7284.png
-
-Convert to Markdownhis designees or upon my separation from the Select Committee,
+his designees or upon my separation from the Select Committee,
 any classified material which has come into my possession as a
 result of my employment or assignment with the Select Committee.
 

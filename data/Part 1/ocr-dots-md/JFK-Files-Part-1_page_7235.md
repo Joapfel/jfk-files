@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7235.png
-
-Convert to Markdown5.
+5.
 
 The C/O reminded Subj of what he basically was in Soviet eyes - an Eastern European refugee said a Jew. And more, he had never professed to them any ideological sympathy to the Communist cause. The most he had done was to declare that the Soviets represented the wave of the future, and he wanted to be on the winning side. But he must recognize that such sentiment coming from a Jew could hardly have convinced the Soviets.
 

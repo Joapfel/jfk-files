@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23301.png
-
-Convert to Markdown12. **Secrecy.** You will be required to keep forever secret this contract and all information which you may obtain by reason hereof (unless released in writing by the Government from such obligation), with full knowledge that violation of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1943, as amended, and other applicable laws and regulations.
+12. **Secrecy.** You will be required to keep forever secret this contract and all information which you may obtain by reason hereof (unless released in writing by the Government from such obligation), with full knowledge that violation of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1943, as amended, and other applicable laws and regulations.
 
 13. **Instructions.** Instructions received by you from the Government in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms thereof.
 

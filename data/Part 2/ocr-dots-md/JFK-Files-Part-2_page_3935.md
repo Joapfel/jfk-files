@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3935.png
-
-Convert to Markdown13-00000
+13-00000
 
 ... in the OVERSEAS FAMILY article. I have not sought to refute or confirm each and every assertion made by its author, Thomas C. Lucey. Mr. Lucey, despite his citing a substantial number of inaccuracies, has nonetheless depicted a vast area of what may be termed the fundamental truth. With this in mind, I have tried to set the record straight only insofar as it pertains to those inaccuracies - and omissions - which in my opinion reflect adversely on the whole.
 

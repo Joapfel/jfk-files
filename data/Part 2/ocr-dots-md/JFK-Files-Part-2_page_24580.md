@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24580.png
-
-Convert to Markdown(4) Testimony of McNamara
+(4) Testimony of McNamara
 
 McNamara testified that, although he had no recollection of the question
 of a Castro assassination being raised at the August 10 meeting, he did

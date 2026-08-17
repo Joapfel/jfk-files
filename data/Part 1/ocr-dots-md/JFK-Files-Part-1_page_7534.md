@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7534.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Subject: Lee Figueroe
 

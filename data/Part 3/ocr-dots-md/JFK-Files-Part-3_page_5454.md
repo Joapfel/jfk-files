@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5454.png
-
-Convert to MarkdownSECRET
+SECRET
 
 VI. Outstanding previously requested materials; access to screen for delivery requested by Friday, August 8, 1975:
 

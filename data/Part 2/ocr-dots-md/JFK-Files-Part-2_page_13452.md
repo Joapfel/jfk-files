@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13452.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 OFFICE OF THE
 ATTORNEY GENERAL
 

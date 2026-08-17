@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33522.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CABLE REC DIDSEM BY</td>
     <td></td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14556.png
-
-Convert to MarkdownOffice Memo. andum • UNITED STATES GOVERNMENT
+Office Memo. andum • UNITED STATES GOVERNMENT
 
 TO : Mr. Belmont
 

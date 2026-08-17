@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_433.png
-
-Convert to Markdown14-00000
+14-00000
 
 Re 2 Mar 78 segment OLC-78-04/431
 

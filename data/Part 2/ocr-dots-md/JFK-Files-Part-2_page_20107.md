@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20107.png
-
-Convert to MarkdownRe: NWPC Policy Council Meeting
+Re: NWPC Policy Council Meeting
 
 As the youth organization of the SWP, the YSA serves as the main source of recruitment into that organization. The YSA is described in the masthead of its official publication, "The Young Socialist Organizer," as "a multinational revolutionary socialist youth organization."
 

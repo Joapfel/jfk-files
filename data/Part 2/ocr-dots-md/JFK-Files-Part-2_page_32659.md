@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32659.png
-
-Convert to MarkdownOctober 14th. The evidence before the Subcommittee leads to the conclusion that such charges are unfounded.
+October 14th. The evidence before the Subcommittee leads to the conclusion that such charges are unfounded.
 
 6. The news reports of an alleged conflict between the Central Intelligence Agency and Strategic Air Command with reference to the operation of U-2 high-altitude reconnaissance flights prior to October 14th were also closely inquired into and found to be without merit. No evidence was presented to support the charge that the operation of the U-2 flights were transferred from the Central Intelligence Agency to Strategic Air Command because of a deadlock or friction between the agencies.
 

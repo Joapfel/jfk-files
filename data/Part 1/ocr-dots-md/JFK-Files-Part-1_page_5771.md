@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5771.png
-
-Convert to MarkdownI. 3 Jan 72
+I. 3 Jan 72
 
 A 21
 

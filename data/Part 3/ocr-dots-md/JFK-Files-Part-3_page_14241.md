@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14241.png
-
-Convert to Markdown(Chairman Clifford thought it remarkable that such precautions would have
+(Chairman Clifford thought it remarkable that such precautions would have
 been consistently maintained over such a long period of 11 years.)
 
 In answer to Mr. Coyne's inquiry, Mr. Bannerman said that the Security Committee's preliminary assessment had been "noted" by the USIB and USIB had approved the recommendations, with the request that the Security Committee complete a final assessment.

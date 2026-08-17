@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23313.png
-
-Convert to Markdown1 the way to really disassociate it is to say stop, and that is
+1 the way to really disassociate it is to say stop, and that is
 2 really what I don't understand.
 
 3 MR. Goodwin. Well, let me say, Senator, first of all,

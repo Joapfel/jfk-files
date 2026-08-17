@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_6116.png
-
 attorneys general in U.S.)
 
 National Association of Attorneys General, President's Distinguished Service Award (1988)

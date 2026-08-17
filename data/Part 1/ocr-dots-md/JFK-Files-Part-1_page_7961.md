@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7961.png
-
-Convert to Markdown# Carri armati a Jackson
+# Carri armati a Jackson
 
 di Martin Luther King
 

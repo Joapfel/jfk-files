@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19137.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: [REDACTED], Request for Early Home Leave
 

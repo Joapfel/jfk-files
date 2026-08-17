@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9053.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CENTRAL INTELLIGENCE AGENCY
 WASHINGTON, D.C. 20505

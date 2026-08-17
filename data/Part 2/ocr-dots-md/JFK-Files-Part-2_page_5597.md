@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5597.png
-
-Convert to MarkdownChicago Tribune, October 3, 1993
+Chicago Tribune, October 3, 1993
 
 Three weeks after its release, it is eighth on The New York Times national best-seller list and seventh on the Tribune's list of Chicago's best sellers.
 

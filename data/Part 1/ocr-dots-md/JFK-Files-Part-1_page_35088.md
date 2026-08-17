@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35088.png
-
-Convert to MarkdownCASTOS RELATIVOS AL CHEQUE No. 240
+CASTOS RELATIVOS AL CHEQUE No. 240
 POR $479.10 - "PAULA AND SOSA"
 
 Manutención y Albergue:

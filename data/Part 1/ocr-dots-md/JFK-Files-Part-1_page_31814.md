@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31814.png
-
-Convert to MarkdownOFFICE OF THE DIRECTOR
+OFFICE OF THE DIRECTOR
 
 WASHINGTON, D.C. 20226
 

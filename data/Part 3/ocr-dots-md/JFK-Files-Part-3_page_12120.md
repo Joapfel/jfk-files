@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12120.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 SECTION CHIEF GEORGE C. MOORE
 

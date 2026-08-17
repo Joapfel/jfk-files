@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29243.png
-
-Convert to MarkdownHEADQUARTERS
+HEADQUARTERS
 UNITED STATES ARMY SECURITY AGENCY TRAINING CENTER & SCHOOL
 
 Fort Devens, Massachusetts

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_655.png
-
-Convert to Markdown8 June 1966
+8 June 1966
 
 EXCEPT FROM HMM 29157
 

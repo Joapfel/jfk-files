@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5234.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CL BY: [0693020]
 CL REASON: Section 1.5 C

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4795.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>SECRET</td>
     <td>002618 APR 76 STAFF</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4065.png
-
-Convert to Markdown7. ADMINISTRACIÓN SOCIAL - ECONÓMICA
+7. ADMINISTRACIÓN SOCIAL - ECONÓMICA
 
 Reglas. En el primer asunto de producción, el personal de los máquinas es de día yMedia mañana, distribuidor en la fábrica aluminio;
 

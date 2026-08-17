@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19101.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 Informant also furnished his observations with respect to efforts being made to change the image of the KGB in the Soviet Union in a manner which might compare it with the image of the FBI and law enforcement agencies in the US.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11290.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 10 CO 01'Z
 

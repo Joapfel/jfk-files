@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9327.png
-
-Convert to Markdown(22) Hitler's Chemotherapy in Ruins.
+(22) Hitler's Chemotherapy in Ruins.
 
 (23) Nuremberg War Criminals lying in a room after being hanged.
 

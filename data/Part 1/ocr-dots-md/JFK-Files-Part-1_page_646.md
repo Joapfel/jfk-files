@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_646.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td>SECRET</td><td>UFGA-4703</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td>SECRET</td><td>UFGA-4703</td></tr></tbody></table>
 
 prosecution for acts against it, is a matter for wonder. It has been rumored that (the old politician) has a blackmail hold over Fidel CASTRO by virtue of his possession of very damaging information about CASTRO. There may be some substance to this rumor. As a young student, CASTRO is believed to have committed criminal acts, and the (old politician) would have been in the best possible position at the time to obtain proof of them. This might well explain why the family enjoys immunity today.
 

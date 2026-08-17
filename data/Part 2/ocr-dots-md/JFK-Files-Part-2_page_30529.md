@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30529.png
-
-Convert to MarkdownGREY
+GREY
 
 GREY
 

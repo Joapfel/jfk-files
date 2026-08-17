@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4142.png
-
-Convert to Markdown6 July 1964
+6 July 1964
 
 MEMORANDUM FOR: Chief, Western Hemisphere Division
 

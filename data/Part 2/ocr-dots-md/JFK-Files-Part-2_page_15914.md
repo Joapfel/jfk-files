@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15914.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 BLACK PANTHER PARTY
 

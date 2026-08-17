@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11559.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 SECTION CHIEF W. R. WANNALL:
 (WRW:ams 9/7/71)

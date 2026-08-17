@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27089.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="4">INSTRUCTION SHEET</td>

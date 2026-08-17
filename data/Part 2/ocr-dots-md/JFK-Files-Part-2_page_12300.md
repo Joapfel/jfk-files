@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12300.png
-
-Convert to Markdown... dis-
+... dis-
 
 tion of the information to follow the instructions set forth
 

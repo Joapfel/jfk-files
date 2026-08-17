@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25797.png
-
-Convert to MarkdownSECRET
+SECRET
 
 worked with James O. AYCALL (LIMESTONE) during WW-II; however, he claims that the only members of AYCALL's family that he ever met was AYCALL's "belong wife," Since she saw him only one time many years ago, LIPSTICK-14 does not believe that she would recognize him now.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13593.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 and if the information can be provided at whatever level, it
 is not a question of the individual director being present.

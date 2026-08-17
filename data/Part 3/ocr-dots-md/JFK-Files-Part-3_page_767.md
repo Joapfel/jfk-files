@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_767.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 TO: The Deputy Attorney General
 Attn: K. William O'Connor

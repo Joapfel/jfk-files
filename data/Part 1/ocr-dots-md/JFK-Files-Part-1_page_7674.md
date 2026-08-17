@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7674.png
-
-Convert to Markdown(wife, cont.)
+(wife, cont.)
 
 **Miscellaneous:** LOGINOVA has said that she has known her husband since age six as neighbors in Moscow (6). She claims to be a chemical engineer (6). During Subject's tour in Havana, 1960-63, LOGINOVA worked in the Soviet Consulate (28). She arrived in Mexico on 10 Oct 1965, two months after her husband (4). Since Feb 1966 she had been reported as chairman of the zhenkom (Soviet women's organization), and as such has had to persuade the Soviet women to do various administrative chores, as well as being involved with running the dacha that the Soviets have had in Cuernavaca in the summers of 1966 and 1967 (1).
 

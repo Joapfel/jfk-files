@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21056.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 EBC: 17 AUG '70

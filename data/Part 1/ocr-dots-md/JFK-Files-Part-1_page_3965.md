@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3965.png
-
-Convert to Markdownof April. The security force will be returned during April and will be paid a mustering out payment on 1 May. This will terminate the project.
+of April. The security force will be returned during April and will be paid a mustering out payment on 1 May. This will terminate the project.
 
 The cover story which ARTIME intends to use for demobilization is to inform his men that their mothership is out of commission and will require about six weeks for repairs. This is true enough so that it will be believed. He will then grant leave to all men with dependents to get their personal affairs in order before operations commence again. He will publicize the fact that it is less expensive and better for morale to send them on leave than to have men sitting around the camps with no operations to run. When all the first contingent are back home, individual notice will be given each to start looking for other work as operations have been postponed. They will be told that the salary payment of 1 April will be the last one and should be considered as a mustering out bonus. ARTIME feels this method will soften the impact and lower the noise level as the men will be home with their families and scattered throughout the community instead of being in an organized group in Central America when they realize they are being demobilized.
 

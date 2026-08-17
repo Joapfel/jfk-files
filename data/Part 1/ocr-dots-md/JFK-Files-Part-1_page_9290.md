@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9290.png
-
-Convert to Markdown8 Sept. 1950
+8 Sept. 1950
 
 ROBERT M. HEADLEY
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9595.png
-
-Convert to Markdown7) To lend assistance and support wherever possible to other resistance organizations, domestic or foreign, opposing communist expansion or subversion.
+7) To lend assistance and support wherever possible to other resistance organizations, domestic or foreign, opposing communist expansion or subversion.
 
 8) To pursue these programs as private citizens motivated only by patriotism and to remain entirely free of government subsidies or control."
 

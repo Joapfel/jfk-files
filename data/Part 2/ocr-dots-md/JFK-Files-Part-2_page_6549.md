@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6549.png
-
-Convert to Markdownof Castro to the regimes of the Western Hemisphere and the objectives
+of Castro to the regimes of the Western Hemisphere and the objectives
 of Alliance for Progress. Remind the Cuban people that Castro came to
 power on a pledge to provide political freedom. Remind them of the social
 goals he held up while he destroyed that freedom. Contrast their present

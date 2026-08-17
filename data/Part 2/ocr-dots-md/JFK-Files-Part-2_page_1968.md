@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1968.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 This Notice Expires 1 July 1958
 

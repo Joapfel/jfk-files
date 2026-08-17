@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2575.png
-
-Convert to MarkdownREPORT OF INTERVIEW
+REPORT OF INTERVIEW
 
 TO: CPD
 

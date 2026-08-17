@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17883.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE: 020</td><td>SECRET</td></tr><tr><td>TO:</td><td rowspan="4"></td><td rowspan="4"></td></tr><tr><td>FROM:</td></tr><tr><td>ACTION:</td></tr><tr><td>INFO:</td></tr><tr><td></td><td colspan="2" style="text-align:right;">CIF<br/>IN 31890 MEXI 0159</td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE: 020</td><td>SECRET</td></tr><tr><td>TO:</td><td rowspan="4"></td><td rowspan="4"></td></tr><tr><td>FROM:</td></tr><tr><td>ACTION:</td></tr><tr><td>INFO:</td></tr><tr><td></td><td colspan="2" style="text-align:right;">CIF<br/>IN 31890 MEXI 0159</td></tr></table>
 
 DRABAND WOULD CONTINUE AS ASSISTANT OUTSIDE LIFEAT CO BUT BELIEVE HE CAN NOT HANDLE MORE TECHNICAL AREAS ESPECIALLY VIEW HIS RECENT INTRODUCTION TO OP. LIEMBRACE-8 PROVEN COMPETENCE ELECTRIC AND ELECTRONIC FIELDS.
 

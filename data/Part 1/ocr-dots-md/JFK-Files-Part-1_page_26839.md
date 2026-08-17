@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26839.png
-
-Convert to Markdown# MEMORANDUM FOR RECORD
+# MEMORANDUM FOR RECORD
 
 SUBJECT - Antonio SOTO Y VASQUES
 

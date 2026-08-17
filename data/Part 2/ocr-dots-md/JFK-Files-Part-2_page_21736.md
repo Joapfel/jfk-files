@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_21736.png
-
 , and he would give an indication
 5 of what he thought the marketability was. And at that point --
 6 well, in this instance, we got the funds from the Near East

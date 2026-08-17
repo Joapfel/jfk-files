@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32059.png
-
-Convert to MarkdownNEW 88613 DocId:34530590 Page 4
+NEW 88613 DocId:34530590 Page 4
 
 <table>
    <tr>

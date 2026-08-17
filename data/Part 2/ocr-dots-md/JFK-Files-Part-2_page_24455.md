@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24455.png
-
-Convert to MarkdownHelms testified that he did not recall ever having dis-
+Helms testified that he did not recall ever having dis-
 cussed the assassination plots with McCone while the plots
 were continuing.* When asked whether McCone was aware of the
 assassination plots against Castro, Helms testified:

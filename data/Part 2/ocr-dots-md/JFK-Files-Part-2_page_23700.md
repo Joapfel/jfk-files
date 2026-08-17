@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23700.png
-
-Convert to MarkdownThen the question arose about the deadline on the 15th and the Chairman is going to ask that this deadline be set aside because of the problems of not being able to finish security and those other matters.
+Then the question arose about the deadline on the 15th and the Chairman is going to ask that this deadline be set aside because of the problems of not being able to finish security and those other matters.
 
 So he is taking steps to do that now.
 

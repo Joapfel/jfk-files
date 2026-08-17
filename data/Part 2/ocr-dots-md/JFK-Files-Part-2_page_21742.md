@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21742.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1 target, or an audience, I should say.
 

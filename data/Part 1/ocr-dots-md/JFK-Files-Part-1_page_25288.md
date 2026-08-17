@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25288.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RCM-2038
 Page 15

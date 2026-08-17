@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19708.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 SECRET
 
 4. Mr. O'Connell is poised and expresses himself very well, both in oral and written form. I evaluate Mr. O'Connell's performance over the past year as STRONG with several outstanding features. I have confidence in his judgment and ability and consider him a valuable career asset of this Office. His has been a difficult task in that as well as assuming new and additional functions, he has been burdened with the supervision of one Division Chief who has proven to be extremely difficult to handle over the years. In fairness to Mr. O'Connell, I should add that no one in this Office has been particularly effective in supervising this individual who is now slated for early retirement. I believe that with this individual's departure Mr. O'Connell should be able to achieve a more coherent integration of his Directorate's functions in the interest of further efficiency and effectiveness.

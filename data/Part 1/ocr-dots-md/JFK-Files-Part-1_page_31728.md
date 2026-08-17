@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31728.png
-
-Convert to Markdownbetween the various refugee elements but would also have
+between the various refugee elements but would also have
 the full support of all Germans, Booker added."
 
 Incidentally, I think you are doing an awfully good job on this

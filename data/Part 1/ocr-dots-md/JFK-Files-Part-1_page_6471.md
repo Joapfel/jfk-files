@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6471.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10. <u>Question</u>. Have any steps been taken to get the C. c. oncy Board of HICO? to pardon Soviet countries sentenced for minor offenses committed in an attempt to survive, thus clearing their records? Do you want us to make any pitch on this?
 

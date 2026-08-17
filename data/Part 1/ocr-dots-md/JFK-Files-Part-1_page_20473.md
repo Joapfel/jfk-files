@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20473.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filed In)
 
 <table><tr><td>NAME OF EMPLOYEE (LAST-FIRST-MIDDLE)</td><td>DATE OF BIRTH</td><td>CASE ON CLAIM NUMBER</td></tr><tr><td>HUNT, Howard</td><td></td><td>CHD 57-726-D</td></tr></table>

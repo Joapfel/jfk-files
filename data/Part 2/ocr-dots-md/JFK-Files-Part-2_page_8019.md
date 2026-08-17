@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_8019.png
-
 professor
 of music, working with a computer given to the De-
 partment of Humanities’ music section by Digital

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21656.png
-
-Convert to MarkdownNOSENKO was only in the First Section as a Senior Case Officer in 1960 - 1961, this would have been a demotion in position with resultant loss of both money and prestige. For this reason alone, his failure to have held the position of Deputy Chief in 1960 - 1961 would raise considerable doubt as to whether he held his claimed position prior to 1960, as well as whether he held his claimed positions in 1962 - 1963.
+NOSENKO was only in the First Section as a Senior Case Officer in 1960 - 1961, this would have been a demotion in position with resultant loss of both money and prestige. For this reason alone, his failure to have held the position of Deputy Chief in 1960 - 1961 would raise considerable doubt as to whether he held his claimed position prior to 1960, as well as whether he held his claimed positions in 1962 - 1963.
 
 It is apparent that the knowledge of NOSENKO concerning all aspects of activity in the First Section, First Department, during 1960 - 1961 is incomplete when judged by what are considered the normal responsibilities of a Deputy Chief in CIA. During current interviews, an effort was made to determine what the responsibilities of NOSENKO actually were in 1960 - 1961 and whether his statements in this area were impossible or could be accepted as not negating his claim to have been Deputy Chief, First Section.
 

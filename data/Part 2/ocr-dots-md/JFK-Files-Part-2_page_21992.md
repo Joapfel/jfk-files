@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21992.png
-
-Convert to MarkdownC-VI-4 Phone interview with Richard Goodwin, May 23, 1975
+C-VI-4 Phone interview with Richard Goodwin, May 23, 1975
 
 Goodwin stated Kennedy had not been aware of
 the passage of guns.

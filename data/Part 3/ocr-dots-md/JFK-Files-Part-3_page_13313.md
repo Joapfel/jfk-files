@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13313.png
-
-Convert to MarkdownSECRET / SENSITIVE
+SECRET / SENSITIVE
 
 various foreign embassies in Havana. His wife had been
 helping him in that activity. Prior to his arrest Amador Odio

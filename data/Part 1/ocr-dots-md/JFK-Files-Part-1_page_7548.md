@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7548.png
-
-Convert to Markdown27 March 1945
+27 March 1945
 
 To: Lieutenant Colonel ROGER A. PFAFF
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23374.png
-
-Convert to MarkdownSIGNAL CENTER USE C
+SIGNAL CENTER USE C
 CO: SCP: TOG: TP: BRI: DCI:
 
 <table><tr><td></td><td>1/6</td><td>.</td><td>.</td></tr><tr><td></td><td>S/B</td><td>.</td><td>.</td></tr></table>

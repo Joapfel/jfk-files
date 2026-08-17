@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23314.png
-
-Convert to Markdown2
+2
 
 (8) Proposed Date of Departure for Overseas Post
 

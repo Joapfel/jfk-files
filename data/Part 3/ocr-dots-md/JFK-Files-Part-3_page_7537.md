@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7537.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 22 September 1948
 

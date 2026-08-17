@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5637.png
-
-Convert to MarkdownSECRET
+SECRET
 
 24 April 1996
 

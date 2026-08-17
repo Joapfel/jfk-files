@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10723.png
-
-Convert to MarkdownThe following FBI record, HBLAMT. is furnished FOR OFFICIAL USE ONLY. Information shown on this card may be subject to further review by any criminal investigator. VCR: FINV, DISPOSITION IS NOT FINAL, OR MAY BE ALTERED WITHOUT prior notice.
+The following FBI record, HBLAMT. is furnished FOR OFFICIAL USE ONLY. Information shown on this card may be subject to further review by any criminal investigator. VCR: FINV, DISPOSITION IS NOT FINAL, OR MAY BE ALTERED WITHOUT prior notice.
 
 The following FBI record, HBLAMT. is furnished FOR OFFICIAL USE ONLY.
 Information shown on this card may be subject to further review by any

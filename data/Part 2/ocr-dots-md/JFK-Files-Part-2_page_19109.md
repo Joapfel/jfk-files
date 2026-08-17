@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_19109.png
-
 s" who were often superfluous advisers, and
 that "fees" for hiring equipment and crews making a film and
 retaining exclusive distribution rights can run into big

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7453.png
-
-Convert to MarkdownConfidential
+Confidential
 
 AMERICAN CONSULATR SERVICE.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18358.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 of Major. During his tour of duty with the U. S. Marine Corps, he served in the capacity of liaison officer with Selective Service and later, as legal officer with the Fourth Marine Division in the Pacifico.
 

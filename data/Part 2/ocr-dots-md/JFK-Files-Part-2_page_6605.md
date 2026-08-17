@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6605.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OFFICE OF THE SECRETARY OF DEFENSE
 WASHINGTON 25, D.C.

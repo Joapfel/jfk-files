@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28976.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="3">RATED OFFICER'S NAME AND SERVICE NUMBER</th>

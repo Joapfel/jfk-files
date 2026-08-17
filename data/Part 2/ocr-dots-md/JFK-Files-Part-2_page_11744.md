@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11744.png
-
-Convert to MarkdownSECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 2. Identification orders, wanted flyers, and check circulars
 Each field office must maintain a mailing list composed of individuals and organizations to which identification orders, wanted flyers, and check circulars are to be sent. Each field office must review annually its mailing list in order to see that no data is sent to firms which have ceased business or have merged with other organizations. A survey should be conducted by Agents each year by every office, at time field office mailing list is purged, to determine whether additional names of individuals and businesses should be added to field office mailing list.

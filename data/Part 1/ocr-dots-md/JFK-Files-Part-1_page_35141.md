@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35141.png
-
-Convert to Markdown# DESCRIPCION DE LA HOMINA
+# DESCRIPCION DE LA HOMINA
 
 Hoja No. 2
 

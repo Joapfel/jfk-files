@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3156.png
-
-Convert to MarkdownBoum. Visa.
+Boum. Visa.
 
 Boum. Visa.
 

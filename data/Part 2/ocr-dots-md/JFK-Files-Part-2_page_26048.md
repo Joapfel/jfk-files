@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26048.png
-
-Convert to Markdownthey were very much aware of plain clothes
+they were very much aware of plain clothes
 policemen, secret service types, all around
 him, and others, that were screening out
 people so that the dialogue between the

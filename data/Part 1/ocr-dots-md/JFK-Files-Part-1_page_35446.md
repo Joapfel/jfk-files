@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35446.png
-
-Convert to MarkdownFROM: DIRECTOR
+FROM: DIRECTOR
 
 CONF:
 

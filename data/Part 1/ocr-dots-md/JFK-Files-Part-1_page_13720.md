@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13720.png
-
-Convert to MarkdownEMBAJADA DE MEXICO
+EMBAJADA DE MEXICO
 
 VISA: DIPLOMATICA
 NUMERO: 647

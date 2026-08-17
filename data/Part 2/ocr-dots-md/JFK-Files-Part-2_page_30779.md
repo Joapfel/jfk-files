@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30779.png
-
-Convert to Markdown2. 15-1
+2. 15-1
 
 Jan 67
 

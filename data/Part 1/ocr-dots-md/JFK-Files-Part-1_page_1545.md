@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1545.png
-
-Convert to MarkdownMORTGAGE NOTE
+MORTGAGE NOTE
 
 New York, MARCH 2,1978 19
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13585.png
-
-Convert to Markdown<table><thead><tr><td>DATE OF ARRIVAL</td><td>COUNTRY OF ARRIVAL</td><td>REPORT NO</td></tr></thead><tbody><tr><td>21 FEB 62</td><td>Travellers Using Cuban Diplomatic Passports</td><td>00 - 1,310,416</td></tr><tr><td>FEB 1962</td><td></td><td>DATE DELIVERED</td></tr><tr><td>Jr. JC</td><td></td><td>NOW PAGES</td></tr><tr><td></td><td></td><td>REFERENCES</td></tr><tr><td></td><td></td><td>CO-SP-1-D-S-E-T-I-A-L-</td></tr></tbody></table>
+<table><thead><tr><td>DATE OF ARRIVAL</td><td>COUNTRY OF ARRIVAL</td><td>REPORT NO</td></tr></thead><tbody><tr><td>21 FEB 62</td><td>Travellers Using Cuban Diplomatic Passports</td><td>00 - 1,310,416</td></tr><tr><td>FEB 1962</td><td></td><td>DATE DELIVERED</td></tr><tr><td>Jr. JC</td><td></td><td>NOW PAGES</td></tr><tr><td></td><td></td><td>REFERENCES</td></tr><tr><td></td><td></td><td>CO-SP-1-D-S-E-T-I-A-L-</td></tr></tbody></table>
 
 **SOURCE:** Cuban national added in the U.S.
 

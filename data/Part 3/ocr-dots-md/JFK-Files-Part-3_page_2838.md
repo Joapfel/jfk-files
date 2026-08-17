@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2838.png
-
-Convert to Markdown# FBI
+# FBI
 
 Date:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26646.png
-
-Convert to MarkdownAgency Information
+Agency Information
 
 AGENCY : LBJ
 RECORD NUMBER : 177-10002-10105

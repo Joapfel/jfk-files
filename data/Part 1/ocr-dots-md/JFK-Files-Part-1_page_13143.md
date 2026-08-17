@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13143.png
-
-Convert to MarkdownSEC
+SEC
 
 FROM: SE (I-27)
 AGENT: I-111

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5958.png
-
-Convert to Markdown# ROUTE IN ENVELOPE
+# ROUTE IN ENVELOPE
 
 MR. J. B. ADAMS
 MR. W. R. WARMALL

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1009.png
-
-Convert to Markdown14-00000
+14-00000
 
 # 1967 Inspector General's Report on Assassination Attempts Against CASTRO
 

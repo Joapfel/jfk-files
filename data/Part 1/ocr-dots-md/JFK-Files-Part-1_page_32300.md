@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32300.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">IN ACCORDANCE WITH THE PROVISIONS OF PUBLIC LAW 87-793 AND DCT<br/>MEMORANDUM DATED 1 AUGUST 1956, SALARY IS ADJUSTED AS FOLLOWS,<br/>EFFECTIVE 5 JANUARY 1944.</td>
    </tr>

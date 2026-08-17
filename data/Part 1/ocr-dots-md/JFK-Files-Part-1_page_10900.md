@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10900.png
-
-Convert to Markdown# Source Record
+# Source Record
 
 <table>
     <tbody>

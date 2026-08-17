@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24292.png
-
-Convert to MarkdownSECRET
+SECRET
 
 III. ARGUMENT
 

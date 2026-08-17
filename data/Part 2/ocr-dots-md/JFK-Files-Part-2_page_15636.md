@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15636.png
-
-Convert to MarkdownLot of people say that we shouldn't struggle, but
+Lot of people say that we shouldn't struggle, but
 we did if we expect to win. In fact..the only way we
 can win is if you struggle, but a lot of times you
 could be just wasting your time. We have to spend

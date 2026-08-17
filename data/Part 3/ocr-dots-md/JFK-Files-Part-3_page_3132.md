@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3132.png
-
-Convert to Markdownsmn 3
+smn 3
 
 1 You are done. There is but one way out for you."
 

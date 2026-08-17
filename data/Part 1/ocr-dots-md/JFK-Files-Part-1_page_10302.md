@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10302.png
-
-Convert to Markdowncan all discuss your opinions and suggestions. I suggest
+can all discuss your opinions and suggestions. I suggest
 1730 because it will be quieter then and we can go to a
 better place to talk privately."
 

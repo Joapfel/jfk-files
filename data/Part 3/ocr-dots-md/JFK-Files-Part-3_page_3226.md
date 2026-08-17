@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3226.png
-
-Convert to Markdown comment."
+comment."
 
 Now Senator Huddleston earlier asked about efforts to influence newspapers and media outlet.
 

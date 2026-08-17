@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_55.png
-
-Convert to MarkdownM. A. Jones to Mr. Bishop Memo
+M. A. Jones to Mr. Bishop Memo
 
 RE: NOT TO CONTACT LIST
 

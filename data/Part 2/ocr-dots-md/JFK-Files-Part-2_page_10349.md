@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10349.png
-
-Convert to Markdown# DOMESTIC TESTS FOR AGENCY RESEARCH AND DEVELOPMENT EFFORTS
+# DOMESTIC TESTS FOR AGENCY RESEARCH AND DEVELOPMENT EFFORTS
 
 1. As a normal part of ORD's efforts in the research and development of equipment and techniques for Agency applications in foreign intelligence, we conduct experiments and tests in the United States. Clearly, the design and development of our intelligence equipments can be done more economically and more securely in this country. Although most of the tests of our R&D equipments are performed in closed laboratories or in secure areas simulating the foreign environment, some of the tests and experiments, of necessity, reveal domestic information.
 

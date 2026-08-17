@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20951.png
-
-Convert to MarkdownS-B-C-R-E-T
+S-B-C-R-E-T
 (When Filled In)
 
 ME: CHAIRMAN FOR CHIEF, Finance Division

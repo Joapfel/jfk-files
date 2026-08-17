@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21382.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 6 July 1966 (Seattle)
 RE: Helen Mary Winter

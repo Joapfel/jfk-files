@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_12873.png
-
 , pointing to the LEVISONS and HUNTER PITTS O'DELL, stated to MARTIN LUTHER KING, "These men are Party members; watch out for them."
 
 MARTIN LUTHER KING did not "bat an eyelash" upon hearing the Assistant Attorney General's remark, and after the latter left the meeting, those in the group smiled at each other. STANLEY LEVISION said to KING, at this time, "I congratulate you on the way you acted regarding his warning. You are a real Marxist-Leninist. This is how a true Marxist-Leninist acts."

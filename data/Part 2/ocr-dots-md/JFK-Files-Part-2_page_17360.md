@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17360.png
-
-Convert to MarkdownDELMOS RAYMOUND WARD
+DELMOS RAYMOUND WARD
 
 Date Department Arresting Charge Disposition
 

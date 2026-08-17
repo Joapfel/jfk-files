@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19791.png
-
-Convert to MarkdownJAN 1961
+JAN 1961
 
 MEMORANDUM FOR: DD(IOS)
 

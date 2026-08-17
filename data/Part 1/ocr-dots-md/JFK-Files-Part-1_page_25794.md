@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25794.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and processor of tapes; he has excelled in this type of work because of his bi-lingual Spanish/English facility and, more importantly, due to his diversified experience in clandestine operations which permits him to spot operational leads much more readily than the average LIFEAT monitor.
 

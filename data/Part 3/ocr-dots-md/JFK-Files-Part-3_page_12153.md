@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12153.png
-
-Convert to MarkdownA. Yes.
+A. Yes.
 
 Q. During Atlanta interview you indicated you presumed these reports set forth information concerning Levison from a telephone surveillance. Is that correct?
 

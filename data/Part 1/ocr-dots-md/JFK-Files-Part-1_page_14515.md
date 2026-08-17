@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14515.png
-
-Convert to MarkdownRUIZ, Orestes
+RUIZ, Orestes
 
 Was a prisoner in Dom Rep, not in a prison, but in a concentration camp with 11 others for 15 days because he tried to escape, because he was taking military training. Had been asked there by one Jose Antonio ECHEVERRIA who was killed in Cuba in attack on Pres. Palace on 13 57. ECHEVERRIA approached RUIZ at Havana U. When he went to Dom Rep, found a bunch of Cuban gangsters instead of decent people. POLICARPO Soler aka Joaquin RODRICUEZ, was in charge of group, who was one who arrested him. Had actually 5 months military training Nov 56 to Apr 57.
 

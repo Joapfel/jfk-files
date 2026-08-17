@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22816.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 # MEMO FOR THE STUDENT FILE
 

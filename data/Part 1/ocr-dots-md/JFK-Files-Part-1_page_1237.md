@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1237.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">Polly Pike<br/>WH/LOC<br/>7282<br/>16 October 1963</td>
     <td rowspan="5">

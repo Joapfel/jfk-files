@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3971.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FORM 8-60 (40)</td>
     <td>16s</td>

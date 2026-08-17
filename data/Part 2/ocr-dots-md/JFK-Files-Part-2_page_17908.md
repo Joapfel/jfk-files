@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17908.png
-
-Convert to MarkdownVOL 1 FOR LONS
+VOL 1 FOR LONS
 
 E.D.
 

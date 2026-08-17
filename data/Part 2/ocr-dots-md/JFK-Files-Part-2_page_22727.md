@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22727.png
-
-Convert to MarkdownWAND & PAUL
+WAND & PAUL
 
 410 First Street, S.E., Washington, D.C. 20003
 

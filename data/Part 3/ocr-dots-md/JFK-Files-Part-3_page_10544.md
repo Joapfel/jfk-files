@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10544.png
-
-Convert to Markdown.1 - .2044 9 :10
+.1 - .2044 9 :10
 . 1 - .15081 . .
 . 10T - 11-3-69 78
 FOM - F. H. R. C. J. M. K. 2-11-79

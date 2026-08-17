@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8770.png
-
-Convert to Markdownassistance and moral support. MARSELLA said that he
+assistance and moral support. MARSELLA said that he
 worked actively in a clandestine manner for Rescate.
 VARONA did not give much encouragement to the plan;
 in fact, said he could not sanction or assist in

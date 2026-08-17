@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1842.png
-
-Convert to Markdown30 June 1970
+30 June 1970
 
 MEMORANDUM FOR: Chief, European Division
 FROM : Chief of Station, London

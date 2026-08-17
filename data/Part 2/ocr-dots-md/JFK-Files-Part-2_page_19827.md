@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19827.png
-
-Convert to MarkdownMINNESOTA WOMEN'S ABORTION
+MINNESOTA WOMEN'S ABORTION
 ACTION COALITION
 
 The MWAAC chartered two 39-passenger buses for travel to Washington, D. C., to depart Minneapolis, Minnesota, at 9:00 a.m., Friday, November 19, 1971. The Minneapolis group of some 54 persons departed from Minneapolis utilizing two Volt Bus Company vehicles on the early morning of November 19, 1971.

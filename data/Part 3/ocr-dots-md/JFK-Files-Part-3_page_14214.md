@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14214.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The President said that looking back on the Cuba situation it is now apparent that the SAM sites were related to the deployment of offensive missiles. The President observed that there has not been made, to his knowledge, an analysis of the assumption under which the Soviets operated in Cuba, and it would be of some academic interest, at least, to know why the Soviets did not use their SA-2's against our overflight operations. Dr. Land observed that if the Soviet camouflage teams in Cuba had been up to schedule along with the Soviet schedule for deployment of offensive missiles, we would not have found the missiles, and it was by the grace of God that we did find them.
 

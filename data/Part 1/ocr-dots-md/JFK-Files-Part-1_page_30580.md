@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30580.png
-
-Convert to Markdown14-00000
+14-00000
 
 This form is to be filled in by the appropriate Branch or Office Chief for purposes of obtaining a pass. You will, therefore, be required by the Dispersing Office to copy this form at the time of applying for it.
 

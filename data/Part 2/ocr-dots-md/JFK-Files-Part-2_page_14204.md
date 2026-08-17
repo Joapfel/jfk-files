@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14204.png
-
-Convert to Markdown"to neutralize Communist front and Communist-dominated organizations of the United States" (IIC and ICIS Report to NSC, March 5, 1954), "program designed to intensify any confusion and dissatisfaction among its /\\Communist Party's/ members" and "counterintelligence operations" (NSC Briefing, November 6, 1958), "action proposals to protect the internal security of the United States" (National Security Action Memorandum 161, June 9, 1962). The term "counterespionage" reappears in several other documents.
+"to neutralize Communist front and Communist-dominated organizations of the United States" (IIC and ICIS Report to NSC, March 5, 1954), "program designed to intensify any confusion and dissatisfaction among its /\\Communist Party's/ members" and "counterintelligence operations" (NSC Briefing, November 6, 1958), "action proposals to protect the internal security of the United States" (National Security Action Memorandum 161, June 9, 1962). The term "counterespionage" reappears in several other documents.
 
 These terms seem to refer to activities which have since been labeled COINTELPRO operations. In this regard, it should be noted that Attorney General Saxbe's report of November 18, 1974 on FBI COINTELPRO Activities stated, at p. 20:
 

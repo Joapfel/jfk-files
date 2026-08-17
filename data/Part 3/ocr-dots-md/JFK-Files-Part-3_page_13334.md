@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13334.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 Other files are maintained concerning the Soviet Embassy. CIA's position on this matter is that this is a State case which the Agency is running on behalf of State.
 

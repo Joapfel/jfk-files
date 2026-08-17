@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3481.png
-
-Convert to MarkdownMiami, fla. 25 March 64
+Miami, fla. 25 March 64
 
 **From:** Incencio ALONSO
 **To:** AMYUM-19
