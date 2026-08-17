@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10510.png
-
-Convert to MarkdownNR004 MI CODE
+NR004 MI CODE
 
 7:08PM NITEL 3 / 25 / 75 LSK
 O: DIRECTOR

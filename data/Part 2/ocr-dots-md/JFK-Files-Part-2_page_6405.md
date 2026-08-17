@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6405.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 5. In lieu of a security exit briefing, send each Board member and staffer a letter which expressly mentions that they have an obligation to submit for prepublication review any future writings they plan to publish (related to their work as Board members or staffers) as part of their obligation to protect classified information. This approach would make it more inconvenient for the Board to probe for the source of this obligation (which we would be unable to produce since we have not found any signed secrecy agreements). Again, we bluff the Board. Board members and staffers sign nothing.
 

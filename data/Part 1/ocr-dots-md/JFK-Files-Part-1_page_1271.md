@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1271.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 Draft Memorandum to the DCI from William Harvey
 

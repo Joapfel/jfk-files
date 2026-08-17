@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25730.png
-
-Convert to MarkdownThe Boston Globe
+The Boston Globe
 
 Monday, August 23, 1976
 

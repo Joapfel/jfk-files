@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17879.png
-
-Convert to MarkdownNOTICE:
+NOTICE:
 All future correspondence will be sent by electronic mail. All future correspondence will be sent by electronic mail. Electronic mail is confidential and may contain security clauses. Please ensure that your message contains a copy of the electronic mail in case it cannot be delivered to you or to another recipient.
 
 PLEASE REVIEW ELECTRONIC COPY

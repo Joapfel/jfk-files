@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14748.png
-
-Convert to Markdown1 - Mr. C. D. DeLoach
+1 - Mr. C. D. DeLoach
 
 5/28/69
 

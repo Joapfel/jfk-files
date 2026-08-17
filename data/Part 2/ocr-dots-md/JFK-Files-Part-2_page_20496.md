@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20496.png
-
-Convert to MarkdownNote #:
+Note #:
 HQ-116395
 
 **Material Scope:**

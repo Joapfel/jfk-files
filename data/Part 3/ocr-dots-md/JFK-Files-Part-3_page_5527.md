@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5527.png
-
-Convert to Markdown1. All materials reflecting Justice Department knowledge of mail opening by FBI or CIA employees prior to December 1, 1974.
+1. All materials reflecting Justice Department knowledge of mail opening by FBI or CIA employees prior to December 1, 1974.
 
 2. With respect to letters written by the following individuals or organizations addressed to third parties, and to letters written by third parties addressed to the following individuals or organizations, copies of which are now or have been in the possession of the FBI, including field offices, the following questions are asked:
 

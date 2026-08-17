@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15078.png
-
-Convert to MarkdownUNIVERSAL FIBREGLASS CORPORATION
+UNIVERSAL FIBREGLASS CORPORATION
 FRAUD AGAINST THE GOVERNMENT
 
 Following a partial audit by General Services Administration, we instituted an investigation, at Department's request, of alleged overcharges to the Government by Universal Fibreglass Corporation (Universal) on a $13 million contract to produce mail delivery trucks. All logical investigation has been completed and reported except the review of the Universal records. Access to the pertinent records was recently achieved through court action and an extensive audit is now being pressed. Criminal prosecution of several subjects is now indicated.

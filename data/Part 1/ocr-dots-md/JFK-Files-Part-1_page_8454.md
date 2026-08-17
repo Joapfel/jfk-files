@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8454.png
-
-Convert to MarkdownMEMORANDUM FOR THE FILE
+MEMORANDUM FOR THE FILE
 
 SOURCE: LILYRIC
 

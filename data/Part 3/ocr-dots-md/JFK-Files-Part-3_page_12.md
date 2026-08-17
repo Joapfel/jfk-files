@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_12.png
-
-Convert to Markdowndid not deal directly with the President on intelligence matters.
+did not deal directly with the President on intelligence matters.
 
 OCI wondered how it could establish close links to the President's immediate staff. 6/

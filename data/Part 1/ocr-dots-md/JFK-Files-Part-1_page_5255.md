@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5255.png
-
-Convert to Markdown# CONSEIL TECHNIQUE
+# CONSEIL TECHNIQUE
 
 Dr. Lebert JEAN-PIERRE : Ancien Membre du Conseil d'Administration de la B. N. R. H. — 1960-1961
 

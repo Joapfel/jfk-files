@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7090.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 CIA SPECIAL RESEARCH UNIT
 

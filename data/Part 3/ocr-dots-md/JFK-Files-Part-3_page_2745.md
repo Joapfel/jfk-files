@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2745.png
-
-Convert to Markdown1941
+1941
 
 Now, are there instances where the Bureau has admitted that
 its first assumptions were wrong and they have changed their

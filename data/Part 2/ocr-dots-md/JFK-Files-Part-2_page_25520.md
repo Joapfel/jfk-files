@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25520.png
-
-Convert to Markdownthem, and you take the woman's viewpoint, standpoint,
+them, and you take the woman's viewpoint, standpoint,
 and my husband...
 
 FS: And they wanted you to do some burglaries, right?

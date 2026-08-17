@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12525.png
-
-Convert to Markdownj. Dissemination to Secret Service
+j. Dissemination to Secret Service
 Under agreement between FBI and Secret Service concerning protective responsibilities (set out in section 102, volume IV, of this manual), reports and LHMs are disseminated to Secret Service both locally and at FBIHQ in all cases which meet standards set forth. This includes virtually all cases on individuals where any substantial information exists as to subversive activities or sympathies of subject. When photographs are available send copies to Secret Service locally and to FBIHQ for dissemination at headquarters level.
 
 (1) Secret Service should be advised of reason for referral; i.e., statement of class or classes of agreement which apply to subject. FD-376 serves as letter of transmittal for both local and FBIHQ dissemination. Forward original and one copy to FBIHQ and maintain copy in case file.

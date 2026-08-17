@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6817.png
-
-Convert to MarkdownMemorandum to Mr. Belmont
+Memorandum to Mr. Belmont
 
 RE: MARTIN LUTHER KING
 

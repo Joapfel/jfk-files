@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22234.png
-
-Convert to MarkdownSECRET
+SECRET
 
 VIII. NOSENKO'S BONA PIDES: ANALYSIS AND CONCLUSIONS
 

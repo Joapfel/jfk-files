@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24435.png
-
-Convert to Markdown2. <u>At What Level Were the Castro Plots Authorized or Known About Within the Central Intelligence Agency?</u>
+2. <u>At What Level Were the Castro Plots Authorized or Known About Within the Central Intelligence Agency?</u>
 
 (a) The Question Presented. As we have seen, first Richard Bissell and then Richard Helms, each as Deputy Director of Plans (DDP), were aware of plots to assassinate Fidel Castro. The evidence set forth herein relates to whether their superiors in the Agency, in particular Allen Dulles and John McCone, authorized or were aware of the assassination plots.
 

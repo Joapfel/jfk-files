@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26489.png
-
-Convert to MarkdownADVERTENCIAS AL TITULAR
+ADVERTENCIAS AL TITULAR
 
 Previamente este pasaporte al submitar otra副本.
 

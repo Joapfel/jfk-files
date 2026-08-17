@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30040.png
-
-Convert to MarkdownAUGUST PAID IN, OCTOBER
+AUGUST PAID IN, OCTOBER
 
 DATE: 10-28-77
 OFFICE NAME: Select Committee on Assassinations

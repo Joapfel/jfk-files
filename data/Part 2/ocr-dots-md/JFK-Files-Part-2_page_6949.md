@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6949.png
-
-Convert to Markdowngovernment, we were able to release the information. The unredacted memorandum shows that the Swiss Federal Police had been enlisted by the FBI to try to locate Oswald and to determine whether or not he had enrolled at a school in Switzerland. Now the public is able to see the document in full and judge its importance. In its redacted state, the document could have meant anything that a researcher's imagination and speculation could invent. In its released form, it must be analyzed for what it says.
+government, we were able to release the information. The unredacted memorandum shows that the Swiss Federal Police had been enlisted by the FBI to try to locate Oswald and to determine whether or not he had enrolled at a school in Switzerland. Now the public is able to see the document in full and judge its importance. In its redacted state, the document could have meant anything that a researcher's imagination and speculation could invent. In its released form, it must be analyzed for what it says.
 
 ### IV. Identification and Location of Additional Assassination Records
 

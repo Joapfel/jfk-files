@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22103.png
-
-Convert to Markdown262.
+262.
 
 of steel....In 1960 and 1961 the mike in GLEY-
 STEEN's office was working, I remember. Recep-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29107.png
-
-Convert to MarkdownREVIEW OF PERFORMANCE IN STUDY OF A FOREIGN LANGUAGE AND EXPERIENCE
+REVIEW OF PERFORMANCE IN STUDY OF A FOREIGN LANGUAGE AND EXPERIENCE
 
 <table><tr><td>(Name)</td><td>(Office)</td><td>(Sex)</td><td>(Date of Testing)</td></tr></table>
 

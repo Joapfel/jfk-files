@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_262.png
-
-Convert to Markdown14-00000
+14-00000
 
 GALBOND - Ed. KEQ C3 3/4M, 382
 ✓ QDBIAS -

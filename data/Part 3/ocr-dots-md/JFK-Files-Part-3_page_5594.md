@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5594.png
-
-Convert to MarkdownLetter to Birmingham
+Letter to Birmingham
 RN: counterintelligence program
 107-9-4
 

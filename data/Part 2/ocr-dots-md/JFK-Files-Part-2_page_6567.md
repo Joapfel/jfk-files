@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6567.png
-
-Convert to MarkdownSECRET
+SECRET
 
 There has been a lack of useful intelligence on Cuba. This
 has caused the U. S. to place primary importance on clandestine

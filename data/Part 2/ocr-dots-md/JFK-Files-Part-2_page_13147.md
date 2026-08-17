@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13147.png
-
-Convert to MarkdownUNITED STATES GC RNMENI
+UNITED STATES GC RNMENI
 
 Memorandum
 

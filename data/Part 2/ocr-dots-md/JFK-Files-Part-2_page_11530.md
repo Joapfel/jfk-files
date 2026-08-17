@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11530.png
-
-Convert to Markdown(j) Physical description
+(j) Physical description
 
 I. Obtain and report a detailed physical description.
 

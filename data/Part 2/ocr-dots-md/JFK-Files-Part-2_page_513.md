@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_513.png
-
-Convert to Markdown.14-0000
+.14-0000
 
 SECRET 302230Z CITE MEXICO CITY 9439
 DIRECTOR INFO JMWAVE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26574.png
-
-Convert to MarkdownPARTY STRENGTHS IN TURKISH ELECTIONS
+PARTY STRENGTHS IN TURKISH ELECTIONS
 (by % of total vote)
 
 1961 General Election

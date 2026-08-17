@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27064.png
-
-Convert to MarkdownREFERENCES
+REFERENCES
 
 At Daytona Beach, Florida:
 

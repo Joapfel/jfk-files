@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3311.png
-
-Convert to Markdown11 December 1959
+11 December 1959
 
 MEMORANDUM FOR: Director of Central Intelligence
 

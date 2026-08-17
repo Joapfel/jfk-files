@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6039.png
-
-Convert to Markdownin the city of Manzanillo in Oriente province, Cuba, he stated that in his trip through South America he had seen certain stirring in favor of a group of prisoners caught in Cuba. ( He was evidently talking about the campaign in favor of Muller ). This Campaign clearly showed the great possibilities we had in Latin America and the urgent need to carry through all the nations the great truth of what was happening in Cuba.
+in the city of Manzanillo in Oriente province, Cuba, he stated that in his trip through South America he had seen certain stirring in favor of a group of prisoners caught in Cuba. ( He was evidently talking about the campaign in favor of Muller ). This Campaign clearly showed the great possibilities we had in Latin America and the urgent need to carry through all the nations the great truth of what was happening in Cuba.
 
 DEVELOPMENT OF INDIAN AMERICAN PLAN
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26990.png
-
-Convert to Markdown14-00000
+14-00000
 
 CIA INTERNAL USE ONLY
 

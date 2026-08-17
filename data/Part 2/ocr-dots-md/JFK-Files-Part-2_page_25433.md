@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25433.png
-
-Convert to MarkdownBook V, p. 63-64
+Book V, p. 63-64
 
 In March of 1964, the Warren
 Commission requested from Director

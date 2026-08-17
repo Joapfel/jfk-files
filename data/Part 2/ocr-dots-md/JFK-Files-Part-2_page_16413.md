@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16413.png
-
-Convert to MarkdownThe oppressed peoples
+The oppressed peoples
 and nations must not pin
 their hopes for liberation
 on the "sensibleness" of

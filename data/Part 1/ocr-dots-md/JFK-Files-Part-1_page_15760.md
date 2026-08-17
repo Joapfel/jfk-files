@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15760.png
-
-Convert to Markdown**Translator for French letters**
+**Translator for French letters**
 
 Nick Ltsou
 

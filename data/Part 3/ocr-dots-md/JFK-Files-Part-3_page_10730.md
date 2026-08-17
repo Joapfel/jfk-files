@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10730.png
-
-Convert to MarkdownSurveys are being conducted at Monroe, West
+Surveys are being conducted at Monroe, West
 Monroe, Alexandria and Bogalusa, Louisiana, pursuant to Bureau
 authority by airtel dated 9/4/64.
 

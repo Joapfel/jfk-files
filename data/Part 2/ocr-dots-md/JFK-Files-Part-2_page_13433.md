@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13433.png
-
-Convert to Markdown# IV. Policies and Procedures
+# IV. Policies and Procedures
 
 A. The table of contents of the FBI Manual of Instructions, and those portions of the Manual of Instructions which pertain to internal security, intelligence collection, and/or counter-intelligence matters, operations, or activities.
 

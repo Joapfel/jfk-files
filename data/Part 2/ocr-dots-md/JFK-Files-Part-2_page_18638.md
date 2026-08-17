@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18638.png
-
-Convert to MarkdownNWI 88326 Docid:32989627 Page 236
+NWI 88326 Docid:32989627 Page 236
 
 Date: 6/9/70
 

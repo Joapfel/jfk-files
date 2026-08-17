@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8816.png
-
-Convert to Markdown13-00000
+13-00000
 
 made quite a point of saying that she was absolutely positive that Fidel CASTRO could have had nothing to do with the act.
 

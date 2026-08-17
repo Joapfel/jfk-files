@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4669.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 It is noted that the above referred to St. Petersburg telephone number 361-1011 was also called from the CONIGLIO residence as set forth previously in this report.
 

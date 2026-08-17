@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17248.png
-
-Convert to MarkdownIn Reply, Please Refer to
+In Reply, Please Refer to
 File No.
 
 219 South Dearborn Street

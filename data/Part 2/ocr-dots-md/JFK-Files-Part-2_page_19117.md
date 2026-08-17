@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19117.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Since it appears as if Charles Zemach was to travel to the U.S.S.R. and to contact his relatives there, San Francisco should conduct investigations of Charles Zemach and Mary St. John Zemach to determine whether they are engaged in activities injurious to the security of the United States. Investigation should include determination of their employment, whether they have access to classified data or restricted areas and whether they have traveled to the U.S.S.R. After investigations make recommendations recording interviews. Results of investigations should be submitted in a form suitable for dissemination.
 

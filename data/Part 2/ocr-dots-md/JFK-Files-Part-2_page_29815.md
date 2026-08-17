@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29815.png
-
-Convert to MarkdownM - does he have a lot of cars in there
+M - does he have a lot of cars in there
 
 D - well uh, he used to have three usually three in the showroom and he had about three in the back that he was working on and I don't know if he did sell that Cadillac or if it was stolen or uh, there had been a car in the paint room
 

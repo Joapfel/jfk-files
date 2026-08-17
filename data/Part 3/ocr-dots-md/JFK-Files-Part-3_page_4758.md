@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4758.png
-
-Convert to Markdown# ADMINISTRATIVE:
+# ADMINISTRATIVE:
 
 The information concerning subject's activities in Atlanta was not received prior to submission of report dated 11/25/68.
 

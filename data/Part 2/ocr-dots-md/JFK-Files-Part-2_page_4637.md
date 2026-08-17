@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4637.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Agency and staying with the operation. Both of them
 said "This isn't going to work, it's useless."

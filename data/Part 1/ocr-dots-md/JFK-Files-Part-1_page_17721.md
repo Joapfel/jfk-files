@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17721.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ### 29 GP 106 2,7
 

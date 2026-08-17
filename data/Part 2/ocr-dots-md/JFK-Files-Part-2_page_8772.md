@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8772.png
-
-Convert to Markdownwith upper echelon "hoodlums" throughout the U.S. (pg. 1 Encl. 3 dated 19 Dec 1960.) "In 1959 he furnished information to our QUWIN California office but has not since cooperated with us. N.B. He has the background and talent for the matter we discussed but it is not known whether he would be receptive."
+with upper echelon "hoodlums" throughout the U.S. (pg. 1 Encl. 3 dated 19 Dec 1960.) "In 1959 he furnished information to our QUWIN California office but has not since cooperated with us. N.B. He has the background and talent for the matter we discussed but it is not known whether he would be receptive."
 
 ## Tab Y - Hanna YAZBECK
 

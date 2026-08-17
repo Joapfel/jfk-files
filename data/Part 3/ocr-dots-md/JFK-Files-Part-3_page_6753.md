@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6753.png
-
-Convert to Markdownoffset by unclaimed depreciation on his automobile for that year. He will
+offset by unclaimed depreciation on his automobile for that year. He will
 owe a small account of self-employment tax on the unreported net amounts.
 
 11. Revenue Agent Hutchison and I examined SHELTON's account at LORCH'S DIAMOND SHOP in Tuscaloosa from opening purchase on 6/11/62 to date. The diamond ring alleged to have been purchased with KLAR funds during the years 1964 and 1965 was purchased June 11, 1962 by MRS. SHELTON for $339.60, which amount includes carrying charges. She paid $30.00 per month on this account until November 8, 1963, at which time the account was paid in full. The checks drawn on the KLAR account to LORCH'S DIAMOND SHOP during the years 1964 and 1965 are two payments on an Invicta Tape Recorder purchased on 5/18/64 for $62.95 and a Wabco Recorder purchased on same date for $167.00. These items were purchased for the KLAR and charged to his account, according to SHELTON, because LORCH's would not extend credit to the KLAR.

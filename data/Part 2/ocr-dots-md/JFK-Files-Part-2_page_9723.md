@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9723.png
-
-Convert to Markdownof Right Wingers to reach the Youth and the successes of the
+of Right Wingers to reach the Youth and the successes of the
 left to reach them to any other single issue than incomes to
 my mind and that is瓜ana. The Right Wing is not it and
 the left wing for it. The real purpose of Pot (now) is not

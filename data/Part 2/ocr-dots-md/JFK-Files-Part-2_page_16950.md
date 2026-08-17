@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16950.png
-
-Convert to MarkdownBETHISON, CHERYL
+BETHISON, CHERYL
 
 This Panther resides at 2337 West Monroe and works out of the South Side BPP Office.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5404.png
-
-Convert to MarkdownBenedict, James P. Filing Unit
+Benedict, James P. Filing Unit
 
 Booch, James D. Exhibits Section
 

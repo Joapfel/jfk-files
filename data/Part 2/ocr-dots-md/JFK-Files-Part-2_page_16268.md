@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16268.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## PROGRESSIVE LABOR PARTY
 

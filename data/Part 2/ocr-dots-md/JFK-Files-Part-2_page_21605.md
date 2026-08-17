@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21605.png
-
-Convert to MarkdownFILE:
+FILE:
 
 Regarding the CIA and local police, the only thing Papich recalls is discussion of the CIA's relationship with New York City police. The purpose was not operations, but protection of CIA New York facilities. He was also aware of relationships between Washington, D. C., and suburban police for protection of CIA facilities and personnel. He knew that some CIA employees joined questionable groups and that the CIA was concerned about its personnel associating with radicals and protesters. The CIA Office of Security informed the FBI in 1967-1970 that it had developed from two to six sources to assess involvement of CIA personnel in protest groups. The information provided to the FBI from these sources about such groups was "crap". Papich was not involved in any meetings with CIA sources. He is not aware of any CIA activity regarding Women's Strike for Peace, nor was he aware of any CIA intelligence operations for the purpose of protecting CIA from violent demonstrations. CIA should have relied on FBI.
 

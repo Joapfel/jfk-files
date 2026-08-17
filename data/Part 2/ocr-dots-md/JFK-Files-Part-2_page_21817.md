@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21817.png
-
-Convert to Markdown1. Cuba because they needed me.
+1. Cuba because they needed me.
 
 2. Mr. DeMarco. What foreign country were you transferred from?
 

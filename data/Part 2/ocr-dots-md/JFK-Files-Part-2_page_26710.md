@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26710.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Of course, if these people went out and did something on their own, they could do things we were not aware of, obviously. You can't -- you know what they are doing during their eight or ten hours that they are going to work everyday but once they leave, we don't know what they are up to.
 

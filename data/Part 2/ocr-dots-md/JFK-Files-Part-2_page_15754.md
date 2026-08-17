@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15754.png
-
-Convert to MarkdownMarty Faye Show, 12/20/69
+Marty Faye Show, 12/20/69
 
 MARTY FAYE:
 

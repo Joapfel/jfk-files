@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9045.png
-
-Convert to Markdown10 June 1968
+10 June 1968
 
 MEMORANDUM FOR: Chief, EUR/IB/Spain
 SUBJECT : Project WUBRINY - Edward G. TICHBORN (P)

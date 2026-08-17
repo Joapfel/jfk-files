@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11153.png
-
-Convert to MarkdownTos. 1/13.- 10 noviembre 66.
+Tos. 1/13.- 10 noviembre 66.
 
 sición linta, que si la manzan a la embajada. - Alború: quo
 di quo la manzan a la embajada.- Sorrano: quo en una hora

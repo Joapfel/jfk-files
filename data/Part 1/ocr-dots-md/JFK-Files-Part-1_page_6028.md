@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6028.png
-
-Convert to MarkdownBRAZIL.-
+BRAZIL.-
 
 I.- Actual situation of the Delegation.
 

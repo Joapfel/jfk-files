@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18079.png
-
-Convert to MarkdownSSG LETTER 7/14/75
+SSG LETTER 7/14/75
 ITEMS 14 and 15
 
 ALL INFORMATION CONTAINED

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17561.png
-
-Convert to MarkdownSECRET / KARROCK
+SECRET / KARROCK
 
 H. Counter-Intelligence Information
 

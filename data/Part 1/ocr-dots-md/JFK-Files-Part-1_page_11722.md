@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11722.png
-
-Convert to Markdown45. If subject's duties are to be other than intelligence gathering, explain. Cut-out. See TCS-A-967
+45. If subject's duties are to be other than intelligence gathering, explain. Cut-out. See TCS-A-967
 
 46. Has he been given special training as an agent? Explain.
 

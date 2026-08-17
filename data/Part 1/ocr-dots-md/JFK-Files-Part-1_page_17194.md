@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17194.png
-
-Convert to MarkdownC. The Mobile Photographic Unit.
+C. The Mobile Photographic Unit.
 
 1. Throughout the period under review, the LIENTRAP Mobile photographic/ support unit was regularly exploited and used by Station Mexico City. This unit provided over 1,000 individual photographs and was used in support of Station operations and activities. Of particular value to Station Mexico City and the JETIGER program were numerous photographs of local and exile Communist leaders provided by LIENTRAP. In addition, the LIENTRAP personnel and unit was used regularly to service and obtain various postal accommodation boxes used by Mexico City, Headquarters and other field stations.
 

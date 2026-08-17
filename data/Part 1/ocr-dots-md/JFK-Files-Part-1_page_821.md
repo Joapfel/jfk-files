@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_821.png
-
-Convert to Markdown(The DSE interrogators never at any time mentioned AMFAUNA-39, or asked her about this earlier meeting, so AMFAUNA-14 concludes that she had not been under intensive surveillance that day; either AMCUTLER-2 had been under surveillance on 5 October, or she herself had been under some kind of periodic spot check.)
+(The DSE interrogators never at any time mentioned AMFAUNA-39, or asked her about this earlier meeting, so AMFAUNA-14 concludes that she had not been under intensive surveillance that day; either AMCUTLER-2 had been under surveillance on 5 October, or she herself had been under some kind of periodic spot check.)
 
 29. ABAD asked AMFAUNA-14 how she had become acquainted with AMCUTLER-2, and AMFAUNA-14 replied that she had met AMCUTLER-2 through AMFAUNA-15, the wife of a cousin of AMFAUNA-14 who is a prisoner on the Isle of Pines.
 

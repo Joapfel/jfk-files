@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3451.png
-
-Convert to MarkdownAMWORLD Meeting in Washington, 19 May 1964
+AMWORLD Meeting in Washington, 19 May 1964
 
 SUBJECT: AMBIDDY-1's Relations with Adelaide Padron y Cruz
 

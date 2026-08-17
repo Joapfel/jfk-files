@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3118.png
-
-Convert to MarkdownFBI has ever had an opportunity to know and appreciate the full extent of the domestic surveillance program that was then being conducted.
+FBI has ever had an opportunity to know and appreciate the full extent of the domestic surveillance program that was then being conducted.
 
 Thus we see that just as in the case of the CIA the key issue was accountability: How we can assure that the secret instruments of government are accountable to the people, the Congress and the law.
 

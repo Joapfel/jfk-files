@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32166.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th>INITIALS OF PERSON MAKING STATEMENT</th>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32334.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Continuation of Narrative Comments
 

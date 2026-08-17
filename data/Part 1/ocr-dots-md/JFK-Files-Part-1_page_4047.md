@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4047.png
-
-Convert to MarkdownCash and Bank Deposits(A-b): $140,000 $192,100 $20,500 $377,100
+Cash and Bank Deposits(A-b): $140,000 $192,100 $20,500 $377,100
 
 a. Amortization of the loan $ — $ 19,500 $ 18,600 $ 17,700
 

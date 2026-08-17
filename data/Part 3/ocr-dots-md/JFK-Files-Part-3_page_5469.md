@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5469.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 Memorandum
 
 **TO:** Mr. Walsh

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17015.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">MESSAGE FORM</th></tr></thead><tbody><tr><td>AS-OS-Videla:jah ☐ NO ☐</td><td>☑ SECRET</td></tr><tr><td>10 October 1964 ☑ FILE IN CS FILE NO. 50-8-74/3</td><td></td></tr><tr><td>Mexico</td><td></td></tr><tr><td>DIRECTOR</td><td></td></tr><tr><td>WH S</td><td></td></tr><tr><td>NO. SE7, PC 2, c/z OAB C/Z/OA, VR, FILE</td><td></td></tr><tr><td>CITI SE</td><td>☐ OCT-ROT ☐ RETURN TO MANCHU ☐ ID No</td></tr><tr><td>MEXI</td><td></td></tr><tr><td>LIEDMPTY</td><td></td></tr><tr><td>REF: MEXI 1307 (IN 96996) *</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">MESSAGE FORM</th></tr></thead><tbody><tr><td>AS-OS-Videla:jah ☐ NO ☐</td><td>☑ SECRET</td></tr><tr><td>10 October 1964 ☑ FILE IN CS FILE NO. 50-8-74/3</td><td></td></tr><tr><td>Mexico</td><td></td></tr><tr><td>DIRECTOR</td><td></td></tr><tr><td>WH S</td><td></td></tr><tr><td>NO. SE7, PC 2, c/z OAB C/Z/OA, VR, FILE</td><td></td></tr><tr><td>CITI SE</td><td>☐ OCT-ROT ☐ RETURN TO MANCHU ☐ ID No</td></tr><tr><td>MEXI</td><td></td></tr><tr><td>LIEDMPTY</td><td></td></tr><tr><td>REF: MEXI 1307 (IN 96996) *</td><td></td></tr></tbody></table>
 
 58997
 

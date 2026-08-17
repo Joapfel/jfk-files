@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17760.png
-
-Convert to Markdown209
+209
 
 ... regresar para advertir que GUZMAN tuviera cuidado de dejar el mesaje en clave que dejó sobre su escritorio, ya que TAPIA recordaría cuando en dina pensados se le llano de Cuernavaca para que proporcionara la clave del desifrador, entonces debió GUZMAN tener cuidado de ese trabajo en la inteligencia de que TAPIA también se diera cuenta de ese trabajo, para no prestarse a malas interpretaciones. TAPIA dice que " yo lo tengo a usted en un concepto domniado elevado para dejarlo andar con niñeras y cualquier cosa que sucoda, quieran que sea que jamás yo pre-guntaré porque fú, ni tendré porque pensar mal du usted", o sea que para mí es usted uno de los hombres que he conocido y usted lo sabe en muchas ocasiones en su presencia y en su ausencia. RENE dice que dado a las circunstancias de sus ausencias quiere toner en TAPIA un uníno. TAPIA rie y dice que el puedo depositar toda la confianza que guste y que el trabajarf junto y de acuerdo y que no soy el tío que anda con niñeras y ésas cosas. RENE lo sabe y agradecé sus conceptos.- 165-
 

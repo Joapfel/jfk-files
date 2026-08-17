@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5005.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHEENO: 95-2246909
 

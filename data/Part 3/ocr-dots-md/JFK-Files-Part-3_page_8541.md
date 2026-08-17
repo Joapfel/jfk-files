@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8541.png
-
-Convert to Markdown* Let us Maddox and my handling of the Civil Rights Act of 1964? Case involving Maddox and his operation of the PICKRICK instrumentalist.
+* Let us Maddox and my handling of the Civil Rights Act of 1964? Case involving Maddox and his operation of the PICKRICK instrumentalist.
 
 ITEM II
 

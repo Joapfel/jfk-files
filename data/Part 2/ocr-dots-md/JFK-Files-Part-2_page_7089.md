@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7089.png
-
-Convert to Markdown13-00000
+13-00000
 
 ~~CFO to Mr. Sullivan~~
 Re: RELATIONS WITH CIA

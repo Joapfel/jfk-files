@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13793.png
-
-Convert to Markdown# Documents
+# Documents
 
 The Committee requests the following additional documents bearing on the questions stated above:
 

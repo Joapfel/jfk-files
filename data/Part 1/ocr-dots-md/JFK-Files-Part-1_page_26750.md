@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26750.png
-
-Convert to MarkdownNeel 72-ICO-29
+Neel 72-ICO-29
 
 4 may 1965
 

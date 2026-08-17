@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1687.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM 7-62 1551 OBSOLETE PREVIOUS EDITIONS.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24269.png
-
-Convert to MarkdownTSD/BAB MEMO #275-72
+TSD/BAB MEMO #275-72
 
 20 July 1972
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17668.png
-
 Case Officer.
 
 (2) Daniel K. BURKE, formerly a Staff Employee with SR Division, will be a Staff Agent with the Mexican Station to do translation of LIPTAT material. He was granted a Security Approval on 23 February 1951. Until his arrival the station is utilising the Services of Rowland K. WINGRESS on a TTY basis.

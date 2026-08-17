@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27997.png
-
-Convert to MarkdownElizabeth M. Brown
+Elizabeth M. Brown
 
 3134 Q. Street, N. W.
 Washington, D. C. 20007

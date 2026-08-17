@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6002.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 * The *Cuban Invasion -- Maritime Aspects, 1961*, written by Savilion H. Chapman in November 1966, and controlled by Special Operations Division.
 

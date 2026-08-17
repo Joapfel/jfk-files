@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29621.png
-
-Convert to MarkdownClassification:
+Classification:
 
 - 20E -
 

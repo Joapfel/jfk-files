@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16387.png
-
-Convert to Markdowng) Noel GUERRERO Santiago
+g) Noel GUERRERO Santiago
 
 These individuals represent immediate targets on whom we
 have already undertaken action. We anticipate that certain

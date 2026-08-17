@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10645.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OCC 66-2615
 

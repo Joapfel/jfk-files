@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30333.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Sawyer. But he might have been a cryptographer in the Marine Corps. He might have been as an enlisted man, he might have been a cryptographer and know all our codes and code methodology that might help break codes and that sort of thing, but nobody ever asked him. That is what I don't understand. And I can't believe it, very frankly.
 2

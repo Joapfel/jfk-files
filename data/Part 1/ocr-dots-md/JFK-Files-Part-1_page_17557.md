@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17557.png
-
-Convert to MarkdownPROJECT REVIEW - PROJECT LIFEAR
+PROJECT REVIEW - PROJECT LIFEAR
 
 I. Product of the Project
 

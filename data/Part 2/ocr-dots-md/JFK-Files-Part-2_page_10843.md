@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10843.png
-
-Convert to MarkdownNK 89-56
+NK 89-56
 
 Height 6
 Weight 190 pounds

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31887.png
-
-Convert to MarkdownALL
+ALL
 
 LCB 1CO 075
 

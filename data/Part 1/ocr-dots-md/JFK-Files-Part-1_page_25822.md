@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25822.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA ____________ (Specially Air or SeaPOW)
 

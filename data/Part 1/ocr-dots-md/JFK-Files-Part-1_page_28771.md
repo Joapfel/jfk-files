@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28771.png
-
-Convert to Markdown14-00000
+14-00000
 
 FEB-PAT-ACT OF 1970.PL92-ZIC.DEC.22.1971.FX.0R11637 EFP 1-9-72
 

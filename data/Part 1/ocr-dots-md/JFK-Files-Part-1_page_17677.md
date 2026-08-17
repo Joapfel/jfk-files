@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17677.png
-
-Convert to Markdown4. Miscellaneous
+4. Miscellaneous
 
 1. Supplies
    (paper rolls, wire, tubes,

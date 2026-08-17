@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17685.png
-
-Convert to Markdown3 July 1957
+3 July 1957
 
 MEMORANDUM FOR: Chief, E/Poland
 SUBJECT: Project LIPEAT

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14523.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Letter to Honorable Robert Murphy
 Deputy Under Secretary of State

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8261.png
-
-Convert to Markdownfacility available.
+facility available.
 
 g. Transportation under escort via MATS to military base Panama proposed.
 NB (included at bottom of page): ADAMSON reworked cable and rew'd draft

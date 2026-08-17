@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27944.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 Office Memorandum • UNITED STATES GOVERNMENT
 
 STANDARD FORM NO. 84

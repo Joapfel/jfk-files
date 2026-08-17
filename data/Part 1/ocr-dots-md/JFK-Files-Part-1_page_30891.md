@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30891.png
-
-Convert to MarkdownMexico, D.F.
+Mexico, D.F.
 
 31 July, 1970
 

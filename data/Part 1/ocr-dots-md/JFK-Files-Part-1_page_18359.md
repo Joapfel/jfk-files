@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18359.png
-
-Convert to Markdown19 May 1948
+19 May 1948
 
 Mr. William P. Burke
 P. O. Box 1016

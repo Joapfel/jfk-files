@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8988.png
-
-Convert to Markdown<table><tr><td>231<br/>29 MAY 62</td><td style="text-align:right;">L0</td></tr><tr><td colspan="2">DIRECTOR</td></tr><tr><td>MEXICO CITY</td><td>RB Printing (check one):<br/>No CS Record Value. Deposit.<br/>RI file this copy as Indicated. V<br/>Branch copy filed as Indicated.</td></tr><tr><td>W11 8</td><td rowspan="2">RS Indexing (check one):<br/>Marked __________. No use required.<br/>Signature: S Molnar</td></tr><tr><td>CA 2, CA/PRG, S/C 2</td></tr></table>
+<table><tr><td>231<br/>29 MAY 62</td><td style="text-align:right;">L0</td></tr><tr><td colspan="2">DIRECTOR</td></tr><tr><td>MEXICO CITY</td><td>RB Printing (check one):<br/>No CS Record Value. Deposit.<br/>RI file this copy as Indicated. V<br/>Branch copy filed as Indicated.</td></tr><tr><td>W11 8</td><td rowspan="2">RS Indexing (check one):<br/>Marked __________. No use required.<br/>Signature: S Molnar</td></tr><tr><td>CA 2, CA/PRG, S/C 2</td></tr></table>
 
 <table><thead><tr><th colspan="2" style="text-align:center; font-weight:bold;">ROUTING</th></tr></thead><tbody><tr><td style="text-align:left;">1</td><td style="text-align:right;">4</td></tr><tr><td style="text-align:left;">2</td><td style="text-align:right;">5</td></tr><tr><td style="text-align:left;">3</td><td style="text-align:right;">6</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30564.png
-
-Convert to Markdown6 December 1947
+6 December 1947
 
 Subject: For Past Personnel
 

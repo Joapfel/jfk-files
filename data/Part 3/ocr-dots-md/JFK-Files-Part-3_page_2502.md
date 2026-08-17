@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2502.png
-
-Convert to MarkdownHughes, Brent H. Exhibits Section
+Hughes, Brent H. Exhibits Section
 Isner, James D. Messenger Unit
 Jones, Robert B. Director's Office (Clerk)
 Koerner, Julian A. Security Patrol Clerk

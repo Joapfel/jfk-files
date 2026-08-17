@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23482.png
-
-Convert to MarkdownCuban contacts than RIKON who is a Puerto Rican, as there exists a certain amount of antagonism between Cubans and Puerto Ricans. YATVADA also has the advantage of having had three years of university work in Costa Rica.
+Cuban contacts than RIKON who is a Puerto Rican, as there exists a certain amount of antagonism between Cubans and Puerto Ricans. YATVADA also has the advantage of having had three years of university work in Costa Rica.
 
 6. It is the consensus of opinion among the interested officers at Headquarters and in the field that Wallace C. RIXON should be given the opportunity of serving elsewhere in Latin America in a locality and situation where he will have greater opportunity to produce results. Plans are now being drawn up to shift RIXON to another country in September 1954.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10212.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 dissident groups in the Washington area considered
 to be potential threats to Agency personnel and

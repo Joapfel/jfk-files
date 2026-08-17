@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14863.png
-
-Convert to Markdown14-0009D
+14-0009D
 
 <table><thead><tr><th>DATE</th><th>TO</th><th>FROM</th><th>ACTION</th><th>INFO</th></tr></thead><tbody><tr><td>5 FEB 59</td><td>DIRECTOR</td><td>FRANKFURT</td><td>SR 6</td><td>EE 4, WE 4, S/C 2</td></tr></tbody></table>
 

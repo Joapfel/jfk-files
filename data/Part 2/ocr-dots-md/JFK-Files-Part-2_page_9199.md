@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9199.png
-
-Convert to MarkdownRE: MICHAEL HALSEY BROWN
+RE: MICHAEL HALSEY BROWN
 
 HN T-1 furnished the following description of Brown:
 

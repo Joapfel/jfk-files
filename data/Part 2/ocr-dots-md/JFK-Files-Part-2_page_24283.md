@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24283.png
-
-Convert to Markdownthe current written policy of the Agency that "to the degree that domestic proprietary or cover companies are required, a clear justification will be developed as to the relationship of their support of our overseas operations."
+the current written policy of the Agency that "to the degree that domestic proprietary or cover companies are required, a clear justification will be developed as to the relationship of their support of our overseas operations."
 
 In the one area of continuing large-scale activity, the investment complex, the Director has moved to insure propriety even in an area where there is no evidence that any illegal conduct has occurred. The current policy, established as of June 1975 is:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6620.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 public and noted that these contributions averaged approximately $1200 per day. He explained to several employees of the SCLC Finance Office he thought these contributions were the result of a spontaneous reaction by the public to the recent shooting of JAMES H. MEREDITH in Mississippi rather than the solicitation efforts on the part of STANLEY LEVISON.
 

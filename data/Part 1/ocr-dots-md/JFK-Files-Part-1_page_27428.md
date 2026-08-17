@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27428.png
-
-Convert to MarkdownPROPOSED BIOGRAPHY
+PROPOSED BIOGRAPHY
 
 2732, William V., - b. Dec., August 24, 1903; Bostons
 College, A. B., 1939; budget sales manager, retail store, 1953-61;

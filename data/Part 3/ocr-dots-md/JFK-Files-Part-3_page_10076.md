@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10076.png
-
-Convert to MarkdownNR 007 NK CODE
+NR 007 NK CODE
 
 6:06PM URGENT MARCH 26, 1975 JCG
 

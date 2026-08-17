@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9315.png
-
-Convert to Markdownphoto of KRONSTADT
+photo of KRONSTADT
 (we haven't; can be got)
 
 **Caption:** to the effect: this is the island fortress off Petrograd,

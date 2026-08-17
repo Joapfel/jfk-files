@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34938.png
-
-Convert to MarkdownSeptiembre 21, 1967
+Septiembre 21, 1967
 
 Sra. Maria Cornuda
 Colina No. 33

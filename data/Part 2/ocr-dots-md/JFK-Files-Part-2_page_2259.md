@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2259.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10. Subject Henrykovicekl: enjedion hissie status as detailed under art. 6 on the cahoot, of civil. Anero, American himself, in exil in Cft., Colorado and aumer. He will be acted on. He has been in intelligence work for the past nine months, a long portion of which was performed outsid of the United States.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26125.png
-
-Convert to MarkdownIt took us ten, twelve days to do it, and the
+It took us ten, twelve days to do it, and the
 time for them to do it had passed over, and
 the Russians stood down in the interim, so the
 need had passed.

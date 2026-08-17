@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15074.png
-
-Convert to MarkdownMemorandum to Mr. DeLoach
+Memorandum to Mr. DeLoach
 
 Re: Director's Meeting with
 Assistant Attorney General

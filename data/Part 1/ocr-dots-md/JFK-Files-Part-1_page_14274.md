@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14274.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OSMA-23,415
 

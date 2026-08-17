@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25090.png
-
-Convert to MarkdownTOP SECRET - SENSITIVE
+TOP SECRET - SENSITIVE
 
 ENCLOSURE
 

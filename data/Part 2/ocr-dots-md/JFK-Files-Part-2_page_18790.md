@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18790.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 Indices of this office do not contain any references reflecting derogatory information with respect to JAFFE's wife.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6069.png
-
-Convert to Markdown- Mando que se cumpra e execuite a presente ordem em todas as suas partes.
+- Mando que se cumpra e execuite a presente ordem em todas as suas partes.
 
 Palacio da Presidencia, en Havana, a 12 de Marzo de 1962
 

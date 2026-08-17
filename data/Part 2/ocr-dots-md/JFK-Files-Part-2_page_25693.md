@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25693.png
-
-Convert to MarkdownHW 50955 DocId:32423630 Page 426
+HW 50955 DocId:32423630 Page 426
 
 <table>
    <tr>

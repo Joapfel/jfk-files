@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3995.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "Have you ever deliberately given classified information on documents to any unauthorized person?"
 

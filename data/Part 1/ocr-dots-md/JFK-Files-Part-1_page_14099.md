@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14099.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>CSS<br/>DATE : 0 MAR 61<br/><br/>TO : BELL<br/><br/>FROM : NEXICO CITY<br/><br/>ACTION : SELL 15<br/><br/>INFO : DDP, CCP, ADOP/A, WH 3, BELL S/C<br/><br/></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>CSS<br/>DATE : 0 MAR 61<br/><br/>TO : BELL<br/><br/>FROM : NEXICO CITY<br/><br/>ACTION : SELL 15<br/><br/>INFO : DDP, CCP, ADOP/A, WH 3, BELL S/C<br/><br/></table>
 
 <table><thead><tr><th colspan="4">ROUTEING</th></tr><tr><th>1</th><th>2</th><th>3</th><th>4</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td></tr><tr><td>MAR 9 0445Z 61</td><td></td><td></td><td></td></tr><tr><td>PRIORITY</td><td></td><td></td><td></td></tr><tr><td>IN 2645</td><td></td><td></td><td></td></tr></tbody></table>
 

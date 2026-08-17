@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35225.png
-
-Convert to Markdown# PRENTE REVOLUCIONARIO DEMOCRATICO
+# PRENTE REVOLUCIONARIO DEMOCRATICO
 
 ## Efectos de Escritorio
 

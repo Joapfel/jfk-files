@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25675.png
-
-Convert to MarkdownOsmond 201 - 57 y� fied - chon. amended.
+Osmond 201 - 57 y� fied - chon. amended.
 Bollin for access.
 -> Cl. CIA files on John Wilson - Hudson.
 

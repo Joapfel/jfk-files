@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11985.png
-
-Convert to Markdownwalkie-talkies and revolver bulges at the door of their plain dark suits. They station themselves around the hotel entrance and even in the flower beds. They have the place surrounded.
+walkie-talkies and revolver bulges at the door of their plain dark suits. They station themselves around the hotel entrance and even in the flower beds. They have the place surrounded.
 
 There have been no phone calls—or at least that is the word from the desk. Branch paces nervously around the room. He thinks that something he already knows about C.I.A. Cubans and terrorism must be the key to what's happening, but he doesn't know what it is. He tells everything he knows to Rothchild, going all the way back through Prio and the pre-Castro stud- seat movement. Rothchild thinks Branch has lost his mind. It is fear, he figures. Branch realizes that Rothchild is lying down on the bed pretending not to be awake, that he has fallen into a stupor. It is fear, Branch figures.
 

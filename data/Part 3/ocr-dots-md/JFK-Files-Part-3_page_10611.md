@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10611.png
-
-Convert to Markdown3. Consideration is being given to invite the State Police to make raids at known klan meetings. The local authorities, of course, will not be invited to participate since only one most likely in on the klan meetings. MHSP Investigators at McComb have indicated they seemed interested in this sort of thing and it is believed this will have the backing of the governor since he has indicated such to them. This type of thing, of course, will be used at places where technical installations are not feasible or productive.
+3. Consideration is being given to invite the State Police to make raids at known klan meetings. The local authorities, of course, will not be invited to participate since only one most likely in on the klan meetings. MHSP Investigators at McComb have indicated they seemed interested in this sort of thing and it is believed this will have the backing of the governor since he has indicated such to them. This type of thing, of course, will be used at places where technical installations are not feasible or productive.
 
 4. Will participate with the governor in press releases on the arrests of klansmen when appropriate. This has been done in the recent arrests in McComb, Mississippi, in connection with recent bombings in that area.
 

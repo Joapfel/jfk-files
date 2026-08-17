@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22362.png
-
-Convert to Markdown# McCord Letters (continued)
+# McCord Letters (continued)
 
 Mr. Helms directed that the letter should be retained in the file, but that nothing further should be done about it and that he would take care of it. Thereafter a series of letters were received from Mr. McCord by Paul Gaynor, then the Chief of Security Research Staff within the Office of Security. These letters were received by Mr. Gaynor at his home. Each letter was promptly brought to the attention of Mr. Helms. The thrust of these letters was that the Committee to Re-elect the President and high officials within the Nixon Administration were planning to blame the CIA for the Watergate break-in. Mr. Helms directed that these letters not be referred to the Justice Department and that he would take care of them. Mr. Osborn recalls being present when the matter was discussed with the General Counsel of the CIA, Mr. Houston, who advised that the CIA was not obligated to reveal these letters to the Justice Department.
 

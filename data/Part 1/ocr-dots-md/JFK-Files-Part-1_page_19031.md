@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19031.png
-
-Convert to MarkdownSECRET
+SECRET
 
 low NPD vote. A postelection poll of 1967 voters in Bremen showed that, unlike the Hitler movement, the National Democrats do not yet attract many women and youth. More than two thirds of the voters for the party, were males, and the strongest participation was in the 45 to 60 age bracket.
 

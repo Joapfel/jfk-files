@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18105.png
-
-Convert to MarkdownLIEUTENANT
+LIEUTENANT
 GENERAL
 
 Joseph F. Carroll

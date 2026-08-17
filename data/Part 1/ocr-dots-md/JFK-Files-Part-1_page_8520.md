@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8520.png
-
-Convert to MarkdownSUBJECT: Policeman recruited by LOGINDV
+SUBJECT: Policeman recruited by LOGINDV
 
 1. This case started about fifteen months ago and the only info we know of is the RODESTRON couple that LOGINDV asked the policeman to check on. Is the case active? What requirements are being given to the policeman by LOGINDV? Are any Americans involved? Have any other Soviets been involved? LOGINDV specialises in US operations. He should may be giving the policeman assignments in support of his US operations.
 

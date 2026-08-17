@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2526.png
-
-Convert to MarkdownSECRET
+SECRET
 
 expected to decline steadily as the unpaid balance is amortized over the next two years. It is, therefore, requested that Mr. Rosnek's contract be amended to also include this payment.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30414.png
-
-Convert to Markdownan individual is a military intelligence agent would the fact
+an individual is a military intelligence agent would the fact
 of that agency status be noted and a 201 file opened on that
 individual?
 

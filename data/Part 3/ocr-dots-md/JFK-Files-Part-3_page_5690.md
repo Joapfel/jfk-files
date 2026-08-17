@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5690.png
-
-Convert to MarkdownRECEIVED-LIKE FOR F:1
+RECEIVED-LIKE FOR F:1
 
 RECEIVED
 

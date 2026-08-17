@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1058.png
-
-Convert to MarkdownS-Z-C-R-E-T
+S-Z-C-R-E-T
 
 This Notice Expires 3 October 1957
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5080.png
-
-Convert to MarkdownBilling Code: 6118-01-P
+Billing Code: 6118-01-P
 
 ASSASSINATION RECORDS REVIEW BOARD
 

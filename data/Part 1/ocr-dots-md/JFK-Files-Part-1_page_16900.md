@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16900.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FORM<br/>8-64<br/>(40)</td>
     <td>53a USE PREVIOUS EDITION.</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2546.png
-
-Convert to MarkdownAD MINISTRATIVE
+AD MINISTRATIVE
 INTERNAL USE ONLY
 
 Mr. Bruce A. BERTOTALLY

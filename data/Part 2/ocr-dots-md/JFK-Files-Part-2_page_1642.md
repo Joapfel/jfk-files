@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1642.png
-
-Convert to MarkdownVIA: AIR
+VIA: AIR
 
 SPECIFY AIR OR SEA POUCH
 

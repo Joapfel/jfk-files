@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14838.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>ATE<br/>485 JM/DLD/<br/>26 MAR 59</td><td>S-E-C-R-E-T</td></tr><tr><td>TO<br/>DIRECTOR</td><td></td></tr><tr><td>FROM<br/>PARIS</td><td></td></tr><tr><td>ACTION<br/>SR 6</td><td></td></tr><tr><td>INFO<br/>CI, CI/OPS, FI, FI/OPS, EE 4, WE 4, OS 2, S/C 2,<br/>DPD 4</td><td>ROUTING<br/><table><tr><td>1</td><td>DG3</td><td>4</td></tr><tr><td>2</td><td>DG3</td><td>5</td></tr><tr><td>3</td><td>C</td><td>6</td></tr></table><br/>MAR 27 0238Z 59<br/><hr/>ROUTINE<br/><hr/>IN 37247</td></tr><tr><td>TO<br/>DIR<br/>FRAN FROB<br/>REDWOOD REDSOX AEACRE AEASPIC SECUR</td><td>INFO<br/>CITE<br/>PARI 5504</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>ATE<br/>485 JM/DLD/<br/>26 MAR 59</td><td>S-E-C-R-E-T</td></tr><tr><td>TO<br/>DIRECTOR</td><td></td></tr><tr><td>FROM<br/>PARIS</td><td></td></tr><tr><td>ACTION<br/>SR 6</td><td></td></tr><tr><td>INFO<br/>CI, CI/OPS, FI, FI/OPS, EE 4, WE 4, OS 2, S/C 2,<br/>DPD 4</td><td>ROUTING<br/><table><tr><td>1</td><td>DG3</td><td>4</td></tr><tr><td>2</td><td>DG3</td><td>5</td></tr><tr><td>3</td><td>C</td><td>6</td></tr></table><br/>MAR 27 0238Z 59<br/><hr/>ROUTINE<br/><hr/>IN 37247</td></tr><tr><td>TO<br/>DIR<br/>FRAN FROB<br/>REDWOOD REDSOX AEACRE AEASPIC SECUR</td><td>INFO<br/>CITE<br/>PARI 5504</td></tr></tbody></table>
 
 1. RE SUBJECT LCFLUTTER, AEASPIC OK FOREIGN INTELLIGENCE, MINOR EXAGGERATIONS LIFE HISTORY.
 

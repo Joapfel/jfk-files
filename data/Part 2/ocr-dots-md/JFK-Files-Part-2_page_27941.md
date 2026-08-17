@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27941.png
-
-Convert to MarkdownAMERICAN CIVIL LIBERTIES UNION
+AMERICAN CIVIL LIBERTIES UNION
 
 22 East 40th Street New York, New York 10016 (212) 725-1222
 

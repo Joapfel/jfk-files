@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5127.png
-
-Convert to Markdownslogans and initials of yet another group. Among groups named in testimony before the Senate Internal Security Subcommittee are: Accion Cubana, or Cuban Action; Alpha 66, a name adopted when victory in 1966 seemed possible; FLNC, standing for Frente de Liberacion Nacional de Cuba, which means Cuban National Liberation Front, and Pragmatistas, which means what it sounds like—pragmatists.
+slogans and initials of yet another group. Among groups named in testimony before the Senate Internal Security Subcommittee are: Accion Cubana, or Cuban Action; Alpha 66, a name adopted when victory in 1966 seemed possible; FLNC, standing for Frente de Liberacion Nacional de Cuba, which means Cuban National Liberation Front, and Pragmatistas, which means what it sounds like—pragmatists.
 
 A group calling itself Zero issued a "death list" of people marked for killing and, according to officials, several persons on the list soon died violent deaths.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21646.png
-
-Convert to Markdown131
+131
 
 Mr. Schwarz. Can you tell from the face of it, are we correct that this is a document that was sent from the CIA station in Santiago to CIA headquarters purporting to come from Colonel Wimert and purporting to be directed to Lieutenant General Bennett?
 

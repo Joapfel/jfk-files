@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31636.png
-
-Convert to Markdownwhole town. He knew that SS men were torturing captured resistance fighters, but it wasn't his business to interfere.
+whole town. He knew that SS men were torturing captured resistance fighters, but it wasn't his business to interfere.
 
 ## FOLLOWING ORDERS
 

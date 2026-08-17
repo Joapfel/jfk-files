@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8042.png
-
-Convert to Markdown13-00000
+13-00000
 
 Kopkind, Andrew. "The Kennedy Mystery Reopened." *New Statesman*, 29 July 1966, p. 163.
 

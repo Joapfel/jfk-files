@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12716.png
-
-Convert to MarkdownIV. Changes, additions, and deletions of data appearing in section A of reserve index cards
+IV. Changes, additions, and deletions of data appearing in section A of reserve index cards
 
 (A) Changes in data appearing on section A reserve index cards should be [forwarded to clerk in each field division handling these cards.]
 

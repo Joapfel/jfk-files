@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13145.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 TO : Mr. Belmont
 FROM : A. Rosen

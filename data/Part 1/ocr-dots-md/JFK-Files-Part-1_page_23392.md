@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23392.png
-
-Convert to Markdown# SECRET
+# SECRET
 PERSONAL RECORD QUESTIONNAIRE
 
 TRI /PRC/ 26

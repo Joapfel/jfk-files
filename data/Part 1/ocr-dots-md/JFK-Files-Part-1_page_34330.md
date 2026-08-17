@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34330.png
-
-Convert to Markdown* e.- Colombia: Mr. José R. Mercado, President of the Confederation of Colombian Workers (CTC) delivered a memorandum to His Excellency the Japanese Ambassador to Colombia, dated October 29, 1965 on the same subject.
+* e.- Colombia: Mr. José R. Mercado, President of the Confederation of Colombian Workers (CTC) delivered a memorandum to His Excellency the Japanese Ambassador to Colombia, dated October 29, 1965 on the same subject.
 
 An increase of this reaction may be expected.
 

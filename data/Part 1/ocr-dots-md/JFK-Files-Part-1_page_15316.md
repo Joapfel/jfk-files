@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15316.png
-
-Convert to Markdown71. He got the old passports, those could be easily bought on black market, and out of those two passports he made a new one for Werwert.
+71. He got the old passports, those could be easily bought on black market, and out of those two passports he made a new one for Werwert.
 
 72. David went into details in describing how he prepared the passport, especially how he exchanged the photographs which was fixed by groundlets, and thus, could not be removed and simply replaced. He had to use plenty of skilled washing and master-photography for removing the old image and replacing it by the new one without damaging the passport, nor the "photo-graph" itself.
 

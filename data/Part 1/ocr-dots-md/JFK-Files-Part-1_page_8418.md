@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8418.png
-
-Convert to MarkdownSUBJECT: Julio PLATAS Urbina, born 10 October 1941 in Empalme, Sonora
+SUBJECT: Julio PLATAS Urbina, born 10 October 1941 in Empalme, Sonora
 
 1. It has come to our attention that Julio PLATAS Urbina, an agent of the Soviet KGB, is presently living in Bacobampo, Sonora. PLATAS has been known to us since 1961, when he was in contact with Alexander DROVKIN, a KGB officer who was then and still is attached to the Soviet Embassy in Mexico City as a Third Secretary. In 1965, PLATAS was in contact with Valentin LOGIANOV, a KGB officer who is a Third Secretary and Consul of the Soviet Embassy in Mexico.
 

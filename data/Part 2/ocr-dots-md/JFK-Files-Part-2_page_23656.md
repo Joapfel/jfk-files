@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23656.png
-
-Convert to Markdowncommittee look at carrying the budget process a step further
+committee look at carrying the budget process a step further
 and instead of appropriating or authorizing the appropriation
 funds to the different departments for intelligence purposes,
 that in fact they are authorized to the DCI who would then

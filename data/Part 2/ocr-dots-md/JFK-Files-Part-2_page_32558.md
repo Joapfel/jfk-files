@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32558.png
-
-Convert to MarkdownSECRET
+SECRET
 
 There have been at least two recent cases of Ecuadoran returnees from Cuba being arrested upon their arrival, one of them having been found in possession of a large sum of U.S. dollars, and another allegedly having a plan of revolutionary action found on his person. In both cases the Ecuadoran authorities had been informed of the pending arrivals of these individuals by the CIA station.
 

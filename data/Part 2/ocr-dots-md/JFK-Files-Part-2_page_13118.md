@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13118.png
-
-Convert to MarkdownThis document is accepted in response to your request, and is not for dissem- nation outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized person- nel without the express approval of the FBI.
+This document is accepted in response to your request, and is not for dissem- nation outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized person- nel without the express approval of the FBI.
 
 5010-107-02
 

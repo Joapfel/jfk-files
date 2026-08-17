@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22104.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>FITZGERALD, Desmond<br/>HALPERN, Sam ✓<br/>CHEEVER, Bruce</td><td>Early 1963</td><td>CASTRO</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>FITZGERALD, Desmond<br/>HALPERN, Sam ✓<br/>CHEEVER, Bruce</td><td>Early 1963</td><td>CASTRO</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19230.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Summary of Agency Employment - Mr. Boris D. Tarasoff,
 

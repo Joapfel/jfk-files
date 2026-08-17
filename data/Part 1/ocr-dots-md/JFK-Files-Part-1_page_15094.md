@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15094.png
-
-Convert to Markdown-11-
+-11-
 
 23. CONNECTIONS WITH ANY INTELLIGENCE SERVICES:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33200.png
-
-Convert to MarkdownBIOGRAPHIC
+BIOGRAPHIC
 
 UNITED STATES DEPARTMENT OF JUSTICE
 Immigration and Naturalization Service

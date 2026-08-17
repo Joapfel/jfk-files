@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7170.png
-
-Convert to MarkdownEX-105
+EX-105
 REC-11
 
 Honorable Mike Mansfield

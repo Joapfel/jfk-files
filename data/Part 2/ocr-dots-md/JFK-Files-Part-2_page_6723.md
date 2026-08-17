@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6723.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 September 12, 1998
 

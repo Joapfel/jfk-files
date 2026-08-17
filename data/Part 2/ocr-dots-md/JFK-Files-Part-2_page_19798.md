@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19798.png
-
-Convert to MarkdownBOSTON WOMEN'S ABORTION
+BOSTON WOMEN'S ABORTION
 ACTION COALITION
 
 "The Militant," a weekly newspaper of the SWP,

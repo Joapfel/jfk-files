@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25755.png
-
-Convert to Markdown8. An official declaration that should Castro engage in certain specified proscribed actions the U.S. will in each instance destroy a major installation inside Cuba (the "Rostow Doctrine").
+8. An official declaration that should Castro engage in certain specified proscribed actions the U.S. will in each instance destroy a major installation inside Cuba (the "Rostow Doctrine").
 
 **Advantages**
 

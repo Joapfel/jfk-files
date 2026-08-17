@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8287.png
-
-Convert to Markdownporque ya tiene que partir en julio, es por lo que ultinamente está
+porque ya tiene que partir en julio, es por lo que ultinamente está
 cometiendo errores. Quiere hacerlo, a como de lugar, presionando
 a la gente de Aquí que antes jamás había. El día 3 de mayo lo vi
 en Cuauhtzingo, y sabiendo que yo no quiero trabajar para él, me

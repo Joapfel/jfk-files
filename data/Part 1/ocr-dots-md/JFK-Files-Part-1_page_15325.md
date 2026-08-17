@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15325.png
-
-Convert to Markdown-27-
+-27-
 
 ADDITIONAL QUESTIONS.
 

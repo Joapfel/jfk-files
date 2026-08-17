@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10727.png
-
-Convert to MarkdownF.B. CRIM DUEEN AUR OF INVESTIGATION
+F.B. CRIM DUEEN AUR OF INVESTIGATION
 
 August 27, 1971
 

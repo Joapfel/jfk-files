@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4164.png
-
-Convert to Markdown26 March 1963
+26 March 1963
 
 ADDITIONAL NOTE IN MY MEMORANDUM OF DISCUSSION WITH THE
 PRESIDENT:

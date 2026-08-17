@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24377.png
-
-Convert to MarkdownIn depth treatment of the assassination question has lengthened
+In depth treatment of the assassination question has lengthened
 the Committee's schedule but has greatly increased the Committee's awareness
 of the hard issues it must face in the months ahead. The Committee intends,
 nevertheless, to complete, by February 1976, its main job of undertaking the

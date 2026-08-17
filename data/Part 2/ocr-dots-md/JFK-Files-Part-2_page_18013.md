@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18013.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 RE: LEGAL ADVICE FOR PRESENT OR FORMER BUREAU EMPLOYEES
 

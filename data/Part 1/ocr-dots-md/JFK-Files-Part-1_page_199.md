@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_199.png
-
-Convert to Markdown-6-
+-6-
 
 42. Operations and Policy Research, Inc. - Washington, D.C.
 (119) 08

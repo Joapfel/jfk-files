@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21642.png
-
-Convert to MarkdownIUP SECRET
+IUP SECRET
 
 and saying, look, we want you to go along with this and use
 Colonel Wimert down there, he is really important to us, and

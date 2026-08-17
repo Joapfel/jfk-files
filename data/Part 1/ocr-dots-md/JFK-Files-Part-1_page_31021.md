@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31021.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 DDP/WH Personnel Officer
 
 SUBJECT:

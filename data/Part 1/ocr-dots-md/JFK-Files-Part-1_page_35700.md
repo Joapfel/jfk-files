@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35700.png
-
-Convert to Markdown3. Mr. DAWBEE and Mr. E.G. Indicated that from a NH standpoint only there would be no objection to a controlled inter- view with the Subject if the interview could be afforded the Sub- ject while he is still in New York City. This, however, would have to be coordinated with Staff C/ICB for possible objections that they might raise in view of their proposed use of the Sub- ject. [15] Requested that he be informed of any action taken in this matter and any public testimony or open court tes- timony would have to depend on the seriousness of the case being prepared by the Immigration authorities.
+3. Mr. DAWBEE and Mr. E.G. Indicated that from a NH standpoint only there would be no objection to a controlled inter- view with the Subject if the interview could be afforded the Sub- ject while he is still in New York City. This, however, would have to be coordinated with Staff C/ICB for possible objections that they might raise in view of their proposed use of the Sub- ject. [15] Requested that he be informed of any action taken in this matter and any public testimony or open court tes- timony would have to depend on the seriousness of the case being prepared by the Immigration authorities.
 
 4. Any contact with the Subject during his period of covert training from 6 July to approximately 15 August 1954 would have to also be coordinated with Mr. (Peter HOEHL) Covert Training Officer, OTS, whose office is located in Building T-31.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2269.png
-
-Convert to Markdown(Eugene Edward) Bishop, Jr.
+(Eugene Edward) Bishop, Jr.
 
 DOB : (May) 1941
 

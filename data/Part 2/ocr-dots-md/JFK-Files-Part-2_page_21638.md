@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21638.png
-
-Convert to Markdown114
+114
 
 Mr. Schwarz. Now, that purports to be from LTG Bennett
 to Colonel Wimert, and has the text in it which you sent on

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20229.png
-
-Convert to MarkdownTHE JEANNETTE RANKIN BRIGADE
+THE JEANNETTE RANKIN BRIGADE
 
 Vol II
 

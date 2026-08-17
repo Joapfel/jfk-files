@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30330.png
-
-Convert to Markdown1 this very quickly, between 1964 and 1969. Certainly you
+1 this very quickly, between 1964 and 1969. Certainly you
 2 couldn't have been very pleased with the way you were being
 3 treated by a country that you had defected to and offered to
 4 give information to. So for a period of that '64, to '69,

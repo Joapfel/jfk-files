@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30273.png
-
-Convert to Markdownpsychiatrists examine him?
+psychiatrists examine him?
 
 Mr. Nosenko. I think simply to be assured that it was
 right found decision, concerning this person. Two independent.

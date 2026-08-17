@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24922.png
-
-Convert to Markdowndiscussed in the presence of senior Administration officials.
+discussed in the presence of senior Administration officials.
 While those officials never consented to actual assassina-
 tion efforts, they also failed to indicate that assassination
 was impermissible as a matter of principle.

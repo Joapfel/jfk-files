@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9411.png
-
-Convert to Markdown# TABLE OF CONTENTS (Continued)
+# TABLE OF CONTENTS (Continued)
 
 M. Teaching Revolutionary Programs and Policies ... 76
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21635.png
-
-Convert to Markdownto be prepared in early 1955 which necessitated a decision as to whether
+to be prepared in early 1955 which necessitated a decision as to whether
 he would be fired from the KGB or transferred to some other component.
 
 The influence of his family is quite apparent in the above since

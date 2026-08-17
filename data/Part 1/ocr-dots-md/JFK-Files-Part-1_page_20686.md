@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20686.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, Finance Division
+MEMORANDUM FOR: Chief, Finance Division
 
 SUBJECT: Equalization Allowance Adjustment for
 

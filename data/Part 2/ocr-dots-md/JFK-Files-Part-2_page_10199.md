@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10199.png
-
-Convert to MarkdownCOMMENT
+COMMENT
 
 CI/PG does not maintain direct contact or liaison with any law enforcement organization, local or federal, at home or abroad. When the need arises, such contact is sometimes made on our behalf by OPS/AID or DEN-172 without divulging Agency interest. OPS/AID has such contacts at home and abroad because of the nature of its activities (training of foreign police/security personnel at home and abroad), and its Public Safety programs around the world. DEN-172 has such contacts at home - local and federal level - because its personnel are personally acquainted with law enforcement officers throughout the United States. Members of the DEN-172 staff (not identified) as CIA) have appeared as guest lecturers at such federal institutions as the U.S. Park Police, IPA, the U.S. Secret Service, and the U.S. Treasury Enforcement Division.
 

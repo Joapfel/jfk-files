@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20294.png
-
-Convert to Markdown# DECLARATION OF APPOINTEE
+# DECLARATION OF APPOINTEE
 
 This form is to be completed before service on duty. Answer all questions. Admitted unfavorable information about such matters as arrests or discharges will be considered together with the favorable information in your record in determining your present fitness for Federal employment. However, a false statement of dishonest answer to any question may be grounds for dismissal after appointment and is punishable by law.
 

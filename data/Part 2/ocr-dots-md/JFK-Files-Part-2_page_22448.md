@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22448.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Group began?
 

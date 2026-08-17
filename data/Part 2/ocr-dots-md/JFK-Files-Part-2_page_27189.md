@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27189.png
-
-Convert to MarkdownS-M Files
+S-M Files
 
 IV. Depositions (Cont.)
 

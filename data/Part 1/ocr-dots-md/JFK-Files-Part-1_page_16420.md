@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16420.png
-
-Convert to MarkdownMEMORANDUM FOR: Director of Training
+MEMORANDUM FOR: Director of Training
 
 ATTENTION : Chief, Cover Training/US/TM
 SUBJECT : Cover Training for member of CIWOOD organization

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14213.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Turning next to two recommendations of a general nature, Dr. Killian stated Recommendations 13 and 14 of the March 8 report dealing with the subjects of scientific intelligence resources and the effective organization and management of the National Reconnaissance Office.
 

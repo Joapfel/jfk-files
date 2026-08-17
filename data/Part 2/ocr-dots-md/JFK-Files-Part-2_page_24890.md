@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24890.png
-
-Convert to Markdownupon our government,* the use of underworld figures involves
+upon our government,* the use of underworld figures involves
 the following dangers:
 
 a. The use of underworld figures for "dirty business"

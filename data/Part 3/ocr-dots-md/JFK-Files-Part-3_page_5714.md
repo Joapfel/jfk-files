@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5714.png
-
-Convert to Markdown(E) BOMBING MATTERS OR RACIAL MATTERS (NEW CLASSIFICATION)
+(E) BOMBING MATTERS OR RACIAL MATTERS (NEW CLASSIFICATION)
 
 All correspondence and new cases opened under the character
 bombing matters or racial matters should carry the classification

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21685.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 or the corporation or country whose securities were being invested in?
 

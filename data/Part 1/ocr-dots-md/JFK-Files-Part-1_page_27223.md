@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27223.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">PERSONNEL ACTION REQUEST</td>
     <td colspan="2">CONFIDENTIAL</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5606.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Reconsideration of Releases in Scelso Testimony and Lopez Report described above, but also result in reluctance by Mexican liaison to provide similar assistance in the future. The Mexican Government would likely be subject to criticism by groups and individuals opposed on nationalism and sovereignty grounds to such close cooperation with the U.S. Government and, even more so, with the CIA. The continued success of CIA cooperation with the Mexicans, whether it be with ~~the President~~, the intelligence service, or ~~the police~~, depends on the fact that those relationships are, and continue to be, secret.
 

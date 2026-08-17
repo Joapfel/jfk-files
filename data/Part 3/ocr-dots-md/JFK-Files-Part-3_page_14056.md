@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14056.png
-
-Convert to MarkdownNandor via BZMAM
+Nandor via BZMAM
 Control System
 
 improved or instituted for the purpose of restricting the travel of Castro's

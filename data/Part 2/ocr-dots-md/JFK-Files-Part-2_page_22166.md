@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22166.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>PRESIDENT KENNEDY<br>BUNDY</td><td rowspan="2">Nov. 12, 1963</td><td>MONGODB</td></tr><tr><td>ROBERT KENNEDY✓<br>MCNAMARA</td><td>PRESIDENTIAL APPROVAL</td></tr><tr><td>HELMS</td><td></td><td></td></tr><tr><td>RUSK</td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>PRESIDENT KENNEDY<br>BUNDY</td><td rowspan="2">Nov. 12, 1963</td><td>MONGODB</td></tr><tr><td>ROBERT KENNEDY✓<br>MCNAMARA</td><td>PRESIDENTIAL APPROVAL</td></tr><tr><td>HELMS</td><td></td><td></td></tr><tr><td>RUSK</td><td></td><td></td></tr></tbody></table>
 
 **OCCURRENCE:**
 

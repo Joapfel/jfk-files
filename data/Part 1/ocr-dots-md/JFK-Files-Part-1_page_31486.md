@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31486.png
-
-Convert to Markdowndo such to diagonal this negative attitude and would pave the way for a more positive and productive cooperation between the national refugee groups and the agencies active in their behalf. The control would also be desirable to suppose, help to fill vacancies in exile representation of the kind described above.
+do such to diagonal this negative attitude and would pave the way for a more positive and productive cooperation between the national refugee groups and the agencies active in their behalf. The control would also be desirable to suppose, help to fill vacancies in exile representation of the kind described above.
 
 5. Another weakness of the organizations surveyed in the frontier countries is their almost universal tendency in greater or lesser degree to discriminate politically or personally in the distribution of assistance. There is no comparison between the extent of this weakness in the tense and unsettled atmosphere of the frontier countries and the more normal environment of the intermediary receiving countries, France and Britain. In addition to the injustice of such discrimination, definite opportunities are lost through failure seriously to attempt to win over, through less narrow assistance, elements (such as the Czech and Slovak Separatists, Hungarian exiles and the Swabs) which now oppose or in the future might oppose the political and national structures which NCFE recognizes and supports.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31298.png
-
-Convert to MarkdownSECRET
+SECRET
 
 15. COMMON SENSE
 Not observed

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32468.png
-
-Convert to MarkdownINCOMING TELEGRAM
+INCOMING TELEGRAM
 
 Department of State
 

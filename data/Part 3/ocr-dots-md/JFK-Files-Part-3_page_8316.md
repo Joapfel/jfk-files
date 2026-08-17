@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8316.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The purpose of Mr. Todorovich's conference with the District Attorney of Denver was to solicit his good offices to remove pressures and the possible serving of a subpoena on Dr. Joseph Smiley. He also sought to orient the District Attorney properly so that he would not continue to have an erroneous impression of the roles of the CIA and the FBI, thereby eliminating further adverse publicity.
 

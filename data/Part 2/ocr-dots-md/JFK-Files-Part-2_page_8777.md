@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8777.png
-
-Convert to MarkdownWashington and is very depressed. He claims that JFK has decided on the co-existence line and that everything is going down the drain. He states that present American policy is to work towards an acceptance of Castro."
+Washington and is very depressed. He claims that JFK has decided on the co-existence line and that everything is going down the drain. He states that present American policy is to work towards an acceptance of Castro."
 
 **WAVE 9060 (IN 29221) dated 26 September 1962**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7177.png
-
-Convert to Markdown7 June 1966
+7 June 1966
 
 SUBJECT: Requirement for LIREALM
 

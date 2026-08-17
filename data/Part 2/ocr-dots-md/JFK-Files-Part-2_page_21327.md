@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21327.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REFERENCES NOT INCLUDED IN THIS SUMMARY
 

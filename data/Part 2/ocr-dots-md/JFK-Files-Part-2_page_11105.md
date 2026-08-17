@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11105.png
-
-Convert to MarkdownV. Where security index flash notice has been placed with Identification Division, notation to that effect must appear on FD-128 and extra copy of FD-128 must be specifically designated for Bureau marked "Attention Identification Division" so that those records will [show] new office controlling existing security index flash notice.
+V. Where security index flash notice has been placed with Identification Division, notation to that effect must appear on FD-128 and extra copy of FD-128 must be specifically designated for Bureau marked "Attention Identification Division" so that those records will [show] new office controlling existing security index flash notice.
 
 VI. The old office of origin will submit current report.
 

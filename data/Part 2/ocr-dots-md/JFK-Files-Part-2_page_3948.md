@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3948.png
-
-Convert to Markdowna. Our records show that Richard G. Fecteau was aboard an American plane shot down over Manchuria in November 1952 and that he is serving in Peiping a twenty year sentence on spy charges. Fecteau, an OPC employee, was quoted in the press as saying that he worked for CIA.
+a. Our records show that Richard G. Fecteau was aboard an American plane shot down over Manchuria in November 1952 and that he is serving in Peiping a twenty year sentence on spy charges. Fecteau, an OPC employee, was quoted in the press as saying that he worked for CIA.
 
 b. F. Parker was not identified. He may possibly be John Floyd Parker, an Agency employee in 1964 who was in Japan in 1952.
 

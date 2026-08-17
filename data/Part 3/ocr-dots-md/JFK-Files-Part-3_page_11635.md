@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11635.png
-
-Convert to Markdownof the Internal Security Division of the Department each month and the listing of places to be searched under authority of the Master Search Warrant are maintained on a current basis. The Seat of Government and all field divisions maintain essential records for successful implementation of the EDP. Each office also maintains instructions to be turned over to the U. S. Attorneys and U. S. Marshals upon implementation.
+of the Internal Security Division of the Department each month and the listing of places to be searched under authority of the Master Search Warrant are maintained on a current basis. The Seat of Government and all field divisions maintain essential records for successful implementation of the EDP. Each office also maintains instructions to be turned over to the U. S. Attorneys and U. S. Marshals upon implementation.
 
 This program is coordinated by Special Records Unit, Research Section. Primary responsibility rests with the Department and changes can be made only upon approval of the Department. We merely recommend and/or suggest any desirable changes. Periodic checks are made to insure that all records connected with the EDP, stored away from Headquarters city,* are current. Field division surveys are kept up to date and the Bureau is advised semiannually of the status.
 

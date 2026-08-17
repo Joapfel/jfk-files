@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_891.png
-
-Convert to Markdown# CONCLUSION
+# CONCLUSION
 
 The Court should amend its decision to require that disclosure of the surveillance logs not be made.
 

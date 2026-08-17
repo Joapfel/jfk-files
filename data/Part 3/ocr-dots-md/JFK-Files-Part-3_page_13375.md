@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13375.png
-
-Convert to MarkdownSTURGIS: Well, I do have some notes here when we get off the record
+STURGIS: Well, I do have some notes here when we get off the record
 to see if I got anything else I can add.
 
 OLSEN: All right. Why don't we go off the record then, and you look through your notes and then you can tell us whether you have anything further you would like to add. Shall we do that?

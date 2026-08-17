@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35366.png
-
-Convert to MarkdownDATE
+DATE
 
 CHECK NO.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33928.png
-
-Convert to Markdown- 12 -
+- 12 -
 
 BUNKER HILL, INDIANA
 

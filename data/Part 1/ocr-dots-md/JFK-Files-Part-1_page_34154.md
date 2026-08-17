@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34154.png
-
-Convert to MarkdownII.- LIST.-
+II.- LIST.-
 
 | NAME | POST | VESSEL | PLACE | DATE |
 |---|---|---|---|---|

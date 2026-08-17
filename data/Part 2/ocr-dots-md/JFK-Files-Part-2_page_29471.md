@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29471.png
-
-Convert to Markdownd. HSCA Investigation of the possibility that the Mexico City Photosurveillance Operation Produced a Photograph of Lee Harvey Oswald
+d. HSCA Investigation of the possibility that the Mexico City Photosurveillance Operation Produced a Photograph of Lee Harvey Oswald
 
 (1) Introduction
 

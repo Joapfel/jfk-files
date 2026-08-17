@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8983.png
-
-Convert to MarkdownCONTACT REPORT
+CONTACT REPORT
 
 MEMORANDUM of Contact and Conversation
 SUBJECT: Henry Lopez

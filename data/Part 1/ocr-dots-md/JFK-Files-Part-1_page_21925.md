@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21925.png
-
-Convert to MarkdownCommittee called NOSENKO's father on the phone and told him
+Committee called NOSENKO's father on the phone and told him
 the whole story. NOSENKO's father never told either NOSENKO'S
 wife or mother of the incident, but did chide NOSENKO about
 it. The incident was brought before the Komsomol and discussed.

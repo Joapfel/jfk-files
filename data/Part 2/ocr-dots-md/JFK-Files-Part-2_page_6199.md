@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6199.png
-
-Convert to Markdown**Information Management Program**
+**Information Management Program**
 **Segments**
 
 * Records Management - identifier, storage

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4119.png
-
-Convert to Markdown13-00000
+13-00000
 
 R. C. Nagell
 Box 2337, Grd Cen Sta

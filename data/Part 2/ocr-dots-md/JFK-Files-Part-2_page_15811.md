@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15811.png
-
-Convert to MarkdownOne Smith and Wesson 32 caliber long revolver, serial number 4423;
+One Smith and Wesson 32 caliber long revolver, serial number 4423;
 
 One Marksmen Pehetthon caliber 177, no serial number;
 

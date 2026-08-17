@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3825.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 2 CITE MANGIA SORBA SECRET
 

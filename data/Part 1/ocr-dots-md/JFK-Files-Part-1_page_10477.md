@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10477.png
-
-Convert to MarkdownFORM 17-72
+FORM 17-72
 
 3216 USE PREVIOUS EDITIONS
 

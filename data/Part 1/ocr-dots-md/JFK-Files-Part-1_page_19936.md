@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19936.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Mr. Guy Vitale
 

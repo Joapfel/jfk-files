@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10425.png
-
-Convert to Markdown23 August, 1968
+23 August, 1968
 
 Iden A: Orlando Suarez
 

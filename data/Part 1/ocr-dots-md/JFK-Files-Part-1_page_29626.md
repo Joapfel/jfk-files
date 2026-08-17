@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29626.png
-
-Convert to MarkdownSECERT
+SECERT
 
 REPRODUCTION MASTERS
 

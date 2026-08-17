@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6447.png
-
-Convert to Markdown9 March 1962
+9 March 1962
 
 COPY OF COPIES
 SPECIAL DISTRIBUTION

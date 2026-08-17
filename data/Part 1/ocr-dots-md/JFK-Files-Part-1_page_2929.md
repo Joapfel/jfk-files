@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2929.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 ## (OTHER ASPECTS OF NOSENKO'S KGB CAREER)
 

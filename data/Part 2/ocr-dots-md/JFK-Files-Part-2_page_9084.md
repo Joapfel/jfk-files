@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9084.png
-
-Convert to MarkdownSECRET
+SECRET
 
 anybody's head and he further indicated that he was deliber-
 ating whether or not the recording should be used. It was

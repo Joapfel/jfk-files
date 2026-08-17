@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14621.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION<br/>SECRET</th><th colspan="3">PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO</td><td colspan="2">Chief, western Hemisphere Division</td><td rowspan="3" colspan="4">NO INDOURING REQUIRED<br/>ONLY QUALIFIED DESK CAN JUDGE INDICATING<br/>MICROFILM</td></tr><tr><td>FROM</td><td colspan="2">Chief, European Division<br/>Chief of Station, WH/Miami</td></tr><tr><td>SUBJECT</td><td colspan="2">Chief of Station, Madrid</td></tr><tr><td colspan="6">QU DOZE<br/>Comments of AMAUTO-1 on Current Topics of Interest</td></tr><tr><td colspan="6">ACTION REQUIRED · REFERENCES</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION<br/>SECRET</th><th colspan="3">PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO</td><td colspan="2">Chief, western Hemisphere Division</td><td rowspan="3" colspan="4">NO INDOURING REQUIRED<br/>ONLY QUALIFIED DESK CAN JUDGE INDICATING<br/>MICROFILM</td></tr><tr><td>FROM</td><td colspan="2">Chief, European Division<br/>Chief of Station, WH/Miami</td></tr><tr><td>SUBJECT</td><td colspan="2">Chief of Station, Madrid</td></tr><tr><td colspan="6">QU DOZE<br/>Comments of AMAUTO-1 on Current Topics of Interest</td></tr><tr><td colspan="6">ACTION REQUIRED · REFERENCES</td></tr></tbody></table>
 
 The following comments of AMAUTO-1 reflect Cuban thoughts
 on the Czechoslovaquian situation, internal Spanish politics,

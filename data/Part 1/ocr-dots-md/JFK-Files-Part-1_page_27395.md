@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27395.png
-
-Convert to MarkdownStandard Form No. 61a
+Standard Form No. 61a
 Approved January 21, 1943
 U S Civil Service Commission
 C. S. C. Dept. Clr. No 409

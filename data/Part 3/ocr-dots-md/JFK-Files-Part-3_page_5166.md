@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5166.png
-
-Convert to MarkdownCriminal Informants
+Criminal Informants
 
 - 4 -
 

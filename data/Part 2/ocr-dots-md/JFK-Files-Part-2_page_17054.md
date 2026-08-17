@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17054.png
-
-Convert to MarkdownU N I T E D S T A T E S G O V E R N M E N T
+U N I T E D S T A T E S G O V E R N M E N T
 
 M e m o r a d u m
 

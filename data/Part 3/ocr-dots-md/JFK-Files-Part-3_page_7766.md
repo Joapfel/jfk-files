@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7766.png
-
-Convert to MarkdownVIEWS CONTINUED
+VIEWS CONTINUED
 
 Internal Security Section recognizes that our investi-
 gations are conducted under both the authority conferred under

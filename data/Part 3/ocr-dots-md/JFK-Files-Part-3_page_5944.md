@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5944.png
-
-Convert to MarkdownRE: PROJECT HUNTER
+RE: PROJECT HUNTER
 
 After an extensive review of 2500 Hunter Reports since our last memo captioned as above and dated 8/21/62, we have made the following observations in the interest of economy in regard to Project Hunter as it related to our Bureau and your Agency to insure time will not be unnecessarily expended by our Bureau processing unwanted material and to save your Agency the expense involved in the preparation of such material.
 

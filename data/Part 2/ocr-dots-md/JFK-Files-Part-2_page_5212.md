@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5212.png
-
-Convert to MarkdownMAR 31 '97 12:08PM
+MAR 31 '97 12:08PM
 
 Since 25 May 1956 Mr. Humpuskin had seen SKAW casually, by chance, in various downtown New Orleans restaurants, and greetings were exchanged. The last much casual encounter was just before SWAK's resignation in 1965.
 

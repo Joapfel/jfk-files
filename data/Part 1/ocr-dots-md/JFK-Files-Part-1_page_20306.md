@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20306.png
-
-Convert to Markdown<html><body> <table>
+<html><body> <table>
   <thead>
     <tr>
       <th colspan="2">CONTINUATION OF PART II-LANQUAGE ELEMENTS</th>

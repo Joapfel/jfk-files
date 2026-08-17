@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8320.png
-
-Convert to Markdown14-06-20
+14-06-20
 
 his wife writes down every payment, Rafael receives and the book shows that no payment was received since Jan or Feb 27 (RIP does not remember which month was mentioned). L-1 stated that if it so, then, Rafael must be right. Because he was short of cash he paid him MN 150.- and stated that he would pay the remainder the next time, i.e. the next lesson, which was scheduled for Wed May 7 at 1700 hrs. ( NOTE: Rafael had a meet with RIP on the same day at 1620 hrs, and it was him to pick up this day and time. Rafael came to this meet on time ).
 

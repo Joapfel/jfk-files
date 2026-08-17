@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22690.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG : Robert N. Dahlgren
 UNIT : C/WH/III

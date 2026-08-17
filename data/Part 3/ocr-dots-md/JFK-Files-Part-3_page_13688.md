@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13688.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 AMLASH Case Officer. Yes, that's right.
 

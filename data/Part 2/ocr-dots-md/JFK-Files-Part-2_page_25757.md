@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25757.png
-
-Convert to Markdown799 BROADWAY NEW YORK 3, N. Y. OR egon 4-8295
+799 BROADWAY NEW YORK 3, N. Y. OR egon 4-8295
 
 to a mimeo machine to prepare public material if you are going to operate. A
 good typewriter is essential and above all people that will carry out the million

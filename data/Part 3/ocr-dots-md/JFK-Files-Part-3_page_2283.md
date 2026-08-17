@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2283.png
-
-Convert to Markdown# Memorandum to Mr. W. R. Wannall
+# Memorandum to Mr. W. R. Wannall
 
 Re: Sam A. Jaffe
 105-28333

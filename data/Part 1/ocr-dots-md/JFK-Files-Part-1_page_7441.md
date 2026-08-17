@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7441.png
-
-Convert to MarkdownCOPY
+COPY
 
 # Letter of H. R. Isacks to the C.C.P. concerning the China Forum
 

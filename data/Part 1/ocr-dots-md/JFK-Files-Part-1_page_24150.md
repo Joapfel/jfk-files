@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24150.png
-
-Convert to MarkdownRobert Williams
+Robert Williams
 
 Robert Williams es considerado en Cuba como una calunья que
 no puede helar mucho, no solamente por su complicado rango del Deep

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4189.png
-
-Convert to MarkdownSoviets or the West, such as Sukarno and certain South American countries, so that they will understand they are not leaning on very much when they lean on the Soviets.
+Soviets or the West, such as Sukarno and certain South American countries, so that they will understand they are not leaning on very much when they lean on the Soviets.
 
 6. Explained that I had given a complete briefing to General Eisenhower and conveyed to the President General Eisenhower's expression of friendship and support.
 

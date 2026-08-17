@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20983.png
-
-Convert to MarkdownSECRET/SCOPE(S)
+SECRET/SCOPE(S)
 
 Memorandum to Mr. W. R. Wannall
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26997.png
-
-Convert to MarkdownPHOTOCOPY FROM THE GERALD R. FORD LIBRARY
+PHOTOCOPY FROM THE GERALD R. FORD LIBRARY
 
 enroute to execute missions in South Vietnam. He proposed that the general policy be modified to permit high altitude overflights (35,000 feet) to and from South Vietnam, by planes based in Thailand. It was brought out that the average activity level was about two missions about every three days. There was agreement that photo reconnaissance in general against guerrilla targets was difficult but that this made it all the more important to do all that we can. These flights are essentially covert; as current agreements preclude the filing of flight plans for photo aircraft. Mr. Johnson said that the Department was willing to go along with this activity, but felt that the matter had to be reviewed by higher authority due to his very explicit previous instructions to the contrary. The Group's decision to approve this specific exception to the prohibition against photo flights over Laos was later reported to higher authority.
 

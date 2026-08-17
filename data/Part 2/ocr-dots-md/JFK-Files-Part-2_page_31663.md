@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31663.png
-
-Convert to Markdown14-207
+14-207
 
 COMMITTEE FOR CONSTITUTIONAL LIBERTIES
 (CCL), aka Citizens Committee for

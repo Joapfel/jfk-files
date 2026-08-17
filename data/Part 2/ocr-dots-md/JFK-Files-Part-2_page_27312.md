@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27312.png
-
-Convert to MarkdownA. Project CELOTEX I SECRET
+A. Project CELOTEX I SECRET
 
 B. Note about Memo for Dir of Security to the DCI, dtd 12 Feb 71
 

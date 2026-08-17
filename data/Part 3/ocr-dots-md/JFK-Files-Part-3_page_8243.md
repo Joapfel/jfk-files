@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8243.png
-
-Convert to Markdown(d) The materials which constitutes or underlies the "standing requirements" for information from the Special Operations Group by the FBI, Secret Service, and Immigration and Naturalization Service.
+(d) The materials which constitutes or underlies the "standing requirements" for information from the Special Operations Group by the FBI, Secret Service, and Immigration and Naturalization Service.
 
 (e) Any documents consisting of or relating to FBI comments on the "adequacy and relevancy" of Special Operations Group information.
 

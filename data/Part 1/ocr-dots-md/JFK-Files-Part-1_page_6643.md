@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6643.png
-
-Convert to MarkdownSubject: Gold Shipments
+Subject: Gold Shipments
 
 Place Acquired: [ ] Panama City, Panama
 Evaluation: [x] C

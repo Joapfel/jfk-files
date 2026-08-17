@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31059.png
-
-Convert to MarkdownFile Review of Manuel Ray y Rivero - Volumes I - XVIII
+File Review of Manuel Ray y Rivero - Volumes I - XVIII
 
 May 1, 1978
 

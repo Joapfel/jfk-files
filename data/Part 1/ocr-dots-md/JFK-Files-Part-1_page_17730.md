@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17730.png
-
-Convert to MarkdownLIFETAT
+LIFETAT
 
 EEN-09775
 TDCS0314/09444-65

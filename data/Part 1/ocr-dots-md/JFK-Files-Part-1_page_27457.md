@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27457.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Chief, Communications Division
 Chief, Personnel Security Branch

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19289.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">FORM NO. JUL 1950</td>
     <td>37-3</td>

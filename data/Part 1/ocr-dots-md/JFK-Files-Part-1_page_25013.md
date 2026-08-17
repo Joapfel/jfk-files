@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25013.png
-
-Convert to Markdown# Valeriy Vladimirovich KOSTIKOV
+# Valeriy Vladimirovich KOSTIKOV
 He is a 38-year-old officer of the KGB who occupies the cover position of Second Secretary. He first visited Mexico in 1959 for a Soviet Industrial Exposition and later came from September 1961 until August 1965. He returned again in September 1968 to replace another KGB officer.
 
 KOSTIKOV is considered to be one of the most effective and dangerous of the intelligence officers in Mexico. He has had a wide range of responsibilities which have included operations among emigre groups in western Mexico, operations directed against the United States and currently against the governments of Central America. He presently meets with exiles from Guatemala, Nicaragua, El Salvador and Honduras. He is known to have passed funds to these groups as well as tactical guidance.

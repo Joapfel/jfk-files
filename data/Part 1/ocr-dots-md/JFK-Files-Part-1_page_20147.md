@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20147.png
-
-Convert to Markdown9 October 1973
+9 October 1973
 
 RECOMMENDATIONS FOR: Secretary, G.C.S.O.
 

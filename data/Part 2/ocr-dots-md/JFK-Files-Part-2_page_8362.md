@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8362.png
-
-Convert to MarkdownMarch 19, 1957
+March 19, 1957
 
 Dear Mr. Dimitroff:
 

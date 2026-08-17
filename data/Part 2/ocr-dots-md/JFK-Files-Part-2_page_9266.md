@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9266.png
-
-Convert to MarkdownDavid Hilliard
+David Hilliard
 
 FREE FOOD
 PROGRAM

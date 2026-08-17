@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16247.png
-
-Convert to Markdown3. Sectional Title Namer: Example night fighters, Big Black five, etc. This will also help build morale.
+3. Sectional Title Namer: Example night fighters, Big Black five, etc. This will also help build morale.
 
 ## MILITARY TRAINING SCHEDULE
 

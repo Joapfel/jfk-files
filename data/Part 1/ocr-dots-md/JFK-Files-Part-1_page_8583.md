@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8583.png
-
-Convert to Markdownwhile cell acting info for A. S pretended he was hesitant to receive money but did not drag the story long ( from fear that A might change his mind ).
+while cell acting info for A. S pretended he was hesitant to receive money but did not drag the story long ( from fear that A might change his mind ).
 
 7. After the brief "ceremony" about giving and accepting the money S asked if he have any news about the US Embassy Phone Directory. He reminded him that he told at their last meet that he had no way of getting it. She asked if he know anybody working in the MI USIS. When S answered that he did not think so A told him there was a number of girls working for USIS, they work on the 3rd floor (of the Emb building) and several of them live in the Hotel Geneve; they carry out some propaganda; A is not sure "how far" can one get with them ( in terms of having good time ), but there is no problem of getting them ( although, the internet is limited to one girl) to go out for dinner and dancing. This is something she should look into. S commented to the effect did A have an idea how much it takes to take a chick like those for an evening of good time; such a bill runs about MN 700.- . A replied that money was no problem; if S lines up something it is enough if he phones him a day earlier and he will bring him the money.
 

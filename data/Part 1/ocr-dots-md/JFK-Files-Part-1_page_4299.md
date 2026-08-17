@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4299.png
-
-Convert to MarkdownMovimiento de Recuperacion Revolucionaria
+Movimiento de Recuperacion Revolucionaria
 
 2318 N. E. 9 COURT
 MIAMI, FLORIDA

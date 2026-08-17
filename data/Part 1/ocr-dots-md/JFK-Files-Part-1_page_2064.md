@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2064.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>CONTRACTORS</td>

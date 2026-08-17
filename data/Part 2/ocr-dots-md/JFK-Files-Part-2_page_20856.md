@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20856.png
-
-Convert to Markdown# NY 100-172646
+# NY 100-172646
 
 march on the Pentagon. For the information of AX & WFO,
 these individuals are identified as follows:

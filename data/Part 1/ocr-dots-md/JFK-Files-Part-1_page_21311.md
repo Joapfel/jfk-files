@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21311.png
-
-Convert to MarkdownVIA: AIR (SPECIFY AIR OR SEA POUCH)
+VIA: AIR (SPECIFY AIR OR SEA POUCH)
 
 DISPATCH NO. O7A-38
 

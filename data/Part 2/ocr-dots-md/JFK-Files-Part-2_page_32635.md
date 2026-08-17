@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32635.png
-
-Convert to MarkdownSECRET
+SECRET
 
 having received guerrilla training in Cuba, together with funds to support their activities. One item of $44,000 was publicized in the press.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30799.png
-
-Convert to Markdown-2-
+-2-
 
 GIVE PARTICULARS: Not Applicable
 

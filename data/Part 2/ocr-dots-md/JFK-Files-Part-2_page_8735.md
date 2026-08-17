@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8735.png
-
-Convert to Markdownships and cargoes. Now appears AMLEG agents generally unsuited for violent sabotage.
+ships and cargoes. Now appears AMLEG agents generally unsuited for violent sabotage.
 
 DIRECTOR 39186 Dated 11 May 1963
 

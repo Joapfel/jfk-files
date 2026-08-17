@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32645.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ANNEX D - ECUADOR
 

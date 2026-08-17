@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8704.png
-
-Convert to Markdown10.03.07
+10.03.07
 
 Individuo dueño de sí mismo que camina con soltura y gracia. Tiene poco o ningún interés en arrojar cosas pero generalmente conoce los mejores lugares en que encargar trabajos y tiende a ser muy exigente en cuanto al trabajo que se le hace. Parece tener relativamente poco conocimiento del funcionamiento de un automóvil, pero aprecia y cuida bien de uno bueno. Conduce con confianza pero generalmente a velocidad y sin darse mucha cuenta de otros.
 

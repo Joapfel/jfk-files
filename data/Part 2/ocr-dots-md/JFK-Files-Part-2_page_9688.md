@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9688.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 GERHARDT he had a man who was unknown and could take care of THOMPSON. This individual is believed to be FRANK DRAGER.
 

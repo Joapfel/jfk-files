@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20475.png
-
-Convert to MarkdownPH 100-49497
+PH 100-49497
 
 continuing value.
 

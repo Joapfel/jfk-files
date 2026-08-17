@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21251.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Subsequently photographs of KOSOLAPOV, FEDOSEYEV, ARTEMEV, and the two BOGDANOVAs were displayed to the [YOUNGERS] who made firm identifications of KOSOLAPOV, FEDOSEYEV, and NINA BOGDANOVA as being involved in their case. They were not certain that ARTEMEV was involved.
 

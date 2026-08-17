@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23903.png
-
-Convert to Markdownthat, while he could have created the capability on his own, any
+that, while he could have created the capability on his own, any
 urgings would have come from Bundy or Walt Rostow. In a later
 appearance, however, Bissell said he merely informed Bundy of
 the capability and that the context was a briefing by him and

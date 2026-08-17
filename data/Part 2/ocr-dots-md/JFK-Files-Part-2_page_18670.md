@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18670.png
-
-Convert to MarkdownCOPY RETAINED IN
+COPY RETAINED IN
 PERSONNEL RECORDS UNIT
 
 FBI

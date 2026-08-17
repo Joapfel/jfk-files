@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7218.png
-
-Convert to Markdown30 July 1968
+30 July 1968
 
 S.B.C. 
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26511.png
-
-Convert to Markdownbeing carried on in the mountains.
+being carried on in the mountains.
 
 Now I would like to say a few words for our comrade Rolando. They are nothing secret, but they are things which interest him personally.
 

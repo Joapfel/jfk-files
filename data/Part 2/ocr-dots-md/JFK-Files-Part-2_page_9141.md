@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9141.png
-
-Convert to MarkdownRH 157-1558
+RH 157-1558
 
 at the Holiday Inn, Princeton, New Jersey, for three and one-half
 months; the White Horse Bowling Alley for four weeks (place

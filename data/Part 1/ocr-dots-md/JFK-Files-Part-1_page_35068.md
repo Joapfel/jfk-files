@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35068.png
-
-Convert to Markdown# GASTOS RELATIVOS AL CHEQUE No. 419
+# GASTOS RELATIVOS AL CHEQUE No. 419
 
 FOR $6,937.52 - "PAULA AND SOSA"
 

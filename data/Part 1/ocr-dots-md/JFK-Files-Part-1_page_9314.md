@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9314.png
-
-Convert to Markdown**Caption:** to the effect: "George Plekhanov, one of Lenin's oldest disciples and collaborators, of whom Lenin said in 1923- 'No one is a true Bolshevik who does not know Plekhanov' (or words to that effect which I've read somewhere), and who told his wife, when the Red Guards forced their way into his house, November 13, 1923;" "How little you know these people! They are capable of hiring an assassin to kill me and shedding crocodile tears after my death to arouse people's emotions."
+**Caption:** to the effect: "George Plekhanov, one of Lenin's oldest disciples and collaborators, of whom Lenin said in 1923- 'No one is a true Bolshevik who does not know Plekhanov' (or words to that effect which I've read somewhere), and who told his wife, when the Red Guards forced their way into his house, November 13, 1923;" "How little you know these people! They are capable of hiring an assassin to kill me and shedding crocodile tears after my death to arouse people's emotions."
 
 **Comment:**
 

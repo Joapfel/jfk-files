@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9904.png
-
-Convert to Markdown23 October, 1967
+23 October, 1967
 
 1. LIRING/3 reported to Rowton 23/10/67 that Carmen Lozada, neurologist, and Canudas (fzu), chemical engineer, visited his home evening 21 October in company Carmen Carasco. LIRING/3 and /4 state they knew both Carmen Lozada and Canudas in Havana since 1961 (both are Mexicans) under contact with GOC and were surprised to learn from them that they will not return to Cuba because of disillusionment.
 

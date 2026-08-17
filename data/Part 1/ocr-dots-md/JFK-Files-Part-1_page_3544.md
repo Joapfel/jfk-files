@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3544.png
-
-Convert to Markdown**Question:** In Miami they say that JURE, Manuel Ray's organiza-
+**Question:** In Miami they say that JURE, Manuel Ray's organiza-
 tion, will make an attack on 20 May or early in June. Would there
 be any possibility that your movement also intends to do something
 in the near future. Also, what is the possibility of having a

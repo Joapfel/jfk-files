@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9136.png
-
-Convert to MarkdownFARRON NADAL, Juan
+FARRON NADAL, Juan
 
 Universidad de Salamanca.
 

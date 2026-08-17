@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_810.png
-
-Convert to Markdown NW 88608 DocId:32989640 Page 352
+NW 88608 DocId:32989640 Page 352
 
 <table>
    <tr>

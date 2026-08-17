@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25081.png
-
-Convert to Markdown5. Indirect economic sabotage with a low level of visibility and detection. Programs of this sort involve possible overseas sabotage of Cuban ships and possible addition of contaminating elements to sensitive Cuban imports (not food).
+5. Indirect economic sabotage with a low level of visibility and detection. Programs of this sort involve possible overseas sabotage of Cuban ships and possible addition of contaminating elements to sensitive Cuban imports (not food).
 
 Recommendation: It is recommended that these programs be
 continued.

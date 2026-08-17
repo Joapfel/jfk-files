@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8541.png
-
-Convert to MarkdownINFORME NO. 10,197.-
+INFORME NO. 10,197.-
 
 NOV. 15/67.
 

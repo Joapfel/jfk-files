@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25815.png
-
-Convert to Markdown8. Re para. 1, e. I have no particular thoughts on LIJERSEY but think it consistent for GERENDE to handle it.
+8. Re para. 1, e. I have no particular thoughts on LIJERSEY but think it consistent for GERENDE to handle it.
 
 9. Re para. 4 f: GERENDE should be taken off LIFEAT at once, even if it means losing lines. As of March this year the Station had enough agent personnel to handle bases for 24 lines. They should be able to fill the gap even though LDESTONE-3 and his tribe were fired. Only 12 lines are now being handled (latest report). The way GERENDE is handling his LIFEAT work seems to be breaking all the rules we set up in seven years of experience.
 

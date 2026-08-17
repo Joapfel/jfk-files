@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31821.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5 JUL. 1966
 

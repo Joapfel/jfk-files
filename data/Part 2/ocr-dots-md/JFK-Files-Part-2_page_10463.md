@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10463.png
-
-Convert to MarkdownSUBJECT: Contacts With Other U.S. Government Agencies Which Could or Have Resulted In Use of CIA-Developed Technology in Addressing Domestic Problems
+SUBJECT: Contacts With Other U.S. Government Agencies Which Could or Have Resulted In Use of CIA-Developed Technology in Addressing Domestic Problems
 
 Chief, San Francisco Police
 

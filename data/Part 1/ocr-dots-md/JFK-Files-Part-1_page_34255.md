@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34255.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 nist named Manuel Jorge Cuervo Mendes, whose previous job was to run concentration camps in the Isle of Pines.
 

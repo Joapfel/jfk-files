@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5285.png
-
-Convert to MarkdownSECRET - Working Paper
+SECRET - Working Paper
 
 [Note: Category 3 led to a long discussion on agency records. The focus was on how the ARRB staff could be confident that files were searched.]
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16407.png
-
-Convert to Markdown# Haiti
+# Haiti
 
 ## Target Analysis Summary Report
 

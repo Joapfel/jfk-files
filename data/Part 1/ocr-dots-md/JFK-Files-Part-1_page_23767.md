@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23767.png
-
-Convert to MarkdownSECRET /KAPOK
+SECRET /KAPOK
 
 Chief, KNOOLP; Chief, KNEECK; Chief, AF
 

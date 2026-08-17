@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3882.png
-
-Convert to MarkdownDr. Martin Luther King, Jr.
+Dr. Martin Luther King, Jr.
 
 on April 3, 1968, and checked into the Hotel Lorraine at approximately 10:30 a.m. The notation indicating that the proposed furnishing of information to the news media was "handled" on April 3, 1968, would, of course, preclude any such information from appearing in the press prior to King's checking into the Hotel Lorraine at approximately 10:30 a.m. on April 3, 1968.
 

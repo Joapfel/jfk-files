@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9813.png
-
-Convert to Markdown22 March,1968
+22 March,1968
 
 Subject: LIRING/4 Report of News Concerning her Father in New York.
 

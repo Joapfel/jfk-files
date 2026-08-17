@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23759.png
-
-Convert to MarkdownMr. Underfurth. We should just add a line that that charter
+Mr. Underfurth. We should just add a line that that charter
 should state that and then go into this.
 
 Mr. Kirhow. Are you recommending a revision of the

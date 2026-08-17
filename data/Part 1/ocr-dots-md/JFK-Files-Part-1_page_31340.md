@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31340.png
-
-Convert to MarkdownForm 57
+Form 57
 
 Lee J.χανη, Eπιγραμ
 133 Tenth Avenue

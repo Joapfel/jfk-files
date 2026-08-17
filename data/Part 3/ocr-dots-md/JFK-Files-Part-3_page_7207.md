@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7207.png
-
-Convert to Markdownmechanism for giving visibility to the issues for the policy-
+mechanism for giving visibility to the issues for the policy-
 maker. Our job is to provide an independent and objective
 analysis based upon a wide range of confidential sources and
 technical inputs. The organization of the Intelligence Com-

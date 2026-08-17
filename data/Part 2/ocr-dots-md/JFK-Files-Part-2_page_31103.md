@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31103.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① 18 January 1963
 Cos/JMWAUE

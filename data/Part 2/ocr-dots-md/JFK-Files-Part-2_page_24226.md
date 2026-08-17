@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24226.png
-
-Convert to Markdownwith the CIA in setting up proprietaries:
+with the CIA in setting up proprietaries:
 
 Proprietaries have been and will continue to be an
 important tool to achieve selected operational

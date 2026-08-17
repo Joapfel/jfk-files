@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24573.png
-
-Convert to Markdowna document," and that the CIA "would write no document pertaining to this
+a document," and that the CIA "would write no document pertaining to this
 and would participate in no open meeting discussing it." (Lansdale Ex. 16,
 p. 1).
 

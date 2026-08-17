@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25900.png
-
-Convert to MarkdownJanuary 29, 1976
+January 29, 1976
 
 The Honorable Edward H. Levi
 Attorney General

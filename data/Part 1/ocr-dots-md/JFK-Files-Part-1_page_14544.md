@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14544.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16Feb 72 FEB 78 CITE MADRID 0464
 

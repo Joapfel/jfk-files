@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17361.png
-
-Convert to Markdown# DELMOS RAYMOUND WARD
+# DELMOS RAYMOUND WARD
 
 ## Employment
 Recreational Supervisor

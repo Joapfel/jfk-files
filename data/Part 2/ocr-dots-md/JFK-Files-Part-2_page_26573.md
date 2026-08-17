@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26573.png
-
-Convert to Markdown1. **Cuba**
+1. **Cuba**
 
 a. Cuban tents are now beginning to appear at a number of the SAM sites--further evidence that training of Cubans in operation of SAM equipment has begun as scheduled.
 

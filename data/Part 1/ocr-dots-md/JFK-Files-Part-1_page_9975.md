@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9975.png
-
-Convert to Markdown6.
+6.
 
 LIMING/3 was to pay a friendly visit to this person, making no reference to politicians, but simply using a prearranged code word in the conversation. This recognition signal would lead to the first meeting with the comrades (probably two) who would escort LIMING/3 to Nasar Montes.
 

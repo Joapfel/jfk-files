@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35049.png
-
-Convert to Markdown# TRAVEL
+# TRAVEL
 
 | Date | Description | Check No. | Total |
 | :--- | :--- | :--- | ---: |

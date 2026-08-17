@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15710.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a degree of latitude in movement and a cover for covert contact. Subject has undergone plastic surgery in order to change his appearance, also a toupe was made to further assist in the changing of his outward appearance. This action was designed to preclude any possibility of recognition by former French associates, particularly since he is to pass as an Austrian. The cover facility, as stated, will offer access to all classes of people, it will provide a natural means for contact, and will permit subject to make trips under the guise of business travel.
 

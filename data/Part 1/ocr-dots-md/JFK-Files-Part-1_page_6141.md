@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6141.png
-
-Convert to Markdown16 May 1975
+16 May 1975
 
 **MEMORANDUM FOR:** Chief, Information Review Staff
 **SUBJECT:** Phillip A. Singerman

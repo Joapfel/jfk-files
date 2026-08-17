@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18686.png
-
-Convert to MarkdownV. Newly requested materials; access to screen for delivery requested by August 18, 1975:
+V. Newly requested materials; access to screen for delivery requested by August 18, 1975:
 
 A. The following materials pertaining to Mrs. Claire (Anna) Chennault and Spiro T. Agnew:
 

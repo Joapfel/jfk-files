@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3616.png
-
-Convert to Markdownd. Nasir, with some 30,000 troops in the Yemen, has grudgingly promised to pull out 5,000 before the end of the year. So far there has been no sign he is preparing to do so.
+d. Nasir, with some 30,000 troops in the Yemen, has grudgingly promised to pull out 5,000 before the end of the year. So far there has been no sign he is preparing to do so.
 
 e. So far as we can tell, Faysal has kept to his promise not to supply the Royalists before the latest extension of the UN observation mission runs out on 4 January.
 

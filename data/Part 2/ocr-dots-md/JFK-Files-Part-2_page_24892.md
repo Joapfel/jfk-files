@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24892.png
-
-Convert to MarkdownC. Findings and Conclusions Relating to the Issues of Authorization and Control
+C. Findings and Conclusions Relating to the Issues of Authorization and Control
 
 In the introduction to this report, we set forth in summary form our major conclusions concerning whether the assassination plots were authorized. The ensuing discussion elaborates and explains those conclusions.
 

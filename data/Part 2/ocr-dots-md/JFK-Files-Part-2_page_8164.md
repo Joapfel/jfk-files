@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8164.png
-
-Convert to MarkdownAPPEALS REVIEW FORM
+APPEALS REVIEW FORM
 
 350
 ~~w/68 contains DISPATCH OPA-1097 dated 29 April 1968~~

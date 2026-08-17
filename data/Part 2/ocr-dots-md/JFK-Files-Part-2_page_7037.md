@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7037.png
-
-Convert to Markdowndocuments and selected documents from the Cuban material were designated as assassination records. 1637 pages from these boxes were transferred to NARA in October 1998.
+documents and selected documents from the Cuban material were designated as assassination records. 1637 pages from these boxes were transferred to NARA in October 1998.
 
 **New assassination Records -- "M" [Miscellaneous] Series**
 

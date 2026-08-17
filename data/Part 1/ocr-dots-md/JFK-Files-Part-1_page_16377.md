@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16377.png
-
-Convert to Markdown13 October 1964
+13 October 1964
 
 **RETURN TO CIA**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22872.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the likelihood that Robert Kennedy, in the face of Maxwell Taylor's Chairmanship of the Special Group Augmented -- was Maxwell Taylor understood to be the Chairman of the Special Group Augmented?
 

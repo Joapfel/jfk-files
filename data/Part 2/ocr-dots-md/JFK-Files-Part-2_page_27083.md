@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27083.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 43. For the better part of two years, CIA had been checking information obtained from refugee, defector, and agent sources with NPIC whenever it was apparent that the information was of a kind that could be verified or negated by aerial reconnaissance. In May 1962, NPIC began publishing a series of formal listings (Photographic Evaluation of Information on Cuba) in which these reports were evaluated in the light of photographic coverage. In the 7 issues of this publication between 31 May and 5 October NPIC examined 138 raw reports referred to it for comment. Of this total, only three cited missile activity which could not be linked directly to the SA-2 and cruise missile deployments. NPIC's evidence negated those three.
 

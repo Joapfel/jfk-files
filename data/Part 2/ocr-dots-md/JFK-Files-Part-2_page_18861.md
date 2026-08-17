@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18861.png
-
-Convert to MarkdownSANDAG FORM NO. 64
+SANDAG FORM NO. 64
 
 # Office Men...<u>unlimited</u> • UNITED
 OVERNMENT

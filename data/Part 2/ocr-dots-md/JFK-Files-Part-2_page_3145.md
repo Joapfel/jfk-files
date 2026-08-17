@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3145.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 By way of illustrating some of the problems encountered in acquiring adequate personnel for the JMATE operation, on the very day that President Eisenhower was approving the anti-Castro program, a memorandum was being sent to the Deputy Director for Plans from the Chief, Western Hemisphere Division noting that two individuals assigned to the Office of Training were urgently needed for service in WH/4. Colonel King reported to the DDP that although Colonel Matt Baird, Director of Training, was agreeable to the release of the two individuals to serve as PM trainers, Baird insisted that the men could not be
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7934.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 NPR.

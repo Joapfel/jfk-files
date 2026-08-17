@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32211.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 THE DEPUTY SECRETARY OF DEFENSE
 WASHINGTON 25, D. C.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20995.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 OFAT-1-192
 6 Aug 74

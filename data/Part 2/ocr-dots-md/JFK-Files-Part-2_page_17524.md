@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17524.png
-
-Convert to MarkdownYVONNE KING, former Deputy Minister of Labor (position abolished) now serving as Field Secretary, resides with MAY generally.
+YVONNE KING, former Deputy Minister of Labor (position abolished) now serving as Field Secretary, resides with MAY generally.
 
 KING and MAY are vicious women and MAY allegedly has an apartment where they stay part of the time, address unknown.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24969.png
-
-Convert to MarkdownP.O. Box 1294
+P.O. Box 1294
 Grand Central Station
 New York 17, New York
 

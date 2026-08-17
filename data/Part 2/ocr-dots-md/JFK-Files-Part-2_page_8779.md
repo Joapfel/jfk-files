@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8779.png
-
-Convert to Markdown13-00000
+13-00000
 
 WAVE 4222 (IN 17952) dated 12 September 1963
 <u>___</u>

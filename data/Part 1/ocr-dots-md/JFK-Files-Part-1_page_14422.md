@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14422.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DATE: 31 May 1970</td>
     <td></td>

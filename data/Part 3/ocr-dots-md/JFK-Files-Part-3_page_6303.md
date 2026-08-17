@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6303.png
-
-Convert to MarkdownIn Pds. Please Refer to
+In Pds. Please Refer to
 160-12007 SPALNIGL
 
 157-3597

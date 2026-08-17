@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16325.png
-
-Convert to Markdownleft the place after longest interview yet - 2 hrs.
+left the place after longest interview yet - 2 hrs.
 
 Piving Somina first light in army plane. Issue instructions for the recruitment list non immediate.
 

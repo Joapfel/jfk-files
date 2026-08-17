@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32990.png
-
-Convert to Markdown7 January 1975
+7 January 1975
 
 MEMORANDUM FOR: C/LA/COG/CI
 ATTENTION Chris Hopkins

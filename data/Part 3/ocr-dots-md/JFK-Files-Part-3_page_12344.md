@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12344.png
-
-Convert to MarkdownAll documents constituting or relating to agree-
+All documents constituting or relating to agree-
 ments with other agencies regarding participation by the
 IRS in Organized Crime Strike Forces, including any docu-
 ments relating to the desirability of participating on such

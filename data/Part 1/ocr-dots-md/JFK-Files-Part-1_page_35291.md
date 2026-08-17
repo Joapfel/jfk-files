@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35291.png
-
-Convert to MarkdownAnnex "IV-A"
+Annex "IV-A"
 Page No. 2
 
 **OTHERS: (Cont.)**

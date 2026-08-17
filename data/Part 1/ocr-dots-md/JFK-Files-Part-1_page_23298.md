@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23298.png
-
-Convert to MarkdownDate: 16 MAY 1957
+Date: 16 MAY 1957
 
 Mr. Arthur G. Vaivada
 

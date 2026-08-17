@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23783.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. diGenova. The John McCloy exceptions to that rule, they are the only ones that are protected.
 

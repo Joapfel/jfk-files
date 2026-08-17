@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_935.png
-
-Convert to MarkdownIn view of this definition of record material, we are required to retain any material which we have made or received during the course of public business, and which has been preserved or is appropriate for preservation.
+In view of this definition of record material, we are required to retain any material which we have made or received during the course of public business, and which has been preserved or is appropriate for preservation.
 
 In 1969, NARS surveyed the records of the Department of Justice including those of FBI and subsequently instructed that certain categories of FBI files at FBIHQ be retained indefinitely. Included were files which would have historical value and would document policies, procedures, functions, budgetary policies, etc. In addition, vast majority of investigative files must be kept indefinitely although it was prescribed that only a representative sampling of certain types of violations at five year intervals be retained. These requirements apply only to files at FBIHQ. NARS has previously approved destruction of closed field files as all pertinent information is in file at FBIHQ. As a practical matter, however, field investigative files are retained 20 years before being destroyed.
 

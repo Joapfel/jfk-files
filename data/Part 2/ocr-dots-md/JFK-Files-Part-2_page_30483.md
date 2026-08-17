@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30483.png
-
-Convert to Markdown1-58.
+1-58.
 
 in on Tuesday morning, the 16th of May, whatever that date
 was.

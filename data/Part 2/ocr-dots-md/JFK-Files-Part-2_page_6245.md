@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6245.png
-
-Convert to MarkdownMAR 18 '97 06:58PM
+MAR 18 '97 06:58PM
 
 3
 the FBI's Mexico replica Ambassador Mann Scott points out that this information may have been included in Mexican FBI reports (B6 = cables and that the CIA would have been cited as the source (R5 indicates Scott, "White") Phillips, [Mannell], Anne Nardpasture) (5-03-20)

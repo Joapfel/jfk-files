@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17687.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FORM<br/>1 DEC 95 610</td>
     <td>USE PREVIOUS<br/>EDITIONS</td>

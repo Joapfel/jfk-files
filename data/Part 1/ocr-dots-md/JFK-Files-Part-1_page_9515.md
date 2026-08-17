@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9515.png
-
-Convert to Markdown16 March 1980
+16 March 1980
 
 MEMORANDUM FOR: P03
 RELOCATION: CUP

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14301.png
-
-Convert to Markdown# APPENDIX D
+# APPENDIX D
 
 ## REQUEST PERTAINING TO ELECTRONIC SURVEILLANCE
 

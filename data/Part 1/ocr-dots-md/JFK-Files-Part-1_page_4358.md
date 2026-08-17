@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4358.png
-
-Convert to MarkdownMovilizacion de Recuperacion Revolucionaria
+Movilizacion de Recuperacion Revolucionaria
 
 221 N. E. 3 COURT
 MIAMI 37, FLORIDA

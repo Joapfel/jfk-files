@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7444.png
-
-Convert to Markdownagainst terrific odds in defense of their very lives;
+against terrific odds in defense of their very lives;
 nor the heroic struggles waged by peasants all over the
 country; nor the fight of the Red Armies against the
 Kuomintang, I merely respect the cold, indisputable fact

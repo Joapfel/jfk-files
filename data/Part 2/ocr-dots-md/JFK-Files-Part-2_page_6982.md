@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6982.png
-
-Convert to Markdownstaff. The page that I cited to you is interesting in that he made the notation
+staff. The page that I cited to you is interesting in that he made the notation
 in there and it's a portion of it in his own handwriting that it was perhaps
 unfortunate that he had never met Oswald because then he might have possibly
 been a tiny footnote in history, an ironic statement given the role that he

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6618.png
-
-Convert to Markdown14-0000
+14-0000
 
 NEW YORK, N. Y.
 SEP 24 1953

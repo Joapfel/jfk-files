@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21325.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Miami report, dated 10/4/61, revealed that MM-639-S advised that Eloy Gutierrez Menoyo's father and brother were both known communists in Cuba and Eloy himself fought on the side of the communists in Spain in the 1930's. Eloy was further accused of being responsible for over 200 innocent people being put in jail in Cuba and having participated in the William Alexander Morgan affair at Trinidad, Cuba, in August, 1959. He was not well considered by Cuban nationals in Miami, had a bad reputation and was not generally trusted.
 

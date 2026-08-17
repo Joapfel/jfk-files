@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31111.png
-
-Convert to Markdown③ External Asset Report - undated. Salvat is National Coordinator Clandestine ops. POA extended 8 16 Jul. 1961, (sic) FRG Part II submitted 1 Nov-1961(sic) OA pending. Salary $275 month. Subject has extensive training - should have highest priority for Infil. Ope.
+③ External Asset Report - undated. Salvat is National Coordinator Clandestine ops. POA extended 8 16 Jul. 1961, (sic) FRG Part II submitted 1 Nov-1961(sic) OA pending. Salary $275 month. Subject has extensive training - should have highest priority for Infil. Ope.
 
 ④ 6 April 1960 Cable To: Director From: Havana Salvat first course in hiding in Havana - think he may be picked up by DIER in connection with his outspoken support of Confe Aguero. Ampelm/11 franco is Elena Jalla, a local embassy employee.
 

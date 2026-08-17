@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21669.png
-
-Convert to MarkdownHW 50955 DocId:32202331 Page 2
+HW 50955 DocId:32202331 Page 2
 
 H: Would you make that please -- Do you mind my interrupting?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27887.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Continuation of FRQ - Jeremy L. NIARCOS - (Section 12)
 

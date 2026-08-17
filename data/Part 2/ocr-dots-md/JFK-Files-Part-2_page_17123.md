@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17123.png
-
-Convert to MarkdownAll the members were searched prior to being allowed to enter. No incident or arrests were reported.
+All the members were searched prior to being allowed to enter. No incident or arrests were reported.
 
 Source advised the Illinois Chapter of the BPP had announced a rally for October 25, 1969 at the Federal Building, Chicago. Purpose of the rally was to protest "racist trial and miscarriage of justice perpetrated on BOBBY SEALE by the Federal Judge JULIUS HOFFMAN at the Federal Anti-riot Conspiracy trial currently being held at the Federal Building.
 

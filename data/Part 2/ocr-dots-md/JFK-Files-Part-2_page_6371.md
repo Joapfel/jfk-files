@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6371.png
-
-Convert to Markdown# Federal Register / Vol. 60, No. 124 / Wednesday, June 28, 1995 / Rules and Regulations 33347
+# Federal Register / Vol. 60, No. 124 / Wednesday, June 28, 1995 / Rules and Regulations 33347
 
 ## led to the assassination of President Kennedy
 

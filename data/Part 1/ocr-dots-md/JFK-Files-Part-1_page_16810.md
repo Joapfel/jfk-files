@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16810.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>ORIG: A.C. DELANEY<br/>UNIT: OCI<br/>EXT : 7454 1601<br/>DATE : 12 SEPTEMBER 1962</td><td>CONFIDENTIAL</td></tr></tbody></table>
 

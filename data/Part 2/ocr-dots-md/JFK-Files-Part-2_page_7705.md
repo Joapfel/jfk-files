@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7705.png
-
-Convert to MarkdownU.S.S.R.
+U.S.S.R.
 
 Subject: THE U.S.S.R. AND CHINA
 

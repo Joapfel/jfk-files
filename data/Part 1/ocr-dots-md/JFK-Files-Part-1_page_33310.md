@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33310.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A basic organizational technique for the UP coalition has been the establishment of UP committees (CUP -- Comité de Unidad Popular) -- composed of newsmen who are militant members of parties belonging to the Government coalition or independent supporters of UP policies -- in newspapers, radios, magazines, and in journalistic bodies. The CUP's have been most active at the union level: demanding exorbitant wage increases, insisting that UP employees be given the right to express their opinion on editorial pages, disrupting legitimate union meetings, forming rump unions, and leaking internal company data to the leftist press and to the Government.
 

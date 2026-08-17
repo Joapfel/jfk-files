@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15684.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td rowspan="2">MR GRAHAM</td><td colspan="3">CLASSIFIED MESSAGE</td></tr><tr><td colspan="3">S-E-C-R-E-T</td></tr><tr><td>DATE:</td><td colspan="3"></td></tr><tr><td>TO:</td><td colspan="3">BERN LEOPOLDSVILLE</td></tr><tr><td>FROM:</td><td colspan="3">DIRECTOR</td></tr><tr><td>CONF.</td><td colspan="3">C/FD 2</td></tr><tr><td>INFO.</td><td colspan="3">C/AF, S/C 2</td></tr><tr><td>Credit:</td><td>DEFERRED</td><td>30 DEC 01 35Z</td><td></td></tr><tr><td>PRIORITY:</td><td>BOUTINE</td><td></td><td>NITIALS</td></tr><tr><td></td><td>PRIORIT</td><td></td><td>NITIALS</td></tr><tr><td></td><td>OPERATIONAL</td><td></td><td></td></tr><tr><td></td><td>IMMEDIATE</td><td></td><td></td></tr><tr><td></td><td></td><td></td><td>OUT52272<br/>OUT.52272</td></tr></table>
 

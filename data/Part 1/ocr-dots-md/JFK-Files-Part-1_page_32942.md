@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32942.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>INDEX ☐ V.S ☑ NO</td>

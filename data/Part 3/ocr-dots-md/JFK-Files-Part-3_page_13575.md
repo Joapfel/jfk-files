@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13575.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. MR. O'NEILL: I think that is right.
 2. MR. KIRKLAND: An element of strengthening would be more in terms of pure misapplication of funds, it would be better done by strengthening the audit arrangements in the Agency?

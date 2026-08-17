@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25862.png
-
-Convert to MarkdownReveal CIA Sought Giancana's Aid
+Reveal CIA Sought Giancana's Aid
 
 Continued from Page 1
 anti-Castro factions and was ready to use his contacts for the CIA.

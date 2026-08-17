@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27307.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EROE, William V.
 

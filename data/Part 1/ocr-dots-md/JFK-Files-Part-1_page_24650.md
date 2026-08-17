@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24650.png
-
-Convert to MarkdownEN NUEVO LEON
+EN NUEVO LEON
 
 Piden al Gobernador Meta
 en Cintura a los Rojos

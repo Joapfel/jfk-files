@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5991.png
-
-Convert to MarkdownReview of Organizational Charts of all Agency directorates for the years 1958-1968 (CIA-1). Requested deletions.
+Review of Organizational Charts of all Agency directorates for the years 1958-1968 (CIA-1). Requested deletions.
 
 **Review of the proposed release of an Agency facility.**
 Provided information about DS&T activities at risk if this

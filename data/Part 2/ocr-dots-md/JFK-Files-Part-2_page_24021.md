@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24021.png
-
-Convert to MarkdownHaig indicated to the Committee that he would have passed along the substance of that conversation to Kissinger, and that in general his role at the time was one of a conduit to Kissinger:
+Haig indicated to the Committee that he would have passed along the substance of that conversation to Kissinger, and that in general his role at the time was one of a conduit to Kissinger:
 
 I am quite confident that, given my own conception of my role at that time, that I would have conveyed that information to Henry,...
 

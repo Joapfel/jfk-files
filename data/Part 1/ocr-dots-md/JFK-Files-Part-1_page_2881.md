@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2881.png
-
-Convert to Markdown(SEVENTH DEPARTMENT - January 1962-1964)
+(SEVENTH DEPARTMENT - January 1962-1964)
 
 NOSENKO's Information
 

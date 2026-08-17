@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6135.png
-
-Convert to Markdown20 April 1976
+20 April 1976
 
 MEMORANDUM FOR: Chief, Information and Privacy Staff
 SUBJECT: A Quaker Action Group

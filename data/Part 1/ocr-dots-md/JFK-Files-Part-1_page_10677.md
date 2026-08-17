@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10677.png
-
-Convert to MarkdownIN -
+IN -
 TDCS
 
 PAGE 2 OF 3 PAGES

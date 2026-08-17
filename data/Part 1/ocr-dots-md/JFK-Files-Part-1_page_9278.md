@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9278.png
-
-Convert to MarkdownExcerpts from "Murder in Mexico" by General Leandro A. Sanchez Salazar, Ex-Chief of Secret Service of the Mexican Police with the collaboration of Julian Dorwin, London, Secker · Harcourt, 1950.
+Excerpts from "Murder in Mexico" by General Leandro A. Sanchez Salazar, Ex-Chief of Secret Service of the Mexican Police with the collaboration of Julian Dorwin, London, Secker · Harcourt, 1950.
 
 XX
 

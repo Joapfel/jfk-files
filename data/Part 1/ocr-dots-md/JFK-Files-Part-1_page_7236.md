@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7236.png
-
-Convert to MarkdownS E P T I E M B R E D E L A G
+S E P T I E M B R E D E L A G
 
 <table>
    <tr>

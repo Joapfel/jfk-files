@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6067.png
-
-Convert to Markdown**Edited Books:**
+**Edited Books:**
 
 Kermit L. Hall, editor-in-chief, *The Oxford Companion to the Supreme Court* (New York: Oxford University Press, 1992). (James W. Ely, Jr., Joel Grossman, and William M. Wiecek associate editors).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24220.png
-
-Convert to Markdown# VI. Project MHBOUND
+# VI. Project MHBOUND
 
 In 1958, at the time construction of the new CIA headquarters building in Langley was begun, a small counterintelligence operation was established to maintain surveillance of activities to prevent hostile penetration and sabotage. It was successful in its objectives and, therefore, upon occupancy of the building in 1962 the Project, now known as MHBOUND, was established as an outgrowth of the initial effort.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18922.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "In March 1962 I have seen Sam Jaffe in Geneva. He with other correspondents visited a pair of times the Soviet representative there. He knew several Russian diplomats and among them Suslov, Vladimir (Vladimir Pavlovich Suslov; identified by WF T-1 as a Soviet diplomat and KGB operative contact)."
 

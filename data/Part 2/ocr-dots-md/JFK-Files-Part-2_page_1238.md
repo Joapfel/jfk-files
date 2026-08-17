@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1238.png
-
-Convert to Markdown14-00000
+14-00000
 
 5. Any person who, by reason of his age or condition, is identified as a member of any group of United States military or naval personnel, or who has been identified as such by the United States government, will be deemed to have been a member of that group during the period of service for which he is being compensated and who is therefore eligible for compensation under the provisions of paragraph (c) of this section.
 

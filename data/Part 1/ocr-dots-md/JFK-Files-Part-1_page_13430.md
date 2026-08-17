@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13430.png
-
-Convert to Markdown1.- En el aspecto interno de la FLAT, te diro que como secretario general, me he visto totalmente frenado por la falta de recursos, ya que ni para imprimir papel membreteado tengo dinero.-
+1.- En el aspecto interno de la FLAT, te diro que como secretario general, me he visto totalmente frenado por la falta de recursos, ya que ni para imprimir papel membreteado tengo dinero.-
 
 A pesar de esta dificultad, he tratado de hacer algunas tareas mínimas: enviar información a la CLASC y a la CISC sobre los problemas del transporte que existen en Argentina, y mantener un mínimo de cohesion y de organización del grupo de sindicalistas cristianes del transporte que actúen en mi país.-
 

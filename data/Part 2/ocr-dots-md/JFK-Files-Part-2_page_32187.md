@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32187.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 - 2 -
 

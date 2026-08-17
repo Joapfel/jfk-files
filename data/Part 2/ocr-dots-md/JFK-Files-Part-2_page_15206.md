@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15206.png
-
-Convert to MarkdownLetter to SAC, WFO
+Letter to SAC, WFO
 Re: Ceylonese Activities in the United States
 
 105-85418

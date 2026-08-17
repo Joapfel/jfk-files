@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8341.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information.
 
 19. KELLY continued by stating that he was apprehended by the Greek Police, allegedly for safe keeping in April 1951. He was placed in detention and remained under Greek control until his departure from Greece to Frankfurt by air. From Frankfurt he was transported to Panama where he arrived on 5 September 1951. He was placed in detention at a hospital in Panama and was of the opinion that perhaps the hospital was an exterminating establishment for undesirables. Later, however, he said he learned otherwise and through a friend, Mr. Stanley, learned that he was sent to Panama to undergo several physical check-ups and that after that was completed he would be removed to an area some 50 miles away where he would enjoy full freedom. Also that he would remain at his new location long enough to learn a language and prepare himself for resettlement. When he required how long that would be he was told that would be about six months.

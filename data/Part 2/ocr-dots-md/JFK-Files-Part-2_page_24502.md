@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24502.png
-
-Convert to Markdown"I have no recollection of briefing those two gentlemen except as members of the Board of Inquiry that I have described, of which Allen Dulles himself was a member." (Bissell, 6/11/75, p. 27).
+"I have no recollection of briefing those two gentlemen except as members of the Board of Inquiry that I have described, of which Allen Dulles himself was a member." (Bissell, 6/11/75, p. 27).
 
 As mentioned above (Section (e), supra), Bissell testified that his briefings to the Board of Inquiry did not deal with assassination efforts. (Bissell, 6/11/75, pp. 45-46).
 

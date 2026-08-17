@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18301.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DATE 24 Feb. 1960
 PROT. 0-60

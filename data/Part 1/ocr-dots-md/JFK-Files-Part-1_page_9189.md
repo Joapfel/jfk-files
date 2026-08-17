@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9189.png
-
-Convert to MarkdownMailed to SHR'B, May 3, 1951.
+Mailed to SHR'B, May 3, 1951.
 
 LITHUANIAN DAYS, Vol. 2, No. 2, March 1951, published at
 9204 S. Broadway, Los Angeles 3, California. With note:

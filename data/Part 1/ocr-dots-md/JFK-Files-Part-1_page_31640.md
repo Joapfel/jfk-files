@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31640.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 The following was received from Conder, Munich.

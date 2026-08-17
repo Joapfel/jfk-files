@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25818.png
-
-Convert to MarkdownJanuary 28, 1976
+January 28, 1976
 
 The Honorable Otis Pike, Chairman
 House Select Committee on Intelligence,

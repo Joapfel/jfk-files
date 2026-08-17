@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24898.png
-
-Convert to Markdown<table><tr><td>INDEX: [ ] YES [ ] NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>X-REF TO FILE NO.</td></tr><tr><td>FILE ID ☐ RET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ SIG.</td></tr><tr><td colspan="2">FROM Santo Domingo</td></tr><tr><td>ACTION WH8</td><td><input type="checkbox" checked disabled> RID COPY <input type="checkbox" disabled> ADVANCE COPY <input type="checkbox" disabled> ISSUED <input type="checkbox" disabled> SLotted <input type="checkbox" disabled> TURBED</td></tr><tr><td>INFO FILE 17 SODA CAR, CCS 3, CA/04, c/o LS, c/o RA</td><td>UNIT TIME BY</td></tr></table>
+<table><tr><td>INDEX: [ ] YES [ ] NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>X-REF TO FILE NO.</td></tr><tr><td>FILE ID ☐ RET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ SIG.</td></tr><tr><td colspan="2">FROM Santo Domingo</td></tr><tr><td>ACTION WH8</td><td><input type="checkbox" checked disabled> RID COPY <input type="checkbox" disabled> ADVANCE COPY <input type="checkbox" disabled> ISSUED <input type="checkbox" disabled> SLotted <input type="checkbox" disabled> TURBED</td></tr><tr><td>INFO FILE 17 SODA CAR, CCS 3, CA/04, c/o LS, c/o RA</td><td>UNIT TIME BY</td></tr></table>
 
 9 MAY 66
 

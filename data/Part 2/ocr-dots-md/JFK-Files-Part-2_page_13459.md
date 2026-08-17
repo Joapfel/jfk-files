@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13459.png
-
-Convert to MarkdownMR. JENKINS
+MR. JENKINS
 
 4/17/75
 

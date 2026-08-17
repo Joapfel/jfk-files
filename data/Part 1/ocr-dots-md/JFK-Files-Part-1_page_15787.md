@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15787.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SR/DOB/60-1990
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15902.png
-
-Convert to MarkdownII. AGENT CASES:
+II. AGENT CASES:
 
 Case Name Action Taken
 

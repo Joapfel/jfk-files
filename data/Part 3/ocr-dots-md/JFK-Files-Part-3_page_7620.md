@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7620.png
-
-Convert to MarkdownSupervisory Reorganization of Functions and Personnel; Crime Research Division
+Supervisory Reorganization of Functions and Personnel; Crime Research Division
 
 special photographs in Director's Office; American Legion and veteran liaison matters.
 

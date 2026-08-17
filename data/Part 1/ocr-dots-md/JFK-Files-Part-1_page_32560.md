@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32560.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td colspan="4">REQUEST FOR PERSONNEL ACTION</td></tr><tr><td>1. Serial No.</td><td>2. Name (Last, First, Middle)</td><td>3. Date Of Birth</td><td>4. Vet. Prof.</td><td>5. Sex</td><td>6. CS.EOD</td></tr><tr><td>E60399</td><td>Williamson, Earl J.</td><td>Mo 3 Q7 Y10</td><td>None-0 S Pt-1 10 Rn-2</td><td>M</td><td>Mo 3 Q7 Y10</td></tr><tr><td rowspan="2">7. LCD</td><td>8. CSC Retired</td><td rowspan="2">9. CSC Or Other Legal Authority<br/>Yes. 1 Code<br/>No. - 2</td><td>10. Appmt Affidavit</td><td>11. FEGLI</td><td>12. LCD</td><td rowspan="2">13. App't<br/>Yes. 1 Code<br/>No. - 2</td></tr><tr><td>No. - 1 Code</td><td>Mo 3 Q7 Y10</td><td>Yes. 1 Code<br/>No. - 2</td><td>Mo 3 Q7 Y10</td></tr></table>

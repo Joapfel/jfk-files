@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26583.png
-
-Convert to Markdownc. It is basically a tear gas, but in such highly concentrated form that it has caused the death of a number of Yemenis.
+c. It is basically a tear gas, but in such highly concentrated form that it has caused the death of a number of Yemenis.
 
 (INTERCEPTS throughout)
 

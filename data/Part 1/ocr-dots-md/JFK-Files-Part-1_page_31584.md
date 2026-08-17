@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31584.png
-
-Convert to Markdown5. Type of IFE "running attack" during balloon operation is well illustrated by the following - 'Czech workers would have to work 6.6 hours to earn enough money to buy one average pound of food parcels contents, whereas the American worker could earn the $1.15 per net lb. delivered in 1.2 hours.'
+5. Type of IFE "running attack" during balloon operation is well illustrated by the following - 'Czech workers would have to work 6.6 hours to earn enough money to buy one average pound of food parcels contents, whereas the American worker could earn the $1.15 per net lb. delivered in 1.2 hours.'
 
 **D. Conclusions:**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17613.png
-
-Convert to MarkdownAttachment to 1954-A-10196
+Attachment to 1954-A-10196
 
 KAP03-1401
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22311.png
-
-Convert to Markdown718.
+718.
 
 On 24 and 28 January 1964, before the defection, NO-SENKO incorrectly named ZUJUS, who he said was STORSBERG'S replacement, as the target of this operation. On 2 February 1964 NOSENKO called a special meeting with his CIA handlers to correct this mistake. He said that, in fact, KEYSERS was STORSBERG's replacement, and the approach had been made to him. (Thus NOSENKO had forgotten the name of the one American Embassy official he ever approached.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8577.png
-
-Convert to MarkdownSANTI BARBARA 20-308
+SANTI BARBARA 20-308
 MÉXICO 17. D. F.
 
 TELEFONOS: 31-53-90 31-53-93

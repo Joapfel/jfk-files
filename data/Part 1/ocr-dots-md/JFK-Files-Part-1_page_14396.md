@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14396.png
-
-Convert to Markdown<table><tr><td>RG: CARL LUNSFORD/cb</td></tr><tr><td>NIT: WH/COG/OPS</td></tr><tr><td>XT: 7141, 1819</td></tr><tr><td>ATE: 3 JUNE 1970</td></tr></table>
+<table><tr><td>RG: CARL LUNSFORD/cb</td></tr><tr><td>NIT: WH/COG/OPS</td></tr><tr><td>XT: 7141, 1819</td></tr><tr><td>ATE: 3 JUNE 1970</td></tr></table>
 
 MESSAGE FORM
 TOTAL COPIES: 24

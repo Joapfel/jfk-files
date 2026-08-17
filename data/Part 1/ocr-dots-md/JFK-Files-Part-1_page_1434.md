@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1434.png
-
-Convert to Markdown3 June 1976
+3 June 1976
 
 MEMORANDUM FOR: Chief, External Activities Branch
 Office of Security

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24419.png
-
-Convert to Markdownsyndicate operation at all stages* (Harvey, 6/25, pp. 65-66; 7/11, p. 42; I.G., p. 41).
+syndicate operation at all stages* (Harvey, 6/25, pp. 65-66; 7/11, p. 42; I.G., p. 41).
 
 ## (2) The Operation is Reactivated
 

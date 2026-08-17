@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15973.png
-
-Convert to Markdownthe balance after a check for $86.00 dated December 24, 1968, and a check for $205.00 dated December 31, 1968, had been drawn against the account.
+the balance after a check for $86.00 dated December 24, 1968, and a check for $205.00 dated December 31, 1968, had been drawn against the account.
 
 On January 31, 1969, the account had a balance of $36.60. Deposits were made of $180.00 on January 2, 1969, and $45.00 on January 16, 1969. Withdrawals from the account by checks were made on January 8, 1969, in amount of $50.00, January 10, 1969, in amount of $42.00, and January 18, 1969, in amount of $100.00. The difference between the deposits, withdrawals, and balance represents service charges.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12803.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MM 149-425
 JGP/mev

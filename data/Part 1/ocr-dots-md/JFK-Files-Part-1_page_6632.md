@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6632.png
-
-Convert to MarkdownDate: Feb 23, 1953
+Date: Feb 23, 1953
 
 Memo to: E.E. (cc: Munich, Frankfurt)
 

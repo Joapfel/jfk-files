@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_645.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>DISTRIBUTION STATEMENT<br/>UFGA-4703</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>DISTRIBUTION STATEMENT<br/>UFGA-4703</td></tr></table>
 
 50. Similarly, all that is known about AMFAUNA-1's background comes from AMFAUNA-1's own statements embodied in his PRQ Part I. No. confirmation of this information has ever been obtained. From this point of view there is no guarantee that AMFAUNA-1 is what he claims to be. For all the proof to the contrary available to JMWAVE, he could as easily have been a (Spanish) Communist as a member of the Spanish Falange.
 

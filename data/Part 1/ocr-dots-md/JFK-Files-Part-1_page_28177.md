@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28177.png
-
-Convert to Markdown21 MAY 1979
+21 MAY 1979
 
 MEMORANDUM FOR: Mr. Frederick Randall
 FROM: John N. McMahon

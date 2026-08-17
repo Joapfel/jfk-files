@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22359.png
-
-Convert to Markdown766.
+766.
 
 Furthermore, it is the only acceptable explanation, among
 the alternatives, for what has transpired since contact with

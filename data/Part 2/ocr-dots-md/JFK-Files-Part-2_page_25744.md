@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25744.png
-
-Convert to Markdownsiderably, off his chest, a much more relaxed Amlash departed restating
+siderably, off his chest, a much more relaxed Amlash departed restating
 his desire return Cuba to undertake 'the big job.'"
 
 On October 15, London 5224 to DIR states case officer O met with

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19846.png
-
-Convert to Markdown11 MAR 1974
+11 MAR 1974
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 SUBJECT : Civil Service Retirement Credit

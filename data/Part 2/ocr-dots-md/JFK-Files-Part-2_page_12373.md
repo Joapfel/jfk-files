@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12373.png
-
-Convert to Markdown9. Use of informant by Department - filing correspondence re
+9. Use of informant by Department - filing correspondence re
 From time to time, Department expresses interest in using particular
 informant for testifying when he becomes available as witness. Place
 copies of all correspondence of this type in informant's file.

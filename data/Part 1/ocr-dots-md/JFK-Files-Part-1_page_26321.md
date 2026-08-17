@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26321.png
-
-Convert to Markdown- 17 -
+- 17 -
 
 F. C. M.
 

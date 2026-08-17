@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8492.png
-
-Convert to Markdownwhenever any of the Soviets or his family is ill. KORIUS-KHIN is also quite active in consular affairs and does most of the leg work for LOGINOV. He is also very active in Nestkom functions, where he is in charge of the Children's section. KORMUSHKIN is quite an ardent energetic and pushy individual and can be quite rude and nasty at times. Undoubtedly, he is looking forward to being a full-fledged consul in time to come. The impression of KORMUSHKIN'S ambition and pushy trait in his character is intensified by the sound of his rapid and energetic but pleasant baritone voice.
+whenever any of the Soviets or his family is ill. KORIUS-KHIN is also quite active in consular affairs and does most of the leg work for LOGINOV. He is also very active in Nestkom functions, where he is in charge of the Children's section. KORMUSHKIN is quite an ardent energetic and pushy individual and can be quite rude and nasty at times. Undoubtedly, he is looking forward to being a full-fledged consul in time to come. The impression of KORMUSHKIN'S ambition and pushy trait in his character is intensified by the sound of his rapid and energetic but pleasant baritone voice.
 
 A curious fact should be cited here. Shortly after his arrival, KORMUSHKIN purchased a tape-recorder for 165 dollars or 70 dollars more than the one bought by his "boss" LOGINOV. May?
 

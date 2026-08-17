@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8346.png
-
-Convert to MarkdownLUCY: GLORIA FINCO
+LUCY: GLORIA FINCO
 
 JO. I TOOK : March 12, 1969. 1400-1512 hours.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24748.png
-
-Convert to Markdownwas "a bridge we did not cross" and would not have crossed until
+was "a bridge we did not cross" and would not have crossed until
 "there was either specific targeting or a specific operation or a
 specific recruitment." (Harvey, 6/25/75, p. 59).
 

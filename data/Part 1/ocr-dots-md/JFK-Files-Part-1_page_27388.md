@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27388.png
-
-Convert to Markdown(a) If the employee留在 USA 工作, 则根据 his or her current contract of employment, he will be entitled to a leave of absence from the country of his/her usual residence. The employee must submit to the appropriate authority in the USA for approval to travel overseas. Any leave of absence will be subject to approval by the relevant American authorities before it can be approved.
+(a) If the employee留在 USA 工作, 则根据 his or her current contract of employment, he will be entitled to a leave of absence from the country of his/her usual residence. The employee must submit to the appropriate authority in the USA for approval to travel overseas. Any leave of absence will be subject to approval by the relevant American authorities before it can be approved.
 
 (b) If the employee is required to terminate between the eleventh and twenty-fourth month from the date of his arrival at his own request of duty, he shall pay all expenses for the travel and transportation of himself, his immediate family, household goods, and personal effects to the United States.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14845.png
-
-Convert to MarkdownDATE
+DATE
 
 210 C. DISCIPLINIER
 1st MAR '59

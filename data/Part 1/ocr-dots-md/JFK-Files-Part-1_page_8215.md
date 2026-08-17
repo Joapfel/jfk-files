@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8215.png
-
-Convert to MarkdownHenry P. Lopez
+Henry P. Lopez
 
 From Druon de C] /0A from Deputy, Leciton
 g Security (J-15) - dataa 10 Sept. 59

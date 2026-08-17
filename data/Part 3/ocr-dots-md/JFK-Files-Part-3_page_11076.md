@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11076.png
-
-Convert to MarkdownRestrictions on Investigations
+Restrictions on Investigations
 
 FBI guidelines go beyond the rules for opening, investigating and closing cases; they also impose restrictions to make certain that we do not violate the constitutional rights of any individual and to preclude investigations from becoming "fishing expeditions". In the security field these are some of the restrictions which are applied:
 

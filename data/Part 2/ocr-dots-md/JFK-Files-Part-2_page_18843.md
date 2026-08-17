@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18843.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 JAFFE asks that his passport be amended allowing him to travel in Communist China as a professional American journalist and he understands that he will personally assume all the risks in such an undertaking. If this request is not within the power of the Department of State to approve, he desires to know if the Department of State would have any objection if he deposited his passport with the nearest Embassy and entered Communist China, assuming all risks, as a private citizen.
 

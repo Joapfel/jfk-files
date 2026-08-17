@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19172.png
-
-Convert to MarkdownREC-52
+REC-52
 
 airtel
 

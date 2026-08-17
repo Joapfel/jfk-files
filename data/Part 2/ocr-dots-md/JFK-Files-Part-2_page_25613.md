@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25613.png
-
-Convert to Markdown# POINTS AND AUTHORITIES
+# POINTS AND AUTHORITIES
 
 1. Rule 35 of the Federal Rules of Criminal Procedure.
 

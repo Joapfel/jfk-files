@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2334.png
-
-Convert to MarkdownNOTE:
+NOTE:
 
 Unexcised copy of FBI report entitled "Foreign Support For Revolutionary Protest Movements in the United States," dated 6/30/69 is enclosed. Per telephone conversation of SA William O. Cregar with Special Counsel K. William O'Connor on 6/11/75, it was agreed copy of letter dated 6/20/69, from Tom Charles Huston, Staff Assistant to the President to the Director should be included in our response to SSC's request and that Special Counsel O'Connor would obtain appropriate clearance from White House to give access to SSC staff. A review of the file indicates there is no documented copy as to the sourcing of paragraphs in the 38 page report entitled "Foreign Support For Revolutionary Protest Movement in the United States" dated 6/30/69, classified "Top Secret." To locate the source of each statement in the report would necessitate an extensive search and review of Bureau files.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3968.png
-
-Convert to MarkdownCHICAGO, ILLINOIS
+CHICAGO, ILLINOIS
 AMERICAN
 
 E-439,360

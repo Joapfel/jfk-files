@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33864.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9. However, upon Landowski's arrival in Athens on 16 October, he found that Rempft was already there, contrary to the above understanding. Landowski consequently found himself obliged to justify his position, and particularly his requests for access to refugees, as Rempft had already presented his credentials to the Greek authorities, the American Embassy, the American military authorities, and the international press representatives in Athens.¹ Landowski flew to Munich to confer with Mr. Sperling, who in an effort to resolve the problem, suggested that Landowski change the name of his supposed firm from "Europe News Service" to "Radio News and Recording Service" and that he specialize in wire recordings of refugee interviews. A new contract was therefore drawn up in Munich, using the suggested title.
 

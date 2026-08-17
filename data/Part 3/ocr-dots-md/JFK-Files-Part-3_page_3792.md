@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3792.png
-
-Convert to MarkdownMemorandum J. Cochran, Jr. to Mr. Jenkins
+Memorandum J. Cochran, Jr. to Mr. Jenkins
 RE: REQUEST BY SENATE JUDICIARY SUBCOMMITTEE ON ADMINISTRATIVE PRACTICE AND PROCEDURE FOR INFORMATION CONCERNING USE OF DRUGS FOR INTERROGATION
 
 might be used to great advantage on espionage suspects. Navy offered to inform us about this. A notation by Mr. DeLoach indicated that Mr. Parsons would meet with Navy on 8/11/50.

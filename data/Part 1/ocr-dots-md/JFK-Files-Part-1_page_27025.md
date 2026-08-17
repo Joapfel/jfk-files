@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27025.png
-
-Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+CENTRAL INTELLIGENCE AGENCY
 
 This material contains information affecting the national defense of the United States within the meaning of the Espenak laws, Title 10, U.S.C. §§ 793 and 794, the transmission or reproduction of which in any manner to an unauthorized person is prohibited by law.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12279.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Ricardo MORALES Naravarrete.
 

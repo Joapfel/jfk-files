@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21999.png
-
-Convert to MarkdownE. January 1960 to January 1962 (American Department)
+E. January 1960 to January 1962 (American Department)
 
 I. Introduction
 

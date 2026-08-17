@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_22569.png
-
 on 7 April 1961. Berry, at the request of the dissidents, gave the carbines to S. Thomas Stocker for temporary safekeeping. Berry later recovered the carbines from Stocker and gave them to Antonio de la Maza, who reportedly kept

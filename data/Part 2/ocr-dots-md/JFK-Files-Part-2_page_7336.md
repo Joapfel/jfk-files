@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7336.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Guidelines for Members of the Select Committee and Their Staffs While Traveling Abroad
 

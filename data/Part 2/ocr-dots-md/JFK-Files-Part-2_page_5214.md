@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5214.png
-
-Convert to MarkdownMAR 31 '97 12:09PM
+MAR 31 '97 12:09PM
 
 REPRODUCED AT THE NATIONAL ARCHIVES
 

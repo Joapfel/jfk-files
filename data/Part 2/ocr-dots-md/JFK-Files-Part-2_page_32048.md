@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32048.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">DISPOSITION FORM<br/>(AR 340-15)</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18922.png
-
-Convert to MarkdownFORM NO. June L. Good pasture
+FORM NO. June L. Good pasture
 Dec, 1967
 Replaces Form No. 55-2 which
 may continue to be used.

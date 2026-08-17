@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18122.png
-
-Convert to MarkdownSECRET
+SECRET
 
 17 JUN 65 IN 92775
 

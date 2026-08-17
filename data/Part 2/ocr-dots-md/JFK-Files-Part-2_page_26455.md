@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26455.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="3">CLASSIFICATION - DISSEMINATION CONTROLS<br/>NO FOREIGN DISSEM/NO DISSEM ABROAD/<br/>CONTROLLED DISSEM/BACKGROUND USE ONLY TDCSDB-3/658,469</td>

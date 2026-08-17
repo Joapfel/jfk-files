@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31610.png
-
-Convert to Markdown# SAN FRANCISCO SCHOOL OF SOCIAL SCIENCES, aka San Francisco School of Social Science, San Francisco Marxist Study Group, San Francisco School of Marxism-Leninism, San Francisco School of Marxism
+# SAN FRANCISCO SCHOOL OF SOCIAL SCIENCES, aka San Francisco School of Social Science, San Francisco Marxist Study Group, San Francisco School of Marxism-Leninism, San Francisco School of Marxism
 
 A source advised on February 6, 1962, that the first class of the San Francisco Marxist Study Group (SFMSG) was held on February 5, 1962, at 345 Franklin Street, San Francisco, California, and that the instructor of this class stated that the main purpose of the SFMSG was to train young people for leadership of the people in the event the U. S. wakes up to the advantages of communism.
 

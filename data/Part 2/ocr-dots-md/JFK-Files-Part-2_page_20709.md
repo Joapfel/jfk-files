@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20709.png
-
-Convert to MarkdownUNITED STATES C VERNMENT
+UNITED STATES C VERNMENT
 
 Memorandum
 

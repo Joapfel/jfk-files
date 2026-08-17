@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24428.png
-
-Convert to MarkdownHelms recalled that he told Fitzgerald to
+Helms recalled that he told Fitzgerald to
 
 > "go ahead and say that from the standpoint of political support, the United States government will be behind you if you are successful. This had nothing to do with killings. This had only to do with the political action part of it". (Helms, 6/13, p. 131.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9589.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 LEADS (cont'd)
 

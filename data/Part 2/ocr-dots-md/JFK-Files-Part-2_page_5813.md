@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5813.png
-
-Convert to Markdown**Attachment I**
+**Attachment I**
 
 # Universe and Scope of CIA Documents
 ## Addressed Related to the JFK Assassination

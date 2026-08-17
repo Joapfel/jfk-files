@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_108.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 In December, 1969, an anonymous letter was directed to selected members of the United Klans of America, Inc. (UKA), by the Richmond Office. This letter denounced Robert H. Hudgins, Grand Dragon of Virginia, characterizing him as one interested in personal gain only. The content of the letter suggested that it had been prepared by Raymond Adams, a former UKA member, who had been banished and had been at odds with Hudgins.
 

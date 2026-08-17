@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17612.png
-
-Convert to MarkdownADDENDUM: LEGAL COUNSEL DIVISION PVD:dkg 4-15-75
+ADDENDUM: LEGAL COUNSEL DIVISION PVD:dkg 4-15-75
 
 Legal Counsel Division interposes no objection to
 Intelligence Division's recommendation. If approved, Intelligence

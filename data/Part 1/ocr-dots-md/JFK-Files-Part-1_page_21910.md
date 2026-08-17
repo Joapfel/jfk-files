@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21910.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 June 1962
 

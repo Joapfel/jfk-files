@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5963.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 24 July 1997
 

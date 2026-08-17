@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27134.png
-
-Convert to MarkdownVIDAL indicated he never joined the July 26th revolutionary movement of FIDEL CASTRO, but was affiliated with all groups of the revolution. In October, 1957, VIDAL was co-ordinator of the Organization Action Resistencia (The Clandestine Resistance Action Organization). He pointed out that in Havana, Cuba, he participated in dissemination of propaganda, sabotage, organized strikes, and meetings in jails, all on behalf of the CASTRO revolution.
+VIDAL indicated he never joined the July 26th revolutionary movement of FIDEL CASTRO, but was affiliated with all groups of the revolution. In October, 1957, VIDAL was co-ordinator of the Organization Action Resistencia (The Clandestine Resistance Action Organization). He pointed out that in Havana, Cuba, he participated in dissemination of propaganda, sabotage, organized strikes, and meetings in jails, all on behalf of the CASTRO revolution.
 
 VIDAL pointed out that in 1958 a pact was formed in Caracas naming MANUEL URUTIA as President of the new government, but that CASTRO later usurped the presidency. After URUTIA was overthrown, VIDAL became disenchanted and began to cooperate with anti-CASTRO organizations. He asked for foreign duty, and after noting continued CASTRO activities against the government of ROMULO BETANCOURT and the movement of Russian agents to Cuba, he removed his family from Cuba, went to Colombia, and defected.
 

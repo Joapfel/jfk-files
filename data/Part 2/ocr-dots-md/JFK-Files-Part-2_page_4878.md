@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4878.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHFNO: 98-0480597
 SENSIND:

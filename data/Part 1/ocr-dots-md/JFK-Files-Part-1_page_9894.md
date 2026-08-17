@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9894.png
-
-Convert to MarkdownPROCEDURE
+PROCEDURE
 
 Subject first refused to make the effort, naturally as the government did in his estimation his relationship with ROWTON, so well as his whole way of life, were at variance with any past pressures. In the course of four weeks that this was being discussed, Subject also decided to quit working for ROWTON.
 

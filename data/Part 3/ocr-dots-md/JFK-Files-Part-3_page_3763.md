@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3763.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 On November 6, 1975, Wick again telephoned this Bureau and advised that he had been rather annoyed at Epstein's initial approach to him; particularly, because Wick had tried on more than one occasion during the telephone conversation with Epstein to pry from Epstein the subject matter of the interview but Epstein persisted in not advising him.
 

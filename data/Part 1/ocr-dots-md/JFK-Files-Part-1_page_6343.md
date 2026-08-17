@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6343.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th><th rowspan="2">NO.</th></tr><tr><td>DATE:</td><td>S-E-C-R-E-T</td></tr><tr><td>TO:</td><td>RE Filing (check one):<br/>No Cn Record Val. Rec'd<br/><input type="checkbox"/> Hl file this copy or marked<br/><input type="checkbox" checked disabled /> Print copy filed as transmitted<br/><input type="checkbox" disabled checked disabled /> RE Indicating (check one):<br/>Marked <input type="checkbox"/> None recorded <input type="checkbox"/></td><th>Routing</th><th></th></tr><tr><td></td><td></td><th>1</th><th>4</th></tr><tr><td></td><td></td><th>2</th><th>5</th></tr><tr><td></td><td></td><th>3</th><th>6</th></tr></thead><tbody><tr><td>FROM:</td><td>No Cn Record Val. Rec'd.</td><td></td><td></td></tr><tr><td>ACTION:</td><td>Hl file this copy or marked</td><td></td><td></td></tr><tr><td>INFO:</td><td>Print copy filed as transmitted</td><td></td><td></td></tr><tr><td></td><td>RE Indicating (check one):<br/>Marked <input type="checkbox"/> None recorded <input type="checkbox"/></td><td></td><td></td></tr><tr><td></td><td>Signature:</td><td></td><td></td></tr></tbody></table>
 

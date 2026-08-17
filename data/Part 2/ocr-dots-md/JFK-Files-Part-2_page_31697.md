@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31697.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH:jb
 
 ROBERT SCHEER, 6468 Benvenue Avenue, Oakland,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3473.png
-
-Convert to MarkdownAMWORLD Meeting in San Juan, P.R., 2-5 May 1964
+AMWORLD Meeting in San Juan, P.R., 2-5 May 1964
 
 SUBJECT: Cackling Over Unlaid Eggs
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18448.png
-
-Convert to Markdown5. FBI Intelligence Activities and State or Local
+5. FBI Intelligence Activities and State or Local
 Law Enforcement Agencies
 
 The Committee seeks to determine the nature of

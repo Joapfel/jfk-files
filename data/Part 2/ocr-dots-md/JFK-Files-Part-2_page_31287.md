@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31287.png
-
-Convert to MarkdownThe House Select Committee on Investigations conducted a review of defectors' files in order to determine whether defectors other than Oswald were successfully debriefed upon their return to the United States. The committee requested that the CIA provide a list of persons travelling to the Soviet Union during the period from 1958 to 1963, including both visitors and those persons considered by the Agency to be "defectors."
+The House Select Committee on Investigations conducted a review of defectors' files in order to determine whether defectors other than Oswald were successfully debriefed upon their return to the United States. The committee requested that the CIA provide a list of persons travelling to the Soviet Union during the period from 1958 to 1963, including both visitors and those persons considered by the Agency to be "defectors."
 
 In response, the Committee provided a computer listing of 380 individuals entitled "U.S. Persons Who Have or May Have Defected to the USSR Between 1956-1963."
 

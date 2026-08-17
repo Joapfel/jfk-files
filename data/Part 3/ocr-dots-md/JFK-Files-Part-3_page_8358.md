@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8358.png
-
-Convert to MarkdownSTANDARD FORM NO. 1169A
+STANDARD FORM NO. 1169A
 
 Form prescribed by Comptroller General U.S.
 (All Payments and Deposits under Payment Orders No. 123)

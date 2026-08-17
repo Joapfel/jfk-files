@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15126.png
-
-Convert to Markdown- 8 -
+- 8 -
 
 Die Stadt hat gegenwärtig ungeführ 10.000 Einwohner und be-
 findet sich an der Eisenbahnstrecke Samtredia-Suchumi ( die

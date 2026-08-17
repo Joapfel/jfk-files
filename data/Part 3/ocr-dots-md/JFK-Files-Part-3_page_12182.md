@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12182.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 RE: INTERVIEW OF RETAINED FBI SA BY SSC -
 

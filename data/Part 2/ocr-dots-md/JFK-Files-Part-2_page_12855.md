@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12855.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WFO 105-26269
 

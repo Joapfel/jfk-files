@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25121.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16. PAST OPERATIONAL ACTIVITY AGAINST SUBJECT:(chronological, with narrative summary of each item):
 

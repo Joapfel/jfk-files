@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7692.png
-
-Convert to Markdown21.10). Rafael FUSONI Alordt (P-5119, 201-237904), Argentine diplomat, former KGB agent, in occasional social contact with Soviets, primarily through diplomatic functions.
+21.10). Rafael FUSONI Alordt (P-5119, 201-237904), Argentine diplomat, former KGB agent, in occasional social contact with Soviets, primarily through diplomatic functions.
 
 corps
 

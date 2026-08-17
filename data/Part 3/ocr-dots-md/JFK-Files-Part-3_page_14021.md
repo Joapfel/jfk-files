@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14021.png
-
-Convert to MarkdownLAP SECRET
+LAP SECRET
 
 intelligence community (supported by Army and Navy, although CIA and FBI
 are not keen on it) that there is a need for a Counterintelligence Committee.

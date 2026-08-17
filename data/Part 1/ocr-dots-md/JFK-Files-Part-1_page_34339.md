@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34339.png
-
-Convert to MarkdownBLACK LIST FIRMS:
+BLACK LIST FIRMS:
 
 Konstantinos Pitsenkakis
 6 Polytechniou St.,

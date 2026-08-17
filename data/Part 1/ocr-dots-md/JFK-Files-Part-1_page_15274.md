@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15274.png
-
-Convert to MarkdownSECRET
+SECRET
 
 center. Subject was interrogated by the French Security Officer, who as-
 tablished Subject's true identity. Subject then stated, to the Security

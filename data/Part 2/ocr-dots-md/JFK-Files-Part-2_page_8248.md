@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8248.png
-
-Convert to MarkdownOctober 1950
+October 1950
 
 The QKSTAIR Field Chief learned of DIMITROV through the local peripheral reporting officer and contacted him covertly. DIMITROV made six agents immediately available for infiltration operations.
 

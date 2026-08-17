@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19512.png
-
-Convert to MarkdownLS 100-4998
+LS 100-4998
 
 There is no information in Louisville files
 regarding other Kentucky residents mentioned in the LHM.

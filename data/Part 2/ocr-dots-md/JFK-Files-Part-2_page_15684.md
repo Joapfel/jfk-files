@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15684.png
-
-Convert to MarkdownAll of us will have to be there.
+All of us will have to be there.
 
 Genocide doesn't just mean physical
 murder, economic murder, psychological

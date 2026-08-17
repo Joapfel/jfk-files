@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8379.png
-
-Convert to Markdown## II. BLACK PANTHER OBJECTIVES
+## II. BLACK PANTHER OBJECTIVES
 
 The Black Panther Party "Platform and Program" is repeated in each issue of the official Party publication, The Black Panther.
 

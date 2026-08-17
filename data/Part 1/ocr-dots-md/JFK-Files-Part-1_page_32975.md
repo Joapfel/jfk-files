@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32975.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET 0500492
 DIR CITE WAVE 6746

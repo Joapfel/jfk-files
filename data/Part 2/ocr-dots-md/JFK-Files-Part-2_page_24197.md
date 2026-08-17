@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24197.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DTHABEAS (Cont'd) - were given as a gift to the witting directors who proposed to continue the entity as a private organization. No further contact has been maintained with the entity.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35597.png
-
-Convert to Markdown# RAL.O NEW YORK WORLDWIDE - WRIT
+# RAL.O NEW YORK WORLDWIDE - WRIT
 
 4 WEST 58TH STREET, NEW YORK 19, N. Y.
 

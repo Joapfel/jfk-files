@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30527.png
-
-Convert to MarkdownSECRET
+SECRET
 
 This has always been true - In earlier times, it may have been restricted by a few fewer persons.
 

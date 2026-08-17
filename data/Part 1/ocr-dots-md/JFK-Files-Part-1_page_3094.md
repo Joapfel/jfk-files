@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3094.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td rowspan="2">CABLE SECRETARY DISSEMINATION</td><td>ASSISTED MESSAGE</td><td>TOTAL COPIES</td><td>REMITTING AND/OR INITIALS SEEN BY</td></tr><tr><td colspan="3"><table><tbody><tr><td colspan="2">GROUP I<br/>EXCEPT FROM AUTOMATICS<br/>MANAGEMENT AND<br/>DELEGATEE</td></tr><tr><td colspan="2">REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td>INDEX ☐ YES ☐ NO</td><td>CLASSIFY TO FILE NO.</td></tr><tr><td colspan="2">A-REF TO FILE NO.</td></tr><tr><td>FILE ID ☐ RETURN TO</td><td>SPARKER ☐ DESTROY ☐ BOLD</td></tr></tbody></table></td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLIPPED</td><td>BY ______ AT ______ Z</td><td>DISTRIBUTED BY ______ PER ______</td><td>ACTION ☐ ID COPY</td></tr><tr><td></td><td></td><td>INFO</td><td>FILE VR.</td></tr></table></td></tr></table>
 

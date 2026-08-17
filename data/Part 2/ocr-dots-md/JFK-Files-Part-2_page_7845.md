@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7845.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 1968; Director-93261, dated 20 April 1968; Director-
 93260, dated 20 April 1968; Tokyo-9600 (IN-94797),

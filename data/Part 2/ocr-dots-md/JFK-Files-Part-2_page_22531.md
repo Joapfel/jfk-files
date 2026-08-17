@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22531.png
-
-Convert to Markdownand radical activities
+and radical activities
 and apparently cannot be
 touched by police. Chief,
 SRS felt that this had

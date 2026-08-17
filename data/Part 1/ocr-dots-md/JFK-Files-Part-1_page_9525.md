@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9525.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8 February 1950
 

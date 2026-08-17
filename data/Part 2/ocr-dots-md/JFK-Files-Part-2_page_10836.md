@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10836.png
-
-Convert to MarkdownFEDERAL EUREAU OF INVESTIGATIOG
+FEDERAL EUREAU OF INVESTIGATIOG
 
 <table>
    <tr>

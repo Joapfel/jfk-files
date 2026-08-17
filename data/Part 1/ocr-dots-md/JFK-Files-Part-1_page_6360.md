@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6360.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th rowspan="3">PROCESS SHEET<br>FOR<br>00/C COLLECTIONS</th>

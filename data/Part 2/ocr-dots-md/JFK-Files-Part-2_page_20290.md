@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20290.png
-
-Convert to MarkdownNW 88321 DocId:32989545 Page 574
+NW 88321 DocId:32989545 Page 574
 
 FBI,
 

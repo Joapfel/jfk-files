@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5768.png
-
-Convert to MarkdownHSCA Names
+HSCA Names
 
 Alvarado, Gilberto
 Arcacha-Smith, Sergio

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25248.png
-
-Convert to MarkdownLODGE, AMBASSADOR
+LODGE, AMBASSADOR
 DIEM
 NHU
 

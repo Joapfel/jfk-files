@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22304.png
-
-Convert to Markdownhis lack of information concerning a sixth (GARLAND) is discussed in detail in Pages 166 through 219. NOSENKO'S information on a number of other cases, less important in his opinion, is described in the tabulation of American case leads given on Pages 364-410. Certain of these cases are further examined below to determine whether NOSENKO'S knowledge equates with details which the deputy and acting chief of the U.S. Embassy Section could reasonably be expected to know and retain.
+his lack of information concerning a sixth (GARLAND) is discussed in detail in Pages 166 through 219. NOSENKO'S information on a number of other cases, less important in his opinion, is described in the tabulation of American case leads given on Pages 364-410. Certain of these cases are further examined below to determine whether NOSENKO'S knowledge equates with details which the deputy and acting chief of the U.S. Embassy Section could reasonably be expected to know and retain.
 
 ## (1) The STORSBERG Case
 

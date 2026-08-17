@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4665.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: It would have been. No question. No question. Because if I remember it correctly, the P&P and L&M teams were concentrating on Southeast Asia and looking into what the US Government as a whole was doing, not just CIA, but they didn't like anything that was going on in that area and I think that is what began gnawing away at the thing and broke it apart.
 

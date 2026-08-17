@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19708.png
-
-Convert to MarkdownWFO 100-55290
+WFO 100-55290
 
 On January 13, 1972, WF T-2 provided a copy of the
 January, 1972 issue of the "Furies" Newspaper.

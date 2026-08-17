@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20297.png
-
-Convert to MarkdownCOPIES. DESTROYED
+COPIES. DESTROYED
 
 27 MAY 12 1971.
 

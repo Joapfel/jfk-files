@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6827.png
-
-Convert to MarkdownMemorandum to Mr. Tolson
+Memorandum to Mr. Tolson
 
 he would sit with the rest of the Supreme Court on the Hoffa case and would make certain that Kennedy was exposed. He stated that he felt that the Supreme Court would definitely confirm the decision of the lower court in the Hoffa case. He mentioned that this opinion had been expressed to him by the other Justices.
 

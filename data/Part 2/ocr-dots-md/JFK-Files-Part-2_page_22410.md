@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22410.png
-
-Convert to MarkdownSECRET
+SECRET
 
 all the oil. We did that with a big operation. We made our
 own oil, substandard. Additives, I should say, not oil. We

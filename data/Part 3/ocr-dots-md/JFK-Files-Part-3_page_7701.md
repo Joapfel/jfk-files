@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7701.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The Attorney General
 

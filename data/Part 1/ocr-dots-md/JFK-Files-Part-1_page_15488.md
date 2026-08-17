@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15488.png
-
-Convert to MarkdownF 071712 ZEA
+F 071712 ZEA
 
 ST
 

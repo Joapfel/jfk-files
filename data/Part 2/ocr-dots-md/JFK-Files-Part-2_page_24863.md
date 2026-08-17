@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24863.png
-
-Convert to Markdownour responsibility therefor" (CIA cable, DCI to Saigon 10/5/63);
+our responsibility therefor" (CIA cable, DCI to Saigon 10/5/63);
 CIA cable DIR 73661, DCI to Saigon, 10/6/63).
 
 ## B. The Abortive Coup of August 1963

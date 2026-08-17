@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2616.png
-
-Convert to Markdown1 of our jurisdiction in the intelligence field, a jurisdictional
+1 of our jurisdiction in the intelligence field, a jurisdictional
 2 statement that the Congress finds to be responsive to both
 3 the will and the needs of the American people.
 4 Senators, first and foremost, I am a police officer, a

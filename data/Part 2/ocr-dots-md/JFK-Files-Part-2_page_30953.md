@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30953.png
-
-Convert to MarkdownOther Plots
+Other Plots
 
 Antonio Veraciara - new CIA; Alpha 66 affiliated.
 CIA refused his offer 3 times.

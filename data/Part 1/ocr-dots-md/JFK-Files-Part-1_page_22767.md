@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22767.png
-
-Convert to Markdown18 JAN 1963
+18 JAN 1963
 
 MEMORANDUM FOR: Chief, Finance Division
 

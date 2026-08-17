@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4590.png
-
-Convert to Markdown14-0000
+14-0000
 
 **DATE:** 28 AUGUST 1968
 **CLASSIFICATION:** CONFIDENTIAL

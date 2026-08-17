@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3143.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 served as liaison officer with the Amphibious Forces Atlantic in Norfolk, Virginia -- a pertinent assignment for his transfer to Project JMARC.
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22548.png
-
 passed the three carbines to Winpy Berry April 7. No complications."
 
 (Comment: The files do not contain an account of how the carbines were actually passed. As we will later see, headquarters subsequently pouched submachine guns for passing to the dissidents.

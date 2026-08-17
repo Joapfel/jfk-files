@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1466.png
-
-Convert to MarkdownRETURN TO CIN
+RETURN TO CIN
 Background Use Only
 Do Not Reproduce
 

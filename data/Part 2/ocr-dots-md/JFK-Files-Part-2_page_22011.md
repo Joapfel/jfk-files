@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_22011.png
-
 .
 
 P.D. stressed that he was not in the operational line of command -- "I provided an interface for intelligence information." A typical day in P.D.'s life:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3846.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">LA AFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td colspan="2"><table><tr><td>A-C to FILM BE.</td><td>☐</td></tr><tr><td>FILE C - ☐</td><td>To Be Annexed ☐</td></tr><tr><td>DESTROY ☐ <u>S&amp;S</u>.</td><td></td></tr></table></td><td></td></tr><tr><td colspan="3"><strong>SECRET</strong></td></tr><tr><td colspan="2"><u>PERSON/UNIT ACTIFIED</u></td><td></td></tr></tbody></table></td></tr><tr><td colspan="2"></td><td><table><tr><td rowspan="5" style="vertical-align: top;">[Image]</td><td colspan="4" style="text-align:center;"><strong>REPRODUCTION PROHIBITED</strong></td></tr><tr><td>[Image]</td><td>[Image]</td><td>[Image]</td><td>[Image]</td></tr><tr><td>[Image]</td><td>[Image]</td><td>[Image]</td><td>[Image]</td></tr><tr><td>[Image]</td><td>[Image]</td><td>[Image]</td><td>[Image]</td></tr><tr><td>[Image]</td><td>[Image]</td><td>[Image]</td><td>[Image]</td></tr></table></td></tr><tr><td><strong>ACTION</strong></td><td>C/WH/c-G-5 ☑RID COPY</td><td><strong>ADVANCE COPY</strong></td><td>☐...... ☐...... ☐...... ☐......</td></tr><tr><td><strong>INFO</strong></td><td colspan="3">V.R. c/WHTa, c/C2 C/FI. 2, c/SOD 3, DOL. MDF</td></tr><tr><td><strong>FILE</strong></td><td colspan="3"><u>MANA</u><br/>CITE MANAGUA 6344<br/>DIRECTOR, PANAMA CITY<br/>~~STAFF ASSIST~~<br/>SType A World</td></tr></tbody></table>
 

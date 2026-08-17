@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20989.png
-
-Convert to MarkdownAug 31 11 45 AM '67
+Aug 31 11 45 AM '67
 
 C-O-N-F-I-D-E-N-T-I-A-L NO FOREIGN DISSEM
 

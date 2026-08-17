@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4135.png
-
-Convert to MarkdownHandle Via Indicated Controls
+Handle Via Indicated Controls
 
 WARNING
 

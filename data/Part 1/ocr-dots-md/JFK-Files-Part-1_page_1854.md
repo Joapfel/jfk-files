@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1854.png
-
-Convert to Markdown②
+②
 
 mentors proposed to assassinate Gen. Cushing, and the case was referred to Joliette E. Cushing, by General Newton and hisoluting. Bender held Newton in low esteem.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8070.png
-
-Convert to MarkdownUNITED STATE GOVERNMENT
+UNITED STATE GOVERNMENT
 Memorandum
 
 TO: Mr. McDermott

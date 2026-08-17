@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19795.png
-
-Convert to MarkdownSecond source is [BS 803-8.]
+Second source is [BS 803-8.]
 
 Third source is Officer DONALD EYAN, Boston University Security Police.
 

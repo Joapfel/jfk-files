@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9681.png
-
-Convert to MarkdownCLASS : D, MESSAGE
+CLASS : D, MESSAGE
 
 <table><tr><td>SECRET</td></tr></table>
 

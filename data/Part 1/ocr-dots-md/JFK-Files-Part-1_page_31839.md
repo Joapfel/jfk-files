@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31839.png
-
-Convert to Markdown3 April 1962
+3 April 1962
 
 Mr. H.F. Roper
 Chief, Benefits and Services Division

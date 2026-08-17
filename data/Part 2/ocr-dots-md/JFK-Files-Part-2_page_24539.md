@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24539.png
-
-Convert to MarkdownHelms testified that "I remember vividly (the pressure to overthrow Castro) was very intense." (Helms, 6/13, p. 26.) Helms stated that this pressure intensified during the period of Operation Mongoose during late 1961 and throughout 1962, and then continued on through much of 1963. (Helms, 6/13, p. 27.)
+Helms testified that "I remember vividly (the pressure to overthrow Castro) was very intense." (Helms, 6/13, p. 26.) Helms stated that this pressure intensified during the period of Operation Mongoose during late 1961 and throughout 1962, and then continued on through much of 1963. (Helms, 6/13, p. 27.)
 
 As these pressures rose, "obviously the extent of the means that one thought were available, obvious increased too." (Helms, 6/13, p. 26.)
 

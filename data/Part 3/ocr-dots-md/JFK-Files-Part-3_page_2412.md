@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2412.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In December, 1968, two leaders of SNCC departed from the United States for Cuba, via Mexico, allegedly to attend a Cultural Congress. When they returned to the United States, they were intercepted at the Canadian border by Customs and Immigration officials. They had in their possession a large quantity of North Korean, Soviet and Cuban propaganda and souvenirs. Included in their personal effects were a five-band portable radio of Soviet manufacture, adaptable for receiving intelligence communications and a revealing notebook and diary.
 

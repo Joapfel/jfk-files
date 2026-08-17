@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17260.png
-
-Convert to MarkdownMarch 31, 1969
+March 31, 1969
 
 CONFIDENTIAL
 

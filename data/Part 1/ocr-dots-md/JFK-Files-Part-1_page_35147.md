@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35147.png
-
-Convert to MarkdownCOSTOS GENERALES
+COSTOS GENERALES
 
 AÑO: "I-P
 Hoja No. 2

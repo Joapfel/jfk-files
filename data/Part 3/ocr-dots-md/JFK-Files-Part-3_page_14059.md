@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14059.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 figure for NSA was given as 20,000 in comparison with the UK total of 6,600 personnel engaged in this type of activity.
 

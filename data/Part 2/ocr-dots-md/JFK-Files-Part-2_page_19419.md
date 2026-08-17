@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19419.png
-
-Convert to MarkdownToday, January 15, Congress reconvenes in Washington. Women from all over the United States have gathered there to petition the Congress in the name of the Jeanette Rankin Brigade. Jeannette Rankin, the first woman to serve in Congress and the only person to vote against U.S. entry into both World Wars, leads the women there, along with such other sponsors as Mrs. M.L.King, Mrs. Harry Belafonte, Mr's. John C. Bennett, Mrs. Benjamin Spock, Mrs Judith Morse Eaton. The Brigade is a
+Today, January 15, Congress reconvenes in Washington. Women from all over the United States have gathered there to petition the Congress in the name of the Jeanette Rankin Brigade. Jeannette Rankin, the first woman to serve in Congress and the only person to vote against U.S. entry into both World Wars, leads the women there, along with such other sponsors as Mrs. M.L.King, Mrs. Harry Belafonte, Mr's. John C. Bennett, Mrs. Benjamin Spock, Mrs Judith Morse Eaton. The Brigade is a
 
 national coalition of women's antiwar groups mobilized against the war in Vietnam. As the cost of the war in lives and money mounts daily, the women of this country call upon congress to take action against it. To support the senators and Congressmen who oppose the war, to encourage those who are troubled but silent, to speak out, and to make our position known to those who still support this immoral war, we, as women of Hawaii, are gathered here. Our message to Reps. Mink and Matsunaga, to Sens. Fong and Inouye, is that
 

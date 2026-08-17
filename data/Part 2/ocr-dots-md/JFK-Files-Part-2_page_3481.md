@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3481.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the United States, that Donovan says he is not a Communist, and that Fidel
 didn't know how to go about making any accommodation with the U. S.

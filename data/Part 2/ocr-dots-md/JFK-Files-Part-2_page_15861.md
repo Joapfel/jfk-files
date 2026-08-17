@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15861.png
-
-Convert to MarkdownTUESDAY
+TUESDAY
 
 # FRED HAMPTON-MARK CLARK INQUEST
 

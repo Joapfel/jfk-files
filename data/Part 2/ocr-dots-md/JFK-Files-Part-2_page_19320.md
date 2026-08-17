@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19320.png
-
-Convert to MarkdownExcised
+Excised
 copy for
 Semate
 

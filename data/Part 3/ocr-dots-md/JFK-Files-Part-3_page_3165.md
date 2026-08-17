@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3165.png
-
-Convert to Markdown1777
+1777
 
 a scientific student, and he makes a comment to a fellow
 employee that there is going to be some spectacular event

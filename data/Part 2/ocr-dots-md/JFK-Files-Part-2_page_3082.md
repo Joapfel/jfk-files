@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3082.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 be condemned throughout Latin America. The US on the
 other hand would receive the blessings of the OAS and

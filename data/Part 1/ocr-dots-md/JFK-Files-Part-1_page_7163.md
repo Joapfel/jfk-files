@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7163.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On February 21, 1966, PEDRO ZARATE MARMOLEJO, Commandant of the Customs Guard, Maritime Customs Office, Mazatlan, Sinaloa, advised that his men have been carefully watching the elements of the Soviet whaling fleet that are currently visiting Mazatlan. They have been alerted to the importation of any propaganda or contraband, but, as yet, nothing has transpired. When the flagship of the Soviet whaling fleet arrived recently, there was no one aboard who spoke Spanish or English, and the Captain seemed to be completely lacking in instructions about documents in order to enter the harbor. He did not have the necessary papers prepared. A Soviet Embassy official was sent from Mexico City in order to straighten matters out.
 

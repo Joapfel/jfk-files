@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3195.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Special Operations, Office of the Secretary of Defense, also had some suggestions which he made to Mr. Bissell about the conduct of the Agency's anti-Castro program. For whatever reason, in late December 1960 Lansdale forwarded to Bissell a number of suggestions which had been presented to him by an Army reservist who had put in two weeks of active duty with OSO at Lansdale's direction researching Cuban political objectives. Inasmuch as the Agency had devoted many months to the study of this subject, and all other aspects of the anti-Castro effort, it appears a rather gratuitous insult that Lansdale would have forwarded this kind of paper to Bissell. 19/ What response, if any, Bissell made to this memorandum is not known.
 

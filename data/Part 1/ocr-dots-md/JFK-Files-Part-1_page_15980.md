@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15980.png
-
-Convert to Markdown14-00000
+14-00000
 
 FBI document dated
 25 June '73 from New York

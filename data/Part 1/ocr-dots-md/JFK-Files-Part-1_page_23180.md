@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23180.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>REPORT NO.</td>
     <td>CO-A-357/0.555-5</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29035.png
-
-Convert to Markdown15 March 1963
+15 March 1963
 
 MEMORANDUM FOR: Secretary, CB/CB Panel (Section A)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20864.png
-
-Convert to MarkdownWomen's National March on
+Women's National March on
 the Pentagon, April 10, 1971
 
 # APPENDIX

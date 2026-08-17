@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24226.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>DISPATCH</td><td>CASCIFICATION</td><td>DISPATCH SYMBOL AND NO.</td></tr></thead><tbody><tr><td></td><td>SECRET</td><td>OELA-45,254</td></tr><tr><td>TO<br/>INFO</td><td>Chief, KUWOLF<br/>Chief, WE; Chief, KUDESK; Chief, LCPIPIT</td><td>HEADQUARTERS FILE NO.<br/>200-124-156/3</td></tr><tr><td>FROM</td><td>Chief of Station, London</td><td>DATE<br/>30 March 1966</td></tr><tr><td>SUBJECT</td><td>DTDORIC QPREY CREEBONY<br/>Relations with JAGUAR</td><td>RE "43" - (CHECK ONE)<br/><br/>X MARKED FOR INDEXING<br/>NO INDEXING REQUIRED<br/><br/>INDEXING CAN BE JUDGED BY QUALIFIED HQ. DESK ONLY</td></tr><tr><td>ACTION REQUIRED</td><td></td><td></td></tr></tbody></table>
 

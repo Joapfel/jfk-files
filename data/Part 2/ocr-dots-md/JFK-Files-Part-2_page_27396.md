@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27396.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A- Project WESTPOINTER - SECRET
 

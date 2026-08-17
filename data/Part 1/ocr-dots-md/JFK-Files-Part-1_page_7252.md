@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_7252.png
-
 or man of confidence, NU, fitted the description of the person even better than CASAMADRID did.
 
 a. What is the name of this person and his official title?

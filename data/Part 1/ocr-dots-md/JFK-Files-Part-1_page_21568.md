@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21568.png
-
-Convert to Markdownwas not until circa April 1964 that any effective action was taken to locate and remove the microphone system, in which COLLYSON had given a lead in late 1963 - 17 January 1962.
+was not until circa April 1964 that any effective action was taken to locate and remove the microphone system, in which COLLYSON had given a lead in late 1963 - 17 January 1962.
 
 A few general points in regard to the information furnished by NOSENKO would be appropriate in this particular section.
 

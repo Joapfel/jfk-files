@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16147.png
-
-Convert to Markdown7.31 MRC. 3/74
+7.31 MRC. 3/74
 
 CABLE SEC DISSEMS BY ______ PER ____________ TOTAL COPIES ______ RUN BY ______
 PERSON/UNIT NOTIFIED ______________ SECRET ______________ REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED

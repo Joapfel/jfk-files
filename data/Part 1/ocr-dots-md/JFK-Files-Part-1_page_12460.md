@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12460.png
-
-Convert to MarkdownATTACHMENT PIQ PART I HVCA-18757
+ATTACHMENT PIQ PART I HVCA-18757
 
 | DATE | PLACE | PURPOSE |
 |---|---|---|

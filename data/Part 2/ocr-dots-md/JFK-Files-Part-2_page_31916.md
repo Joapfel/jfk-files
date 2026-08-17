@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31916.png
-
-Convert to MarkdownEXHIBIT COVER SHEET
+EXHIBIT COVER SHEET
 
 SUBJECT: MARTI, Manuel (NMN)
 PVT E-1, US 52 737 780

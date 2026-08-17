@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4233.png
-
-Convert to Markdown3. DOD Monthly Reconnaissance Forecast.
+3. DOD Monthly Reconnaissance Forecast.
 
 Mr. Johnson presented a paper dated 30 December 1963 expressing the State Department's concern regarding a number of the missions described in the January 1964 schedule of the Joint Reconnaissance Center. Mr. Johnson enumerated the types of missions which he regarded as particularly sensitive, such as: (a) coordinated or dual missions involving two planes in the same area at the same time; (b) those flown too close to Soviet territory; (c) radical changes in altitude of planes while under surveillance of Soviet radar; and (d) other radical variations of route.
 

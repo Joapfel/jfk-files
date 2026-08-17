@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20437.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ARTICLE XV. Special Provisions. The following special provisions shall apply to the Employee under this contract:
 

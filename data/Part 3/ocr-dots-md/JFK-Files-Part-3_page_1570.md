@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1570.png
-
-Convert to Markdown22. Gene Pearson Crawford, dob 10/2/27 for the period 1967 through 1968.
+22. Gene Pearson Crawford, dob 10/2/27 for the period 1967 through 1968.
 
 23. Fleet Edwards, dob 2/4/21 for the period 1967 through 1968.
 

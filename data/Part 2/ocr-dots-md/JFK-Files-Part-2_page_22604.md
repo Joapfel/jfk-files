@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22604.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 which was known as Plan Hope, which is simply putting the Italians in an airplane and having them fly over to the Roumanian border and make very primitive photographs of the whole region.
 

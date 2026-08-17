@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6151.png
-
-Convert to MarkdownIdentification of FBI documents mentioning Carl Preston Oglesby, Jr., IRS 75-1161, 30 April 1965.
+Identification of FBI documents mentioning Carl Preston Oglesby, Jr., IRS 75-1161, 30 April 1965.
 
 1. Report dated 28 June 1965, Detroit, Michigan; (no file numbers) Subject: Communist Infiltration of Students for a Democratic Society
 

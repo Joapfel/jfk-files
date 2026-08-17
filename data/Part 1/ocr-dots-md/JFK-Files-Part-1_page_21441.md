@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21441.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE:</td><td>SECRET</td></tr><tr><td>TO:</td><td>RE Filing (check one).<br>No CA Record Value. Destroy. ☐</td></tr><tr><td>FROM:</td><td>Re file this copy as indicated. ☐</td></tr><tr><td>ACTION:</td><td>Branched copy filed as indicated. ☐</td></tr><tr><td>INFO:</td><td>RE Indicated (check one):<br>Marked ☐ None required ☑</td></tr><tr><td></td><td>Signature:</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE:</td><td>SECRET</td></tr><tr><td>TO:</td><td>RE Filing (check one).<br>No CA Record Value. Destroy. ☐</td></tr><tr><td>FROM:</td><td>Re file this copy as indicated. ☐</td></tr><tr><td>ACTION:</td><td>Branched copy filed as indicated. ☐</td></tr><tr><td>INFO:</td><td>RE Indicated (check one):<br>Marked ☐ None required ☑</td></tr><tr><td></td><td>Signature:</td></tr></tbody></table>
 
 B. MADE NO REF "LIVE LETTER DROP".
 

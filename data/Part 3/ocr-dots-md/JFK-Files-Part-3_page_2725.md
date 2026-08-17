@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2725.png
-
-Convert to Markdown1971
+1971
 
 discontinued any further interest.
 

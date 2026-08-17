@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15258.png
-
-Convert to Markdown# Field Agent
+# Field Agent
 
 SR/DCB - Gregg Ross FI
 

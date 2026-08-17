@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33317.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Quimantu quickly began turning out magazines, comic books, and textbooks pushing UP policies. Comic books like Firme were designed for mass consumption and aimed at adults with low cultural levels, while others like Ramona were aimed at the teen-age market. Cabrochico, another comic book, was geared to pre-teens. The format of some Quimantu products closely resembled competing Zig-Zag products. The weekly Ahora, for example, was designed to compete with Escilla. After eight months Ahora collapsed, rejected in the market place by Chileans who were turned off by heavy-handed political propaganda.
 

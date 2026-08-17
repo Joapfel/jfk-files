@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10676.png
-
-Convert to Markdownwho is a member of the klan organization. These calls would be limited to those instances where the klan member is on, or about to be concerned about the picture they present to the public concerning racial matters.
+who is a member of the klan organization. These calls would be limited to those instances where the klan member is on, or about to be concerned about the picture they present to the public concerning racial matters.
 
 In view of the previously expressed desires of the officials of the Knoxville Police Department to maintain racial harmony in Knoxville, it is believed that arrangements could be made with the Chief of Police to have one or more squad cars visible in the vicinity of the meeting hall of the Knoxville Klavern on the nights of their meetings. It is believed that if the members saw these squad cars parked in the vicinity on a continuing basis, it would cause them some apprehension and would act as a deterrent to their activities, as well as possible recruitment of new members.
 

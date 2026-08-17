@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19182.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="12">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td colspan="3">BWS: 29 APR 1960</td><td colspan="8"></td></tr><tr><th colspan="4">1. Serial No.</th><th colspan="3">2. Name (Last-First-Middle)</th><th colspan="4">3. Date Of Birth</th><th colspan="3">4. Yes/No Prof.</th><th colspan="3">5. Sex</th><th colspan="3">6. CS/EOD</th></tr><tr><td colspan="2">119477</td><td colspan="2"></td><td>TARASOFF BORIS D</td><td colspan="2"></td><td>Mo. 11</td><td>Da. 02</td><td>Yr. 08</td><td></td><td>( birth date )</td><td>Code 1</td><td>M</td><td>1</td><td>Mo. 02</td><td>Da. 20</td><td>Yr. 56</td></tr><tr><th colspan="2">7. SCD</th><th colspan="2"></th><th colspan="2">8. CSC Retmt.</th><th colspan="2">9. CSC Or Other Legal Authority</th><th colspan="3">10. Apmt. Affidav.</th><th colspan="3">11. PSLI</th><th colspan="3">12. LCD</th><th colspan="3">(involvement code) 13. CHG. No.</th></tr><tr><th>Mo.</th><th>Da.</th><th>Yr.</th><th>No.-2</th><th>Yes-No</th><th>Code</th><th></th><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Yes-No</th><th>Code</th><th></th><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Yes-No</th><th>Code</th><th></th></tr></thead><tbody><tr><td>06</td><td>02</td><td>51</td><td></td><td></td><td>1</td><td>50 USCA 403 J</td><td></td><td></td><td></td><td></td><td>1</td><td></td><td>02</td><td>20</td><td>56</td><td>2</td><td></td><td></td></tr></tbody></table>

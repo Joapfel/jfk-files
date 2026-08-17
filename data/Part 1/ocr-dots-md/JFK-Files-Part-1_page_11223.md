@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11223.png
-
-Convert to MarkdownLa Habana, 20 de Julio de 1966
+La Habana, 20 de Julio de 1966
 
 Huy abajo Sr. Embajador!
 

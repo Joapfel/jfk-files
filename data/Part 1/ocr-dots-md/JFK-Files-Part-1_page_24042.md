@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24042.png
-
-Convert to Markdown2
+2
 
 2 - Any figures concerning dividends are not guarantees nor estimates since dividends depend upon future experience and the annual action of the companies trustees
 

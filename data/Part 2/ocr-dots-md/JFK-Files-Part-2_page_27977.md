@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27977.png
-
-Convert to MarkdownRESUME
+RESUME
 
 Rita L. Morton
 Page Two

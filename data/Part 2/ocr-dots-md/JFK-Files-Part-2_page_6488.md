@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6488.png
-
-Convert to MarkdownMEMORANDUM FOR CHIEF OF OPERATIONS, CUBA PROJECT
+MEMORANDUM FOR CHIEF OF OPERATIONS, CUBA PROJECT
 
 Subject: Justification for US Military Intervention in Cuba (TS)
 

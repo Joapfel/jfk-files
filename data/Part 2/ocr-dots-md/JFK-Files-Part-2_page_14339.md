@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14339.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee
 
 Inspector Hotis asked whether the on-going interviews would be delayed pending resolution of the differences concerning procedures. Schwarz replied that the interviews will proceed due to time factors. I then requested Schwarz to expedite his discussion with the members of the Committee, to state their proposals in writing in order that we could review them in specific detail, and to let me know as soon as their proposal as approved by the Committee was available for discussion. He agreed to do so and said that probably this could be accomplished by Thursday, May 8, 1975.

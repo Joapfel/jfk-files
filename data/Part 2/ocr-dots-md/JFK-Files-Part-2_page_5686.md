@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5686.png
-
-Convert to MarkdownSUBJECT: Release of JFK Documents
+SUBJECT: Release of JFK Documents
 
 to a public acknowledgment of a station in Tunisia and might well engage in harassment/sabotage/terrorist actions in Tunisia to show its displeasure. If the Tunisian Government should ask that our station be closed, the U.S. Government would lose a capability to collect on Libya, north African stability, and Islamic extremism. (S)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30868.png
-
-Convert to MarkdownEMPLOYMENT RESUME
+EMPLOYMENT RESUME
 
 Mr. George Frederick Munro
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6441.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 (1) Increased Communist capability for attack on other nations of the Western Hemisphere.
 

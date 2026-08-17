@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21738.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Now that is my own personal contribution to that sort of thing. But I can't think of anything else that was done.
 

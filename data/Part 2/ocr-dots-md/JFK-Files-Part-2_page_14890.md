@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14890.png
-
-Convert to MarkdownJanuary 18, 1960
+January 18, 1960
 
 SEIZURE POWERS IN NEUTRALITY CASES
 

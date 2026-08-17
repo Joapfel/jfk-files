@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_911.png
-
-Convert to Markdown<u>SUBJECT TO</u>
+<u>SUBJECT TO</u>
 (when filled in)
 
 3. The student met the objectives in a creditable manner, revealing a good group of candidates.

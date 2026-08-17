@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16202.png
-
-Convert to Markdownb. Theodore John ROUSSOS
+b. Theodore John ROUSSOS
 DPOB: 14 July 1919, Washington, D. C.
 Retired: 31 July 1970
 

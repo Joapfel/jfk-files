@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10198.png
-
-Convert to MarkdownD. obtaining biographic and assessment data on IPA/OPS/AID trainees,
+D. obtaining biographic and assessment data on IPA/OPS/AID trainees,
 
 E. providing general information pertaining to police/security organizations, activities, equipment, and personalities requested by Agency operating components,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22322.png
-
-Convert to Markdown1. Personal Handling of Agents
+1. Personal Handling of Agents
 
 When NOSENKO transferred from the Tourist Department to the American Department, he took along a number of the agents he had used in tourist operations with him: YEFREMOV and VOLKOV, FRIPPEL, DMITRIYEV, and RYTOVA. During this period he also handled LEVINA, a librarian and language— teacher at the U.S. Embassy who was turned over to him by U.S. Embassy Section case officer MASSYA in 1960; and PREISFREUND and his partner who were used in code clerk opera- tions. These agents and NOSENKO's handling of them are dis- cussed below.
 

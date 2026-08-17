@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15632.png
-
-Convert to MarkdownWe took a poll in the community and all them
+We took a poll in the community and all them
 avaricious, greedy ass mother (obscene) whose more
 interested in public wealth than public health and we
 put little RON Thatcher in the community and the people

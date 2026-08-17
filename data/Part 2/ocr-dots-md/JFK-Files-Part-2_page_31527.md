@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31527.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 JTQ:j1
 
 # I. BACKGROUND

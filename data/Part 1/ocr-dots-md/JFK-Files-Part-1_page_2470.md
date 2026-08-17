@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2470.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 importance, and the recruitment of code clerks as a priority aim of
 the KGB. KLYPIN, who was Chief of the First Department, later re-

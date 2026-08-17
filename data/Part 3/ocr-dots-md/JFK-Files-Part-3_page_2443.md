@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2443.png
-
-Convert to MarkdownSF 62-6887
+SF 62-6887
 
 PATRICK J. HAGGERTY, JR.
 

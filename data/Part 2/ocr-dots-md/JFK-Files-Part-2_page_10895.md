@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10895.png
-
-Convert to MarkdownRE: REVISED PAGES
+RE: REVISED PAGES
 
 There are enumerated below pages of the Manual of Rules and
 Regulations, enclosed herewith, which have been revised. Revisions appearing

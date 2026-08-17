@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14177.png
-
-Convert to Markdown114. 9/18/62 - The CIA reported in the President's Checklist that "We have spotted two more Soviet passenger vessels en route to Cuba. Their arrival will raise our estimate of technicians on the scene to about 4,200. We are beginning to see some tenuous evidence foreshadowing the appearance of SAM sites in Camaguey Province." (Source: CIA Chronology, 11/7/62)
+114. 9/18/62 - The CIA reported in the President's Checklist that "We have spotted two more Soviet passenger vessels en route to Cuba. Their arrival will raise our estimate of technicians on the scene to about 4,200. We are beginning to see some tenuous evidence foreshadowing the appearance of SAM sites in Camaguey Province." (Source: CIA Chronology, 11/7/62)
 
 115. 9/19/62 - The CIA reported in the President's Checklist that:
 

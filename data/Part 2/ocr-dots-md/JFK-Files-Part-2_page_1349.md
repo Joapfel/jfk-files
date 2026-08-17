@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1349.png
-
-Convert to Markdown19 OCT 1962
+19 OCT 1962
 
 MEMORANDUM FOR: Secretary, CS Career Service Board
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15972.png
-
-Convert to MarkdownOn February 17, 1969, one DAN STERN, believed associated with the Garfield Organization, a West Side Chicago community organization, whose purpose was to re-habilitate, improve, and stabilize the Garfield community, but which is now defunct, gave a check in the amount of $650.00 to the Chicago BPP Chapter. The check may have represented contributions from a number of individuals residing in the Garfiled area on Chicago's West Side.
+On February 17, 1969, one DAN STERN, believed associated with the Garfield Organization, a West Side Chicago community organization, whose purpose was to re-habilitate, improve, and stabilize the Garfield community, but which is now defunct, gave a check in the amount of $650.00 to the Chicago BPP Chapter. The check may have represented contributions from a number of individuals residing in the Garfiled area on Chicago's West Side.
 
 2/28/69)
 

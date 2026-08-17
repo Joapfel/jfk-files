@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24471.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th></th><th>PROPERTIES</th></tr></thead><tbody><tr><td colspan="2"></td><td>SECRET</td><td></td><td></td></tr><tr><td>B</td><td>Maj. PI</td><td colspan="3"></td></tr><tr><td>AEP</td><td>Chief, KUWOLY, Chief, KUBARK, Chief, AF</td><td colspan="3"></td></tr><tr><td></td><td>Chief of Station, Paris</td><td colspan="3"></td></tr><tr><td>D</td><td>Chief of Station, London RIE</td><td colspan="3"></td></tr><tr><td></td><td>O "Revolution, Africa, Latin America, Asia"</td><td colspan="3"></td></tr><tr><td>REPT. (A)</td><td colspan="4">(OELA-41,545 (10 September 1964) 10-25)</td></tr><tr><td>(B)</td><td colspan="4">(OELA-39,851 (24 September 1964))</td></tr></tbody></table>
 

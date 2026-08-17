@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2687.png
-
-Convert to Markdown**CHAPTER VI**
+**CHAPTER VI**
 
 SEVENTH DEPARTMENT (June 1955-January 1960)
 

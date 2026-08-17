@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_848.png
-
-Convert to Markdown# I. AUTHORIZATION OF CONSENSUAL, TITLE III, AND NATIONAL SECURITY ELECTRONIC SURVEILLANCES
+# I. AUTHORIZATION OF CONSENSUAL, TITLE III, AND NATIONAL SECURITY ELECTRONIC SURVEILLANCES
 
 The legal foundation for each of the above types of electronic surveillance differs, and in part as a consequence of that, the administrative procedure for securing authorization to use each type differs.
 

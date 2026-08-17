@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25080.png
-
-Convert to Markdown# Memorandum for Discussion of Covert Program Against Cuba
+# Memorandum for Discussion of Covert Program Against Cuba
 
 April 7, 1964
 

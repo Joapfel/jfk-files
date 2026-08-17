@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25471.png
-
-Convert to MarkdownFS: Friendly.
+FS: Friendly.
 
 ML: Very friendly. We exchanged gifts and we went to dinner, and we were invited to the U.N., and we exchanged...
 

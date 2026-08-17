@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9917.png
-
-Convert to MarkdownExamples of the types of materials requested under Part II:
+Examples of the types of materials requested under Part II:
 
 1. See Deimitation Agreement in the Hearings before the Subcommittee on Constitutional Rights of the Committee on the Judiciary, United States Senate, Ninety-Second Congress (First Session), on Federal Data Banks, Computers and the Bill of Rights (1971), Part II, pp. 1172-1179.
 

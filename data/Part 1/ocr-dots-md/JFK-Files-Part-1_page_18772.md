@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18772.png
-
-Convert to MarkdownShe received a temporary promotion to CAP-9 on December 1947. She returned from the field on 7 December 1948 and reverted to her CAP-7. She received a periodic pay increase on 8 December 1948 to $3978.00 per annum.
+She received a temporary promotion to CAP-9 on December 1947. She returned from the field on 7 December 1948 and reverted to her CAP-7. She received a periodic pay increase on 8 December 1948 to $3978.00 per annum.
 
 24 February 1949
 

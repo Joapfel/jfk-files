@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8648.png
-
-Convert to Markdown# URBAN GUERILLAS
+# URBAN GUERILLAS
 
 America's complexity will be her downfall, for complex power, communications and transportation networks are unprotected. These systems are the life lines of the industrial and military might of U.S.A. fascism. The source of America's strength is its vulnerable Achilles heel - therefore urban guerrillas, utilizing and relying on information divulged by sympathetic workers, can halt or severely cripple every industry in the nation, and bring fascism crashing to its knees. The dams, power stations, substations and power lines are vulnerable. Highly sophisticated communications networks are used by our enemies for carrying out routine business, and are an extremely important factor, in the fascist reaction to guerilla strikes. The neutralization of the fascist communications lie within the capabilities of urban guerrillas.
 

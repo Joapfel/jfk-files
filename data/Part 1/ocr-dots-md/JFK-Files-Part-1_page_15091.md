@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15091.png
-
-Convert to Markdownor khozyaystvennyy vzvod) commanded by Junior Lt. MAKAROV, but later I made the acquaintance of the above mentioned ENDELADZE, a countryman, and through latter's intervention was assigned as a personal driver to division commander GURGENIDZE, also a Georgian, who was later promoted to Lt. Col. and who kept me with him until I was discharged from the service.
+or khozyaystvennyy vzvod) commanded by Junior Lt. MAKAROV, but later I made the acquaintance of the above mentioned ENDELADZE, a countryman, and through latter's intervention was assigned as a personal driver to division commander GURGENIDZE, also a Georgian, who was later promoted to Lt. Col. and who kept me with him until I was discharged from the service.
 
 ## H. PROMOTIONS AND DEMOTIONS:
 After six months in the service, I was promoted to yefreytor (corporal), and at the end of my first year to Junior Sergeant. In 1944, I was made a sergeant.

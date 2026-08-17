@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27029.png
-
-Convert to Markdown# FILES
+# FILES
 
 The following files are requested. In order to expedite their location, the Committee has indicated offices which appear to be the best starting point for a search. This does not limit, nor supersede the general guideline that all files throughout the CIA relating to a project be procured. If projects herein identified are not CIA projects, but are identifiable as projects of other agencies with which CIA had some connection, the request is for all CIA files regarding such projects.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12830.png
-
-Convert to MarkdownBNDD DOCUMENT
+BNDD DOCUMENT
 
 BNDD CABLE FROM BNDD HQS WASHDC (BNDD 1847)
 

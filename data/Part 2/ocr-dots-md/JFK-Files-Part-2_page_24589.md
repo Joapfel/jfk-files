@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24589.png
-
-Convert to Markdown(2) The O'Leary Report
+(2) The O'Leary Report
 
 O'Leary's news report read as follows in its lead paragraphs:
 

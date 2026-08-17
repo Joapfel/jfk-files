@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9778.png
-
-Convert to Markdown2.
+2.
 
 4. LIKING/4 also reported that Manuel Marcué Pardillas had asked her not to call him at his home again to ask for news, or as a matter of fact discuss in any way the case by telephone. He stated that he felt the phone of LIKING/4 as well as his own phones were tapped and that possibly LIKING/4's apartment was being watched. He did not specify by whom or for what purpose, but LIKING/4 told Rowton that she assumed it would be either by the Mexican Government or the Naro Blanca of Guatemala or both. Rowton again encouraged LIKING/4 to move out of the Atoyac apartment and back into the less conspicuous calzada Tacubaya place, commenting that this would not only prevent future security risks but also convince the LIKINGS that she was suffering financially because of LIKING/3's plight (she stated that she has already intimated this in conversations with the wife and secretary of the LIVING Chief, as well as with LIKING/2). LIKING/4 agreed but expressed regret that the Tacubaya apartment did not have a phone and that she might miss important mail addressed to the Atoyac apartment and arriving after her departure. Rowton suggested one last letter to the Mexican Consul in Guatemala City simply advising him of the change of address.
 

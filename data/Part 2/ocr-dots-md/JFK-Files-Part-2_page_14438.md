@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14438.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>Executive Res. Exec</td>
    </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_732.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MESSAGE FORM<br/>TOTAL COTTER</td></tr><tr><td style="text-align: center;"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td style="border-bottom: 2px solid black; padding: 5px;">SECRET</td></tr></tbody></table></td></tr></table>
 

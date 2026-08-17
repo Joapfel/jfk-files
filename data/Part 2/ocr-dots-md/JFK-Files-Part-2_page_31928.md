@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31928.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>1. NAME OF SUBJECT OR TITLE OF INCIDENT</td>
         <td>SUBJECT: MARTI, Manuel NMN<br/>ASN-S/N: PVT E-1, US 52 737 780<br/>DOB/POB : 17 May 1946, San Juan, Puerto Rico<br/>POB :</td>

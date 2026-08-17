@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24146.png
-
-Convert to Markdown# Personnel Services
+# Personnel Services
 ## Single Entities
 
 ### 64. SLAVE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6882.png
-
-Convert to MarkdownAdditional Requests Regarding FBI Mail Intercepts
+Additional Requests Regarding FBI Mail Intercepts
 
 1. All material pertaining to a meeting between Mr. D. E. Moore, Mr. A. H. Belmont, and Attorney General Nicholas de B. Katzenbach on or about February 27, 1965 regarding FBI mail intercept operations.
 

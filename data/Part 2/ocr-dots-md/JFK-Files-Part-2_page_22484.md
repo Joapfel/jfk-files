@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22484.png
-
-Convert to Markdown1 defecotrs which you believe to be questionable as to whether
+1 defecotrs which you believe to be questionable as to whether
 2 or not it comes within the charter of the CIA?
 3
 4 MR. MARCHETTI: No. As I say, I have no first hand knowledge on this subject.

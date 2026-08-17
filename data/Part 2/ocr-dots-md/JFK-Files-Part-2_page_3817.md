@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3817.png
-
-Convert to Markdownbacked up Sheridan, until one of the lies, bribes and fakes in the program were revealed.
+backed up Sheridan, until one of the lies, bribes and fakes in the program were revealed.
 
 Apology by NBC for Lies Told by Two "Witnesses"
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32834.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16227Z MAR 68 CITE JNWAVE 1703
 

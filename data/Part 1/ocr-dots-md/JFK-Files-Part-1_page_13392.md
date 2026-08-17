@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13392.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td style="vertical-align:top;">
             <table border="1" cellpadding="5" cellspacing="0">

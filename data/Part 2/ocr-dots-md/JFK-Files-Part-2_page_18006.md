@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18006.png
-
-Convert to MarkdownCompartmented
+Compartmented
 Clearance
 Designated Briefed
 (SI, TK, B)

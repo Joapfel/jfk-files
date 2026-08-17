@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3108.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 entered into the picture. In any event, Gordon Gray seemed cavalier in disregarding the creation of WH/4 and the liaison arrangements which had already been made. (See Appendix D.)* But whatever the explanation, Mr. Dillon did not become Chief of Staff for the nation's Cuban program.
 

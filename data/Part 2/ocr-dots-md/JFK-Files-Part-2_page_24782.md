@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24782.png
-
-Convert to Markdownand the internal opposition, "which will end either with the liquidation of Trujillo and his cohorts or with a complete roll up of the internal opposition." In this regard, the fear was expressed that existing schedules for the delivery of weapons to the internal opposition might not be sufficiently timely, and it was therefore recommended that consideration be given to caching the requested arms and other materials.
+and the internal opposition, "which will end either with the liquidation of Trujillo and his cohorts or with a complete roll up of the internal opposition." In this regard, the fear was expressed that existing schedules for the delivery of weapons to the internal opposition might not be sufficiently timely, and it was therefore recommended that consideration be given to caching the requested arms and other materials.
 
 (Bissell to Bundy memo, 2/17/61)
 

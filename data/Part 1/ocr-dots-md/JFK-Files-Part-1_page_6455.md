@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_6455.png
-
-Convert to MarkdownText of January 9, 1955, cable. (Confidential)
+Text of January 9, 1955, cable. (Confidential)
 
 "Local Units are advised that effective immediately Soviet defectors who escaped since Jan 1, 1945 may be considered eligible for complete program assistance. Units should complete registration of this group in each area and advise OFC of number registered. Every effort should be made to create maximum program impact on Soybeans in each area. It is realized that extension of eligibility to this group may cause some retribution among other nationality groups and the ages supporting them. It is pointed out however that great majority Soy defectors are eligible under provisione para 6 & 7 of Provisional Guide §1. Moreover Units should take all feasible measures to minimize retributions by exercising utmost discretion in implementation of this instruction e.g. by discussing it primarily only with ages interested in this group."

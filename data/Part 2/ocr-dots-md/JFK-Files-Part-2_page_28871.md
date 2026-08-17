@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28871.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 TO: All Staff Employees
 FROM: Budget Officer

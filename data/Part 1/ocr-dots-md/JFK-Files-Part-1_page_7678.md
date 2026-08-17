@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7678.png
-
-Convert to Markdown10 Oct 1965
+10 Oct 1965
 
 Subject's wife and son arrived in Mexico (4).
 

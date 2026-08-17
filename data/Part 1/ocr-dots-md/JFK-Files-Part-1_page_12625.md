@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12625.png
-
-Convert to MarkdownESTE MODERNO detector de mentiras, permite saber a los vemos de una grabación, si el examinado dice la verdad o no
+ESTE MODERNO detector de mentiras, permite saber a los vemos de una grabación, si el examinado dice la verdad o no
 
 SE ACABO LA VIDA PRIVADA
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31355.png
-
-Convert to MarkdownSeptember 22, 1969
+September 22, 1969
 
 Chief Special Investigator
 Atlanta, Georgia

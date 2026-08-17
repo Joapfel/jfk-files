@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25718.png
-
-Convert to MarkdownJack Anderson
+Jack Anderson
 # Did the Castro Plot Backfire?
 
 The late Robert Kennedy was tormented by the terrible thought, according to intimates, that he may have helped trigger the assassination of his brother.

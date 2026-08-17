@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14662.png
-
-Convert to MarkdownAn attendant problem has arisen in certain inquiries in which the Department has made unreasonable requests for such reviews on extremely short notice. One of these involved a request for the results of the review later the same day it was received. Thoroughness and accuracy, of absolute necessity in this type review, make extremely rapid checks such as this in most cases impossible, and at best, a very dangerous procedure.
+An attendant problem has arisen in certain inquiries in which the Department has made unreasonable requests for such reviews on extremely short notice. One of these involved a request for the results of the review later the same day it was received. Thoroughness and accuracy, of absolute necessity in this type review, make extremely rapid checks such as this in most cases impossible, and at best, a very dangerous procedure.
 
 With regard to those situations in which the Department has made disclosures to the various courts, continuing reluctance has been evidenced on their part to inform the court of the fact that the installation in question has been utilized by the FBI under either specific authority from the Attorney General, or under the general Departmental authority which was granted. The Department has been repeatedly reminded of their reluctance in these individual situations.
 

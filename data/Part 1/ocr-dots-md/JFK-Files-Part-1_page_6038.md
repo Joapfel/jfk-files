@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6038.png
-
-Convert to Markdownactual reality clearly made this known to us continental opinion supported the Castro regime, Latin American youth beheld Fidel Castro as the legendary leader who would raise the Latin American people towards their total emancipation and development. Little or nothing had been done to face this skillful propaganda. The possibilities of opening a battle front against Castro in the Latin American countries - the fundamental point of our plan - began to be taken into consideration. The first attempts were
+actual reality clearly made this known to us continental opinion supported the Castro regime, Latin American youth beheld Fidel Castro as the legendary leader who would raise the Latin American people towards their total emancipation and development. Little or nothing had been done to face this skillful propaganda. The possibilities of opening a battle front against Castro in the Latin American countries - the fundamental point of our plan - began to be taken into consideration. The first attempts were
 
 1.- In May 1961, our members Zoila Dias, Marta Klena Rosentrages and Raúl Conzales Simon were sent to São Paulo, Brazil, and stayed there for one month carrying through labors of propaganda.
 

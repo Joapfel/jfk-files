@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6096.png
-
-Convert to Markdown13-00000
+13-00000
 
 11. Government experience: List any advisory, consultative, honorary or other part-time service or positions with Federal, State, or local governments, other than those list above.
 

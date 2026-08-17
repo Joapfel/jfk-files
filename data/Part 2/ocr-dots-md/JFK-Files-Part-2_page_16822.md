@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16822.png
-
-Convert to MarkdownLARGE LEAD FRAGMENT
+LARGE LEAD FRAGMENT
 
 Specimen Q237 is a large flattened lead fragment weighing 346.0 grains. There is nothing characteristic about its size or shape, in its present condition, to permit identification of its source. If Q237 is a rifled slug, there is evidence of weight loss. At 346.0 grains in its present condition, and considering its weight loss, if a rifled slug it would fall in the classification of a 12-gauge rifled slug. Its present weight, without considering weight loss is equal to an unmutilated 16-gauge rifled slug. A 16-gauge rifled slug (approximately 7/8 of an ounce) weighs 345.125 grains (Western Super X 16-gauge rifled slug). A 12-gauge rifled slug (approximately one ounce) weighs 402.25 grains (Western Super X 12-gauge rifled slug).
 

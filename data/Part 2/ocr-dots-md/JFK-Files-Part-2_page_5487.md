@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5487.png
-
-Convert to Markdown13-00000
+13-00000
 
 & In the late 1960's while serving in Vienna under Tom Karavasszes, I was ordered by HQ to reveal to Austrian Military Intelligence that a law-enforcing Austrian diplomat serving on their informant in Budapest had also been recruited by us and was reporting to me. I referred to carry out this order and offered my resignation. To me, it was dishonorable to betray a young agent who had accepted our recruitment and put faith in our promise of security. To my mind an agency without principles cannot survive and indeed should not survive. Tom Karavasszes, perhaps one of the last honorable men to serve with us in high position, paid a strong call to arms and the shameful order was retracted.
 

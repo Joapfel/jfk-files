@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7041.png
-
-Convert to MarkdownAssistant Attorney General for Administration
+Assistant Attorney General for Administration
 
 In the FBI's material for fiscal years 1974 and 1975 these purposes are set forth under the section "Objective" and they are captioned "Domestic Intelligence" and "Coordination and Dissemination of Security Data." Additional data is furnished in each of those years under the section "Status of Base Program" and is captioned "Internal Security Operations."
 

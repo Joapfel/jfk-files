@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19787.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 ATTACHMENT KERANITH TO FCOP-6937
 dtd 22 May 1963

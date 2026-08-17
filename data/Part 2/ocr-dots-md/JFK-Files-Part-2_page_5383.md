@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5383.png
-
-Convert to MarkdownSUBJECT: Pending ARRB (JFK Board) Issues
+SUBJECT: Pending ARRB (JFK Board) Issues
 
 **ISSUE 7 -- Certain Files of CIA Officials**
 

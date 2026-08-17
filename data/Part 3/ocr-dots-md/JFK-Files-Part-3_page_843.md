@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_843.png
-
-Convert to MarkdownThe McConley Central U. S. GRANT OFFICE CO.
+The McConley Central U. S. GRANT OFFICE CO.
 MYERS OFFICE
 ACTIVITIES (see)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21932.png
-
-Convert to Markdown3. Requests For and Pouching of the Machine Guns
+3. Requests For and Pouching of the Machine Guns
 
 a. ~~Owen's~~ 03 Requests Machine Guns (for Use in Assassination)
 

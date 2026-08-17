@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30986.png
-
-Convert to Markdown13 March 1969
+13 March 1969
 
 MEMORANDUM FOR: Chief, MI Division
 THROUGH: Deputy Director for Plans

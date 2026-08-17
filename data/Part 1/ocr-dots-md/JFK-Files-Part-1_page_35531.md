@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35531.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM 41 USE PREVIOUS EDITIONS
 

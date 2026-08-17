@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30946.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>TO: JHMartin</td>
     <td>WIT: WH/Contracts</td>

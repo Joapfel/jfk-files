@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12691.png
-
-Convert to Markdown(7) New office of origin is to review pertinent material received with FD-128 and information in its files to determine if additional investigation is warranted. If not, advise Bureau by letter case is being closed.
+(7) New office of origin is to review pertinent material received with FD-128 and information in its files to determine if additional investigation is warranted. If not, advise Bureau by letter case is being closed.
 
 (8) Upon receipt of FD-128, office covering new address is origin and should place office file number on security index cards and file them in its security index.
 

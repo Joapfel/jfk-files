@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14785.png
-
-Convert to Markdown# LENGTH OF SERVICE -- FBI PERSONNEL
+# LENGTH OF SERVICE -- FBI PERSONNEL
 
 ON EXHIBIT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10806.png
-
-Convert to MarkdownDate: 8/25/71
+Date: 8/25/71
 
 JOHN ROBERT SWINGLISH was arrested at 21 North Fourth Street, Camden, N. J., at 4:39 a.m. He was in the living room at this address. At the time of arrest he identified himself as JOHN SWINGLISH. He was given a quick search, handcuffed, and then taken outside and placed in a Bureau car.
 

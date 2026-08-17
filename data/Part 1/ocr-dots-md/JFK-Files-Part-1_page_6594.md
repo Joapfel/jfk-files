@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6594.png
-
-Convert to MarkdownConfidential
+Confidential
 
 Memo to the files
 

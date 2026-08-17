@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9496.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 CIRCULAR AIRGRILL
 21 Juno 1949

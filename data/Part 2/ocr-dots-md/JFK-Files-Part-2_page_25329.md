@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25329.png
-
-Convert to MarkdownFRANK STURGIS
+FRANK STURGIS
 2515 N.W. 122 STREET
 MIAMI, FLORIDA 33167
 

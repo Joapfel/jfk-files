@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8245.png
-
-Convert to Markdownbasically it is a fairly truthful story.
+basically it is a fairly truthful story.
 
 I went to major cities along the way. Off to the side I went up to
 a sanctuary nearby since everyone said that if you didn't go up you weren't

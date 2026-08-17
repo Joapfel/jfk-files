@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12486.png
-
-Convert to Markdown2. Investigative procedures
+2. Investigative procedures
 
 a. Scope of investigation.
 

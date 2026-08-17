@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9582.png
-
-Convert to Markdownsold the boat for a sum equal to his debts. IDEN A's wife quit her job without notice, and he estimates his actual financial losses are US$25 thousand. LNCOLLAR has indicated the US$3 thousand payment is "all IDEN A will get", and he is determined to get more.
+sold the boat for a sum equal to his debts. IDEN A's wife quit her job without notice, and he estimates his actual financial losses are US$25 thousand. LNCOLLAR has indicated the US$3 thousand payment is "all IDEN A will get", and he is determined to get more.
 
 16. IDEN A believes many of his agents think he did receive a payoff from LNCOLLAR following the arrests, and that he took all the money and ran, leaving them exposed in Key West. The cars of two of his agents were burned, and IDEN D, IDEN P, and others in the Miami area quit working for LNCOLLAR when they learned of the treatment he had received and/or received death threats themselves. IDEN T. As a result, IDEN A cannot return to Key West, and his lobster business no longer exists.
 

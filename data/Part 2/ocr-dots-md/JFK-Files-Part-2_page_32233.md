@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32233.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In addition to these immediate actions, we should make preparations now so that we are able to seize opportunities for more positive action towards our ultimate objective of the overthrow of the Castro/Communist regime. These opportunities may arise either as a result of Bloc action in other parts of the world, as a result of aggressive moves (or isolated hostile acts) by the Castro/ Communist regime itself; or as a result of uprisings or internal conflict within Cuba. We should prepare contingency plans to deal with these situations.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13802.png
-
-Convert to Markdown**Guatemala:** A new attempt to oust the Ydígoras regime may be made shortly by the Cuban-supported "13 November" group of ex-Guatemalan army men. The Guatemalan military attache in Mexico told his U.S. counterpart there that "13 November" leaders in Mexico appear well-financed and are buying arms and supplies for an operation to begin late this month or early next.
+**Guatemala:** A new attempt to oust the Ydígoras regime may be made shortly by the Cuban-supported "13 November" group of ex-Guatemalan army men. The Guatemalan military attache in Mexico told his U.S. counterpart there that "13 November" leaders in Mexico appear well-financed and are buying arms and supplies for an operation to begin late this month or early next.
 
 The group, which led a guerrilla outbreak earlier this year,
 is reported by a usually reliable source to have received at least

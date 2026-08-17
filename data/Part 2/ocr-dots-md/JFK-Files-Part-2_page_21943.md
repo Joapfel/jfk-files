@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21943.png
-
-Convert to MarkdownDavid A. Phillips, Chief of Station in Rio de Janeiro, was summoned back to Washington to head the operation. With the exception of the Division Chief, William Broe, his deputy James Flannery and the head of the Chile Branch, no other officers in the Division were aware of the task force's activities, not even those officers who normally had responsibility for Chile. The task force had a special communications channel to Santiago and Buenos Aires to compartment cable traffic about Track II.
+David A. Phillips, Chief of Station in Rio de Janeiro, was summoned back to Washington to head the operation. With the exception of the Division Chief, William Broe, his deputy James Flannery and the head of the Chile Branch, no other officers in the Division were aware of the task force's activities, not even those officers who normally had responsibility for Chile. The task force had a special communications channel to Santiago and Buenos Aires to compartment cable traffic about Track II.
 
 (November 18, 1970, Helms to Kissinger memo, page 3) Most of the significant operational decisions were made by Phillips, Broe and Karamessines, who met on a daily basis.
 

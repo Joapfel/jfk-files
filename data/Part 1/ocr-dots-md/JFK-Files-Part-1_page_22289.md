@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22289.png
-
-Convert to Markdownsummary spelled out in detail the complete CIA operational doc- trine pertaining to tourist-type operations and stressed CIA's reliance on tourist agents for the spotting, recontacting, assess- ment, and communications support of internal assets.
+summary spelled out in detail the complete CIA operational doc- trine pertaining to tourist-type operations and stressed CIA's reliance on tourist agents for the spotting, recontacting, assess- ment, and communications support of internal assets.
 
 While NOSENKO has displayed some familiarity with CIA modus operandi in the field of tourist operations, he has never men- tioned that the KGB was in possession of documentary reporting which described these methods in full detail. NOSENKO does not appear to be aware of who BLAKE was, much less of his im- portance to the KGE. NOSENKO never volunteered the name of BLAKE in his debriefings, and when specifically asked in 1962 about BLAKE, the KGB agent in British Intelligence, he said that he had read the dossier and that BLAKE had been "an agent of the Second (British) Department (of the Second Chief Direc- tors). Who was not nearly as valuable as the other Englishman" (VASSALL). By 1964 he could not recall any such agent of the British Department. When the name BLAKE was mentioned, he asked: "Who's BLAKE?"
 

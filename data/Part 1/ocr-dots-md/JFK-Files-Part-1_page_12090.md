@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12090.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO Staff of USG Research Branch, and Staff
 FROM : Research Branch, USG Staff

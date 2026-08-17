@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14119.png
-
-Convert to MarkdownSECRET
+SECRET
 
 D. Operational Information
 

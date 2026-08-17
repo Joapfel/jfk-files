@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1157.png
-
-Convert to Markdown<table><tr><td></td><td></td></tr></table>
+<table><tr><td></td><td></td></tr></table>
 
 : DIRECTOR
 

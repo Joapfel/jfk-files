@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11138.png
-
-Convert to Markdown# ENVELOPE
+# ENVELOPE
 # EMPTY
 
 Official DocLab Instruction(s) – Revised 10-Apr-2014

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1599.png
-
-Convert to MarkdownSTANDARD FORM 68
+STANDARD FORM 68
 October 1960
 PREPARED BY U. S. CIVIL SERVICE COMMISSIONER
 Federal Personnel Manual

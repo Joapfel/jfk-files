@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18349.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">STANDARD FORM 80 (18 PARTS)<br>OCTOBER 1949<br>PROMULATED BY<br>CHAPTER 3.1. FEDERAL PERSONNEL MANUAL<br>V. 9 CIVIL SERVICE COMMISSION</td>

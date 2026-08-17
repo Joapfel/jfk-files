@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1868.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 RETURN TO CIA Background Use Only Do Not Reproduce
 

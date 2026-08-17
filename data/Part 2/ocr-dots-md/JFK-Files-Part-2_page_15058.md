@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15058.png
-
-Convert to MarkdownFebruary 17, 1969
+February 17, 1969
 
 SPECIAL INVESTIGATIVE OPERATIONS
 DISCONTINUANCE OF BACKGROUND

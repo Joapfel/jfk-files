@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6566.png
-
-Convert to MarkdownVA CITE NYOR 7719
+VA CITE NYOR 7719
 
 SCIENTIFIC (WEST) FROM DANIELS
 

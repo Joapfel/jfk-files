@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20433.png
-
-Convert to MarkdownSEC.
+SEC.
 
 4. If deemed necessary by CIA, the Employee may be reimbursed or advanced funds for operational expenses. Such amounts must be advanced or reimbursement made in accordance with CIA regulations, which require a full accounting of the amounts expended by the Employee. Therefore, the Employee will be required to account fully for any such funds advanced or reimbursed in accordance with CIA regulations.
 

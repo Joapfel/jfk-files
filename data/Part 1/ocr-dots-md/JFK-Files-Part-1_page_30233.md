@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30233.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>1 SER/1 NO</td>
     <td>2 NAME</td>

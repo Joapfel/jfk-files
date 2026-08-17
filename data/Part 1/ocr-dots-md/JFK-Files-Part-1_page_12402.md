@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12402.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="5">SECRET</td></tr><tr><td>TO</td><td colspan="4">Chief of Station, Caracas</td></tr><tr><td>INFO</td><td colspan="4"></td></tr><tr><td>FROM</td><td colspan="4">Chief, Western Hemisphere Division</td></tr><tr><td>Subject</td><td colspan="4">CIFENCE-4 - Operational Approval</td></tr><tr><td>ACTION REQUIRED (MUST BE READ)</td><td colspan="4">Ref: HVCA-18757, dated 31 March 1972</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_864.png
-
-Convert to Markdownthreatened destructive acts might involve solely local offenses, e.g., murders of policemen. Title III provides for local authorities to use electronic surveillances in such cases.
+threatened destructive acts might involve solely local offenses, e.g., murders of policemen. Title III provides for local authorities to use electronic surveillances in such cases.
 
 Even assuming that there was a case falling outside of Title III, but within FRCrP 41, the FBI is still limited to using search warrants obtained thereunder to seize evidence of Federal crimes; if the threatened act is a local violation only FRCrP 41 is of no value to the FBI.
 

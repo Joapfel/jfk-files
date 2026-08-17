@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33617.png
-
-Convert to Markdown<table><tr><td>SECUTI</td></tr><tr><td>CONFIDENTIAL</td></tr></table>
+<table><tr><td>SECUTI</td></tr><tr><td>CONFIDENTIAL</td></tr></table>
 
 21 March 1952
 

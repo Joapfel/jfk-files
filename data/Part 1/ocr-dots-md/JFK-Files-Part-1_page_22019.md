@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22019.png
-
-Convert to Markdown"Both NOSENKO and KOVSHUK used to make all sorts of promises to me about helping me out in my business and so on, but they never did a damn thing for me. On the contrary. The only promise they kept was that I would not be asked to do anything except the STORSBERG job. But, as for the rest of it, they didn't help me at all."
+"Both NOSENKO and KOVSHUK used to make all sorts of promises to me about helping me out in my business and so on, but they never did a damn thing for me. On the contrary. The only promise they kept was that I would not be asked to do anything except the STORSBERG job. But, as for the rest of it, they didn't help me at all."
 
 PREISFREUND was eventually successful, he said, in introducing STORSBERG to Irina as NOSENKO wished and the three of them returned to PREISFREUND's hotel room on a summer evening. PREISFREUND slept in the hotel corridor while STORSBERG and Irina shared his bed. He told his CIA interviewers on 10 July 1965 that at one point during the evening he caught a glimpse of NOSENKO in the corridor wearing a rubber apron and from this deduced that NOSENKO had been taking surreptitious photographs of STORSBERG and Irina together.* On orders from NOSENKO and KOVSHUK, it was the last time he saw STORSBERG.**
 

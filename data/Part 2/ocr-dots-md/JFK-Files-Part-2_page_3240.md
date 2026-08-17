@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3240.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 WH/4 PP also became involved in the propaganda activity that was intended to offset the planned visit of Nikita Khrushchev to Cuba in the summer of 1960. In an Eyes Only memorandum to the Director of Central Intelligence, Col. J. C. King informed Allen Dulles that it had been learned that Khrushchev had accepted an invitation from the Government of Cuba to visit that country. Working with Havana Station, a two-pronged program was being developed with the intention of either forcing the cancellation of the trip or indicating the opposition of the Cuban people to Communism. Havana Station was to be responsible for organizing church opposition to the visit, and WH/4 and other elements of WH Division would be re- sponsible for instigating rumors throughout Latin America that an assassination attempt would be made on Khrushchev's life if he appeared in Cuba.
 

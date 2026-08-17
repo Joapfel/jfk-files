@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26593.png
-
-Convert to MarkdownINDEX: ☐ YES ☐ NO
+INDEX: ☐ YES ☐ NO
 
 CLASSIFY TO FILE NO. 21-336479 CLASSIFIED MESSAGE TOTAL COPIES
 

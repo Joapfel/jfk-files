@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27093.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>1. DATE OF EMPLOYMENT (in years, month, day)</td>

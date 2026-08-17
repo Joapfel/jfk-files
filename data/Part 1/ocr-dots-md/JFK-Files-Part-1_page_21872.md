@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21872.png
-
-Convert to Markdown# D. NOSENKO's Activities in Geneva
+# D. NOSENKO's Activities in Geneva
 
 ## 1. Introduction
 

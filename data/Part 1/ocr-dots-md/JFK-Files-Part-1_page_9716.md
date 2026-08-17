@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9716.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>Nationalist Party of Puerto Rico<br/>Nature Friends of America (since 1935).<br/>Negro Labor Victory Committee<br/>New Committee for Publications<br/>Nichibei Kogyo Kalaha (The Great Pujil Theatre)<br/>North American Committee to Aid Spanish Democracy<br/>North American Spanish Aid Committee<br/>North Philadelphia Forum<br/>Northwest Japanese Association</td>
     <td>Santa Barbara Peace Forum<br/>Schappes Defense Committee<br/>Ecclesierman-Darry Defense Committee.<br/>School of Jewish Studies, New York City<br/>Seattle Labor School, Seattle, Washington<br/>Serbian-American Fraternal Society<br/>Serbian Vidovdan Council<br/>Shinto Temples limited to State Purists, abolished in 1945<br/>Silver Shirt Legion of America.<br/>State Council of Southern California<br/>Slovak Workers Society<br/>Serbian-American National Council<br/>Socialist Workers Party, including American Committee for European Workers' Belief.</td>

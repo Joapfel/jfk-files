@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13957.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Rec. #18: That the DCI, as Chairman of the U. S. Intel-
 ligence Board, explore the feasibility of

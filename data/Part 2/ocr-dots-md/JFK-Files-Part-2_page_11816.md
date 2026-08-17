@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11816.png
-
-Convert to Markdown(c) Obvious administrative material, such as operational instructions given by contacting Agent
+(c) Obvious administrative material, such as operational instructions given by contacting Agent
 
 Such data should be furnished orally by informant and recorded in memorandum form for informant file.
 

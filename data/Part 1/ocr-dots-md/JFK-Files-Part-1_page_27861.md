@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27861.png
-
-Convert to MarkdownOffice of the Commandant
+Office of the Commandant
 Mr. George Bush
 
 From the beginning. Somewhat quiet and reticent by nature, Mr. Keenan nonetheless was enthusiastic about the College's many offerings in his own low-keyed way. This soft-spoken demeanor masked a tough competitor, whether it was in seminar discussions or on the tennis courts, where he was a member of the Army War College team. Clearly, he was popular with his classmates and respected by them for his professional attainments and his personal qualities.

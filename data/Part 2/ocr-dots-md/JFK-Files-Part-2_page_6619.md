@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6619.png
-
-Convert to MarkdownSECRET
+SECRET
 
 66. Foreign embassy FI assets;
 

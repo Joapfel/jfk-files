@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22794.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: Chief, WMD SUBJ: Transportation and Temporary Storage of IIIE UFGT-910
 

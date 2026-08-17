@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25888.png
-
-Convert to MarkdownIV - inside voice.
+IV - inside voice.
 
 OV - outside voice.
 

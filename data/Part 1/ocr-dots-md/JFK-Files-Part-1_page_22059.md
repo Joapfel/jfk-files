@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_22059.png
-
-Convert to MarkdownSee Part V.B.3.g., referring to Colonel J.P.M.'s statement on security losses as a result of IGE microphones in this office.
+See Part V.B.3.g., referring to Colonel J.P.M.'s statement on security losses as a result of IGE microphones in this office.

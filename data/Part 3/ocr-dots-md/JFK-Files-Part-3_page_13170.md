@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13170.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MM 92-1047
 

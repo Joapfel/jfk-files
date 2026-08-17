@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30384.png
-
-Convert to Markdown1. Mr. Tovar. Yes sir.
+1. Mr. Tovar. Yes sir.
 
 2. Mr. Goldsmith. When did Mr. Marshall defect?
 

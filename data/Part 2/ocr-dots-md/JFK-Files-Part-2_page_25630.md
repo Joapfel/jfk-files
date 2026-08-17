@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25630.png
-
-Convert to Markdown14 MAY 62
+14 MAY 62
 
 TOP SECRET Edwards MFR - Re BATTLE. Memo prepared for RFR preloading area briefing.
 

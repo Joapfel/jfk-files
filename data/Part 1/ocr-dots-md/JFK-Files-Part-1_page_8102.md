@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8102.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CABLE SEC DISSENT BY ______ PER ______ TOTAL COPIES ______ RUN BY ______
 PERSON. UNIT NOTIFIED ______ SECRET

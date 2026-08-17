@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19069.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 STOLPER, WOLFGANG F. The structure of the East German economy. Cambridge, Harvard University Press, 1960. 478p. HC287.A287
 

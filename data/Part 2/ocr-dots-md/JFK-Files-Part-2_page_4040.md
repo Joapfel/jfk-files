@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4040.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 pounds received in battle with the enemy in Korea. Other papers also disclosed he had been awarded the Bronze Star for meritorious and outstanding service in Korea.
 

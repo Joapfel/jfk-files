@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5866.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FINANCE THIS OPERATION. CUESTA OwnS A GASOLINE STATION ON 12TH AVENUE, Hialeah, Miami, Florida. He owns a 95-foot BOAT.
 

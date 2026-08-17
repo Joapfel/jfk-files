@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3128.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 with the approval of the President's comprehensive
 program of covert action against Fidel Castro in

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15682.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td>DEC.68</td><td>SECRET</td></tr><tr><td>DIRECTOR</td><td></td></tr><tr><td>FROM : BERN</td><td></td></tr><tr><td>TO : C/AF, S/C 2</td><td></td></tr></tbody></table>
 

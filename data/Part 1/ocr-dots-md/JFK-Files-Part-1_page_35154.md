@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35154.png
-
-Convert to MarkdownVARIOS
+VARIOS
 
 ANEXO "I-II"
 Hoja No. 2

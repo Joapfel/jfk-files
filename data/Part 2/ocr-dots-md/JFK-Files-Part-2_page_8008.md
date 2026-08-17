@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8008.png
-
-Convert to MarkdownTHE COLLEGE OF
+THE COLLEGE OF
 PETROLEUM & MINERALS
 
 Dhahran, Saudi Arabia

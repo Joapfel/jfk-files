@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14727.png
-
-Convert to Markdown# CRIMINAL INTELLIGENCE AND ORGANIZED CRIME
+# CRIMINAL INTELLIGENCE AND ORGANIZED CRIME
 
 The main thrust of our investigations of organized crime has been aimed at the key members in the power structure of La Cosa Nostra in order to secure their imprisonment and to disrupt leadership. We have also struck hard at the lower working level who are the money producing figures for the top echelon leaders. With progressively greater success, we have made deeper penetration into the heart of the hoodlum syndicate, the illegal gambling operations from which it draws much of its vast resources.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19296.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 8 December 1949
 

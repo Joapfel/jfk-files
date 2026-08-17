@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2656.png
-
-Convert to MarkdownSEC. 13. POSITION DATA
+SEC. 13. POSITION DATA
 
 A KIND OF POSITION APPLIED FOR:
 

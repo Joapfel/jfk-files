@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31751.png
-
-Convert to Markdown# Security Information
+# Security Information
 
 Page 2 - Cont'd.
 

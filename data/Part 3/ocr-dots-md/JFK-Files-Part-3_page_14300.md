@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14300.png
-
-Convert to Markdownthat he had the feeling that someone in the White House should
+that he had the feeling that someone in the White House should
 be constantly in touch with and on top of covert operations;
 and he observed that the Congress believes that someone in the
 White House is keeping close watch on such matters. After a

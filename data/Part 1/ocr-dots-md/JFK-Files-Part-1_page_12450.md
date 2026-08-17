@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12450.png
-
-Convert to Markdown<table><tr><td>C.F. FREMERTON</td></tr><tr><td>WH/S/V</td></tr><tr><td>9494</td></tr><tr><td>CS MARCH 1972</td></tr></table>
+<table><tr><td>C.F. FREMERTON</td></tr><tr><td>WH/S/V</td></tr><tr><td>9494</td></tr><tr><td>CS MARCH 1972</td></tr></table>
 
 <table><tbody><tr><td>SECRET</td></tr><tr><td>C</td></tr></tbody></table>
 

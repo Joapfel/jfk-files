@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1100.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 During late 1967 an anonymous letter was mailed to the National Rifle Association by the Jackson Office advising that the Concordia Pistol and Rifle Club at Ferriday, Louisiana, was actually a club organized to disguise a unit of the Minuteman organization. The club was organized by James Lee Scarborough, an active Klansman, who had applied for club membership in the National Rifle Association.
 

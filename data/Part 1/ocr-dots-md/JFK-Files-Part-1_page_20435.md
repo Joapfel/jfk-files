@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20435.png
-
-Convert to Markdown**ARTICLE X. Continuance of Pay and Allowances.** If the Employee is determined by CIA to be absent in a status of "Missing", "Missing in Action", "Interned in a Neutral Country", "Captured by an Enemy", "Beleaguered", or "Beseiged", he shall for the period he is determined to be in any such status be entitled to receive or to have credited to his account the same pay and allowances to which he was entitled at the beginning of such period of absence. Continuance of pay and allowances as specified above shall be as prescribed in the Missing Persons Act of 1942 (50 U.S.C.A. App 1001-1015, 7 March 1942).
+**ARTICLE X. Continuance of Pay and Allowances.** If the Employee is determined by CIA to be absent in a status of "Missing", "Missing in Action", "Interned in a Neutral Country", "Captured by an Enemy", "Beleaguered", or "Beseiged", he shall for the period he is determined to be in any such status be entitled to receive or to have credited to his account the same pay and allowances to which he was entitled at the beginning of such period of absence. Continuance of pay and allowances as specified above shall be as prescribed in the Missing Persons Act of 1942 (50 U.S.C.A. App 1001-1015, 7 March 1942).
 
 **ARTICLE XI. General.** The Employee shall comply with the following provisions, and violation thereof by the Employee shall be deemed a breach of this contract.
 

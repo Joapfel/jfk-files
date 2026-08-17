@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11826.png
-
-Convert to Markdown3. Implementation of an effort in selected offices whereby individuals, present sources included, could be developed for the purpose of establishing a walk-in program directed against the Chicom Embassy in Ottawa. Royal Canadian Mounted Police (RCMP) representatives advised, during a July, 1971, conference, they would cooperate fully in an effort of this type.
+3. Implementation of an effort in selected offices whereby individuals, present sources included, could be developed for the purpose of establishing a walk-in program directed against the Chicom Embassy in Ottawa. Royal Canadian Mounted Police (RCMP) representatives advised, during a July, 1971, conference, they would cooperate fully in an effort of this type.
 
 4. Consideration should be given to renewing the Chiclet and Chiprop Programs, both of which were discontinued in 1965. These programs provided us with a secure means to obtain communications between the United States and Red China and, from these communications, we secured valuable intelligence and background information on both ethnic Chinese and Caucasians of security interest to us.
 

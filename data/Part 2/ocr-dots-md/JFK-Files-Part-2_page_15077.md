@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15077.png
-
-Convert to Markdownmost notably at Brandeis University where two professors from San
+most notably at Brandeis University where two professors from San
 Francisco State College allegedly contributed to the seizing of the
 Administration Building on January 8, 1969, and American University,
 Washington, D. C., where members of the Students for a Democratic

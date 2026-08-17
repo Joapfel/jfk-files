@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5061.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">CABLE NO. 5133 TOTAL COPIES 7</td>
         <td rowspan="3" style="vertical-align: top; text-align: center;">

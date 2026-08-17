@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21418.png
-
-Convert to Markdown22. Gwendolyn Joyce Patterson
+22. Gwendolyn Joyce Patterson
 Known Affiliation: BPP
 Violation: CAA - Piracy, Kidnapping
 

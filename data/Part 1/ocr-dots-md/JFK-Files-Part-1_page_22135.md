@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22135.png
-
-Convert to Markdown7. KOTEN'S Arrest and the KGB Agent
+7. KOTEN'S Arrest and the KGB Agent
 
 a. Information from NOSENKO
 

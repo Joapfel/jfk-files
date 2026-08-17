@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14896.png
-
-Convert to Markdown<table><tr><td>DATE : 087 MM/DM 15 DEC 58</td><td>S-E-C-R-E-T</td></tr><tr><td colspan="2">TO : DIRECTOR</td></tr><tr><td colspan="2">FROM : FRANKFURT</td></tr><tr><td>ACTION: SR 6</td><td></td></tr><tr><td>INFO : CI, CI/OPS, CI/OA, FI, F1/OPS, EE 4, WE 4, S/C 2</td><td>Routing</td></tr><tr><td></td><td>DAB 4 G</td></tr><tr><td></td><td>DOB 5 3</td></tr><tr><td></td><td>C_ 6</td></tr><tr><td colspan="2">DEC 16 1133Z 58</td></tr><tr><td colspan="2">ROUTINE</td></tr><tr><td colspan="2">IN 38184</td></tr></table>
+<table><tr><td>DATE : 087 MM/DM 15 DEC 58</td><td>S-E-C-R-E-T</td></tr><tr><td colspan="2">TO : DIRECTOR</td></tr><tr><td colspan="2">FROM : FRANKFURT</td></tr><tr><td>ACTION: SR 6</td><td></td></tr><tr><td>INFO : CI, CI/OPS, CI/OA, FI, F1/OPS, EE 4, WE 4, S/C 2</td><td>Routing</td></tr><tr><td></td><td>DAB 4 G</td></tr><tr><td></td><td>DOB 5 3</td></tr><tr><td></td><td>C_ 6</td></tr><tr><td colspan="2">DEC 16 1133Z 58</td></tr><tr><td colspan="2">ROUTINE</td></tr><tr><td colspan="2">IN 38184</td></tr></table>
 
 | TO | DIR | INFO | FRAN | PARI | CITE | FROB |
 |---|---|---|---|---|---|---|

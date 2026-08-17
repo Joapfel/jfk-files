@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21982.png
-
-Convert to Markdown6. Lee Harvey OSWALD (1959-60 and 1963)
+6. Lee Harvey OSWALD (1959-60 and 1963)
 
 As in the FRIPPEL case, NOSENKO was involved with Lee Harvey OSWALD during both periods of his assignment to the Tourist Department of the Second Chief Directorate (1955-1960 and 1962-1964).* While Deputy Chief of the American-British-Canadian Tourist Section, NOSENKO had a direct hand in the decision in October 1959 that OSWALD was of no operational interest to the KGB and should be returned immediately to the United States. Before President Kennedy's assassination in November 1963, when NOSENKO was again in the Tourist Department as its Deputy Chief, he was present at the time the KGB Second Chief Directorate learned of OSWALD's application to the Soviet Embassy in Mexico City to re-enter the USSR. After the assassination, he also played a role in the KGB investigations of OSWALD's activities during residence in the Soviet Union from October 1959 until June 1962.
 

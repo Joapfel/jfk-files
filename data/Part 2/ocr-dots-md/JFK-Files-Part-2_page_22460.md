@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22460.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 John 1
 2 folos

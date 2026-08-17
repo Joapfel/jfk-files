@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31735.png
-
-Convert to Markdown1953 BUDGET
+1953 BUDGET
 
 Radio Free Europe (operating expenditures) $ 9,526,302.00
 " " " (capital $) 2,981,120.00

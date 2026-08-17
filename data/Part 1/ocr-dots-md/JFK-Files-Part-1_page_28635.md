@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28635.png
-
-Convert to Markdown3. The travel of the Employee shall be governed as follows:
+3. The travel of the Employee shall be governed as follows:
 
 (a) For temporary duty outside the continental limits of the United States within or beyond the Employee's stipulated area, he shall perform CIA operational travel as directed by the ADSO or his designee with the consent of the Chiefs of the Foreign Service establishment involved. IDY travel customary and necessary in the performance of routine Foreign Service Staff functions may be performed without clearance from the ADSO.
 

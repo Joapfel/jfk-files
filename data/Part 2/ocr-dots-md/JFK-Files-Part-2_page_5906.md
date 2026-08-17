@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5906.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 4. In the OS/SRS memo of Oct. 31, 1960, written by Marguerite D. Stevens, the file numbers of several defectors are listed: "Robert Edward Webster, EE-18854; Lee Harvey Oswald, MS-11165; Libero Ricciardelli, MS-8295; Vladimir Sloboda, MS-10565; and Joseph Dutkanicz, MS-10724." What do the "MS" and "EE" file prefixes designate? How are these designations assigned?
 

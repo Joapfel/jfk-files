@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8294.png
-
-Convert to Markdown13-00000
+13-00000
 
 # DAILY
 ### THE INTERNATIONAL NEWSPAPER OF MOTION PICTURES

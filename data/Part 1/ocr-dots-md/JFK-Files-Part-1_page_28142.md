@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28142.png
-
-Convert to MarkdownSECRET
+SECRET
 
 30 MAR 1960
 

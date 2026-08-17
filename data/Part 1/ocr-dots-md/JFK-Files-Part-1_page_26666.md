@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26666.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><tr><td>CLASSIFICATION<br/>SECRET</td><td>PROCESSING ACTION<br/><table><tbody><tr><td>MARKEED FOR INDEXING</td></tr><tr><td>XX NO INDEXING REQUIRED</td></tr><tr><td>ONLY QUALIFIED DEEM CAN AUDIT INDEXING</td></tr><tr><td>MICROFILM</td></tr></tbody></table></td></tr><tr><td>To<br/>Chief, WH Division</td><td></td></tr><tr><td>INFO.<br/>FROM<br/>Chief of Station, Mexico City</td><td></td></tr></table>
 

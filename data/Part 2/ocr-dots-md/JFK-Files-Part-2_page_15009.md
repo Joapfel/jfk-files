@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15009.png
-
-Convert to MarkdownWe have never received a reply to this memorandum
+We have never received a reply to this memorandum
 even though we pointed out that several grants under the Law
 Enforcement Assistance Act have been awarded for the conduct
 of police seminars and have included funds for financial assistance

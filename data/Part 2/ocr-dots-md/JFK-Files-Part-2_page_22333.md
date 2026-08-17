@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22333.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 3. Fairfax County Police Department: Apparently undercover CIA agents in the county (under DOD cover) were being continuously harassed and challenged in the county while on operations. They feared their cover might be blown and felt it would be good to have police cover to prevent this from occurring. Mr. Brewer himself may have suggested getting badges and identification from the county police. In any event, he thought it was a good idea and Headquarters approved it (per John Hutchinson, Assistant Special Agent in Charge of the Washington Field Office). Thereafter, (latter part of 1971) Brewer went to John Briggman, Assistant to Colonel William Durren, Fairfax County Police Chief, and asked about obtaining some badges and ID's. Briggman reported that Col. Durren was originally reluctant to give CIA the badges and ID, but in early spring of 1972 he changed his mind and relented. Brewer does not know if Osborn called Col. Durren or if there was any arm-twisting by the CIA. Brewer himself did no arm-twisting. Nine patrolman's badges and one sergeant's badge were obtained, plus ten blank ID cards. The true names of CIA agents were placed on the cards by Brewer. It was understood that if the badges and ID's were ever used that Col. Durren would immediately be notified. In fact, they were kept in a safe at Washington Field Office Headquarters and never used. They have recently been returned to Fairfax County.
 

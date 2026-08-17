@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9251.png
-
-Convert to MarkdownD-R-A-F-T
+D-R-A-F-T
 
 7 Nov. 1950
 

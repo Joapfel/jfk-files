@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12018.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>16</td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="2">SIGNAL CENTER USE ONLY</td></tr><tr><td>Age</td><td>Co.</td><td>BEP</td><td>VOR</td><td>To</td><td>MD</td><td>Ct</td><td>Sig. No.</td><td>Nbr.</td><td>Pg'd</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>OMF</td><td>D</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="18">CLASSIFICATION</td></tr><tr><td colspan="18">SECRET</td></tr><tr><td>STAFF</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>CONF.:</td><td>LAF</td><td>INFO:</td><td>FILE</td><td>19Ams, C14, LSN110, APFS,</td><td>DIRECTOR</td><td>O42337</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></table>
 

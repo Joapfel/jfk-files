@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34624.png
-
-Convert to MarkdownIN WITNESS WHEREOF, I have hereunto set my hand and seal this 21st day of April, 1969.
+IN WITNESS WHEREOF, I have hereunto set my hand and seal this 21st day of April, 1969.
 
 /s/ IDEN 1 (L.S.)
 

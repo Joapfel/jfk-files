@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16320.png
-
-Convert to Markdown"ABOUT FRED"
+"ABOUT FRED"
 
 As a result of an act of repression by America's "Pig Power Structure,"
 there now exists another "Political Prisoner."

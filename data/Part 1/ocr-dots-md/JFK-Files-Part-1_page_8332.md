@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8332.png
-
-Convert to MarkdownI said that his offer to give me money to work for his government had embarrassed me in front of our mutual friends. Further, my polite refusal to make an issue of his approach could have been interpreted as tacit acceptance of his offer to pay me for treason against my country.
+I said that his offer to give me money to work for his government had embarrassed me in front of our mutual friends. Further, my polite refusal to make an issue of his approach could have been interpreted as tacit acceptance of his offer to pay me for treason against my country.
 
 Val interrupted and said it was all a joke and that he thought I appreciated that it was nothing more than a joke.
 

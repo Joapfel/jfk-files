@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16148.png
-
-Convert to Markdown# The Amazing New Country Caper
+# The Amazing New Country Caper
 
 by Andrew St. George
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18221.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">Office Memorandum</th></tr><tr><td colspan="2">UNITED STATES GOVERNMENT</td></tr></thead><tbody><tr><td>TO: Director, Federal Bureau of Investigation</td><td>DATET: May 20, 1964</td></tr><tr><td colspan="2">FROM: The Attorney General</td></tr><tr><td colspan="2">SUBJECT: MICROPHONE SURVEILLANCE</td></tr><tr><td colspan="2">ALL FBI INFORMATION CONTAINED<br/>HEREIN IS UNCLASSIFIED.<br/>DATE: 5/20/64 BY SPAMMER</td></tr><tr><td colspan="2">155-26</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">Office Memorandum</th></tr><tr><td colspan="2">UNITED STATES GOVERNMENT</td></tr></thead><tbody><tr><td>TO: Director, Federal Bureau of Investigation</td><td>DATET: May 20, 1964</td></tr><tr><td colspan="2">FROM: The Attorney General</td></tr><tr><td colspan="2">SUBJECT: MICROPHONE SURVEILLANCE</td></tr><tr><td colspan="2">ALL FBI INFORMATION CONTAINED<br/>HEREIN IS UNCLASSIFIED.<br/>DATE: 5/20/64 BY SPAMMER</td></tr><tr><td colspan="2">155-26</td></tr></tbody></table>
 
 CONFIDENTIAL
 

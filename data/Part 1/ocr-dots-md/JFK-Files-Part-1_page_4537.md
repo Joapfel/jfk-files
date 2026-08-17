@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4537.png
-
-Convert to MarkdownSECRET 041700Z
+SECRET 041700Z
 
 DIR WAVE CITE LEOP 3274
 

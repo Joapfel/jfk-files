@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25246.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **COUNTRY** Cuba/Mexico
 **REPORT NO.** 12-81-5770

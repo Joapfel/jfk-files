@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5389.png
-
-Convert to MarkdownJanuary 18, 1973
+January 18, 1973
 
 ORDER NO.501-73
 

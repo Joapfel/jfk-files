@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1947.png
-
-Convert to Markdown# Telephone Surveillances of SCLC
+# Telephone Surveillances of SCLC
 
 | Dates of Surveillance | Location |
 |---|---|

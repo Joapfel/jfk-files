@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22183.png
-
-Convert to Markdown139.
+139.
 
 of many KGB officers in the USSR and abroad (see Fort III, p. 108). and to sensitive information on KGB operations, and methods. This status was raised available to NOSEMKO a "30-page personal file" and a 200-page telephone list from Moscow headquarters of the KGB.
 

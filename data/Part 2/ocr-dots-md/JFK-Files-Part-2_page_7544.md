@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7544.png
-
-Convert to MarkdownAB MEMO NO. 194
+AB MEMO NO. 194
 
 29 MARCH 1977
 

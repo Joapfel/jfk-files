@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3624.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">ADVANCE COPY ISSUED SLOTTED BY AT Z</th><th colspan="2">STAFF</th></tr></thead><tbody><tr><td rowspan="3">ACTION UNIT<br>INFO</td><td>RF.</td><td>FILE VR.</td><td>1</td><td>0</td></tr><tr><td></td><td></td><td>2</td><td>3</td></tr><tr><td></td><td></td><td>3</td><td>0</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">ADVANCE COPY ISSUED SLOTTED BY AT Z</th><th colspan="2">STAFF</th></tr></thead><tbody><tr><td rowspan="3">ACTION UNIT<br>INFO</td><td>RF.</td><td>FILE VR.</td><td>1</td><td>0</td></tr><tr><td></td><td></td><td>2</td><td>3</td></tr><tr><td></td><td></td><td>3</td><td>0</td></tr></tbody></table>
 
 T 945167
 

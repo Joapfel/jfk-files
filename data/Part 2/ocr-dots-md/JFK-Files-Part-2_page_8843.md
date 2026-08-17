@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8843.png
-
-Convert to MarkdownSección de Chuques Tanques: Petróleo, Mielos y Alcoholes
+Sección de Chuques Tanques: Petróleo, Mielos y Alcoholes
 
 Cienfuegos KRASOVSKY 15 20,00 Lts. de Gas-Oil
 

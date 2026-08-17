@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16634.png
-
-Convert to MarkdownSECRET
+SECRET
 NO FOREIGN DISSEMINATION
 
 executive, in G-2. ARRASTIA was reported to have the confidence of Raúl CASTRO and Ramiro VALDES; and he was VALDES' right-hand man in G-2.

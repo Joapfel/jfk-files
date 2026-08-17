@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21634.png
-
-Convert to MarkdownC. NOSENKO did not serve in the American Embassy Section
+C. NOSENKO did not serve in the American Embassy Section
 throughout the 1953 - 1955 period as he claimed. (Previous conclusion)
 
 The above is conclusion "C" in the previous summary. The

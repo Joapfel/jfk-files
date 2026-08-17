@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1863.png
-
-Convert to Markdown<table><tr><td>W. Nelson/SHalpern</td></tr><tr><td>C/FE; EA/DDP</td></tr><tr><td>1428/9203</td></tr><tr><td>TE: 30 July 1971</td></tr></table>
+<table><tr><td>W. Nelson/SHalpern</td></tr><tr><td>C/FE; EA/DDP</td></tr><tr><td>1428/9203</td></tr><tr><td>TE: 30 July 1971</td></tr></table>
 
 MESSAGE FORM
 TOTAL COPIES: 66-4

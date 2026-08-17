@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28543.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>STANDARD FORM 52<br/>PERMIT DATED BY THE<br/>U.S. MILITARY PERSONNEL<br/>AGENCY TO CHANGE TITLE<br/>NAME<br/>REQUEST FOR PERSONNEL ACTION</td>
     <td>JIT VOUCHERED</td>

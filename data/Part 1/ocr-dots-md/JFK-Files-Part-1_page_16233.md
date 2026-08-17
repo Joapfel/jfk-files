@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16233.png
-
-Convert to MarkdownII/WANT TO AZPA - 30 . 5 March 70
+II/WANT TO AZPA - 30 . 5 March 70
 
 We are still held up in one business and I have had to call
 in my own supplies to give an estimate as the previous one,

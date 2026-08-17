@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25181.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Kennedy, John F. President</td><td>10 Sept. 1963</td><td>DIEM</td></tr><tr><td>CIA</td><td></td><td></td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Kennedy, John F. President</td><td>10 Sept. 1963</td><td>DIEM</td></tr><tr><td>CIA</td><td></td><td></td></tr></table>
 
 **OCCURRENCE:**
 

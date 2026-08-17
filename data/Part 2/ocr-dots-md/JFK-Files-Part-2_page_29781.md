@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29781.png
-
-Convert to MarkdownSENSITIVE
+SENSITIVE
 
 MEXICO CITY -- CIA
 

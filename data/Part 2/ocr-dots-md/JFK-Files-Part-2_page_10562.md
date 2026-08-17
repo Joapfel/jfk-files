@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10562.png
-
-Convert to MarkdownOTIS G. PIKE
+OTIS G. PIKE
 FIRST DISTRICT, NEW YORK
 
 COMMITTEE:

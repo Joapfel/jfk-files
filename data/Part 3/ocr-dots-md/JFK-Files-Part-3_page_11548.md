@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11548.png
-
-Convert to Markdown5(c). At the present time there are nine Agent Supervisors assigned
+5(c). At the present time there are nine Agent Supervisors assigned
 to this matter.
 
 Investigation was instituted 6/15/71 and from then until 6/23/71

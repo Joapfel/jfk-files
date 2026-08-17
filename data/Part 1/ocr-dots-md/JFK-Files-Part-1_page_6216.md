@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6216.png
-
-Convert to Markdown# Que es O. S. E. E. M?
+# Que es O. S. E. E. M?
 ## Que servicios presta O.S.E.E.M.?
 
 **enseem**

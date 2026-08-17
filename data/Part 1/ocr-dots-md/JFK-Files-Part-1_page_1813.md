@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1813.png
-
-Convert to Markdownother departments to determine whether such a memorandum hasn't
+other departments to determine whether such a memorandum hasn't
 already been prepared or might be in the process of preparation.
 
 ## White House Relations

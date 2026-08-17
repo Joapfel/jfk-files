@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23331.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the record the cable back from the CIA Chief of Station in response to the telegram. Mr. Goodwin drafted.
 

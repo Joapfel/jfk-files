@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3484.png
-
-Convert to Markdownrapidly answer him because he has to be in Havana early next Saturday and
+rapidly answer him because he has to be in Havana early next Saturday and
 so avoiding things to become complicated.
 
 "Benny" also includes two INTELLIGENCE reports dated 20 March 1964 in which he says:

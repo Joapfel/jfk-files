@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31863.png
-
-Convert to Markdown# AGENT REPORT
+# AGENT REPORT
 (FM 30-17)
 
 <table>

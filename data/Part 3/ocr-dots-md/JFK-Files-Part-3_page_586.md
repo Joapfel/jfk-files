@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_586.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 On July 19, 1968, Mr. L. B. Egenberger, Supervisor of Security, Illinois Bell Telephone Company (IBT), Chicago, Illinois, was contacted by the Chicago FBI Office for the purpose of ascertaining if all telephone service to the Chicago Office of the National Mobilization Committee to End the War in Vietnam (NMC) could be discontinued in view of telephone charges that were unpaid by NMC.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6226.png
-
-Convert to Markdown14-00000
+14-00000
 
 ORIG: S. CHACONAS:car
 UNIT: WH/C/CA/PP

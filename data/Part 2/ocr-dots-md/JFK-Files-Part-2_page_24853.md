@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24853.png
-
-Convert to MarkdownIt seems to me, although the records don't reflect it, that there was a meeting in September, a very brief one, in which I must have been told that there was a specific program going underway. That probably would have been by Henry (Kissinger) and perhaps with Karamessines there. I am not sure. (Haig testimony, p. 12)
+It seems to me, although the records don't reflect it, that there was a meeting in September, a very brief one, in which I must have been told that there was a specific program going underway. That probably would have been by Henry (Kissinger) and perhaps with Karamessines there. I am not sure. (Haig testimony, p. 12)
 
 October 10
 

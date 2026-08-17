@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19245.png
-
-Convert to MarkdownTransmit the following in
+Transmit the following in
 
 Date: 12/27/68
 

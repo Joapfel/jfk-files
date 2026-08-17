@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30831.png
-
-Convert to MarkdownSERVICE COMPUTATION DATE - Jorony E. BENJADUN (P)
+SERVICE COMPUTATION DATE - Jorony E. BENJADUN (P)
 
 | Service | From | To | Years | Months | Days |
 |---|---|---|---|---|---|

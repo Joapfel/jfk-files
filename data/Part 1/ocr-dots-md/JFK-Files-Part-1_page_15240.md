@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15240.png
-
-Convert to MarkdownSR/DCB/59/
+SR/DCB/59/
 
 11 September 1959
 

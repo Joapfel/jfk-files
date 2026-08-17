@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23507.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 ## 1961 (cont'd)
 

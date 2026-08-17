@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24249.png
-
-Convert to MarkdownTHE AIR PROPRIETARIES
+THE AIR PROPRIETARIES
 
 Lawrence R. Houston, the former General Counsel of the Agency, was involved in the establishment of the first set of proprietaries of the Agency back in the late 1940's and early 1950's. As noted later on in section 10, page 3, Houston has concluded that proprietaries should be a mechanism of last resort. He asserts that the Agency learned this in part "the hard way and almost all of the lessons involved probably came out one way or the other in connection with a major aviation proprietary in the Far East. Others had there own special problems, but I think the Air America complex had pretty near everything."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12631.png
-
-Convert to Markdown14-99000
+14-99000
 
 D.32 . 23 Okt 37
 

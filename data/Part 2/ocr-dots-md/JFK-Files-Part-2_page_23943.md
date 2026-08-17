@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23943.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the form of advising the group in January
 1961 that we would provide limited arms

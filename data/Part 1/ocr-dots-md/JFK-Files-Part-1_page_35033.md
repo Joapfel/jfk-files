@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35033.png
-
-Convert to MarkdownThe Bank of St. Louis Revolving Fund Profit
+The Bank of St. Louis Revolving Fund Profit
 Finance and Debt
 General Accounts
 "Full and Ceded"

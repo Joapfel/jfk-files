@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20.png
-
-Convert to MarkdownSKEWER/1 will be staying in New York at the Hotel Savoy Plaza. Mr. Allen immediately telephoned Mr. Carter, 941-2802, and advised him of the change in plans.
+SKEWER/1 will be staying in New York at the Hotel Savoy Plaza. Mr. Allen immediately telephoned Mr. Carter, 941-2802, and advised him of the change in plans.
 
 Gale W. Allen
 DOCO/SA

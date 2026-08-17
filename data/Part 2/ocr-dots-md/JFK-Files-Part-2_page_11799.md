@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11799.png
-
-Convert to MarkdownSECTION 107. [INTERNAL] SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; 107D [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
+SECTION 107. [INTERNAL] SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; 107D [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
 
 e. If potential informant is student, teacher, or has any similar relations with school, college, or university, in initial interview and subsequent handling, follow current instructions concerning investigations on campuses.
 

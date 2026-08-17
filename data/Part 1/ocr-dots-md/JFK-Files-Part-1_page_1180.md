@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1180.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ACTION LIST
+SENATE SELECT COMMITTEE ACTION LIST
 
 <table>
    <thead>

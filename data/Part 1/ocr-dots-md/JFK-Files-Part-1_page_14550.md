@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14550.png
-
-Convert to MarkdownEstilo and Gimnasio Mascardó, Pilar de Zaragoza
+Estilo and Gimnasio Mascardó, Pilar de Zaragoza
 #99, Madrid.
 
 3.- Ivan, who is about eight years old.

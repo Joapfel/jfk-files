@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23676.png
-
-Convert to Markdown instances in which those who were immigrants to the United States who wished to have citizenship were then approached by the intelligence agencies and either sent back as legal travellers and what have you and the question being the point of concern being that their vulnerable status of wanting to have permanent citizenship in the country made them more susceptible to either actual or implied or even imagined threats or imagined coercion.
+instances in which those who were immigrants to the United States who wished to have citizenship were then approached by the intelligence agencies and either sent back as legal travellers and what have you and the question being the point of concern being that their vulnerable status of wanting to have permanent citizenship in the country made them more susceptible to either actual or implied or even imagined threats or imagined coercion.
 
 Mr. diGenova. Can I ask a question about that? I'm totally unfamiliar with the subject and I'd like to know what the evidence was on the record.
 

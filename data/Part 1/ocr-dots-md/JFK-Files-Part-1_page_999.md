@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_999.png
-
-Convert to Markdown14-00000 GAUDET, William George
+14-00000 GAUDET, William George
 
 1. HSCA Request, 3 November 1977: (NO OLC #)
 

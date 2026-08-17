@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5585.png
-
-Convert to MarkdownLEVEL 1 - 20 OF 80 STORIES
+LEVEL 1 - 20 OF 80 STORIES
 
 Copyright 1993 American Broadcasting Companies, Inc.
 All rights reserved

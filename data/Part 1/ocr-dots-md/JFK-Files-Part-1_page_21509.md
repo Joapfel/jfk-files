@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21509.png
-
-Convert to MarkdownTo the best of your knowledge, was FINNOVATE exposed to the KGB because of the mass surveillance on the British Embassy?
+To the best of your knowledge, was FINNOVATE exposed to the KGB because of the mass surveillance on the British Embassy?
 
 Yes.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25544.png
-
-Convert to MarkdownML: And I wouldn't risk it with my daughter. So, anyway,
+ML: And I wouldn't risk it with my daughter. So, anyway,
 we waited. We were allowed the run of the place. We
 knew everyone there and...
 

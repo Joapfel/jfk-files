@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34537.png
-
-Convert to Markdown13. It would be useful to ask Nosenko his comments on the information on "Passports and Other Formalities" taken from the book, A Motorist's Guide to the Soviet Union, by Viktor Louin and his wife Jennifer Louin.
+13. It would be useful to ask Nosenko his comments on the information on "Passports and Other Formalities" taken from the book, A Motorist's Guide to the Soviet Union, by Viktor Louin and his wife Jennifer Louin.
 
 The book was published in Moscow in 1967.
 

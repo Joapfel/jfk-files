@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6345.png
-
-Convert to MarkdownSenate Select Committee on Intelligence Activities
+Senate Select Committee on Intelligence Activities
 
 Re: Documents Pertaining to Requests for Mail
 Covers Made by the Bureau from 1971

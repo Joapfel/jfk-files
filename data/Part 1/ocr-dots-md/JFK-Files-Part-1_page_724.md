@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_724.png
-
-Convert to Markdown104-10071-10122
+104-10071-10122
 
 # RETURN TO CIA
 ## Background Use Only

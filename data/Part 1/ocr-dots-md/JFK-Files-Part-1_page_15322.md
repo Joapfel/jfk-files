@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15322.png
-
-Convert to Markdown11. One year later Jean Adam approached David again and blackmailed him into continuing to participate in his roberies: he threatened to tell everything to David's wife if the latter would not cooperate. David went along.
+11. One year later Jean Adam approached David again and blackmailed him into continuing to participate in his roberies: he threatened to tell everything to David's wife if the latter would not cooperate. David went along.
 
 12. Jean had no plans ready, but he needed money. First they planned to rob somebody whom they would have seen receiving plenty of money from some bank. They tried to watch at different banks, but they could not see from the street through the windows up to the counters.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17769.png
-
-Convert to Markdown103-
+103-
 
 Salida al 13-74-92.- 0925 hrs.- MONTENESIA pregunta por su inner ZANCRATI para saber si se pueden ver. Este dice que mientras siga actuando como niña y siga creyendo en: los Santos Reyes no volverá a salir con ella y que ya es una mujer que debe de hacer las cosas por sí misma. MONTENESIA se enoja y le dice hasta luego.
 - 126-

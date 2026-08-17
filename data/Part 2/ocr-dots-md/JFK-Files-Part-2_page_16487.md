@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16487.png
-
-Convert to Markdownthe same reasons that the racist U. S. Armed Forces
+the same reasons that the racist U. S. Armed Forces
 occupy South Vietnam;
 
 You are hereby drafted into the Black Panther Party for Self Defense, invested with the rank of Field Marshall, delegated the following authority, power, and responsibility:

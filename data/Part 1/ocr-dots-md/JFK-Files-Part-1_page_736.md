@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_736.png
-
-Convert to Markdown14,000.00
+14,000.00
 
 104-10071-10148
 

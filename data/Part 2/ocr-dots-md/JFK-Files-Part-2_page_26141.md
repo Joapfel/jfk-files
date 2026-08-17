@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26141.png
-
-Convert to Markdownimpressed by them, and just as an example of
+impressed by them, and just as an example of
 what humans will do in such a situation, I'd
 written it up and turned in a separate report
 on it. And about the ... It was still

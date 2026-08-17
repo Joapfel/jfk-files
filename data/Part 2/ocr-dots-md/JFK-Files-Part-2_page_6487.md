@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6487.png
-
-Convert to Markdown5. Inasmuch as the ultimate objective is overt military intervention, it is recommended that primary responsibility for developing military and para-military aspects of the plan for both overt and covert military operations be assigned the Joint Chiefs of Staff.
+5. Inasmuch as the ultimate objective is overt military intervention, it is recommended that primary responsibility for developing military and para-military aspects of the plan for both overt and covert military operations be assigned the Joint Chiefs of Staff.
 
 WILLIAM H. CRAIG
 Brig General, USA

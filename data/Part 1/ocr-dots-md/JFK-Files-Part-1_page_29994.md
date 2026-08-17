@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29994.png
-
-Convert to MarkdownPresident's Commission
+President's Commission
 on the
 Assassination of President Kennedy
 

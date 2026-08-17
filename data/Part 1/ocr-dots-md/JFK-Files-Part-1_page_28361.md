@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28361.png
-
-Convert to Markdown# Contract Service - Edwind G. Tichborn (P)
+# Contract Service - Edwind G. Tichborn (P)
 
 ## Action
 *   Date: 15 Oct 89

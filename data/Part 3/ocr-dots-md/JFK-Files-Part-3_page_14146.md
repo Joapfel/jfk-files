@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14146.png
-
-Convert to MarkdownII. Chronology of Specific Events Relating to the Military Buildup in Cuba
+II. Chronology of Specific Events Relating to the Military Buildup in Cuba
 
 Presented below is a summary of information on the subject which has been assembled by the staff in a chronological arrangement of selected excerpts of data received from intelligence community sources and from public sources. The chronology is somewhat incomplete because it does not include: (a) the all source, all community review which the DCI is making at the request (11/14/62) of the Board, (b) significant information in the files of the NSC Special 5412/2 Group on intelligence and covert actions relating to Cuba, and (c) all of the information believed to have been submitted to the White House during the period of the military buildup in Cuba.
 

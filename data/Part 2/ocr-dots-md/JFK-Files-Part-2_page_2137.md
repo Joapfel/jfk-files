@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2137.png
-
-Convert to Markdown# ADMINISTRATIVE
+# ADMINISTRATIVE
 ## INTERNAL USE ONLY
 
 27 APR 1967

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21431.png
-
-Convert to Markdown06 FEB 1970
+06 FEB 1970
 
 RL-344
 

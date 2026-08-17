@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24399.png
-
-Convert to Markdownadvised that the station could "at discretion contact subject to determine willingness to cooperate and his suggestions on details". Ten thousand dollars was authorized as payment "after successful completion", but no advance payment was permitted because of the possibility that the pilot was a double agent. According to the case officer, this cable represented "quite a departure from the conventional activities we'd been asked to handle". (Case Officer interview, 8/4/75, p. 2)*
+advised that the station could "at discretion contact subject to determine willingness to cooperate and his suggestions on details". Ten thousand dollars was authorized as payment "after successful completion", but no advance payment was permitted because of the possibility that the pilot was a double agent. According to the case officer, this cable represented "quite a departure from the conventional activities we'd been asked to handle". (Case Officer interview, 8/4/75, p. 2)*
 
 The case officer contacted the pilot and told him of the proposal while accompanying him to the airport for the flight. The case officer avoided the word "assassinate", but made it clear that the CIA contemplated an "accident to neutralize this leader's (Raul's) influence". (Case Officer interview, p. 2) After being assured that his sons would be given a college education in the event of his death, the pilot agreed to take a "calculated risk", limited to possibilities that might pass as accidental.** (Cable, Havana to Director, 7/22/70)
 

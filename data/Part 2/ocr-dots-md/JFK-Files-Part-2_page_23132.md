@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23132.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 assassination plots against Cuban exile leaders down in
 Miami?

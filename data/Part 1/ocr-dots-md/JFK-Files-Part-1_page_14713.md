@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14713.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr><tr><td>CLASSIFICATION</td></tr><tr><td>SECRET</td></tr></table>
+<table><tr><td>DISPATCH</td></tr><tr><td>CLASSIFICATION</td></tr><tr><td>SECRET</td></tr></table>
 
 <table><tr><td>TO</td><td>Chief, Western Hemisphere Division</td></tr><tr><td>INFO</td><td>Chief of Station, Madrid; Chief, European Division</td></tr><tr><td>FROM</td><td>Chief of Station, WH/Miami</td></tr><tr><td>SUBJECT</td><td>TYPIC ANAUTO<br/>Interview of Alexander SAMKO</td></tr><tr><td colspan="2">ACTION REQUIRED REFERENCES</td></tr></table>
 

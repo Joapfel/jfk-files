@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20936.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 Memorandum
 
 TO : ACTING DIRECTOR, FBI DATE: 7/6/72

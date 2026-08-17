@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3305.png
-
-Convert to MarkdownOCT 15 1964
+OCT 15 1964
 
 SUBJECT: Report about all file traces appear in this Archive in connection with your request on the following:
 

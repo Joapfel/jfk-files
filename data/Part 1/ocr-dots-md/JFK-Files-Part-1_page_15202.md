@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15202.png
-
-Convert to MarkdownMonsieur A. De PANASKHET
+Monsieur A. De PANASKHET
 Architecte
 
 I bis,Avenue Bellevue (Lablacque,

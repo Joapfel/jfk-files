@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20393.png
-
-Convert to MarkdownNY 100-161601
+NY 100-161601
 
 Copies of this LHM have been disseminated to interested local intelligence agencies and USA's, SDNY and EDNY.
 

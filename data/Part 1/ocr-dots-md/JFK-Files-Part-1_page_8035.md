@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8035.png
-
-Convert to MarkdownVIA: Air Force
+VIA: Air Force
 DISPATCH NO.: PIA-279
 
 <table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11579.png
-
-Convert to MarkdownA massive demonstration in Washington, D. C., on 4/24/71 sponsored by the National Peace Action Coalition (NPAC). A similar demonstration was held in San Francisco. The Washington, D. C., demonstration attracted an estimated 400,000 persons.
+A massive demonstration in Washington, D. C., on 4/24/71 sponsored by the National Peace Action Coalition (NPAC). A similar demonstration was held in San Francisco. The Washington, D. C., demonstration attracted an estimated 400,000 persons.
 
 A March for Victory demonstration sponsored by the Reverend Carl McIntire held in Washington, D. C., 5/8/71 to protest withdrawal of U.S. forces from Vietnam.
 

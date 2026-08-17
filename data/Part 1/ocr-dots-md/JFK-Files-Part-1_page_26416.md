@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26416.png
-
-Convert to Markdown<table><thead><tr><td colspan="4">CLASSIFIED MESSAGE</td></tr><tr><th>TO</th><th>: DIRECTOR</th><th></th><th></th></tr></thead><tbody><tr><td>FROM : JMWAVE</td><td colspan="3"></td></tr><tr><td>ACTION: C/SAS 5</td><td colspan="3"></td></tr><tr><td>INFO : DDP, ADDP, C/CI, C/F1/D</td><td>C/WH VR</td><td colspan="2"></td></tr></tbody></table>
+<table><thead><tr><td colspan="4">CLASSIFIED MESSAGE</td></tr><tr><th>TO</th><th>: DIRECTOR</th><th></th><th></th></tr></thead><tbody><tr><td>FROM : JMWAVE</td><td colspan="3"></td></tr><tr><td>ACTION: C/SAS 5</td><td colspan="3"></td></tr><tr><td>INFO : DDP, ADDP, C/CI, C/F1/D</td><td>C/WH VR</td><td colspan="2"></td></tr></tbody></table>
 
 <table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td rowspan="3">Jidkins</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
 

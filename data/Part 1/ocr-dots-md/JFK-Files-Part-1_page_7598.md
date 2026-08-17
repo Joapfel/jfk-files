@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7598.png
-
-Convert to MarkdownCONTACT REPORT
+CONTACT REPORT
 
 SUBJECT: Miriam AVILA Katz
 DATE OF MEETING: 11 May 1967

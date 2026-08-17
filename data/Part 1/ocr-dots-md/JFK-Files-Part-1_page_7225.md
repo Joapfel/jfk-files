@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7225.png
-
-Convert to Markdown21 Ene.66
+21 Ene.66
 
 LUCKNIO DURAN pide a RITTER de Toonjca Electro-Mecanica
 cintas magneticas para la grabadora DK-6 de LOGUINOV.

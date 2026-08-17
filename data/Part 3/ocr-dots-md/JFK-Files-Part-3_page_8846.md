@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8846.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="4">All information contained herein is unclassified and may be used, reproduced, distributed and/or disclosed without the consent of the United States government.</td>

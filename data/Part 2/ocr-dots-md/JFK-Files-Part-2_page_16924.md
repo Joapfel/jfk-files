@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16924.png
-
-Convert to MarkdownIII. Welpontry
+III. Welpontry
 
 A. Kanade Age of
 

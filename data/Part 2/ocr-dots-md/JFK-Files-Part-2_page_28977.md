@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28977.png
-
-Convert to Markdown**CALIFORNIA**
+**CALIFORNIA**
 
 **ITEMIZED DEDUCTIONS**
 

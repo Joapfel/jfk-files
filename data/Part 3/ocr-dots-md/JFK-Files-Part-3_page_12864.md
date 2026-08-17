@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12864.png
-
-Convert to MarkdownADDENDUM: LEGAL COUNSEL DIVISION PVD:dkg 4-15-75
+ADDENDUM: LEGAL COUNSEL DIVISION PVD:dkg 4-15-75
 
 Legal Counsel Division concurs with the general thrust of the memorandum of understanding, however, it is suggested the following wording be added where indicated:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12679.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="3">SECRET 1316182 FEB 76 STAFF</td>
   </tr>

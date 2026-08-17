@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16508.png
-
-Convert to MarkdownII. SECOND LEVEL
+II. SECOND LEVEL
 CENTRAL CHARGE OF ANY STATE LEVEL BLACK PARTY CHAPTER
 
 1. Deputy to Minister of Defense

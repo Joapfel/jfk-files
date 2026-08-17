@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24773.png
-
-Convert to Markdown(4) 22 February 1967 - Headquarters debriefing (WH/7) on Puerto Rico trip.
+(4) 22 February 1967 - Headquarters debriefing (WH/7) on Puerto Rico trip.
 
 (5) 27-28 February 1967 - Headquarters consultation on PRI study.
 

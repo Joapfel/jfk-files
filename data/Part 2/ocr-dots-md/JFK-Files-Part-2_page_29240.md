@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29240.png
-
-Convert to Markdown<table><thead><tr><td>DATE COMPLETED:</td></tr></thead><tbody><tr><td>APPROX MARCH 1962</td></tr><tr><td>05 MARCH 1965</td></tr><tr><td>FILE #1313-1C</td></tr><tr><td>APPROX JUNE 1965</td></tr><tr><td>APPROX JUNE 1970</td></tr></tbody></table>
+<table><thead><tr><td>DATE COMPLETED:</td></tr></thead><tbody><tr><td>APPROX MARCH 1962</td></tr><tr><td>05 MARCH 1965</td></tr><tr><td>FILE #1313-1C</td></tr><tr><td>APPROX JUNE 1965</td></tr><tr><td>APPROX JUNE 1970</td></tr></tbody></table>
 
 **ITEM #13 "SECURITY CLEARANCES HELD"**
 

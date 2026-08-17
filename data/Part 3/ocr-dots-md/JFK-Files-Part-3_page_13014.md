@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13014.png
-
-Convert to Markdowninternational support and arrange for a European edition of Cleaver's book, *Soul On Ice*.
+international support and arrange for a European edition of Cleaver's book, *Soul On Ice*.
 
 ## Rise of the Black Panther Party
 

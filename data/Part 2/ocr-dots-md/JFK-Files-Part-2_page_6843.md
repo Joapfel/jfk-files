@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6843.png
-
-Convert to MarkdownOffice Memorandum
+Office Memorandum
 
 UNITED STATES GOVERNMENT
 APR. JTI:CO

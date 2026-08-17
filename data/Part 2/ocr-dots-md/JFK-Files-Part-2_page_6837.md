@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6837.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 Complete details concerning the information developed in connection with the request of Deputy Attorney General Rogers will, of course, be furnished to him upon the completion of the investigation of these matters.
 

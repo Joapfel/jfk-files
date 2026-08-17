@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27410.png
-
-Convert to Markdownand Record Sheet and an Official Routing Slip attached thereto (7 pages).
+and Record Sheet and an Official Routing Slip attached thereto (7 pages).
 
 [Item 7 is contained in a file labeled "MPTROIKA/2 and MPTROIKA/3 Vol I"].
 

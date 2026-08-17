@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8429.png
-
-Convert to MarkdownSECRET
+SECRET
 
 14. Times, routes, vehicles, from lodgings to and from work:
 

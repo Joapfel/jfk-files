@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27540.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 OF CALL
 
 TO: Donovan

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23732.png
-
-Convert to Markdownhandler but who is really operating off in a very secure and remote environment.
+handler but who is really operating off in a very secure and remote environment.
 
 So in an effort to try to suggest that they make a real effort to compensate for what we have found in this area, this particular thing is designed to urge them to do their best to try to overcome that problem.
 

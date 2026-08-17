@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20213.png
-
-Convert to MarkdownSpecial Agent in Charge
+Special Agent in Charge
 
 U.S. GOVERNMENT PRINTING OFFICE: 1971-413-138
 

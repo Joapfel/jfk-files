@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20754.png
-
-Convert to MarkdownThe Women's National Abortion
+The Women's National Abortion
 Action Coalition
 
 there is also the concern that women new to the movement will join in a mistaken notion that they will be furthering abortion law reform.

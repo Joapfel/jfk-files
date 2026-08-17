@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2627.png
-
-Convert to Markdownthat he be willing to, for example, go through oversight with no reticence, and that I think that he should be chosen very carefully.
+that he be willing to, for example, go through oversight with no reticence, and that I think that he should be chosen very carefully.
 
 I think further that he should be responsible for those matters which indicate impropriety or illegality.
 

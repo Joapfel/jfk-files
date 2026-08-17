@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5931.png
-
-Convert to MarkdownCRA - 105
+CRA - 105
 
 He said there is a vertigo contact in Miami, Cerardo (lnu) and although he did not know the last name or address of Cerardo, he was going to try and locate him. It was again mentioned of the "chigos" who would call on him for this information.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9714.png
-
-Convert to MarkdownLegal Counsel to Mr. J. B. Adams
+Legal Counsel to Mr. J. B. Adams
 RE: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
 
 sensitive investigative technique, divulge information furnished the Bureau by other Government agencies and/or foreign intelligence sources or adversely affecting an ongoing investigation. It was pointed out to Mr. Nichols that if he so desires, he could, of course, obtain the services of private counsel. He indicated it was his intention to arrive in Washington Thursday night, 5-29-75. He was requested to appear in the Office of Legal Analysis, Room 4513, at approximately 8:15 a.m. on the morning of 5-30-75 so that arrangements might be made to brief him by the Office of Legal Analysis and subsequently by the Intelligence Division. Nichols stated he would do so.

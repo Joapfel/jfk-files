@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3739.png
-
-Convert to Markdowncounselling on courses of action to cope with unique situations was always sound and responsible.
+counselling on courses of action to cope with unique situations was always sound and responsible.
 
 4. The work in this assignment provided little occasion for Mr. Joannides to demonstrate attitudes on either EEO matters or economy, considerations that are required by regulation for comment in Fitness Reports. As a result, no comment is made.
 

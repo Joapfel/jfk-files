@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2982.png
-
-Convert to MarkdownSECRET
+SECRET
 
 State official leak this general conclusion to the New York Times. Sugar prices dipped, but rallied when Castro indignantly denied the Times story. The Department then officially announced the US Govern- ment estimate that there would be no shortage of Cuban sugar. As it turned out, the US estimate was right.
 

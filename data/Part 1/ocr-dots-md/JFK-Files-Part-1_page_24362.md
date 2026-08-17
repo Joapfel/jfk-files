@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24362.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>DISPATCH</td>
         <td colspan="2">SECRET/RYBAT</td>

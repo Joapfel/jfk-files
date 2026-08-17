@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1963.png
-
-Convert to Markdownon the relationship became more pointed, some public mention had been made of the King's background and thus it became increasingly important that the New York meeting be carefully arranged.
+on the relationship became more pointed, some public mention had been made of the King's background and thus it became increasingly important that the New York meeting be carefully arranged.
 
 6. On 14 April (1959), Mr. Fred LaTrash and after appropriate security arrangements, were transported to Long Beach, Long Island, where the residence of the King was taken over as the meeting place between King Hussein and later the same day, by pre-arrangement, two Department of State Security Agents, a New York City Police Lieutenant and a hired chauffeur arrived with King Hussein at the site thru 18 April (1959) and King Hussein and party visited each evening, remaining for about four to five hours.
 

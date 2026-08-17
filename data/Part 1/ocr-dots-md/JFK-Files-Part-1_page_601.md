@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_601.png
-
-Convert to Markdown/25/
+/25/
 
 SECRET
 

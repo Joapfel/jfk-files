@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30361.png
-
-Convert to Markdown says the patient apparently understands the questions asked in Russian. So you knew he spoke Russian at that time. And yet that was one of your criteria.
+says the patient apparently understands the questions asked in Russian. So you knew he spoke Russian at that time. And yet that was one of your criteria.
 
 Mr. Nosenko. Well, sir -- I don't know
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28342.png
-
-Convert to MarkdownContinuation Sheet
+Continuation Sheet
 
 FIELD REASSIGNMENT QUESTIONNAIRE/Section 12:
 

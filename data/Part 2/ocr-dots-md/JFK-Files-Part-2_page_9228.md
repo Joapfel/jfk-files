@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9228.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 In a February 2, 1973, article entitled "Black Panthers Seek to Expand Survival Service", which appeared in the "Michigan Chronicle", a weekly black oriented Detroit newspaper, LEONARD MONGO, a BPP member, was quoted as saying, "Our goal is not recognition but service to the people". The article further quoted MONGO as saying, "Much of our image in the past was created by an unfriendly press. Our goal continues to be survival of the people. The people themselves will determine the approaches to be used in the meantime. The Black Panther Party makes itself available for guidance and assistance. Our survival services are essential to the daily existence of the people."
 

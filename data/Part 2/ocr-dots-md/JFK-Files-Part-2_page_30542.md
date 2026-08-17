@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30542.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Would be a matter of course to maintain files on and analysis operation
 migrating in another agency.

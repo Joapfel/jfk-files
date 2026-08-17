@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4295.png
-
-Convert to MarkdownSECRET
+SECRET
 
 will take another look at him and the MRR and see what progress they have made in organizing constructive programs in Latin America which the U. S. could justify supporting through the MRR under the ANCIVIC concept. The $100,000 from the Swifts should give him capital to operate on for that long.
 

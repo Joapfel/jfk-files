@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9481.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 The NCCF also sponsored a rally at the Northside Family Center, 150 Belmont, Detroit, on November 1, 1970, at 7:30 p.m. and NCCF speakers again talked about the police coming into the community and stating that the community should defend itself.
 

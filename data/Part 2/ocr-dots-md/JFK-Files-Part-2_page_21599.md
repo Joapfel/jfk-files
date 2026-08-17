@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21599.png
-
-Convert to MarkdownFILE: SECRET
+FILE: SECRET
 
 stresses that this is a problem. What is the difference between "internal security" and "counter-intelligence" and "positive intelligence"? FBI would use these distinctions as an excuse not to notify CIA.
 

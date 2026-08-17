@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25275.png
-
-Convert to MarkdownSUNDAY NEWS, JUNE 13, 1976
+SUNDAY NEWS, JUNE 13, 1976
 
 # CIA Sent Bedmate
 ## To Kill Castro in '60

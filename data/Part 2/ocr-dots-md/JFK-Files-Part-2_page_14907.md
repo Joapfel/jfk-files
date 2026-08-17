@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14907.png
-
-Convert to MarkdownFebruary 8, 1960
+February 8, 1960
 
 HENRY WINSTON
 INTERNAL SECURITY - COMMUNIST

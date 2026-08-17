@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22384.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Most of the paramilitary operations and the training was conducted by the Special Operations Group which is another entity of the --
 Q DDO?

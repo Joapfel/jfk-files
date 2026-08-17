@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30433.png
-
-Convert to MarkdownSEC. 18. GIVE FIVE CHARACTER REFERENCES IN THE U. S.—WHO KNOWS YOU INTIMATE—(Give residence and business addresses where possible.)
+SEC. 18. GIVE FIVE CHARACTER REFERENCES IN THE U. S.—WHO KNOWS YOU INTIMATE—(Give residence and business addresses where possible.)
 
 <table><thead><tr><th></th><th>Street and Number</th><th>City</th><th>State</th></tr></thead><tbody><tr><td>Dr. Joe Thompson</td><td>BUS. ADD. 533-24th St., Alameda, Cal.</td><td></td><td></td></tr><tr><td>Paul Martin</td><td>BUS. ADD. 907 3rd Ave., Oakland, Calif.</td><td></td><td></td></tr><tr><td>F. C. McCormick</td><td>BUS. ADD. c/o Vesperus Crossing Inn, San Francisco, Calif.</td><td></td><td></td></tr><tr><td>W. G. Martyn</td><td>BUS. ADD. c/o Doctor's Office Bank, Los Angeles, Calif.</td><td></td><td></td></tr><tr><td>Dr. C. C. Haysley</td><td>BUS. ADD. c/o Drs. Harbison and Mayhoy, San Diego - San Jose, San Francisco</td><td></td><td></td></tr></tbody></table>
 

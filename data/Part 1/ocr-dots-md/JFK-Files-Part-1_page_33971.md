@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33971.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 242133Z CITE GWAVE 8963 STEADMAN ACTING
 

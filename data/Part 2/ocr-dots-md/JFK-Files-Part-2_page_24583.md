@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24583.png
-
-Convert to MarkdownWhen Harvey later received Lansdale's August 13 memorandum, McCone spoke to Harvey in Elder's presence, and "McCone made his views quite clear in the same language and tone...that he used with Mr. McNamara." (Elder, p. 25). Elder testified that Harvey did not tell McCone that Harvey was engage in the Castro assassination effort at that time. (Elder, p. 25).
+When Harvey later received Lansdale's August 13 memorandum, McCone spoke to Harvey in Elder's presence, and "McCone made his views quite clear in the same language and tone...that he used with Mr. McNamara." (Elder, p. 25). Elder testified that Harvey did not tell McCone that Harvey was engage in the Castro assassination effort at that time. (Elder, p. 25).
 
 Elder also described a meeting he had with Helms in Elder's office shortly after the August 10 meeting to convey to Helms McCone's views regarding the subject of assassinations. Elder stated:
 

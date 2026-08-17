@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7543.png
-
-Convert to MarkdownSECRET
+SECRET
 
 have been connected with Communist activities in the United States and China. Correspondence between him and his Chinese wife, Miss Alice Liang, a prior to their marriage, indicates that they were both apathetic to activities being conducted by the Communists in China. On 29 January 1936, Miss Liang was entrusted by Dr. Victor Liang, the Chinese defense attorney, with teaching the English language to five young men, the four-year old son of a lairait and Chinese MOUNTAIN.
 

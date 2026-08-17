@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23417.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="3">20 SEPTEMBER 1960</td>

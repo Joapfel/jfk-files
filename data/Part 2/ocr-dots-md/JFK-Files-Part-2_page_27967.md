@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27967.png
-
-Convert to MarkdownJune 16, 1977
+June 16, 1977
 
 Mrs. Rita L. Morton
 5056 Silver Hill Court

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15553.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG: LANCEL WIESCIUR</td></tr><tr><td>UNIT: AF/M/2</td></tr><tr><td>EXT: L818</td></tr><tr><td>DATE: 10 APRIL 1961</td></tr></table>
 

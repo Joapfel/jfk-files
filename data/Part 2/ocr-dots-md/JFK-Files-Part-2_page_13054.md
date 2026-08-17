@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13054.png
-
-Convert to MarkdownNY 100-149194
+NY 100-149194
 
 On 6/1/61, (informed) advised that HUNTER PITTS O'DELL, who was a member of the National Committee, CP, USA, has quit the CP and is officially considered by the CP as being out. However, there are no hard feelings existing between O'DELL and the Party and he is still on good terms with the CP and will work with them.
 

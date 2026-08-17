@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14148.png
-
-Convert to Markdown19. **4/17-19/61** - The CIA-directed effort against Castro met with disaster at the Bay of Pigs.
+19. **4/17-19/61** - The CIA-directed effort against Castro met with disaster at the Bay of Pigs.
 
 20. **4/20/61** - President Kennedy stated that any unilateral American intervention would have been contrary to our traditions and to our international obligations, but that we do not intend to abandon Cuba.
 

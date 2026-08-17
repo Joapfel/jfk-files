@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5309.png
-
-Convert to Markdownpeople. He also devised an automobile insurance system and was financing
+people. He also devised an automobile insurance system and was financing
 this through the Banque Commerciale d’Haiti.
 
 5. In a period just prior to June 1967 Duvalier was convinced by Desinor and Boyer that Charles was, or at least had been, plotting Duvaliers' overthrow. Together with a large group Charles was imprisoned in Port-au-Prince from June 1967 to June 1968.

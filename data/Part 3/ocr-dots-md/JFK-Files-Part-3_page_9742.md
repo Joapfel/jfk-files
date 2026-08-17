@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9742.png
-
-Convert to MarkdownMaterial furnished includes policy, statutes, instructions and related matters covering FBI investigations in the security field generally. Limited, extremely sensitive material excluded but available for review by appropriately cleared personnel of the SSC Staff at FBI Headquarters.
+Material furnished includes policy, statutes, instructions and related matters covering FBI investigations in the security field generally. Limited, extremely sensitive material excluded but available for review by appropriately cleared personnel of the SSC Staff at FBI Headquarters.
 
 7. REQUESTER/DATE OF REQUEST: SSC. 3/19/75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17564.png
-
-Convert to MarkdownCOMMUNICATIONS SECTION
+COMMUNICATIONS SECTION
 
 APR 24 1975
 

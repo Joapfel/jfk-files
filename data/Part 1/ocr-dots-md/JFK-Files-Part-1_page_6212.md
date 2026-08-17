@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6212.png
-
-Convert to MarkdownNOMBRE
+NOMBRE
 
 T (continuación)
 

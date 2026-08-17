@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3364.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">
      FORM 880 (40)

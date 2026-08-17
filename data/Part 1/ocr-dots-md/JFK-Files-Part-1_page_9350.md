@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9350.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Il settembre 1970
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24059.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 C. Findings and Conclusions Relating to the Issues of Authorization and Control
 

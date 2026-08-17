@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5450.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CLASSIFIED MESSAGE</td>
     <td>CONFIDENTIAL IN 9/21/94 PAGE 1/2</td>

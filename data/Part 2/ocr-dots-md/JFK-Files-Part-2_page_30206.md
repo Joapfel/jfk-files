@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30206.png
-
-Convert to MarkdownKENNEDY
+KENNEDY
 
 OUTSIDE CONTACT REPORT
 

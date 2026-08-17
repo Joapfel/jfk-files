@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3126.png
-
-Convert to Markdownde Mar del Plata. Se escucho que tiene plata asignada de hacer regales (pequeños) para mujeres (que mujeres es un misterio). Las regala medias, perfumes y otras chucherías. Les etros dates acerca de sus actividades (muy escasos por cierto) estaban remotíes oportunamente y no les tengo en mi memoria.
+de Mar del Plata. Se escucho que tiene plata asignada de hacer regales (pequeños) para mujeres (que mujeres es un misterio). Las regala medias, perfumes y otras chucherías. Les etros dates acerca de sus actividades (muy escasos por cierto) estaban remotíes oportunamente y no les tengo en mi memoria.
 
 d) Cual es su título oficial (y según el): Nunca hable de sus títulos.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19189.png
-
-Convert to MarkdownSTANDARD FORM 50 (8 PAGES)
+STANDARD FORM 50 (8 PAGES)
 
 NEW APRIL 1986
 PRODUCED BY

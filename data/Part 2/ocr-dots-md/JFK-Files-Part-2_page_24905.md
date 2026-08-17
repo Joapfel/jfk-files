@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24905.png
-
-Convert to Markdownthat "it never occurred to me" that the vigorous words of
+that "it never occurred to me" that the vigorous words of
 the Attorney General could be taken as authorizing
 assassination. The differing perceptions may have resulted
 from their different backgrounds and training. Neither

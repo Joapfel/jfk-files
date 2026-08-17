@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4025.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 GENERAL INDEX
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17296.png
-
-Convert to Markdownsaying that a more detailed statement would be im-
+saying that a more detailed statement would be im-
 proper in view of criminal charges pending against
 survivors. "We were then [after the raid] and still
 are convinced that our officers used good judgment,

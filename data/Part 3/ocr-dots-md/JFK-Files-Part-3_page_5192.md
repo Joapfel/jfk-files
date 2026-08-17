@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5192.png
-
-Convert to MarkdownSA JAMES P. MALOY: Since my assignment to the San Francisco
+SA JAMES P. MALOY: Since my assignment to the San Francisco
 10/28/70 Office, I have developed 4 PCI's. I am
 presently handling 4 PCI's. One! PCI,
 STEVE VINSON (137-5565) can be qualified as a CI as soon as

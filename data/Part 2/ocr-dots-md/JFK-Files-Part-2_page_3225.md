@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3225.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 effort went into overcoming the idea that CIA financed radio programs should become a forum for the varying views of rival exile splinter factions. Phillips was principally in Washington ... [but] there were frequent trips to Miami and New York, and Phillips himself coordinated CIA covert broadcasting with Henry Loomis, Director of USIA's Voice of America. 9/
 

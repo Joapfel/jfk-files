@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2471.png
-
-Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+CENTRAL INTELLIGENCE AGENCY
 
 The material contains information affecting the National Defense of the United States within the meaning of the Enigma Law, Title 18, U.S. C. Sections 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
 

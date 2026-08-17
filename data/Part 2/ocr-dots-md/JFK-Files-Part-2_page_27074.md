@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27074.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 Soviet strategic posture and, in that connection, the feasibility and utility of deploying nuclear delivery systems to Cuba. Therefore, this contingency must be examined carefully, even though it would run counter to current Soviet policy."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5039.png
-
-Convert to Markdown12 00000
+12 00000
 
 CONFIDENTIAL
 SENSIND: SCI

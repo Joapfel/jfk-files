@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9149.png
-
-Convert to MarkdownRH 157-1558
+RH 157-1558
 
 Captain JOHNSON stated that preceding the parade by ACCESS was a member of the ANP, who identified himself as FRANK DRAGER. Captain JOHNSON stated that DRAGER was astride a horse and carried a sign "The Niggers Are Coming." Captain JOHNSON stated that DRAGER was allowed to use this horse until he reached the City Limits of Alexandria, Virginia, at which time he was told to dismount and remove himself and the horse from the parade. JOHNSON stated that this was done to prevent violence within Alexandria.
 

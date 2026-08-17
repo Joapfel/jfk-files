@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23106.png
-
-Convert to MarkdownTambién en 1966, fue detenido el ex-Comandante Rolando Cubela Secades, por ser el principal encartado en un plan de atentado contra el Primer Ministro. Dicho plan fue articulado por la CIA aprovohchando el viaje de Cubela a Madrid, lugar donde fue reclutado por - los agentes de la CIA, Manuel Artime, Jorge Robreño conocido por el "Mago", Luis Enrique Trasancos y Carlos Tepedino.
+También en 1966, fue detenido el ex-Comandante Rolando Cubela Secades, por ser el principal encartado en un plan de atentado contra el Primer Ministro. Dicho plan fue articulado por la CIA aprovohchando el viaje de Cubela a Madrid, lugar donde fue reclutado por - los agentes de la CIA, Manuel Artime, Jorge Robreño conocido por el "Mago", Luis Enrique Trasancos y Carlos Tepedino.
 
 Igualmente intervinieron en los planes del - atentado, los traidores José Luis González Gallarreta, funcionario de la embajada de Cuba en Madrid y Alberto Blanco conocido por - "El Loco".
 

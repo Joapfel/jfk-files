@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4812.png
-
-Convert to MarkdownTelephone number 989-9676 is for HARRY J. NICK, 6641 S.W. 9th Street, Hollywood, Florida.
+Telephone number 989-9676 is for HARRY J. NICK, 6641 S.W. 9th Street, Hollywood, Florida.
 
 Telephone number 989-9576 is for P.M. CENSORIO, 7945 Di Lido Boulevard, Miramar, Florida.
 

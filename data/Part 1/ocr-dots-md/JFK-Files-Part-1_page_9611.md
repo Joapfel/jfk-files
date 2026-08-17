@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9611.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA: LIEU SPECIF<font> AIR OR SEA POUCH</font>
 

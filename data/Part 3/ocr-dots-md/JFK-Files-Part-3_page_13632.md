@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13632.png
-
-Convert to Markdown1 less intentions, as of that time.
+1 less intentions, as of that time.
 
 2 Senator Schweiker. Wait, this was after the Cuban missile crisis. This was '63, and the Cuban missile crisis was '62.
 

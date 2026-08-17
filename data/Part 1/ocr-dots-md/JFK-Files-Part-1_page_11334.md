@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11334.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
 
 3 JAN 1964
 

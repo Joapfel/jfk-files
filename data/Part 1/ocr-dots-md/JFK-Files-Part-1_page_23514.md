@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23514.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CRYPTOSTRATEGICAL
 AREA DIVISION

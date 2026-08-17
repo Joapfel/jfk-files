@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10821.png
-
-Convert to MarkdownViene de la primera
+Viene de la primera
 
 ordenado a presentarse inmedi-
 tamente, es interpretado en Wa-

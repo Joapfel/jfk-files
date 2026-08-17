@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15203.png
-
-Convert to MarkdownSao Paulo
+Sao Paulo
 
 20 October 1959
 

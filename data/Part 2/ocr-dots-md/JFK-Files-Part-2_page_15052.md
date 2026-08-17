@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15052.png
-
-Convert to MarkdownCourt Seal [JFK Law 10(a)1]
+Court Seal [JFK Law 10(a)1]
 
 King's widow and Stanley Levison are spearheading attempts to establish a national memorial to King. Efforts are also being made to declare King's birthday a national holiday. Further, arrangements have been made to have a bust of King put in the National Cathedral in Washington, D. C., as soon as the money is raised. It is absolutely ludicrous and ridiculous that such honors should even be given serious consideration in view of the
 

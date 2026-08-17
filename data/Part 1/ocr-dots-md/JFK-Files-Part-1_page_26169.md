@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26169.png
-
-Convert to MarkdownSWL PART IV: OPERATIONAL DATA
+SWL PART IV: OPERATIONAL DATA
 
 TRUE NAME: Victor Rico GILARDI
 201 No.: 336474

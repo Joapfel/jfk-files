@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3965.png
-
-Convert to Markdown18 January 1968
+18 January 1968
 
 SUBJECT: NAGELL, Richard Case
 

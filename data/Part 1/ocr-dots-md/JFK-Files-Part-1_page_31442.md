@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31442.png
-
-Convert to Markdown12 September 1952
+12 September 1952
 
 MEMORANDUM FOR: CHIEF, PSYCHOLOGICAL STAFF DIVISION
 ATTENTION: Mr. E. J. Harrison, PY Evaluation

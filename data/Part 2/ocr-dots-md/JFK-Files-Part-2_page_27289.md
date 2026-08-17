@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27289.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A. Project Merrimack - 26 Sept 67.
 

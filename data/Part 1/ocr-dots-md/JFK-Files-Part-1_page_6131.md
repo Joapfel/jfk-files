@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6131.png
-
-Convert to Markdown2837 N. Cambridge
+2837 N. Cambridge
 Chicago, Illinois 60657
 
 August 2, 1975

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32318.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 EYES ONLY
 
 ACTION C/LA-5 (503) INFO: HF, FILE, (7/M)

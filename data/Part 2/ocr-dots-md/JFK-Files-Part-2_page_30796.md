@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30796.png
-
-Convert to MarkdownFBI resol 105-126109
+FBI resol 105-126109
 3/31/64
 
 11110763

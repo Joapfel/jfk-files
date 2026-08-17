@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26162.png
-
-Convert to Markdownbeen months so I back to Diem, and I jumped
+been months so I back to Diem, and I jumped
 him. I said, "You've got a vice-president
 who you've made responsible for all the
 economic development of the country, and I

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20991.png
-
-Convert to MarkdownOUTG NG MESSAGE
+OUTG NG MESSAGE
 
 <table><thead><tr><th>CLASSIFICATION</th><th>DATE</th><th>TO</th></tr></thead><tbody><tr><td>SECRET</td><td>01-23-97</td><td>PARIS-Y</td></tr><tr><td>OFFICE USE ONLY</td><td>01-24-97</td><td>WODEEP ADMIN Y</td></tr><tr><td>DIRECTOR'S APPROVAL</td><td>01-25-97</td><td>REFS: A. PARIS 56954 | IN 578647 | B. OFAT-1377, 29 MAY 74 V</td></tr><tr><td>FOR RELEASE IF情况 exists</td><td>01-26-97</td><td>NEED TO KNOW DATE WHEN CASASIN WILL CONCLUDE UNCAIRD EMPLOYMENT.</td></tr><tr><td>FOR TRANSMISSION IF condition exists</td><td>01-27-97</td><td>SECTION I (C) NOC STATUS REPORT FORWARDED REF B STATES HE ON THREE-YEAR EXTENSION CONTRACT WITH UNCAIRD TO END JUNE 1977. PLS ADVISE. E2 IMPDET-A</td></tr><tr><td>CONFIRMATION OF CONDITION IF situation exists</td><td>01-28-97</td><td>X/EUR/PERS Stephen C. Ertz<br/>CMG/NOC George Marling (PHONE)<br/>E/NOC E.Sullivan<br/>E/BF P.Yeh</td></tr></tbody></table>
 

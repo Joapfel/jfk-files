@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7988.png
-
-Convert to Markdownreporting device to alert four pre-selected phone numbers for help.
+reporting device to alert four pre-selected phone numbers for help.
 
 ## Software
 

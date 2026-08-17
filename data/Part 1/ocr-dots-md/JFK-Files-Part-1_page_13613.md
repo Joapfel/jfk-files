@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13613.png
-
-Convert to Markdown14-0000
+14-0000
 
 SOURCE: ABC News (09/27)
 DATE: Saturday, 21 October, 1961

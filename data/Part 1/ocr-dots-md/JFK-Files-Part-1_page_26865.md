@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26865.png
-
-Convert to MarkdownIn the Name of God. Amen
+In the Name of God. Amen
 
 I, Antonio Soto Vazquez, a citizen and resident of Miami, made County, State of Florida, being of sound and disposing mind and memory, do hereby make, publish and declare this to be my last Will and Testament
 

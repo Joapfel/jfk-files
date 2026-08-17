@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1514.png
-
-Convert to Markdown1. ASHIS, Gudaric
+1. ASHIS, Gudaric
 2. AASAL, Glen
 3. SHAWOOD, John
 4. ADKINS, Matt

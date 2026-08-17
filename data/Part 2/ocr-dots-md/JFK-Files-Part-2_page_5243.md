@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5243.png
-
-Convert to MarkdownSECRET
+SECRET
 
 * Use of non-official cover is expanding rapidly in response to changes in CIA targets following the collapse of the USSR.
 

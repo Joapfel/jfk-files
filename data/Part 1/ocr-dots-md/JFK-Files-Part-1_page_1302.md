@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1302.png
-
-Convert to MarkdownSECRET
+SECRET
 
 was less sure than in earlier days and was frequently sensationalist and full of inaccuracies. (See, especially, article in NYT for 14 July 1972 on a terrorist Headquarters in Zurich and other wild statements.)
 

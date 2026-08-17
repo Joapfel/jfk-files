@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30972.png
-
-Convert to MarkdownMéxico, D.F.
+México, D.F.
 
 21 April, 1969
 

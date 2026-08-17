@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22655.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE : 14 JULY 1959</td>
     <td>TO : DIRECTOR<br/>FROM : SAN JOSE<br/>ACTION:WH 5<br/>INFO : S/C 2</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30317.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. the book.
 

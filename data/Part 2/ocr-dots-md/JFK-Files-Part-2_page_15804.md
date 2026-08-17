@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15804.png
-
-Convert to MarkdownThe same date Agents of the Federal Bureau of Investigation (FBI) observed approximately 75 of the above high school Negro youths conduct a demonstration in the vicinity of the Civic Center located in Chicago's Loop area. The purpose of this demonstration was in memoriam to FRED HAMPTON. The youths marched from the Civic Center to Grant Park located on the East Side of Chicago's Loop area and dispersed without incident.
+The same date Agents of the Federal Bureau of Investigation (FBI) observed approximately 75 of the above high school Negro youths conduct a demonstration in the vicinity of the Civic Center located in Chicago's Loop area. The purpose of this demonstration was in memoriam to FRED HAMPTON. The youths marched from the Civic Center to Grant Park located on the East Side of Chicago's Loop area and dispersed without incident.
 
 Agents of the FBI also observed on the same date SIDNEY LENS, leader of the Chicago Peace Council (CPC) which has been publicly identified as a coalition organization comprised of six activist groups in the Chicago area, accompanied by approximately 30 hippie-type individuals, conduct a vigil in memoriam to HAMPTON at the Civic Center from 12 Noon to 1:00 PM. The group dispersed without incident.
 

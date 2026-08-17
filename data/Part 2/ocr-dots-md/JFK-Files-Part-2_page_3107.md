@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3107.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 proceeding under the chairmanship of Bob
 Anderson, with which you may or may not

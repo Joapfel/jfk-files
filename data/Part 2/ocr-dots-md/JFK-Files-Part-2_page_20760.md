@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20760.png
-
-Convert to MarkdownTHREE
+THREE
 
 ICE COGNIZANT.
 

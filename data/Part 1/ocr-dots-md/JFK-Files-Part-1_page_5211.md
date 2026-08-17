@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5211.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Trace Reply, - Clemard Joseph CHARLES
 

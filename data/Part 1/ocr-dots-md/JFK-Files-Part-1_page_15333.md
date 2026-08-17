@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15333.png
-
-Convert to MarkdownThis love of excitement was not strong enough, just as was
+This love of excitement was not strong enough, just as was
 not the political motivation, to bring him to more dangerous,
 and more demanding acts. (C 4, 8; E 2.)
 

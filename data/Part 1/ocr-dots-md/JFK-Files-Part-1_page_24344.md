@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24344.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DDP/CA/CF/DLchatelan:djr (25 September 1970).
 

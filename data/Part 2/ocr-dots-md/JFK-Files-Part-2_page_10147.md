@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10147.png
-
-Convert to Markdown1 - Mr. Mintz
+1 - Mr. Mintz
 
 1 - Mr. Leavitt
 

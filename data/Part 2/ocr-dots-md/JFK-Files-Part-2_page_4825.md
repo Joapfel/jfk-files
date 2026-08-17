@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4825.png
-
-Convert to MarkdownSECRET
+SECRET
 
 how would you rate Mr. Colby's work in the investigation?
 

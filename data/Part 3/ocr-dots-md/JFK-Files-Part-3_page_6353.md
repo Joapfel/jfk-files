@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6353.png
-
-Convert to Markdown3791 (6.75) NW 88614 DocId:32989673 Page 84
+3791 (6.75) NW 88614 DocId:32989673 Page 84
 
 <table><tr><td>CLASSIFY AS APPROPRIATE</td></tr><tr><td>NOTE: SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.</td></tr></table>
 

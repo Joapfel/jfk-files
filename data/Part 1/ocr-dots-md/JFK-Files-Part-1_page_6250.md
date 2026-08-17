@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6250.png
-
-Convert to MarkdownNoticiero
+Noticiero
 ESTUDIANTIL
 
 CIEN ESTUDIANTES PANAMEÑOS A MOSCU - Según César Bruglan, estudiante en la Universidad Patricia Lumumba de Moscú y dirigente de la Asociación de Estudiantes Panameños en la capital moscovita, trainta jóvenes de Panama estudian actualmente allí; su número se elevará muy pronto al centenar. Los becados panameños se dirigen a Moscú vía México, La Habana y Praga.

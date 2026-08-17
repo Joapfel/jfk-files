@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4417.png
-
-Convert to Markdown**Name:** Carlos Orlando Piloto Valle
+**Name:** Carlos Orlando Piloto Valle
 **Age:** 29 years old
 **Civil Status:** Single
 **Nationality:** Cuban

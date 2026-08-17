@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12015.png
-
-Convert to Markdown14-06000
+14-06000
 
 <table><tr><td colspan="2">ADVISORY AND CONFIDENTIAL INFORMATION</td></tr><tr><td>ANNUAL REPORT<br>FOR THE YEAR ENDED DECEMBER 31, 1978 (IN VOLUNTARY FORM)</td><td>SECRET</td></tr></table>
 

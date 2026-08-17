@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10884.png
-
-Convert to MarkdownBASIC INTELLIGENCE is that factual intelligence which results
+BASIC INTELLIGENCE is that factual intelligence which results
 from the collation of encyclopedia information of a fundamental
 and more or less permanent nature and which, as a result of
 evaluation and interpretation, is determined to be the best

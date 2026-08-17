@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7439.png
-
-Convert to MarkdownEND
+END
 
 RECD THREE
 

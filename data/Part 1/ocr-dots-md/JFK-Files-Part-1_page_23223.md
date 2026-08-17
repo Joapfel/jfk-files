@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23223.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">ORIG</td>
     <td>CLASSIFIED MESSAGE</td>

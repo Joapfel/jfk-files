@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4843.png
-
-Convert to MarkdownSECRET
+SECRET
 
 story concerning a dummy customs raid at his residence and the fact that because of this raid he could not produce the requested explosive devices for ROSENTHAL.
 

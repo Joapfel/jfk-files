@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22799.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Harold H. Noemayr
 

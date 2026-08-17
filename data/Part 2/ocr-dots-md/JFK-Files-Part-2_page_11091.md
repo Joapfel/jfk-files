@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11091.png
-
-Convert to Markdown(e) Prior Bureau authority
+(e) Prior Bureau authority
 
 I. Subjects of active current investigations where no interview with prior Bureau authority has previously been conducted
 

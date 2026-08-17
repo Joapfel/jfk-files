@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24529.png
-
-Convert to Markdownan opportunity to debate and decide after weighing the strengths and weaknesses of any given proposed action. (Harvey, 6/25, pp. 114, 124).
+an opportunity to debate and decide after weighing the strengths and weaknesses of any given proposed action. (Harvey, 6/25, pp. 114, 124).
 
 a. The Documentary Evidence
 

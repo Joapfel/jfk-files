@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7395.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 The vouchers were not large, although the documentation was poor. Coleman raised the question with Ryan about his signing off, and Ryan said he could talk to Karamessines if he wished. Because Coleman had a close personal association with Karamessines he did just that. He was told by Karamessines that he didn't know much about it either--"Helms said send him out." He was instructed to go ahead.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10991.png
-
-Convert to MarkdownEDGAR HOOVER
+EDGAR HOOVER
 DIRECTOR
 
 Federal Bureau of Investigation

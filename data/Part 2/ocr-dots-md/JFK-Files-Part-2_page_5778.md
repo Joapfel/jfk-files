@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5778.png
-
-Convert to MarkdownRonald Haron, Esq.
+Ronald Haron, Esq.
 
 DCI/OGC/LD/LCCiprian1:nl 76124 (27 Jul 98)
 

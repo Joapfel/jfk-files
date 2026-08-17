@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24659.png
-
-Convert to MarkdownWhen asked his opinion about the truth of the testimony received
+When asked his opinion about the truth of the testimony received
 by the Committee that poisons were delivered to the Congo by
 Gottlieb, who carried instructions that they were to be used in
 the assassination of Lumumba, Tweedy replied:

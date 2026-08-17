@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20339.png
-
-Convert to Markdown(6)
+(6)
 
 SEC. 12. POSITION DATA
 

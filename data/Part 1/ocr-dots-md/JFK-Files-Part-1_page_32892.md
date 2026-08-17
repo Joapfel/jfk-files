@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32892.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INDEX: ☐ YES ☑ NO
 CLASSIFY TO FILE NO. 201-30733

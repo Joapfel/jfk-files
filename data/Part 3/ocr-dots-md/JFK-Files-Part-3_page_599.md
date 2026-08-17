@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_599.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 Two anonymous letters were sent between April and July, 1965, to nine responsible officials of the Hartford Avenue Baptist Church, Detroit, Michigan, protesting the action by Reverend Charles A. Hill, the pastor, in allowing Communist Party, USA (CPUSA) functionaries to openly speak at his church and in allowing communists use of the church for secret meetings. In August, 1965, a follow-up letter was sent to individuals residing in the neighborhood of the church complaining about the communist use of the church.
 

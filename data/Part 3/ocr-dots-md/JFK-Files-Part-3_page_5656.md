@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5656.png
-
-Convert to Markdown12 September 1963
+12 September 1963
 
 MEMORANDUM TO THE ATTORNEY GENERAL
 

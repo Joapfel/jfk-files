@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11203.png
-
-Convert to MarkdownDIRECCION DE RELACIONES INTERNACIONALES
+DIRECCION DE RELACIONES INTERNACIONALES
 
 para el bienio 1967-1968
 se preparó otra, con la parti-

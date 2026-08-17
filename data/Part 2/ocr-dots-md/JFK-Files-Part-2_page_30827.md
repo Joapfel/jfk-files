@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30827.png
-
-Convert to MarkdownSECRET
+SECRET
 
 11110793
 ATTACHMENT

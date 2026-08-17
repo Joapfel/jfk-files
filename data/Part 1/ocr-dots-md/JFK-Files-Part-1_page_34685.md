@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34685.png
-
-Convert to MarkdownFORM 05-937
+FORM 05-937
 9-65
 
 <table><thead><tr><th colspan="4">FOR USE OF DEPARTMENT OF STATE ONLY</th></tr><tr><th>OFFICE</th><td>Visa Office/CD</td><th>TYPE OF DEPARTMENT PROGRAM</th><td>Cuban Departure Control</td></tr><tr><th>DATE</th><td>Feb. 12, 1975</td><td colspan="2"></td></tr><tr><th>NAME OF SUBMITTING OFFICER</th><td colspan="3">Neesmaeter/Southern</td></tr><tr><th colspan="4">FOR USE OF OTHER OFFICE(S) OF THE DEPARTMENT OF STATE</th></tr></thead></table>

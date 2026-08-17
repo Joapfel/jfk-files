@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19758.png
-
-Convert to MarkdownWFO 174-0
+WFO 174-0
 
 The attention of the Bureau is directed to re WFO airtel and LHM, 11/12/71, captioned "Woman's National Abortion Action Coalition (WONAC) Sponsored Demonstration, 11/20/71, Washington, D.C.; IS-New Left". (WFO 100-5492) which may pertain to the same threat. The message read:
 

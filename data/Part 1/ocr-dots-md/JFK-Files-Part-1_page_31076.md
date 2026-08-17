@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31076.png
-
-Convert to Markdown14-0000
+14-0000
 
 DEPARTMENT OF THE ARMY
 U S. ARMY INTELLIGENCE SCHOOL

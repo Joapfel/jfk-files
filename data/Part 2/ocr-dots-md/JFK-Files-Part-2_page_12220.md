@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12220.png
-
-Convert to Markdown(6) After informant authenticates his statement, contacting Agent should prepare a cover sheet, form FD-306, which should be stapled to it and thereafter the statement should be handled as a written one in accordance with instructions set out in 2, a, (10), and (11).
+(6) After informant authenticates his statement, contacting Agent should prepare a cover sheet, form FD-306, which should be stapled to it and thereafter the statement should be handled as a written one in accordance with instructions set out in 2, a, (10), and (11).
 
 (7) Oral information furnished by informant purely of lead value should be incorporated in an office memorandum by the Agent and should not be initialed by the informant or exhibited to him or treated as evidence.
 

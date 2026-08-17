@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22570.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 In December 1964, SRS prepared a blind memorandum out-
 lining the use of Wiley, to wit:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12968.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET
 24 Sept 1969

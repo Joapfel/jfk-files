@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6498.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 MEMORANDUM FOR THE SECRETARY OF DEFENSE
 

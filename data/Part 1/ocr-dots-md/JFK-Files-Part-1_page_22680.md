@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22680.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>DATE : 2 JANUARY 1959</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : HAVANA</td></tr><tr><td>ACTION: WH 5 (ROBERT REYNOLDS WH ISSUED TEMPO COPY 0215<br>3 JAN 59.)</td></tr><tr><td>INFO : COP, S/C 2</td></tr></table>
 

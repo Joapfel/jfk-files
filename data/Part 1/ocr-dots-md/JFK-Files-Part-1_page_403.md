@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_403.png
-
-Convert to Markdown17. SMITH, Joseph Burkholder EOD: DOB: RET: 6-30-73
+17. SMITH, Joseph Burkholder EOD: DOB: RET: 6-30-73
 
 BLOCKED REMOVED
 

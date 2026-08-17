@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15477.png
-
-Convert to MarkdownWILEY
+WILEY
 
 ORIG : 3529
 UNIT : AF W

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34049.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 29 December 1966
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_527.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 The National States Rights Party (NSRP), Jackson, Mississippi, intended to use a building located at 188 Longine Street, Jackson, as a meeting hall and in an attempt to organize a new NSRP unit and recruit new members. In May 1970, a letter, purportedly a complaint from a neighbor on Longine Street that Number 188 was being used in violation of residential zoning laws, was mailed by the Jackson Office to the "Jackson Daily News 'Jack Sunn'" column. The letter pointed out that Number 188 had been used for a meeting on April 26, 1970.
 

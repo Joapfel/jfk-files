@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5961.png
-
-Convert to MarkdownFILE CONTENT LIST OF FILE NO. 201-C191098
+FILE CONTENT LIST OF FILE NO. 201-C191098
 
 | PFF | DOCUMENT | DOCUMENT | ABST. | ORIG. | CS COPY | |
 |---|---|---|---|---|---|---|

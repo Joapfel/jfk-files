@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16826.png
-
-Convert to Markdown# BLOOD EXAMINATIONS
+# BLOOD EXAMINATIONS
 
 Human blood which was too limited in amount for grouping purposes was identified on specimens Q192, Q197, Q201, Q210, Q226 and Q275. No blood was identified on Q190, Q233 and Q234.
 

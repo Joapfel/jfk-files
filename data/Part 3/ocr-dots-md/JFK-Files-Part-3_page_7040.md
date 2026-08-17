@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7040.png
-
-Convert to MarkdownAssistant Attorney General for Administration
+Assistant Attorney General for Administration
 
 March 7, 1975
 

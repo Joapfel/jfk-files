@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7949.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="3">Diners' CLUB<br/>10 COLUMBUS CIRCLE<br/>NEW YORK, N.Y. 10019</td>
     <td colspan="5" style="text-align:center;">RECORD OF CHARGE</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13846.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 Report # CC-623.
 

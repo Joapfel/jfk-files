@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16464.png
-
-Convert to MarkdownProblems. But I don't believe that under this present system, under capitalism, that they will be able to solve these problems.
+Problems. But I don't believe that under this present system, under capitalism, that they will be able to solve these problems.
 
 ## People Must Control
 

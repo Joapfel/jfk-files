@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5581.png
-
-Convert to MarkdownIN 060590
+IN 060590
 
 TDCS-314/04019-70
 

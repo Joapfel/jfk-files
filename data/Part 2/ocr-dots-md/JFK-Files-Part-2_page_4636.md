@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4636.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Jake on that - in terms of trying to get air support - it was basically on a person-to-person basis. It's what you can wheedle out of somebody and get them to do it the right way instead of being able to command them and not having to spend your time massaging a guy's back. That's one of the key problems I thought, and also Jake's relationship, or Washington's relationship with Miami, was obviously, if you read the report, and even the rebuttal, I thought it was very confusing. Case officers did not know really who their boss was. Maybe they should have looked at who was writing their fitness reports, I suppose is one way, but it was too haphazard. We tried to organize it, again it was sheer luck. We tried to organize it, as I say, as if Miami was a foreign station and Ted had all the rights and privileges of a Chief of Station abroad. The fact that he was in the United States didn't bother us at all; we never thought of it that way. Largely because you've got a guy like Harvey in charge, who, despite the fact that he was a gruff SOB, had a heart of melted butter when it came to his own troops. He would never let anybody, at any level, blast at one of his troops without himself, in effect, taking out of his guns and shooting the SOB who did it.
 

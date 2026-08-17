@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29002.png
-
-Convert to Markdown# CALIFORNIA
+# CALIFORNIA
 ## SUPPLEMENTAL SCHEDULE OF GAINS AND LOSSES
 
 (Sales or Exchanges Including Involuntary Conversions)

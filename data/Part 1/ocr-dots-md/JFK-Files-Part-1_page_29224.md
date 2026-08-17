@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29224.png
-
-Convert to MarkdownSECRET
+SECRET
 (See Filled In)
 
 <table>

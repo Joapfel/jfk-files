@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24613.png
-
-Convert to MarkdownThis is not very clear to me at this stage. A lot of the same officers were serving President Johnson as they served President Kennedy, and...I can't recall anymore whether there was any specific issue about whether this was taken up with President Johnson at any meeting or any session. If it had been, I would have thought there would have been records someplace." (Helms, 6/13, p. 139.)
+This is not very clear to me at this stage. A lot of the same officers were serving President Johnson as they served President Kennedy, and...I can't recall anymore whether there was any specific issue about whether this was taken up with President Johnson at any meeting or any session. If it had been, I would have thought there would have been records someplace." (Helms, 6/13, p. 139.)
 
 When asked whether President Johnson had been informed of or had authorized continuing efforts to assassinate Castro, Helms replied indirectly that "the Special Group would have continued to consider these matters, and I would have assumed that whoever was chairing the Special Group would have in turn reported to the President, which was the usual practice". (Id.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1593.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. Judge Hoeveler asked Mr. Sakowitz to cross-examine Mr. Briggs to determine whether he had any information which might be relevant to Hemming's defense. Mr. Sakowitz stated that although he was aware that Mr. Hemming wished to call Mr. Briggs as a witness, he was not fully informed of all aspects of the case and, therefore, reluctant to question Mr. Briggs. Thereupon, Judge Hoeveler, swore in Mr. Briggs and proceeded to ask him a series of questions to determine whether Mr. Briggs interaction with Mr. Hemming had been in any way connected with his CIA employment. At the conclusion of this examination the Judge gave Mr. Sakowitz a second opportunity to question Mr. Briggs and when Mr. Sakowitz again declined, he stated that in light of the national security consequences which had been brought to his attention he was not inclined to permit questions relating to Mr. Briggs CIA employment.
 

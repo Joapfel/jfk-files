@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19042.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The Bonn government is gen- erally reluctant, however, to ban the NPD, believing that it would be imprudent to drive the ultra- rightists underground. If the NPD were to score impressive new successes in future elections, however, the resulting concern in the major parties might prompt a reconsideration of this policy. Interior Minister Luecke favors banning the party as soon as enough evidence can be obtained to assure successful court action. It is also possible that new NPD gains would motivate the established parties to make pro- posed changes in the electoral law that would make it more dif- ficult for the NPD to obtain Bundestag representation.
 

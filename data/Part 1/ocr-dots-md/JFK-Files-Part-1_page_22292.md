@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22292.png
-
-Convert to Markdown- He said that during the five or six years he handled them, he never was at their homes, never met them in a safehouse (only on the street), and never met either of them alone without the other's presence.
+- He said that during the five or six years he handled them, he never was at their homes, never met them in a safehouse (only on the street), and never met either of them alone without the other's presence.
 
 - He did not know about VOLKOV'S and YEFREMOV'S encounters with and development of one Dutch and five other Americans, independently known to CIA. Of the Americans, three were CIA agents and a fourth was the well-known American diplomat and author Charles W. THAYER.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1950.png
-
-Convert to Markdown<table><thead><tr><th>TRANSMIT VIA:</th><th>PRECEDENCE:</th><th>CLASSIFICATION:</th></tr></thead><tbody><tr><td>☐ Teletype</td><td>☐ Immediate</td><td>☐ TOP SECRET</td></tr><tr><td>☐ Facsimile</td><td>☐ Priority</td><td>☐ SECRET</td></tr><tr><td>☑ Airtel</td><td>☐ Routine</td><td>☐ CONFIDENTIAL<br/>☐ EFTO<br/>☐ CLEAR</td></tr></tbody></table>
+<table><thead><tr><th>TRANSMIT VIA:</th><th>PRECEDENCE:</th><th>CLASSIFICATION:</th></tr></thead><tbody><tr><td>☐ Teletype</td><td>☐ Immediate</td><td>☐ TOP SECRET</td></tr><tr><td>☐ Facsimile</td><td>☐ Priority</td><td>☐ SECRET</td></tr><tr><td>☑ Airtel</td><td>☐ Routine</td><td>☐ CONFIDENTIAL<br/>☐ EFTO<br/>☐ CLEAR</td></tr></tbody></table>
 
 Date 1/23/78
 

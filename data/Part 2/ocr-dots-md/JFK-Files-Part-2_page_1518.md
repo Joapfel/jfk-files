@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1518.png
-
-Convert to MarkdownSECRET
+SECRET
 
 This document consists of 1 page, No. 1 of 3 copies, Series A.
 

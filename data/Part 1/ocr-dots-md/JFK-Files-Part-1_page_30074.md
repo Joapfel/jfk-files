@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30074.png
-
-Convert to MarkdownPLEASE BE SURE TO READ ATTACHED INSTRUCTIONS BEFORE COMPLETING ITEM 19
+PLEASE BE SURE TO READ ATTACHED INSTRUCTIONS BEFORE COMPLETING ITEM 19
 
 <table><tr><td>May inquiry be made of your present employer regarding your character, qualifications, and reason for employment? [ ] Yes [x] No</td></tr><tr><td rowspan="2">1<br/>Dates of employment (month, year)<br/>From: Unemployed To: Present Job Title and Supervisor: Number and last name of employer you supervise</td><td>[ ] Vacant [X] Full</td></tr><tr><td colspan="2"><table><tr><td>Salary or earnings<br/>Starting $ [ ] per month<br/>Present $ [ ] per month</td><td>(Combination Grade [ ] or Federal Service) [ ]<br/>Name and address of employer (form, organization, etc.) [ ]</td><td>Place of employment (City & State) [ ]<br/>Last known position of organization, department, etc. [ ]<br/>Name, title, and present address of immediate supervisor [ ]</td></tr></table></td></tr><tr><td colspan="3">Reason for wanting to leave: <u>Description of work NOT APPLICABLE</u></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr></table>
 

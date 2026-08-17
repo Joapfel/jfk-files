@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2967.png
-
-Convert to Markdownand managed to burn what files it could not ship to Key West on the attache aircraft. When they were not burning papers or smashing technical equipment, case officers were caching radios or making advance payments to agents left behind.
+and managed to burn what files it could not ship to Key West on the attache aircraft. When they were not burning papers or smashing technical equipment, case officers were caching radios or making advance payments to agents left behind.
 
 On 4 January station personnel met at the Embassy, rode in convoy to the ferry, and sailed to the States. A few, like William J. Murray, had maintained houses until the end and lost everything in them.*
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24272.png
-
-Convert to MarkdownI
+I
 
 HIGH (Dugit Span) LOW E
 

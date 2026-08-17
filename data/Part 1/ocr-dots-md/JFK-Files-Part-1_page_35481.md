@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_35481.png
-
-Convert to Markdown# Radio America
+# Radio America
 
 <table><thead><tr><th>Invoice #</th><th>Contraing</th><th>Amment</th><th>Cashier's Cloud</th></tr></thead><tbody><tr><td>64-6-2</td><td>June 64</td><td># 1589.00</td><td>pd.</td></tr><tr><td>64-7-2</td><td>July 64</td><td># 1450.00</td><td>pd.</td></tr><tr><td>64-8-2</td><td>Aug 64</td><td>$1460.50</td><td rowspan="2">#367460<br/>{<br/>pfd. $ 2,910.00</td></tr><tr><td>64-9-2</td><td>Sep 64</td><td>$1450.00</td></tr><tr><td>64-12-2</td><td>Oct/Nov 64</td><td>$1064.50</td><td>Pd#</td></tr><tr><td>65-1-2</td><td>Dec/Jan 65</td><td>$1060.50</td><td>p.d. 350892</td></tr><tr><td>65-2-2</td><td>Jun/Feb 65</td><td>$1060.50</td><td>p.d. 389048</td></tr><tr><td>—</td><td>Feb/Mar 65</td><td>—</td><td>—</td></tr><tr><td>65-4-2</td><td>Mar/Apr</td><td># 1,083.00</td><td>p.d. 393105</td></tr><tr><td>65-5-2</td><td>Cpt/May</td><td>$1,063.50</td><td>p.d. 399854</td></tr><tr><td>65-6-2</td><td>May/June</td><td># 1,012.50</td><td># 4,05702</td></tr><tr><td>65-7-2</td><td>June/July</td><td>$1,612.50</td><td>#</td></tr><tr><td>65-8-2</td><td>July/August</td><td>$ 270.50</td><td>#</td></tr></tbody></table>

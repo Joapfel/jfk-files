@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12658.png
-
-Convert to MarkdownSECTION 87. SECURITY INVESTIGATION
+SECTION 87. SECURITY INVESTIGATION
 
 movement, or (b) impairment of military strength of U. S. or its industrial capacity to furnish logistical support required by its armed forces. Provided, however, that any labor organization which is affiliate in good standing of national federation or other labor organizations whose policies and activities have been directed to opposing communist organizations, communist foreign government, or world communist movement shall be presumed prima facie not to be communist-infiltrated organization.
 

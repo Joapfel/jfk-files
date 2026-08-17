@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11050.png
-
-Convert to MarkdownGarcía, Antonio (Lara)
+García, Antonio (Lara)
 
 13 July 62
 

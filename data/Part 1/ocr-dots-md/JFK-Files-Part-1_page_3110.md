@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3110.png
-
-Convert to MarkdownRECORD COPY T
+RECORD COPY T
 
 <table><tr><td>STAFF</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
 

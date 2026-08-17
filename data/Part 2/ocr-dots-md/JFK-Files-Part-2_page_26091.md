@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_26091.png
-
-Convert to Markdownis with a rather substantial commitment of U.S. troops. Is that . . . O
+is with a rather substantial commitment of U.S. troops. Is that . . . O
 
 LANSDALE: Yes, there was some. Now where. . . Hmm, there was some, and I can't remember just where it was coming from. This was one of the things, that Diem asked me when I saw him. He asked me if he should ask for U.S. troops, and I said, "Do you need them?" He said, "I asked you a question," and I said, "Well, I'm asking you a very legitimate question on this thing," and I said, "Are you ready to admit that you have so lost control of your situation that you can't cope with it here?" And I said, "You'd have to do that before you ever turn around and ask for American troops in here." And he said, "No, we can still handle things, and you've answered my question, so apparently he didn't ask. There have been some conversations, going on -I'm sure- with some of the Americans before, that would be my guess on this thing because he didn't say, "What do you think of [that]?" Is there anything, or "should I ask?" which was sort of like somebody had recommended this at some point, and I

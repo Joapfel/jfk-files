@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2647.png
-
-Convert to Markdown1 great controversy exists, and where you are almost inevitably
+1 great controversy exists, and where you are almost inevitably
 2 going to be subjected to fierce criticism in the future, no
 3 matter how you do it. Once you get into politics, you get
 4 into trouble.

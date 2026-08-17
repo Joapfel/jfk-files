@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11205.png
-
-Convert to Markdown(b) Contacts during investigation
+(b) Contacts during investigation
 
 I. Once Bureau authority is granted to conduct the in-
 vestigation, it is permissible to contact:

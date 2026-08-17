@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19395.png
-
-Convert to MarkdownSL 100-20923
+SL 100-20923
 
 St. Louis has not attempted to characterize any of the names listed on printed flyer that is a part of the LHM. The names written in after St. Louis delegation are not known to have subversive connections, although they are associated with peace and anti-Vietnam activities.
 

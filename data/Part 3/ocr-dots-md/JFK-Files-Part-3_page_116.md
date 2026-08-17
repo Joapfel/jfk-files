@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_116.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 A leaflet entitled "Call...to Progressive-Minded America Announcing the Holding of a Conference Preliminary to the Founding Convention of a New, American Labor-Negro Vanguard Party" in November, 1961, was sent anonymously by the Newark Office to Communist Party (CP) officials throughout the country. The aim was to hinder the formation of the American Labor-Negro Vanguard Party (ALNVP) which was a project of the Harriet-Tubman Section which had already been expelled from the Communist Party, USA (CPUSA). It was also to make the Harriet-Tubman Section appear as a provocative agent of the FBI trying to raid the CPUSA of its membership and financial support.
 

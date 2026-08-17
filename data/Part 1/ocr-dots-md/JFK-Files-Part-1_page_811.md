@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_811.png
-
-Convert to MarkdownINFORMATION REPORT INFORMATION REPORT
+INFORMATION REPORT INFORMATION REPORT
 CENTRAL INTELLIGENCE AGENCY
 
 This material contains information affecting the National Defense of the United States within the meaning of the Espenoga Laws, Title 18, U.S.C. Secs. 793 and 794, The transmission or revelation of which in any manner to an unauthorized person is prohibited by law.

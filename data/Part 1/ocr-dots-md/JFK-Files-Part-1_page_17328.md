@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17328.png
-
-Convert to MarkdownPRODUCTION - JULY 1963
+PRODUCTION - JULY 1963
 
 | MEXIs | HMMAs | HMMs |
 |---|---|---|

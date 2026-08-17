@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17660.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 A major thrust of Professor Elliff's paper concerned FBI authority
 derived from legislative enactments as opposed to that derived from Presidential

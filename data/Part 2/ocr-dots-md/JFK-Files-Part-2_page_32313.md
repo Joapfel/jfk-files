@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32313.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SAOGC/LtColHaig/lc/59856/18Dec63
 

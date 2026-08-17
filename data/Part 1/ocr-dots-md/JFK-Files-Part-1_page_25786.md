@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25786.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr><tr><td>DATE : 4/1 MM/MCB/861</td><td>S E C R E T</td></tr></thead><tbody><tr><td>TO : DIRECTOR</td><td></td></tr><tr><td>FROM : MEXICO CITY</td><td></td></tr><tr><td>ACTION: WH 5</td><td></td></tr><tr><td>INFO : CI, CI/OPS, S/C 2</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr><tr><td>DATE : 4/1 MM/MCB/861</td><td>S E C R E T</td></tr></thead><tbody><tr><td>TO : DIRECTOR</td><td></td></tr><tr><td>FROM : MEXICO CITY</td><td></td></tr><tr><td>ACTION: WH 5</td><td></td></tr><tr><td>INFO : CI, CI/OPS, S/C 2</td><td></td></tr></tbody></table>
 
 | TO | DIR | INFO | CTE |
 |---|---|---|---|

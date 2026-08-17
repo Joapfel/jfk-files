@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21696.png
-
-Convert to Markdownresponded in the negative to a question regarding sexual
+responded in the negative to a question regarding sexual
 relations with his maid. The future of NOSENKO to re-
 port on this relationship can be ascribed to ignorance,
 but also can be plausibly explained by faulty memory on

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11563.png
-
-Convert to Markdown<table><tr><td>FORM<br/>8-64<br/>·401</td><td>53a</td><td>USE PREVIOUS EDITION</td></tr></table>
+<table><tr><td>FORM<br/>8-64<br/>·401</td><td>53a</td><td>USE PREVIOUS EDITION</td></tr></table>
 
 SECRET/RYBAT
 

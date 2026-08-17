@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13287.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>Assa. the</td>
   </tr>

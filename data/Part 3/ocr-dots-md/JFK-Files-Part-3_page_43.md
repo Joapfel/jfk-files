@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_43.png
-
-Convert to MarkdownSo, she said, they all got to alliterate. In Department Children is also — including Ramirez himself — who, for antisemitic reasons, hasn't been able to require welfare aid himself; although, he suffers from a severelyarthritic back. Lately, too, he suffered, he's been suffering from a finger that was half cut off the other night in a bar fight.
+So, she said, they all got to alliterate. In Department Children is also — including Ramirez himself — who, for antisemitic reasons, hasn't been able to require welfare aid himself; although, he suffers from a severelyarthritic back. Lately, too, he suffered, he's been suffering from a finger that was half cut off the other night in a bar fight.
 
 "The guy really had some real of teeth," he chuckled, relishing the memory of "the little squabble."
 

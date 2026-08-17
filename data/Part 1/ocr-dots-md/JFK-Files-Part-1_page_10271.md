@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10271.png
-
-Convert to Markdown5 E C 2 2 7
+5 E C 2 2 7
 
 MEMORANDUM OF ORAL COMMITMENTS
 

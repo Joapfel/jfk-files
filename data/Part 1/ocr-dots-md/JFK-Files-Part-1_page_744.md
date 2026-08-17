@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_744.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>SECRET</td><td>HMA-34792</td></tr></table>
 

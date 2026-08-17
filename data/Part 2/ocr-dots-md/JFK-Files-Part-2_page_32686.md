@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32686.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. The vital Panama Canal could be the target for sneak raids originating from Cuba.
 

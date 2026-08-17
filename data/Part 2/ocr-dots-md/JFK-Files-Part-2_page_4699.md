@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4699.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: Yes. As I say that began in '72 right after the election.
 Nixon had his own raid but that is another story. But there was when

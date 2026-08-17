@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34304.png
-
-Convert to MarkdownUR
+UR
 
 MOVIMIENTO UNIDAD REVOLUCIONARIA
 

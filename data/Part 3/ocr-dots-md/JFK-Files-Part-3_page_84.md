@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_84.png
-
-Convert to MarkdownSECRET
+SECRET
 
 YEMEN
 Legation of Yemen

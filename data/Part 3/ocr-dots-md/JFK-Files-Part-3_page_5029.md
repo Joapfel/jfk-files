@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5029.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">FBI</th></tr></thead><tbody><tr><td>Date:</td><td>5/21/65</td></tr><tr><td>Transmit the following in</td><td>(Type in plain text or code)</td></tr><tr><td>Via</td><td>AIRTEL</td></tr><tr><td></td><td>AIRMAIL<br/>(Priority)</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">FBI</th></tr></thead><tbody><tr><td>Date:</td><td>5/21/65</td></tr><tr><td>Transmit the following in</td><td>(Type in plain text or code)</td></tr><tr><td>Via</td><td>AIRTEL</td></tr><tr><td></td><td>AIRMAIL<br/>(Priority)</td></tr></tbody></table>
 
 **TO:** DIRECTOR, FBI (44-28601)
 

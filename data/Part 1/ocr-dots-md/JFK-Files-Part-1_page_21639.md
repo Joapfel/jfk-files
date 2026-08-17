@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21639.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The effectiveness or non-effectiveness of NOSENKO during his
 assignment to the First Section, First Department, from mid-March

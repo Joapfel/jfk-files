@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10416.png
-
-Convert to Markdown--that the responsibility for the
+--that the responsibility for the
 production of intelligence related to
 internal security rests with the FBI; and
 

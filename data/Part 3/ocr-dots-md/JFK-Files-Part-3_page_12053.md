@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12053.png
-
-Convert to Markdown# ADMINISTRATIVE MEMORANDUM
+# ADMINISTRATIVE MEMORANDUM
 ## COVERAGE OF KNOWN MEET AREAS - (COKMA) PROGRAM
 
 Section Chief W. A. Branigan

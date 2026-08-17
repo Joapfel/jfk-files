@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1964.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 can be determined, ~~"fronted"~~ for all arrangements.
 

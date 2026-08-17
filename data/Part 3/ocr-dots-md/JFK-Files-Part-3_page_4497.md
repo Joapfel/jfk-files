@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4497.png
-
-Convert to Markdown3
+3
 SC 87-174
 
 located directly east, and adjacent to the Sears Roebuck & Company store. The Beauty Shop operator-landlady was a close friend of the mother of MITCHELL and was acquainted with WALLS.

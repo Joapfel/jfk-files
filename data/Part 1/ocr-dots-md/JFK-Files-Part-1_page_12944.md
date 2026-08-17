@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12944.png
-
-Convert to MarkdownBIOGRAPHIC DATA
+BIOGRAPHIC DATA
 
 NAME Luis Clemente FOSADA Carriles
 DOB 15 February 1923 - Cuba

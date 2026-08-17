@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33950.png
-
-Convert to Markdownhe could and that, meanwhile, he - Bruckner - would be glad to start preliminary discussions.
+he could and that, meanwhile, he - Bruckner - would be glad to start preliminary discussions.
 
 Again, I placed . somewhat sinister interpretation on what appeared to be a chronic tendency on the part of the German officials authorized to negotiate with us to be absent whenever we put in an appearance for the purpose of negotiating with them. My pessimism was increased by the very rigid and uncooperative attitude of Bruckner, although I realized that having no authority and probably having been insufficiently briefed he was, naturally, keeping his neck well within the protection of his collar. In any case, he brought up some of the stickiest questions connected with our operation, talked of parliamentary interpellations, of the responsibility of the German authorities for anything broadcast from German soil, of the importance of German participation in determining program content, of the dangers of arousing refugee antagonism, and so on and so forth.
 

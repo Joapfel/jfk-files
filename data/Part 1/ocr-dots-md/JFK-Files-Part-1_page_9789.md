@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9789.png
-
-Convert to Markdown<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th></th><th>CLASSIFICATION</th><th>DATE</th></tr></thead><tbody><tr><td colspan="2">S E C R E T V</td><td>HMMA - 34531</td><td>4-00000</td></tr></tbody></table>
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th></th><th>CLASSIFICATION</th><th>DATE</th></tr></thead><tbody><tr><td colspan="2">S E C R E T V</td><td>HMMA - 34531</td><td>4-00000</td></tr></tbody></table>
 
 2. According to reports submitted to Wallace B. ROWTON by LIRING-3, the latter set Carlos Manuel Persaval Marcue originally through the latter's sister-in-law, Carmelo Lozada de Ramirez, who had been carrying on an extra-marital affair with LIRING-3 since early November 1967. On the evening of 3 March 1968, Persaval approached LIRING-3 in connection with the difficulties that a young Guatemalan woman living in Mexico City was having in obtaining false documentation to enable her to travel to Guatemala to recontact her husband, whom Persaval described as "an important guerrilla leader". Persaval revealed to LIRING-3 that he had been assisting the FAR in propaganda work in Mexico for some time and gave LIRING-3 several copies of a pamphlet entitled "Violencia en Guatemala" which Persaval said had been published on one of his uncle's presses and was being sold at the nominal price of three Mexican pesos to help raise money for the FAR.
 

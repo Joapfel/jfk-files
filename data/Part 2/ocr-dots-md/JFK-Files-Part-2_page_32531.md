@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32531.png
-
-Convert to Markdown4. Control of Transfer of Funds
+4. Control of Transfer of Funds
 
 Department of State
 

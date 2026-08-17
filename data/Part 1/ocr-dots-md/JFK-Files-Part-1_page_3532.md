@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3532.png
-
-Convert to MarkdownCONTINUATION OF
+CONTINUATION OF
 DISPATCH
 
 SEC 2/74

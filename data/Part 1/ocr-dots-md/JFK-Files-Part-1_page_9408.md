@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9408.png
-
-Convert to MarkdownMr. Martin K. Williams
+Mr. Martin K. Williams
 
 June 16, 1950
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1653.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 SUBJECT: Philip Burnett Franklin Agee
 

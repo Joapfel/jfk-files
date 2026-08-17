@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14091.png
-
-Convert to Markdown- 21 -
+- 21 -
 
 fact take one step back and two steps forward, and hold on to
 the Cuba real estate as a propaganda and insurgency base,

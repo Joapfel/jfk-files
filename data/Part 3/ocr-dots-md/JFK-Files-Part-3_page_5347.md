@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5347.png
-
-Convert to MarkdownU. S. DEPARTMENT OF JUSTICE
+U. S. DEPARTMENT OF JUSTICE
 FEDERAL BUREAU OF INVESTIGATION
 
 In Reply, Please Refer to

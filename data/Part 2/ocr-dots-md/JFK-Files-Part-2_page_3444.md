@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3444.png
-
 s and a Secretariat) the Staff was composed of seven "Divisions" and four "Groups."]
 
 For fiscal year 1958 the CI Staff budget was $1,650,000. The sum of $1,800,000 was allotted for Fiscal Year 1959, and $2,060,000 was to be requested for 1960. Specific figures were quoted in the appropriate sections for projects or support, such as travel. Otherwise the budget was almost solely for salaries of Staff personnel.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_240.png
-
-Convert to Markdown1. OTWIN
+1. OTWIN
 
 2. WIROQUE
 

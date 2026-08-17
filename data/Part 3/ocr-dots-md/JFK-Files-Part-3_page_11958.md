@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11958.png
-
-Convert to Markdown4-H
+4-H
 
 possibly utilize sodium pentothal (truth serum) on all Klan officers and members to ferret out FBI informants. As a result, we recently furnished reliable news sources with information in belief that public exposure will deter considerably from any future enactment of these plans. It is too early to determine results of this move at this time.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3275.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 probable success of any purely clandestine paramili-
 tary operations." Cabell then introduced a suggestion

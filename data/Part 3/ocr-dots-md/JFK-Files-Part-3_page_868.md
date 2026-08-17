@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_868.png
-
-Convert to Markdowninvestigation was initiated and a second electronic surveillance revealed the Al Fatah leader had reentered the United States using a variation of his family name. This information enabled his arrest by the Immigration and Naturalization Service.
+investigation was initiated and a second electronic surveillance revealed the Al Fatah leader had reentered the United States using a variation of his family name. This information enabled his arrest by the Immigration and Naturalization Service.
 
 ## B. Domestic
 

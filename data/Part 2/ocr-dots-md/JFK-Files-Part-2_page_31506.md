@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31506.png
-
-Convert to Markdown# "NATIONAL GUARDIAN"
+# "NATIONAL GUARDIAN"
 
 The Guide to Subversive Organizations and Publications, revised and published December 1, 1961, prepared and released by the Committee on Un-American Activities, United States House of Representatives, contains the following on Page 193 concerning "National Guardian:"
 

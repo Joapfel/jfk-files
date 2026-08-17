@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12068.png
-
-Convert to Markdown3.
+3.
 
 SECRET
 Authorized Staff only

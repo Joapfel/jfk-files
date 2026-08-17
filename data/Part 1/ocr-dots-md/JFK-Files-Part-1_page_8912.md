@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8912.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">30 SECRET</th><th>ROUTING</th></tr></thead><tbody><tr><td rowspan="3">TO : DIRECTOR<br>FROM : MEXICO CITY<br>ACTION: WH 8<br>INFO : CA 2, CA/PES, CA/0 4, CI/GA, VR</td><td></td><td>1 4</td></tr><tr><td>207-953203</td><td>5</td></tr><tr><td></td><td>6</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">30 SECRET</th><th>ROUTING</th></tr></thead><tbody><tr><td rowspan="3">TO : DIRECTOR<br>FROM : MEXICO CITY<br>ACTION: WH 8<br>INFO : CA 2, CA/PES, CA/0 4, CI/GA, VR</td><td></td><td>1 4</td></tr><tr><td>207-953203</td><td>5</td></tr><tr><td></td><td>6</td></tr></tbody></table>
 
 SECRET !12013Z
 

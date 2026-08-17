@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21019.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MM T-2, advised that ALBERTO BAYO, JR., director of Air Fumigation, Mariana, Havana, Cuba, revealed in early August, 1959 that "Nene" MENDIZABAL, subsequently identified as MARIA JOSEFA MENDIZABAL ARVIER, was sent on a delicate mission to Miami, and that in fifteen days, there would be an announcement in the press about PEREZ JIMENEZ. MM T-2 advised that he observed the subject in the office of ALBERTO BAYO, JR. on three occasions.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32095.png
-
-Convert to Markdown<table><tr><td style="vertical-align: top; padding-right: 20px;"><table><tr><td colspan="3" style="text-align:center; font-weight:bold;">SECRET</td></tr><tr><td colspan="3" style="text-align:center;">ELECTION, DECLINATION, OR WAIVER<br>OF LIFE INSURANCE COVERAGE<br>FEDERAL EMPLOYEES GROUP LIFE INSURANCE PROGRAM</td></tr></table></td><td style="vertical-align: top;"><div style="padding-left:15px;">IMPORTANT<br>AGENCY INSTRUCTIONS<br>ON BACK OF ORIGINAL</div><hr style="border-top:1px solid black; margin-top:5px; margin-bottom:15px;"></td></tr></table>
+<table><tr><td style="vertical-align: top; padding-right: 20px;"><table><tr><td colspan="3" style="text-align:center; font-weight:bold;">SECRET</td></tr><tr><td colspan="3" style="text-align:center;">ELECTION, DECLINATION, OR WAIVER<br>OF LIFE INSURANCE COVERAGE<br>FEDERAL EMPLOYEES GROUP LIFE INSURANCE PROGRAM</td></tr></table></td><td style="vertical-align: top;"><div style="padding-left:15px;">IMPORTANT<br>AGENCY INSTRUCTIONS<br>ON BACK OF ORIGINAL</div><hr style="border-top:1px solid black; margin-top:5px; margin-bottom:15px;"></td></tr></table>
 
 **TO COMPLETE THIS FORM-**
 

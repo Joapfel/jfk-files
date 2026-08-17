@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27541.png
-
-Convert to MarkdownRESUME ROUTING FORM
+RESUME ROUTING FORM
 
 <table><tr><td>SACKSON</td></tr><tr><td>SECRETARY</td></tr></table>
 

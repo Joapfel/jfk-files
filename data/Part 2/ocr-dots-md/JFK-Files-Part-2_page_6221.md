@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6221.png
-
-Convert to MarkdownC. To the extent that there were any backchannel communications for the time periods 27 Sept - 16 Oct 1963 and 22 Nov - 30 Nov 1963 (other than those currently contained in the JFK Collection), please make such records available for review.
+C. To the extent that there were any backchannel communications for the time periods 27 Sept - 16 Oct 1963 and 22 Nov - 30 Nov 1963 (other than those currently contained in the JFK Collection), please make such records available for review.
 
 Why has it been so difficult to answer these questions?
 

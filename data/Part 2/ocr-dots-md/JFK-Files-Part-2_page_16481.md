@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16481.png
-
-Convert to MarkdownA revolutionary must realize at if he is sincere, death is imminent due to the fact that the things he is saying and doing are extremely dangerous. Without this realization, it is impossible to proceed as a revolutionary. The masses are constantly looking for a guide, a Messiah, to liberate them from the hands of the oppressor. The vanguard party must exemplify the characteristics of worthy leadership. Millions and millions of oppressed people might not know members of the vanguard party
+A revolutionary must realize at if he is sincere, death is imminent due to the fact that the things he is saying and doing are extremely dangerous. Without this realization, it is impossible to proceed as a revolutionary. The masses are constantly looking for a guide, a Messiah, to liberate them from the hands of the oppressor. The vanguard party must exemplify the characteristics of worthy leadership. Millions and millions of oppressed people might not know members of the vanguard party
 
 personally or directly, but they will gain through an in-
 direct acquaintance the proper strategy for liberation via

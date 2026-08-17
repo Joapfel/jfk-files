@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30668.png
-
-Convert to Markdown# MEMORANDUM in Lieu of Fitness Report
+# MEMORANDUM in Lieu of Fitness Report
 
 SUBJECT: Newton Scott MILER
 (1 April 1969 - 31 March 1970)

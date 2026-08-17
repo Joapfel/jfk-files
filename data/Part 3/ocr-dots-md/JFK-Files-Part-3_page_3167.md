@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3167.png
-
-Convert to Markdown1779
+1779
 
 1. country, if we don't stop these bombings, if somebody doesn't
 2. do something about it this country is in trouble. Is that the

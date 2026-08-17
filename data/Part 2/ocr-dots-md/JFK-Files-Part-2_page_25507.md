@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25507.png
-
-Convert to MarkdownML: Yeah.
+ML: Yeah.
 
 FS: And I believe we met at the Riviera Hotel in the lobby?
 

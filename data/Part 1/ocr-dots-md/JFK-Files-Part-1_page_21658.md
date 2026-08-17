@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21658.png
-
-Convert to Markdownhand, according to NOSENKO, the principal reason for his being assigned
+hand, according to NOSENKO, the principal reason for his being assigned
 to the First Section was to concentrate on a new area of emphasis (code
 clerks). There could of course have been no specific predecessor for
 a substantively new area. Therefore, in one sense BANHVALOV was

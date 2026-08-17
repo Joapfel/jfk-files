@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14315.png
-
-Convert to Markdown# Meeting of March 8-9, 1963
+# Meeting of March 8-9, 1963
 
 In the course of this Board meeting the only consideration of any significance given to covert action matters was in connection with the visit of the DCI for a discussion of intelligence-related problems with members of the Board. The DCI, Mr. McCone, mentioned that CIA had traditionally carried out activities in the paramilitary field; however, the Department of Defense now has Special Forces operating in the paramilitary field in South Vietnam and elsewhere, which has resulted in conflicts between the CIA and DOD elements in those areas.
 

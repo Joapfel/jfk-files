@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31106.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① FBI, 16 July 1959, (New York) S: Ante-Yidel Castro Activation
 ② FBI, 22 Oct 1959, #105-1891 (Miami) S: Francisco Rodriguez Tamayo (FRT)

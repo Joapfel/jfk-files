@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24946.png
-
-Convert to Markdownhe was not awaiting any further "go signal" in order to proceed
+he was not awaiting any further "go signal" in order to proceed
 with the assassination operation.
 
 COS said that Gottlieb told him that there was to be no connection with the United States if the biological agents were to be employed. COS had an asset in the Congo that he considered for use as an intermediary in this project, although he never moved forward to make the asset knowledgeable of the project. COS said that, whether or not he used an intermediary to accomplish the assassination, Gottlieb made it clear that "I was to do it or find a way to do it."

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34464.png
-
-Convert to Markdown# EMERGENCY INSTRUCTIONS
+# EMERGENCY INSTRUCTIONS
 (Continued)
 
 of his absence, should be immediately notified and advice obtained as to any emergency action which should be taken pending his arrival. Likewise, the SAC or ASAC/EDP should be notified immediately after talking to the doctor in order that he might be apprised of the situation and any instructions or treatment prescribed by the doctor. Regardless of any instructions given by the doctor, no action shall be taken to remove the SUBJECT from the premises or to communicate with any hospital or ambulance service without the prior authorization of the SAC or ASAC.

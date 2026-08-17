@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10059.png
-
-Convert to Markdown# SSC REQUEST 1-19-76
+# SSC REQUEST 1-19-76
 
 ## Item 6
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25237.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td></td><td>DATES:</td><td>CATEGORIES:</td><td></td></tr><tr><td></td><td></td><td>11/1/63</td><td>DIEM ✓</td><td></td></tr><tr><td>OCCURRENCE:</td><td colspan="4">TOP SECRET</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td></td><td>DATES:</td><td>CATEGORIES:</td><td></td></tr><tr><td></td><td></td><td>11/1/63</td><td>DIEM ✓</td><td></td></tr><tr><td>OCCURRENCE:</td><td colspan="4">TOP SECRET</td></tr></table>
 
 It was reported to the President prior to the actual coup being launched. Because of this, the President ordered the 41st Ranger Battalion to move into Saigon and to take the PTT and to surround the palace. This caused another stumbling block in the generals' plan. They were completely taken by surprise by this maneuver and had to negotiate with the commander of the battalion to withdraw his unit.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20862.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (When Filled In)
 
 <table><tr><td>1. NAME (Last)</td><td colspan="2">(First, Middle)</td></tr><tr><td>2. THIS DATE</td><td colspan="2">9-25-95</td></tr></table>

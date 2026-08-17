@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3137.png
-
-Convert to Markdown1749
+1749
 
 SMN 8
 

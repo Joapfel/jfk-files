@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6298.png
-
-Convert to Markdown# THE MICROFILM PORTION OF THE SEQUESTERED COLLECTION
+# THE MICROFILM PORTION OF THE SEQUESTERED COLLECTION
 
 As I noted earlier, there are approximately 72 reels of microfilm in the sequestered collection. (Incidentally, we have arranged to have all of the microfilm records printed in hard copy.)
 

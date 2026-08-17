@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8239.png
-
-Convert to Markdown# AFFILIATED COMPANIES
+# AFFILIATED COMPANIES
 
 ICAP Hellas, Ltd., 54A Queen Sophia Ave., Athens 672, Greece
 Chairman: Christopher S. Stratou, Former Minister of Communications and Minister of Education; Vice-Chairman, Hellenic Association of Manufacturers

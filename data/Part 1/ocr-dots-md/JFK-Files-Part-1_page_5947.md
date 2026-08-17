@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_5947.png
-
 to seat two passengers in the
 aircraft lounge and he would accept full responsibility for it. This
 is somewhat touchy in the airlines business as lounge seats have no

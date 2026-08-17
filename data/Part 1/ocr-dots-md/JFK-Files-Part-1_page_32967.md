@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32967.png
-
-Convert to Markdown<table><tr><td colspan="4">SECRET</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td colspan="3"></td></tr><tr><td>ADVANCE COPY</td><td></td><td>UNIT</td><td>TIME</td></tr><tr><td>☐ ISSUED</td><td>☐ LOST</td><td>☐ DUE</td><td>BY</td></tr></table>
+<table><tr><td colspan="4">SECRET</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td colspan="3"></td></tr><tr><td>ADVANCE COPY</td><td></td><td>UNIT</td><td>TIME</td></tr><tr><td>☐ ISSUED</td><td>☐ LOST</td><td>☐ DUE</td><td>BY</td></tr></table>
 
 AMICE-14
 3/26/87

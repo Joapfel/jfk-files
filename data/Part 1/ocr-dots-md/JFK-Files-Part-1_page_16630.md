@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16630.png
-
-Convert to MarkdownSECRET
+SECRET
 NO FOREIGN DISSEM
 
 COUNTRY Cuba

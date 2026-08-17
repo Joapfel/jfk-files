@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31025.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Only 1 copy of a 201 file; may be a working field copy
 

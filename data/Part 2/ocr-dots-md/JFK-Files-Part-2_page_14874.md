@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14874.png
-
-Convert to MarkdownDomestic Intelligence Division
+Domestic Intelligence Division
 
 and nonsensitive areas. This is still an undecided issue although several bills have been introduced into Congress to remove the distinction between sensitive and nonsensitive areas of Federal employment. Undoubtedly, the Greene decision in the Supreme Court carrying the strong inference that confrontation is necessary in security-type hearings has slowed up consideration of legislation in this field by the Department. This is essentially a Departmental problem and we feel the Bureau's position again should be that the Department should meet these issues rather than coast along in a state of indecision.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5390.png
-
-Convert to Markdown(1) The Director of the Federal Bureau of Investigation, if the demand is one made on an employee or former employee of that Bureau for information or if the demand calls for the production of material from the files of that Bureau, and
+(1) The Director of the Federal Bureau of Investigation, if the demand is one made on an employee or former employee of that Bureau for information or if the demand calls for the production of material from the files of that Bureau, and
 
 (ii) The Director of the Bureau of Prisons, if the demand is one made on an employee or former employee of that Bureau for information or if the demand calls for the production of material from the files of that Bureau.
 

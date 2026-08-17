@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13145.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Dear friend Palo,
 

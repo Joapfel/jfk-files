@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31471.png
-
-Convert to MarkdownNATIONAL LAWYERS GUILD
+NATIONAL LAWYERS GUILD
 SAN FRANCISCO CHAPTER
 
 A source advised on April 19, 1962, that the San Francisco Chapter of the National Lawyers Guild, which is affiliated with the National Lawyers Guild and follows its policies and directives, was organized in the Summer of 1937, and is currently active in San Francisco, California.

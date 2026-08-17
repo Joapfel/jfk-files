@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16360.png
-
-Convert to Markdown**CLASSIFIED: MESSAGE**
+**CLASSIFIED: MESSAGE**
 
 7. OND: [STEPHEN I. MUELLER](https://wwwenkennedy.org/stephen-i-mueller) UNIT: DC/AR/F/M DATE: 21 AUCHEF 1963
 

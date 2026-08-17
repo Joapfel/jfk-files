@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32642.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Morais, had a flat tire on 14 December. When a police patrol stopped to investigate, they found he was carrying a number of rifles in his car.
 

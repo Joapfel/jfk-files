@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3129.png
-
-Convert to Markdown1741
+1741
 
 1. might have been the real motive or the possible motive, I again feel, because of reasons of privacy and delicacy, are not a proper subject of discussion at a public hearing.
 2.

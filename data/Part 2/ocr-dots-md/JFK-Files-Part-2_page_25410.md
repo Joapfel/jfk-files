@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25410.png
-
-Convert to MarkdownMM 105-1742
+MM 105-1742
 
 information concerning the Commandos Mambises or their
 spokesman, RAZAEL MARTINEZ PUPO, who made a statement in

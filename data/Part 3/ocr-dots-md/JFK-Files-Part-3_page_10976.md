@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10976.png
-
-Convert to Markdown# Relations with Other Agencies
+# Relations with Other Agencies
 
 If this program is adopted, other intelligence agencies would be officially apprised of the Presidential authority granted to the FBI to collect foreign intelligence in the United States. Other agencies would be informed regarding the nature and the extent of the authority being delegated to the Bureau. It would be necessary to make clear that the Bureau was not assuming responsibility for the clandestine collection of all foreign intelligence in the United States, but we were taking a constructive step in an effort to increase the production of foreign intelligence through assets available to us. We would clearly point out that the FBI was not taking this approach as a solution to all of the problems relating to foreign intelligence collection in this country. We would emphasize that we would move against targets in line with established priorities and that we would do so on a selective basis. We would have it understood that operational activities would be properly coordinated wherever it was obviously necessary.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13954.png
-
-Convert to Markdowncollection and processing of Electronics Intelligence (ELINT) done by military intelligence elements within the Department of Defense; (5) a realistic re-examination of the system followed by the U. S. Intelligence Board in levying intelligence collection requirements upon the NSA; and (6) support by the Defense Department to meet such vital needs of NSA as ship-borne intercept stations, and equipment for intercept coverage of submarines and critical land areas, in order to meet national as distinct from purely military requirements.
+collection and processing of Electronics Intelligence (ELINT) done by military intelligence elements within the Department of Defense; (5) a realistic re-examination of the system followed by the U. S. Intelligence Board in levying intelligence collection requirements upon the NSA; and (6) support by the Defense Department to meet such vital needs of NSA as ship-borne intercept stations, and equipment for intercept coverage of submarines and critical land areas, in order to meet national as distinct from purely military requirements.
 
 **Rec. #6:** That the President support the Secretary of Defense in a reorganization of Defense Department intelligence activities through the establishment of a Defense Intelligence Agency.
 

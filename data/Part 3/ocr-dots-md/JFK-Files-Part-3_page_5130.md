@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5130.png
-
-Convert to Markdown# Part III -- requested for delivery by August 29, 1975
+# Part III -- requested for delivery by August 29, 1975
 
 ## 1. Materials pertaining to the origins, approval, preparation, and dissemination by the Racial Reporting Unit of the Intelligence Division in 1970-71 of the following:
 

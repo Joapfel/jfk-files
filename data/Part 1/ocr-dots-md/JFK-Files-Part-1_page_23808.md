@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23808.png
-
-Convert to Markdown# Asian-African Journalists’ Association
+# Asian-African Journalists’ Association
 ## (Persanian Wartawan Asia - Afrika)
 
 Press House — Djakarta

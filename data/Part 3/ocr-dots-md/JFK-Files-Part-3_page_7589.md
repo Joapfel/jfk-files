@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7589.png
-
-Convert to MarkdownAppendix C
+Appendix C
 
 Part I
 

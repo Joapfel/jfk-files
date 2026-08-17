@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1241.png
-
-Convert to MarkdownB. E. Reichhardt
+B. E. Reichhardt
 ACMI/3
 502
 

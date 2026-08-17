@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21331.png
-
-Convert to Markdownwould also buy on the Black Market and no one would eat. Therefore the
+would also buy on the Black Market and no one would eat. Therefore the
 privileged classes can eat, and they can only do it if they have a fortune.
 They accuse the Falangist leaders and the Government of racketeering on the
 Black Market... Distance fortunes have been made in a night. They go to bed

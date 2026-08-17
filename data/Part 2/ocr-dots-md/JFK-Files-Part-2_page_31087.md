@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31087.png
-
-Convert to Markdown① Volume II August 1976 - October 1976
+① Volume II August 1976 - October 1976
 Third Agency Deletions - 10 Sealed enveloper, state & FBI
 No. Notes
 

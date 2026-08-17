@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18129.png
-
-Convert to MarkdownMemorandum to Mr. Adams from Legal Counsel
+Memorandum to Mr. Adams from Legal Counsel
 
 Re: SENSTUDY 75
 

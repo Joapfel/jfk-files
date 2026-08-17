@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4609.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 On January 24, 1961, NK T-2 advised that ANNA ARCHER, Route 36, Union Beach, New Jersey, is the subscriber to Colfax 4-2033 and that the following toll calls had been made from this number:
 

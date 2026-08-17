@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3929.png
-
-Convert to MarkdownAtt. 54 to UFGA-21693 dated
+Att. 54 to UFGA-21693 dated
 
 SUBJECT: *PERAZA (mat. unk.), Sergio UFGA - 21693/14*
 

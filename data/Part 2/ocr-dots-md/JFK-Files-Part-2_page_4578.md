@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4578.png
-
-Convert to Markdown1 January 1964
+1 January 1964
 
 <u>Paragraphs for message to DCI</u>
 

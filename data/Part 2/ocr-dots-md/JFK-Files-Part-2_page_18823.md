@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18823.png
-
-Convert to MarkdownNY 105-8180
+NY 105-8180
 
 On 4/30/57, Mr.
 

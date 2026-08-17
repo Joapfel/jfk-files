@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21220.png
-
-Convert to MarkdownNOSENKO believed the agent had travelled
+NOSENKO believed the agent had travelled
 to the USSR just prior to the protest.
 
 The translation of the name as "ECTOR"

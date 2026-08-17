@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5285.png
-
-Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+UNITED STATES DEPARTMENT OF JUSTICE
 Immigration and V. eniorization ·-Service
 
 Instructions: Any handwritten entries should be in block capital letters. All Spanish names shall be hyphenated with the father's name first and the mother's name following.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30404.png
-
-Convert to Markdown1. Mr. Goldsmith. What would your speculation be?
+1. Mr. Goldsmith. What would your speculation be?
 2. Mr. Tovar. I would speculate in the days when they were functioning they probably did. You have a very unauthoritative witness on that subject.
 5. Mr. Goldsmith. What is the relationship if any between the Office of Security and the CI Staff?
 6. Mr. Tovar. We have basically different functions. The Office of Security is under the Directorate of Administration and is responsible for the personnel and physical security of the entire division. It focuses on personnel security and physical security.

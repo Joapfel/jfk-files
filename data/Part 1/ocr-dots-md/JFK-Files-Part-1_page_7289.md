@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7289.png
-
-Convert to Markdown4.10.08 Compared to most people, does he walk
+4.10.08 Compared to most people, does he walk
 Faster ____ Slower ____ Same speed ____
 
 4.10.09 If he is out of step with you, does he notice it and get in step?

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2485.png
-
-Convert to MarkdownF. PHYSICAL SAFEGUARDS
+F. PHYSICAL SAFEGUARDS
 
 G. ACCESS CONTROL
 

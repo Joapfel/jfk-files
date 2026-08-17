@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7239.png
-
-Convert to Markdown2.
+2.
 
 Accordingly, the C/O tried to reach Subj at his office. Subj was not there so the C/O left a message to be given to Subj if he should arrive before 1500. The message was: "En el negocio con sus amigos debería hacerlo dieciseis días a todo." The message purported to come from "Sidor Berger."
 

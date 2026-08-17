@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29278.png
-
-Convert to MarkdownINS File Reviews...page 6
+INS File Reviews...page 6
 
 E. Joseph Civello (Cont'd)
 

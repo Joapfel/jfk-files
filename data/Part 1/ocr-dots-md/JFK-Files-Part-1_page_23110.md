@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23110.png
-
-Convert to MarkdownDr. F. C. Redlich
+Dr. F. C. Redlich
 
 reference to this last work, I wish to state that I have finished its
 first stage.

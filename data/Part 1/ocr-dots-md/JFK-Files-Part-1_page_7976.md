@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7976.png
-
-Convert to MarkdownVIA: A T P
+VIA: A T P
 (SPECIFY AIR OR SEA POLICY)
 
 DISPATCH NO. HKH-8-1002

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25506.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td rowspan="2">SECRET</td>
     <th colspan="4" style="text-align:center;">BOARDING AREA OF PREMISES - 5/13 BY</th>

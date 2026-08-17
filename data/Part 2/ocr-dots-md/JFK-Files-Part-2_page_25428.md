@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_25428.png
-
-Convert to MarkdownBook V, p. 30 On December 1, 1963, CIA Headquarters cabled Mexico City that a sensitive source ( ) has advised that a Cubana airlines flight to Havana was delayed in Mexico City on November 22 to pick up a passenger who rode in the cockpit without going through customs. This cable was found in Mexico City file with no CIA headquarters record of follow-up being found.
+Book V, p. 30 On December 1, 1963, CIA Headquarters cabled Mexico City that a sensitive source ( ) has advised that a Cubana airlines flight to Havana was delayed in Mexico City on November 22 to pick up a passenger who rode in the cockpit without going through customs. This cable was found in Mexico City file with no CIA headquarters record of follow-up being found.

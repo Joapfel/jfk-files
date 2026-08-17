@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13544.png
-
-Convert to Markdown6 July 1962
+6 July 1962
 
 MEMORANDUM FOR :
 

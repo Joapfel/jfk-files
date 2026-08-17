@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27376.png
-
-Convert to MarkdownMemo from Knoche to Gray - 4 Apr 75 with attachments: (CONFIDENTIAL)
+Memo from Knoche to Gray - 4 Apr 75 with attachments: (CONFIDENTIAL)
 
 A. Memo for Exec Officer, DCD from Deputy Chief, USSR-EE Br, DCD,
 Subj: Closed Case 59073 - 8 Apr 74 CONFIDENTIAL

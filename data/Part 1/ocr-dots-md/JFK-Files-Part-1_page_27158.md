@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27158.png
-
-Convert to Markdown18 U. S. C. 208 (P. L. 87-849, § 208)
+18 U. S. C. 208 (P. L. 87-849, § 208)
 
 § 208. Acts affecting a personal financial interest
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27166.png
-
-Convert to Markdown# Support Activities in the Miami Area
+# Support Activities in the Miami Area
 
 ## Communications
 

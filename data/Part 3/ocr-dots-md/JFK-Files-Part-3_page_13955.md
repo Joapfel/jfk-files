@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13955.png
-
-Convert to Markdown**Rec. #12:**
+**Rec. #12:**
 
 That the President lend his prestige (in the period of transition involving the selection of a new DCI, and related matters) to support and enhance the morale of the intelligence community, and to restore public confidence in the CIA, by: (1) a Presidential statement commending the work of those serving in our intelligence agencies; and (2) an indication by the President of appreciation for the long, distinguished and pioneering work of Allen Dulles in the foreign intelligence field.
 

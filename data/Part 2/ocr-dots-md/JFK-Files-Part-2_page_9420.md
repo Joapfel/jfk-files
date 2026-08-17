@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9420.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 BEVERLINA POWELL, financial secretary, Illinois Chapter BPP, arrived in Detroit on November 19, 1970, where she conferred with CHARLES HOLT, second in command, Detroit NCCF regarding the possibility of borrowing busses for the use of Chicago in going to the Constitutional Convention in Washington, D.C., however, none were available.
 

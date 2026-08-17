@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5552.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. SULLIVAN - MR. MOORE
 ESPIONAGE - RUSSIA

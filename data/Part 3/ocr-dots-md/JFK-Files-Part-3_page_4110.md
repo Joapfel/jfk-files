@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4110.png
-
-Convert to Markdown1 - Mr. J. B. Adams
+1 - Mr. J. B. Adams
 1 - Mr. E. W. Walsh
 
 1 - Mr. G. S. McMichael)

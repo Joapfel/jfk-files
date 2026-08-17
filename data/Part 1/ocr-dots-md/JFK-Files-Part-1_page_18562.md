@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18562.png
-
-Convert to Markdown13 November 1973
+13 November 1973
 
 MEMORANDUM FOR: Career Management Group
 Mid-Career Officer Branch

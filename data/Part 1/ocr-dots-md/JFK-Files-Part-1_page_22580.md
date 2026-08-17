@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22580.png
-
-Convert to Markdown13 March 1963
+13 March 1963
 
 MEMORANDUM FOR: Chief, Finance Division
 Chief, Staff Agent Accounts Section

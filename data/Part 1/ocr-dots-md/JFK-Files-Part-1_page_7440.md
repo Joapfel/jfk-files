@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7440.png
-
-Convert to Markdown1 Ta Yong Yi Ping Hutung
+1 Ta Yong Yi Ping Hutung
 Felping, China.
 
 Oct. 5, 1934.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33010.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9. I request authorization to commence this operation immediately with appropriate alterations as required.
 

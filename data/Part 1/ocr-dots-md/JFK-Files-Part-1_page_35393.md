@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35393.png
-
-Convert to MarkdownHe then said that he could go ahead and dissolve the Council, and let each organization go ahead and do as it pleased; that he couldn't preclude over a meaningless council; that this was not a threat, but he would step out. I reassured him that he was highly esteemed in Washington and It was necessary that he continue as head of the Council. He replied, "But they disregard me."
+He then said that he could go ahead and dissolve the Council, and let each organization go ahead and do as it pleased; that he couldn't preclude over a meaningless council; that this was not a threat, but he would step out. I reassured him that he was highly esteemed in Washington and It was necessary that he continue as head of the Council. He replied, "But they disregard me."
 
 He reiterated that he had planted four problems, none of which had been resolved; reiterated that he had planted the propaganda problem a long time ago, but that propaganda continues independent of the Council and people are sent out like those to the Congress of Students in Sao Paulo, where they repeat things like parrots which don't go with Latin American audiences.
 

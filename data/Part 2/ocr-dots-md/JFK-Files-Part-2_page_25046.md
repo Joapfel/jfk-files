@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25046.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 in mid-September of 1960?
 

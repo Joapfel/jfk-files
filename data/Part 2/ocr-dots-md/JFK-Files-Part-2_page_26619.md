@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26619.png
-
-Convert to Markdown1. South Vietnam
+1. South Vietnam
 
 a. Vietnamese Communist efforts to discredit the new Saigon regime stayed in high gear this week.
 

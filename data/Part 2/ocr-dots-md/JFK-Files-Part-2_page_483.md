@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_483.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. NEXT ROWTON JURADO MEETING WILL BE AFTERNOON 23 JULY.
 

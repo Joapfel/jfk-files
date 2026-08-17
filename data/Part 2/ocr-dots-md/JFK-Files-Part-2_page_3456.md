@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3456.png
-
-Convert to MarkdownSECRET SENSITIVE NOFORN
+SECRET SENSITIVE NOFORN
 
 1 U.S. Registered Mail/Return Receipt
 

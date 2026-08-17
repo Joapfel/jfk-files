@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7525.png
-
-Convert to Markdownthe Cuban and Bulgarian groups quartered in the same building
+the Cuban and Bulgarian groups quartered in the same building
 in Moscow. Any time the Cubans had a problem, Yuri would solve
 it for them. Yuri was a good friend of Juan (pseudo) a KGB
 officer who taught the Cubans about the Agency (CIA) and the

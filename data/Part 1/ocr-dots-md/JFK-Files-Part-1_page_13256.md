@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13256.png
-
-Convert to MarkdownCite direct:
+Cite direct:
 
 5693
 

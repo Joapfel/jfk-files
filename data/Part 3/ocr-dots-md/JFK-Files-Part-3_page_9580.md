@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9580.png
-
-Convert to Markdown# Request Pertaining to Electronic Surveillance
+# Request Pertaining to Electronic Surveillance
 
 a memorandum copy of a GTR issued 11/21/64 by Whitson to National Airlines in the sum of $107.40 for air travel from Washington, D. C., to Miami and return.
 

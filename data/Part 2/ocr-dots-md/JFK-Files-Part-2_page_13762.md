@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13762.png
-
-Convert to MarkdownSECRET
+SECRET
 
 | Subject | Principal Agency | Principal Officer | Task Force Assignments |
 |---|---|---|---|

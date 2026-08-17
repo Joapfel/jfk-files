@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20753.png
-
-Convert to MarkdownThe Women's National Abortion Action Coalition
+The Women's National Abortion Action Coalition
 
 CONFIDENTIAL
 

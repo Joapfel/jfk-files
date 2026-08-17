@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28735.png
-
-Convert to Markdown16. SOLVING PROBLEM CASES. Student pulls together all he has learned in the course and uses it in solving a job problem.
+16. SOLVING PROBLEM CASES. Student pulls together all he has learned in the course and uses it in solving a job problem.
 
 The course will be offered on a first come, first served basis. It is hoped that a number of applications will be received in time for enrollment during June.
 

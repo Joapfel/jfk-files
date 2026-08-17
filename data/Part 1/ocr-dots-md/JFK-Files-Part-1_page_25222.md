@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25222.png
-
-Convert to MarkdownMr. Foy D. KOHLER
+Mr. Foy D. KOHLER
 
 Reition (Jan 65): US Ambassador in Moscow, USSR
 

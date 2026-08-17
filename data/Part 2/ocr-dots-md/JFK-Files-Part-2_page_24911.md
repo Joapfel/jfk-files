@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24911.png
-
-Convert to Markdowntion which had continued until 1965. Helms also failed to
+tion which had continued until 1965. Helms also failed to
 inform the Warren Commission of the plots because the precise
 question was not asked.
 

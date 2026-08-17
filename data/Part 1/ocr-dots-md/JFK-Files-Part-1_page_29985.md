@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29985.png
-
-Convert to Markdown1 APR 1968
+1 APR 1968
 
 MEMORANDUM FOR: Mr. David E. Murphy
 SUBJECT : Service in the Clandestine Services Records Committee

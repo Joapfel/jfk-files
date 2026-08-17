@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8126.png
-
-Convert to MarkdownApril 14, 1975
+April 14, 1975
 
 DISSERTATION ON PROCEDURES FOR
 OPENING, CLOSING AND MAINTAINING

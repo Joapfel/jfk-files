@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6109.png
-
-Convert to Markdownof the Board will be the person who will be closely working with
+of the Board will be the person who will be closely working with
 the Executive Director. Thus, the Chair should be particularly
 involved in the selection process.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32183.png
-
-Convert to Markdown# Agency Information
+# Agency Information
 
 AGENCY : ARMY
 RECORD NUMBER : 198-10004-10076

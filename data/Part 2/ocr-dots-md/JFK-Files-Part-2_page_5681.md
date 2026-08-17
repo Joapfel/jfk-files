@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5681.png
-
-Convert to Markdown21 March 1997
+21 March 1997
 
 JFK PROJECT WORKING PAPER
 

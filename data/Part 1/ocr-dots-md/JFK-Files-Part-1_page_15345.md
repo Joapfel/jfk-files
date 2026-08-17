@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15345.png
-
-Convert to MarkdownMiami, Fla. August 23 1965
+Miami, Fla. August 23 1965
 
 Mr. Gerald Sounders
 P.O. Box 831

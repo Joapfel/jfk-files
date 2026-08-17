@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23038.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 and if you have not, you should talk to the people who ran the
 Artime operation, when this was set up, I think I participated

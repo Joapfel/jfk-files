@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9181.png
-
-Convert to Markdown19 May 1931
+19 May 1931
 
 DICK
 

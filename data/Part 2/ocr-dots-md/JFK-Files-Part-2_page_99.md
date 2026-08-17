@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_99.png
-
-Convert to Markdown32-10
+32-10
 
 Miss Joyce H. Pinedich
 

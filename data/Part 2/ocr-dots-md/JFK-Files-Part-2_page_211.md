@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_211.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>10017</td>
     <td>D VCS</td>

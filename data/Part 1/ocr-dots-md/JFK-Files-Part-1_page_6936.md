@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6936.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th>DATE</th><th>TIME</th><th>GROUP</th></tr></thead><tbody><tr><td>12-2</td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr></tbody></table>
 

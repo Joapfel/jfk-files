@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31296.png
-
-Convert to MarkdownREEVES, Floyd
+REEVES, Floyd
 
 OFFICE OF THE CLERK
 U.S. HOUSE OF REPRESENTATIVES

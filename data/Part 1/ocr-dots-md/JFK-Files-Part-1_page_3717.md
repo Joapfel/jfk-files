@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3717.png
-
-Convert to MarkdownSubject obtains the livestock from the Montura Ranch of Florida.
+Subject obtains the livestock from the Montura Ranch of Florida.
 
 c. Sales of Florida real estate.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4907.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On December 19, 1966, MM T-7 advised that NORMAN ROTHMAN represents PATSY ERRA's interest in Dean Martin's Restaurant on the 79th Street Causeway, Miami, Florida.
 

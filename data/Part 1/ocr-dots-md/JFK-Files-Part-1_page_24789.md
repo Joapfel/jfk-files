@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24789.png
-
-Convert to Markdown# 7. Termination and Extension.
+# 7. Termination and Extension.
 
 a. While TICHBORN has been available for assignments calling for his abilities as a political action advisor, the Division has not had the requirements for such activities which were anticipated. The continuing use of TICHEORN for CIA tasks of lesser priority, together with the time and travel demands of his new cover business, have kept him well occupied during the period. However, in view of the future anticipated lack of demand for TICHEORN's services on a frequent basis, and the comparatively high cost in administrative, financial, and WH case officer time required, it is felt that the project should be terminated, effective 30 September 1967.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17460.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## ORGANIZATION OF AFRO-AMERICAN UNITY, INCORPORATED (OAAU)
 

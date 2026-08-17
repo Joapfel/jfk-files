@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3108.png
-
-Convert to Markdown<table><tr><td>FD-36 (Rev. 5-22-64)</td></tr><tr><td>FBI</td></tr><tr><td>Date: MARCH 23, 1975</td></tr><tr><td>Transmit the following in CODE</td></tr><tr><td>(Type in plaintext or code)</td></tr><tr><td>Via TELETYPE</td></tr><tr><td>Priority</td></tr></table>
+<table><tr><td>FD-36 (Rev. 5-22-64)</td></tr><tr><td>FBI</td></tr><tr><td>Date: MARCH 23, 1975</td></tr><tr><td>Transmit the following in CODE</td></tr><tr><td>(Type in plaintext or code)</td></tr><tr><td>Via TELETYPE</td></tr><tr><td>Priority</td></tr></table>
 
 <table><tbody><tr><td>TO DIRECTOR<br/>FROM MIAMI (66-AOM)<br/>ATTENTION: BUDGET AND ACCOUNTING SECTION<br/>SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES.<br/><br/>RE BUREAU TELETYPE TO ALL SACS, MARCH 24, 1975.<br/><br/>FOLLOWING ARE MIAMI OFFICE STATISTICS SHOWING PERCENTAGES OF TIME ASSIGNED TO COUNTERINTELLIGENCE (CI) MATTERS AND INTERNAL SECURITY (IS) MATTERS BY SPECIAL AGENT PERSONNEL:<br/><br/>SACS - 0; ASACS - 0.<br/><br/>SUPERVISORS - CI MATTERS: ONE ASSIGNED 90 PERCENT; ONE ASSIGNED 5 PERCENT. SI MATTERS: ONE ASSIGNED 50 PERCENT; ONE ASSIGNED 5 PERCENT.<br/><br/>SPECIAL AGENTS - CI MATTERS: 15 ASSIGNED FULL TIME; TWO ASSIGNED 50 PERCENT; ONE ASSIGNED 40 PERCENT; ONE ASSIGNED 5 PERCENT. IS MATTERS: TWO ASSIGNED FULL TIME; THREE ASSIGNED 75 PERCENT; ONE ASSIGNED 60 PERCENT; ONE ASSIGNED 50 PERCENT; ONE ASSIGNED 30 PERCENT; FIVE ASSIGNED 10 PERCENT.</td></tr><tr><td>JCB/al<br/>(1)</td></tr></tbody></table>
 

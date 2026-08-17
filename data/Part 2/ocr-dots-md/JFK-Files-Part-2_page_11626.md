@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11626.png
-
-Convert to Markdownd. Each insert should be filed with the bulletin to which it relates.
+d. Each insert should be filed with the bulletin to which it relates.
 No indexing of individual notices contained therein is necessary.
 
 4. Each office must submit to the Bureau annually at least three suggestions for articles, identifying the suggested author, and briefly describing the nature of the suggested article. The article should not be prepared, submitted, or mentioned to the suggested author until the Bureau directs that it be obtained. Suggestions may cover any general or specific subject of law enforcement interest, including the following:

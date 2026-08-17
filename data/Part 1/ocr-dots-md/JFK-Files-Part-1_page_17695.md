@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17695.png
-
-Convert to Markdownd. HU-1-4463, HU-2232, HU-2276, setting forth a list of series of contacts between "Rena" KILDE, an Ethiopian student intelligence, and Morris F. KOLCHAKOV, Soviet intelligence officer.
+d. HU-1-4463, HU-2232, HU-2276, setting forth a list of series of contacts between "Rena" KILDE, an Ethiopian student intelligence, and Morris F. KOLCHAKOV, Soviet intelligence officer.
 
 e. HU-1-6744, which sets forth the history of the contacts between Heracio SUBOXAL, Order agent, and Boris P. KOLOKLAOKOV.
 

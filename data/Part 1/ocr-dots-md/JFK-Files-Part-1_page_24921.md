@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24921.png
-
-Convert to MarkdownSECRET 170105Z
+SECRET 170105Z
 
 CITE
 DIR INFO SDOM MEXI 6568

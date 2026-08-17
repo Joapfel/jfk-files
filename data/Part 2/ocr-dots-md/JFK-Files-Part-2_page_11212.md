@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11212.png
-
-Convert to Markdown**SECTION 87. SECURITY INVESTIGATIONS**
+**SECTION 87. SECURITY INVESTIGATIONS**
 
 Proof that the subject has such knowledge of the revolutionary purposes of the organization may be existed in several forms, several of which are discussed below:
 

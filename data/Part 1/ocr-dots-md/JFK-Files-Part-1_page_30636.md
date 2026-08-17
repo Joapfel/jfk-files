@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30636.png
-
-Convert to Markdown14-0000
+14-0000
 
 MEMORANDUM FOR: CHIEF, FINANCE DIVISION
 

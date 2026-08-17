@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24701.png
-
-Convert to Markdownand planning for covert operations testified that the language in
+and planning for covert operations testified that the language in
 these minutes clearly indicated that assassination was contemplated
 at the NSC as one means of eliminating Lumumba as a political
 threat; other officials testified to the contrary.

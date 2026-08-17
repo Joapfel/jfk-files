@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17087.png
-
-Convert to MarkdownARS,
+ARS,
 
 1
 

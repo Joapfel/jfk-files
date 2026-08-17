@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3854.png
-
-Convert to MarkdownHUMAN EVENTS
+HUMAN EVENTS
 
 March 1968
 

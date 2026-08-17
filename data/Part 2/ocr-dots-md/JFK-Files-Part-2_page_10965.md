@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10965.png
-
-Convert to MarkdownJanuary 27, 1967
+January 27, 1967
 
 MANUAL OF RULES AND REGULATIONS
 REVISION 174

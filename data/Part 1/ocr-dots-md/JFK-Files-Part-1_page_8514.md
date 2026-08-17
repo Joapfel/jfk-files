@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8514.png
-
-Convert to Markdown050/JF
+050/JF
 VALENTINE LOGUELOV
 
 February 7, 1963, 16:45-18:45 hours.

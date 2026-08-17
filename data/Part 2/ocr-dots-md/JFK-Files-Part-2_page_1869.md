@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1869.png
-
-Convert to Markdown<table><tr><td>FORM NO. 37-190<br/>1 MAR 84</td><td>(4)</td></tr></table>
+<table><tr><td>FORM NO. 37-190<br/>1 MAR 84</td><td>(4)</td></tr></table>
 
 # INSURANCE QUESTIONNAIRE
 

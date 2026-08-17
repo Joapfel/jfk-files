@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29054.png
-
-Convert to Markdown<table><thead><tr><th>1</th><th>2.</th><th>NAME</th><th>3</th><th>ORGANIZATION</th><th>4</th><th>FUNDS</th><th>5</th><th>LWOP HOURS</th></tr></thead><tbody><tr><td colspan="5"><b>007667 BUSTOSVIDELA C 2</b></td><td><b>51 620 CF</b></td><td colspan="2"></td></tr><tr><th rowspan="2">A<br/>Grade</th><th colspan="3">OLD SALARY RATE</th><th rowspan="2">7.<br/>Grade</th><th colspan="3">NEW SALARY RATE</th><th rowspan="2">8<br/>TYPE ACTION<br/>SI<br/>ADJ.</th></tr><tr><th>Step</th><th>Salary</th><th>Last Ill Date</th><th>Step</th><th>Salary</th><th>EFFECTIVE DATE</th></tr><tr><td>GS 13 4</td><td></td><td>$17,393</td><td>10/22/67</td><td>GS 13 5</td><td></td><td>$17,920</td><td>10/19/69</td><td></td></tr></tbody></table>
+<table><thead><tr><th>1</th><th>2.</th><th>NAME</th><th>3</th><th>ORGANIZATION</th><th>4</th><th>FUNDS</th><th>5</th><th>LWOP HOURS</th></tr></thead><tbody><tr><td colspan="5"><b>007667 BUSTOSVIDELA C 2</b></td><td><b>51 620 CF</b></td><td colspan="2"></td></tr><tr><th rowspan="2">A<br/>Grade</th><th colspan="3">OLD SALARY RATE</th><th rowspan="2">7.<br/>Grade</th><th colspan="3">NEW SALARY RATE</th><th rowspan="2">8<br/>TYPE ACTION<br/>SI<br/>ADJ.</th></tr><tr><th>Step</th><th>Salary</th><th>Last Ill Date</th><th>Step</th><th>Salary</th><th>EFFECTIVE DATE</th></tr><tr><td>GS 13 4</td><td></td><td>$17,393</td><td>10/22/67</td><td>GS 13 5</td><td></td><td>$17,920</td><td>10/19/69</td><td></td></tr></tbody></table>
 
 CERTIFICATION AND AUTHENTICATION
 

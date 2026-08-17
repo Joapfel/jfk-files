@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28984.png
-
-Convert to Markdown# SCHEDULE C
+# SCHEDULE C
 ## (Form 1040)
 Department of the Treasury
 Internal Revenue Service

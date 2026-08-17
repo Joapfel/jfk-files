@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1991.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>19. ACTION CODE</td>

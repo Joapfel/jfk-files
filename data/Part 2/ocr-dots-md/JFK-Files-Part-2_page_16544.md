@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16544.png
-
-Convert to MarkdownScars
+Scars
 
 left arm
 1/2 inch scar left wrist

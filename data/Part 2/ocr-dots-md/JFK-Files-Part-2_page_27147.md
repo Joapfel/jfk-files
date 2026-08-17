@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27147.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 8. That CIA counterintelligence liaison abroad be improved through a judicious augmentation of exchange of counterintelligence information, including penetration leads, by augmentation of U.S. capacity for leadership in dealing with the common adversary, and the expansion of the cadre of counterintelligence liaison officers abroad.
 

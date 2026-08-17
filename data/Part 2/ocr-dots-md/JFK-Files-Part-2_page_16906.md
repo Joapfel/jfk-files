@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16906.png
-
-Convert to Markdownwhich alone can show that the res-
+which alone can show that the res-
 ignible, impossible condition of bottle.
 Only a single member must be able to recognize
 and face each other. One is the enemy

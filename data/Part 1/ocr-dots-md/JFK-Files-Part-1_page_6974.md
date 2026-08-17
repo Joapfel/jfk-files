@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6974.png
-
-Convert to Markdown# SOLEMNY DECLARATION
+# SOLEMNY DECLARATION
 
 I, _______________________________, an officer of SMASOVE _______________________________, do solemnly declare,
 

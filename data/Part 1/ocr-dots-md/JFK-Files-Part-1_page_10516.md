@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10516.png
-
-Convert to MarkdownTo the 17th Japan Three directory are located at 64-3 Chome, Tamatsu-cho, Ehime, Liento-in, Tokyo. Telephone 59-160.
+To the 17th Japan Three directory are located at 64-3 Chome, Tamatsu-cho, Ehime, Liento-in, Tokyo. Telephone 59-160.
 
 It should be noted that this is the same address listed for subject and the PFLS AESCIAI-LUENTi-PHABis in the preceding year, but there is a change in the telephone exchange.
 

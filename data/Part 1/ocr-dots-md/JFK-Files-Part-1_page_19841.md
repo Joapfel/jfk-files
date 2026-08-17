@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19841.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DATE 6 September 1962
 PROT 2-330

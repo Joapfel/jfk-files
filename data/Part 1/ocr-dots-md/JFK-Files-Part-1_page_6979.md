@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6979.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CABLE SECRETARIA DE SEÑALACIÓN
 PERSONAL NO-RELEASED

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3307.png
-
-Convert to MarkdownARAUJO, León (continued)
+ARAUJO, León (continued)
 
 the 1st. of May Parade in the company of the Socialist Physicians.- Ref.: Newspaper "Revolución", edition of the 2nd. day of May, 1963), Page 5.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14666.png
-
-Convert to Markdown# Memorandum to Mr. Cale
+# Memorandum to Mr. Cale
 Re: Alfred Burkha
 
 1983 and 1947 for which he forfeited sums ranging in amounts from $4 to $12. (77-58541)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11517.png
-
-Convert to Markdown19 December, 1968
+19 December, 1968
 
 1. LIRING/3 gave Rowton two letters dated 10 December, 1968, from Rafael Argueta A. and Rigoberto Argueta A. (Alvarado) in which former states he working in Chiquimula and gets home only every fifteen days. Another letter states among profuse greetings and best wishes that "Juan José y Miguel hirákxkarríxx tienen un año para hacerle fuerte al destino" which L/3 interprets to mean that León Barrios brothers intend resume activity on behalf FAR as soon as they released.
 

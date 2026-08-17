@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35483.png
-
-Convert to MarkdownCharla con el profesor Agustín P. Pons
+Charla con el profesor Agustín P. Pons
 
 # Posible un intercambio de médicos de Cuba y España
 

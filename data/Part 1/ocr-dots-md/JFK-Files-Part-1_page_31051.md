@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31051.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE:</td></tr><tr><td>SUBMIT</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE:</td></tr><tr><td>SUBMIT</td></tr></table>
 
 EMPLOYER BY KUBARK. THIS WILL ENDANGER SECURITY, TACTICS, WOULD PREJUDICE LITIGATION: AND LITEMPO/2 (QUALITY HAS "LIAISON," ON CRITICAL MATTERS" WITH LITEMPO/2).
 

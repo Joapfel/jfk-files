@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9965.png
-
-Convert to MarkdownTALLER DE VITRALES
+TALLER DE VITRALES
 
 PLAZA NINA VALLE 3
 

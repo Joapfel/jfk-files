@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26641.png
-
-Convert to Markdown# POR VICTOR RICO GALAN
+# POR VICTOR RICO GALAN
 
 Sr José Pagés Llergo, Director de SIEMPRE!
 

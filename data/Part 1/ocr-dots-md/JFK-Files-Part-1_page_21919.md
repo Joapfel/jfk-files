@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21919.png
-
-Convert to MarkdownJune 1962
+June 1962
 
 1964
 

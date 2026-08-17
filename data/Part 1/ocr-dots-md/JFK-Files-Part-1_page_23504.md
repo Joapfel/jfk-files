@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23504.png
-
-Convert to MarkdownMay 24, 1954
+May 24, 1954
 
 Ross L. Crozier
 Apartado 779

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30375.png
-
-Convert to Markdown1. November 1958
+1. November 1958
 
 SUBJECT: American C-118 Aircraft Dotted in Soviet
 Azertaijan 27 June 1958 by Soviet MIO-17's

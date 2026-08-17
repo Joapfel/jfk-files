@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_13283.png
-
 to the Counsel to the President, and
 that Wilderotter had advised that document requests pertaining to
 Atlantic City or any other topic which will be addressed in a paper should

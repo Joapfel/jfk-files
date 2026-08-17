@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24149.png
-
-Convert to Markdown82. LPGLITTER
+82. LPGLITTER
 
 A Panamanian company which was used as an investment vehicle for funds reserved for new commercial operations requiring Agency investments; The investment project was terminated and all funds returned to the Agency; the company has no employees.
 

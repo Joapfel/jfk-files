@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11960.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 comproising situations with both Americans and local nationals. This latter cable was requested after the El Salvador desk officer advised that all avenues and possible leads were to be pursued to determine who leaked the information relating to the CIA official. These two names (phonetically spelled) were provided in the second cable by Miami. All of the information received in these cables was passed via secure phone to the El Salvador desk by Ryan upon receipt.
 

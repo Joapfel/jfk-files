@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22656.png
-
-Convert to Markdown190 ERB, SW SW
+190 ERB, SW SW
 
 CLASSIFIED MESSAGE
 

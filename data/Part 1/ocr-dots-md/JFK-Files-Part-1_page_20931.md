@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20931.png
-
-Convert to MarkdownMr. DeFelice:
+Mr. DeFelice:
 
 Information from Adele regarding
 Dave Phillips' creditable service:

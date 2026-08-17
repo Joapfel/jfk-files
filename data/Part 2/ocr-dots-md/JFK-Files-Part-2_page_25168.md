@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25168.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>KENNEDY, John F.</td><td>HARKINS (MAC/V)</td><td>27 Aug. 1963</td><td rowspan="5">TOP SECRET</td></tr><tr><td>HELMS (DD/P)</td><td>CIA</td><td></td></tr><tr><td>COLBY, William</td><td rowspan="2">DEPTEL 243</td><td></td></tr><tr><td>CARTER</td><td></td></tr><tr><td>LODGE, Henry Cabot</td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>KENNEDY, John F.</td><td>HARKINS (MAC/V)</td><td>27 Aug. 1963</td><td rowspan="5">TOP SECRET</td></tr><tr><td>HELMS (DD/P)</td><td>CIA</td><td></td></tr><tr><td>COLBY, William</td><td rowspan="2">DEPTEL 243</td><td></td></tr><tr><td>CARTER</td><td></td></tr><tr><td>LODGE, Henry Cabot</td><td></td><td></td></tr></tbody></table>
 
 ### OCCURRENCE:
 

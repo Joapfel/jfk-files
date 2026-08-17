@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7264.png
-
-Convert to MarkdownSECRET - EYES ONLY
+SECRET - EYES ONLY
 
  departments and agencies and headed by an executive director appointed by the Committee.
 

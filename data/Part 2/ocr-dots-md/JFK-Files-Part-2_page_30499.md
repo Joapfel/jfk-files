@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30499.png
-
-Convert to Markdowndebrief a man who might have other involvement in the Soviets
+debrief a man who might have other involvement in the Soviets
 would not, I believe, have fallen within the purview of the
 O/O Contacts Branch.
 

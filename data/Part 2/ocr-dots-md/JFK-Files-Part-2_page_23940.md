@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23940.png
-
-Convert to Markdownof support, indicating U.S. support of the dissidents' efforts to overthrow Trujillo. (Dearborn 7/29, pp. 46-48; Owen p. 39)
+of support, indicating U.S. support of the dissidents' efforts to overthrow Trujillo. (Dearborn 7/29, pp. 46-48; Owen p. 39)
 
 c. Failure to Disclose to State Department Officials in Washington
 

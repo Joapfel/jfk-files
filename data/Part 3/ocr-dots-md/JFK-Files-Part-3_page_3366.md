@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3366.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">ALL INFORMATION CONTAINED<br/>HEREIN IS UNCLASSIFIED BY: SALMO</td>
   </tr>

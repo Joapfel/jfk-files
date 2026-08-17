@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12364.png
-
-Convert to Markdown<table><tr><td>CRIO:</td><td>R. J. FEATHERUAX</td></tr><tr><td>AUG:</td><td>C/CUP/3/V</td></tr><tr><td>SAT:</td><td>26F/153S</td></tr><tr><td>DATE:</td><td>21 FEBRUARY 1973</td></tr></table>
+<table><tr><td>CRIO:</td><td>R. J. FEATHERUAX</td></tr><tr><td>AUG:</td><td>C/CUP/3/V</td></tr><tr><td>SAT:</td><td>26F/153S</td></tr><tr><td>DATE:</td><td>21 FEBRUARY 1973</td></tr></table>
 
 <table><thead><tr><th colspan="4">CABLE SECRET: THAT DISSEMINATION BY 28/36 PER SC = 155</th></tr><tr><td>CAB. SECRETS, THAT DIS-<br/>BY 28/36 PER SC = 155</td><td>[Index ☐] [No index ☐] [RETURN TO __________ BRANCH ☐] FILE RID __________</td><td>[FILE IN CB FILE NO. __________]</td><td></td></tr></thead><tbody><tr><td>CONFIDENTIALITY NOTICE FOR UNITED STATES AIR FORCE AIRCRAFT AND FOR USE WITHIN THE UNITED STATES LIMITS</td><td>[Index ☐] [No index ☐] [RETURN TO __________ BRANCH ☐] FILE RID __________</td><td></td><td></td></tr></tbody></table>
 

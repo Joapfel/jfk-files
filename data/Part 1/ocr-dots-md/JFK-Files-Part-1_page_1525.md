@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1525.png
-
-Convert to Markdown# TOP SECRET - EIDER - CHESS
+# TOP SECRET - EIDER - CHESS
 
 During the deployment of Detachment C it performed approximately 86 operational missions, of these only 43 originated and recovered at Atsugi.
 

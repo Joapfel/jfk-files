@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5906.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>1970</td>
     <td>Inauguration of President Sznec</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4686.png
-
-Convert to MarkdownDate: 8-22-58
+Date: 8-22-58
 
 To: Director, FBI
 

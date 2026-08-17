@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3098.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FRF:
 

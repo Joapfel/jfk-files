@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16391.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ✓ Pedro SANTACRUZ Castro GUERRILLA WARFARE TRAINING only X
 ✓ Ruben MAHTJ. Guardado GUERRILLA WARFARE TRAINING only

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22553.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 UTILIZATION, CONTROL AND CASE OFFICERS
 

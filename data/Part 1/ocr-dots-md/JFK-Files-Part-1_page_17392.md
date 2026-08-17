@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17392.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>002 JO<br/>DATE : 12 SEP 62<br/><br/>TO : DIRECTOR<br/>FROM : MEXICO CITY<br/>ACTION: C/M 5 (AM TEMPO COPY SLOTTED AT 2345 12 SEP)<br/>INFO : ADOP, C/CA 2, C/C1, C/F1 2, S/T 2</td><td style="text-align:center; vertical-align:middle;">SECRET</td></tr><tr><td colspan="2"><table border="1" style="width:100%; border-collapse: collapse;"><caption>ROUTING</caption><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td colspan="2">SEP 12 0321Z 62</td></tr><tr><td colspan="2">PRIORITY</td></tr><tr><td colspan="2">IN 20593</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>002 JO<br/>DATE : 12 SEP 62<br/><br/>TO : DIRECTOR<br/>FROM : MEXICO CITY<br/>ACTION: C/M 5 (AM TEMPO COPY SLOTTED AT 2345 12 SEP)<br/>INFO : ADOP, C/CA 2, C/C1, C/F1 2, S/T 2</td><td style="text-align:center; vertical-align:middle;">SECRET</td></tr><tr><td colspan="2"><table border="1" style="width:100%; border-collapse: collapse;"><caption>ROUTING</caption><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td colspan="2">SEP 12 0321Z 62</td></tr><tr><td colspan="2">PRIORITY</td></tr><tr><td colspan="2">IN 20593</td></tr></tbody></table>
 
 **RITY DIR CITE HEXI 1919**
 

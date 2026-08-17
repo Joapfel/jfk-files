@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19536.png
-
-Convert to MarkdownDemonstration Protesting United States Policy in Vietnam, Washington, D.C.
+Demonstration Protesting United States Policy in Vietnam, Washington, D.C.
 
 January 8, 1968
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28036.png
-
-Convert to MarkdownTO: Thomas Howarth, Budget Officer
+TO: Thomas Howarth, Budget Officer
 FROM: G. Robert Blakey, Chief Counsel, Staff Director
 DATE: April, 11, 1978
 RE: Salary Adjustments

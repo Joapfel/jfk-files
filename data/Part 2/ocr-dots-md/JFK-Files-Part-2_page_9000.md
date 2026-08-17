@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9000.png
-
-Convert to Markdownrecibiendo a la vez las de dos personas con las que se reuni-
+recibiendo a la vez las de dos personas con las que se reuni-
 ría a la hora señalada; que exactamente a la hora indicada y
 estando el declarante en la esquina del Hotel María Isabel, -
 llegó un automóvil pequeño, color verde, del que descendieron

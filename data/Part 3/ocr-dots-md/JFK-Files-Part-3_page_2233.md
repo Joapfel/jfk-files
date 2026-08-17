@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2233.png
-
-Convert to MarkdownNovember 25, 1975
+November 25, 1975
 
 Special Agent Seymour Phillips
 Federal Bureau of Investigation

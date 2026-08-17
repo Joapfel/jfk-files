@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20108.png
-
-Convert to MarkdownNR001 NY PLAIN
+NR001 NY PLAIN
 
 115AM NITEL 07-17-72 JPM
 TO ACTING DIRECTOR

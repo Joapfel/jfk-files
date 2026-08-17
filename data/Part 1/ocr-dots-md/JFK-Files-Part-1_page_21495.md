@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21495.png
-
-Convert to Markdown# TABLE OF CONTENTS
+# TABLE OF CONTENTS
 
 I. Introduction
 

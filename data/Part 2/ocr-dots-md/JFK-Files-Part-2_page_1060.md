@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1060.png
-
-Convert to MarkdownS-R-C-R-E-T
+S-R-C-R-E-T
 
 Fair: Action expires 15 May 1957
 AGREEMENT TO

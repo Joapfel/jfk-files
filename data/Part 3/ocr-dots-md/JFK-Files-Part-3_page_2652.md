@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2652.png
-
-Convert to Markdowngs
+gs
 
 1
 2

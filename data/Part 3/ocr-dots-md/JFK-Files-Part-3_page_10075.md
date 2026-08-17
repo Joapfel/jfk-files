@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10075.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE-UNIT
 
 NW 88608 DocId:32989628 Page 352

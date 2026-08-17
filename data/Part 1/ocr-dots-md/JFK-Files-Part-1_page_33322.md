@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33322.png
-
-Convert to Markdown# Allende in Retrospect
+# Allende in Retrospect
 
 By Paul E. Sigmund
 

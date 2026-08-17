@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_504.png
-
-Convert to Markdown14-00000
+14-00000
 
 2. DO NOT EXCEED 169 typewritten characters per line, including spaces.
 

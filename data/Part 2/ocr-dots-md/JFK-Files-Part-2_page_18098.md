@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18098.png
-
-Convert to MarkdownDecember 21, 1964
+December 21, 1964
 
 BY LIAISON
 

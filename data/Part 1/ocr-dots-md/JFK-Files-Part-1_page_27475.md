@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27475.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 MEMORANDUM FOR: David L. Christ
 VIA : Chief, T23

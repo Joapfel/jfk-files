@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_103.png
-
-Convert to Markdown14-0000
+14-0000
 
 21 April 1966
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19717.png
-
-Convert to Markdown# File #:
+# File #:
 62-HQ-116395
 
 ## Serial Scope:

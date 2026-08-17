@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22704.png
-
-Convert to Markdownmy level, to be responsive to more than one authority is chaos.
+my level, to be responsive to more than one authority is chaos.
 And I am not making any puns.
 
 Senator Baker. To be responsible to the Congress and to

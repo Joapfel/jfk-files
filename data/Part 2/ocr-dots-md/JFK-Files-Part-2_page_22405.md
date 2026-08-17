@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22405.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A I would think probably the major portion of it was conducted within the United States.
 

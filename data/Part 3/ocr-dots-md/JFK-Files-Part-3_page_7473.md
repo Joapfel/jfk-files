@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7473.png
-
-Convert to Markdown1 - Mr. R. E. Gebhardt (An: J. W. Hines)
+1 - Mr. R. E. Gebhardt (An: J. W. Hines)
 
 2 - Legal Counsel Division (1 - Mr. J. B. Hotis)
 

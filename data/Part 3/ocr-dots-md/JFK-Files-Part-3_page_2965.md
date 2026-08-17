@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2965.png
-
-Convert to Markdown1903
+1903
 
 Senator Tower. What criteria do you use in the selection of informants?
 

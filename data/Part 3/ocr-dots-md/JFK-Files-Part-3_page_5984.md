@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5984.png
-
-Convert to MarkdownFINANCIAL RECORD OF UNIT
+FINANCIAL RECORD OF UNIT
 
 Balance as per bank statement for last month or each on hand $_______
 Minus outstanding checks including one to Imperial & state $_______

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25371.png
-
-Convert to Markdown# Roselli Probe
+# Roselli Probe
 
 By RON LABRECQUE
 Herald Staff Writer

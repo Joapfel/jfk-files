@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17457.png
-
-Convert to MarkdownRE: MALCOLM X BLACK HAND SOCIETY OF THE WORLD, INC.
+RE: MALCOLM X BLACK HAND SOCIETY OF THE WORLD, INC.
 
 Source indicated that various honorary awards were granted to Negroes in attendance and these awards presented by the Malcolm X Black Hand Society of the World, Inc., went to Dick Gregory, Huey Newton, and Bobby Seale, both BPP members and which awards were accepted by Fred Hampton. Several other of these awards were given to persons who the source could not identify.
 

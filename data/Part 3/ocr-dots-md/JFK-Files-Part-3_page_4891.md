@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4891.png
-
-Convert to MarkdownUNI. STATES DEPARTMENT OF JUSTICE
+UNI. STATES DEPARTMENT OF JUSTICE
 FEDERAL BUREAU OF INVESTIGATION
 
 Copy to: 1 - United States Attorney, Miami, Florida

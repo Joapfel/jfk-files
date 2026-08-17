@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24019.png
-
-Convert to MarkdownDienbienphu - Evian
+Dienbienphu - Evian
 
 OPRA
 

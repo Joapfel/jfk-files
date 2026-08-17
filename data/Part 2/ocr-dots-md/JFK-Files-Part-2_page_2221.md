@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2221.png
-
-Convert to MarkdownIN REPLY, PLEASE REFER TO
+IN REPLY, PLEASE REFER TO
 FILE No.
 
 United States Department of Justice

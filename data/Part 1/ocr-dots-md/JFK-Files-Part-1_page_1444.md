@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1444.png
-
-Convert to MarkdownRETURN TO (UA
+RETURN TO (UA
 Background Use Only
 Do Not Reproduce
 

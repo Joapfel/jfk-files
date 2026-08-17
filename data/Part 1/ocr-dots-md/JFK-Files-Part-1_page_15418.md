@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15418.png
-
-Convert to MarkdownFrom June 1961 to Sept. 1961 contracted by A.A. Airlines to fly in:
+From June 1961 to Sept. 1961 contracted by A.A. Airlines to fly in:
 
 the China, Africa.
 

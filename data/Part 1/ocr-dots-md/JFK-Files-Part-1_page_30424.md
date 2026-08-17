@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30424.png
-
-Convert to Markdown(2)
+(2)
 
 E. IF BORN OUTSIDE U. S. WHEN DID YOU FIRST ARRIVE IN THIS COUNTRY? 10
 PORT OF ENTRY? ON PASSPORT OF WHAT COUNTRY? ___________________________________

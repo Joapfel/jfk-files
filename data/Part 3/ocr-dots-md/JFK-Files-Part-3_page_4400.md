@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4400.png
-
-Convert to MarkdownHuey P. Newton
+Huey P. Newton
 
 David Hilliard, Chief of Staff, BPP, in a speech at the San Francisco Polo Field on November 15, 1969, said, "We will kill Richard Nixon."
 

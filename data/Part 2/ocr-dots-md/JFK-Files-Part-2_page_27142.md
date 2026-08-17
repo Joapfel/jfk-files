@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27142.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 strength abroad in January 1975 was
 ca. 3,900, of whom 332 were stationed in

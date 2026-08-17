@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4768.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On October 10, 1968, DICK WEISENBORN, Chief Supervisor, Reservations, Eastern Airlines, and CHARLES STATON, ticket counter manager, Eastern Airlines, were contacted regarding ROTHMAN's travel. They advised they would notify the FBI should ROTHMAN's travel come to their attention.
 

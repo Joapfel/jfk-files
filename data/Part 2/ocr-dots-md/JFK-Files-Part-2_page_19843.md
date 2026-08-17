@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19843.png
-
-Convert to Markdown# FEDERAL BUREAU OF INVESTIGATION
+# FEDERAL BUREAU OF INVESTIGATION
 
 <table><tr><td rowspan="2">REPORTING OFFICE</td><td>OFFICE OF ORIGIN</td><td>DATE</td><td>INVESTIGATIVE PERIOD</td></tr><tr><td>WASHINGTON FIELD</td><td>NEW YORK</td><td>3/21/72 - 2/20/72</td></tr><tr><td colspan="2">TITLE OF CASE</td><td colspan="2">REPORT MADE BY</td></tr><tr><td colspan="2">WOMENS NATIONAL ABORTION ACTION COALITION (WONAAC)</td><td colspan="2">ARLAND A. MOSEL</td></tr><tr><td colspan="2"></td><td colspan="2">CHARACTER OF CASE<br/>IS-C (TROTSKYIST)</td></tr></table>
 

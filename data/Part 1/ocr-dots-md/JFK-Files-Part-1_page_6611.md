@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6611.png
-
-Convert to MarkdownTHE INTERNATIONAL RESCUE COMMITTEE
+THE INTERNATIONAL RESCUE COMMITTEE
 
 Since the start of the Cold War the International Rescue Committee has organized voluntary American assistance to aid refugees fleeing from Communist oppression.
 

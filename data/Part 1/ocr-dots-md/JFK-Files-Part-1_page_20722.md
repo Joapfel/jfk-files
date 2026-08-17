@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20722.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th rowspan="2">GRADE</th>

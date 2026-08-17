@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_188.png
-
-Convert to Markdownponen son casi idénticos a los dos llamados similares que han vencido circunstancio en el Círculooso en muchos pases, solamente uno que más el go bierno de la URSS "que confiara a los judíos soviéticos el derecho a desarrollar íncrem ente su cultu ra específica, con medios científicos a iguales de que disponen las demas culturas nacionales: textos, periódicos, bibliotecas, teatros, dansemanza, etc."
+ponen son casi idénticos a los dos llamados similares que han vencido circunstancio en el Círculooso en muchos pases, solamente uno que más el go bierno de la URSS "que confiara a los judíos soviéticos el derecho a desarrollar íncrem ente su cultu ra específica, con medios científicos a iguales de que disponen las demas culturas nacionales: textos, periódicos, bibliotecas, teatros, dansemanza, etc."
 
 Pellicer es poeta —¿cuál lo dirá!—, y las sa vias de su sensibilidad y de su forma poética son la realidad mexicana, las tradiciones nacionales y esa
 

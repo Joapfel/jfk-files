@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32934.png
-
-Convert to MarkdownATTACHMENT #3
+ATTACHMENT #3
 
 MANOLO:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_450.png
-
-Convert to Markdown19. Entrada a las 0950hs.- MP de la embajada Chocoesleva o con Chichay le pregunta que el puede mandar el consulado a la japonesa para su pasaporte.- Chichay que af.--- 26.
+19. Entrada a las 0950hs.- MP de la embajada Chocoesleva o con Chichay le pregunta que el puede mandar el consulado a la japonesa para su pasaporte.- Chichay que af.--- 26.
 
 36.- Entrada a las 1043hs.- MP Armando Martínez con Curbelo le pregunta que el puede pasar a varlo para tratarle un asilo de asedio por la policía.- Curbele que af.- Hs. que centro de nora y seuda pasa al s.--- 28.
 

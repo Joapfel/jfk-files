@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4705.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA
 115006

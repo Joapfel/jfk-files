@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4398.png
-
-Convert to MarkdownEstimado jir:
+Estimado jir:
 
 Tenzo el gusto de reporter el escleo del dinero recibido durante las
 meses de Encero, Febrero y Marzo.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32388.png
-
-Convert to MarkdownVenezuela Uncovers Communist Arms Cache
+Venezuela Uncovers Communist Arms Cache
 
 The Venezuelan Government -- in a raid on a small village near Caracas on 5 January -- uncovered a large cache of arms and equipment which it claims belonged to the pro-Castro Armed Forces of National Liberation, reputed to be emerging as a para-military arm of the Venezuelan Communist Party. Several tons of explosives and large quantities of hand bombs, arms, and ammunition were seized as well as a nearby clandestine Communist radio transmitter. (SECRET NO FOREIGN DISSEM)
 

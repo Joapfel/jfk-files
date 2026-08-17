@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34577.png
-
-Convert to Markdownof the XGB operation against U. S. Professor Barznoora
+of the XGB operation against U. S. Professor Barznoora
 which HOSENKO said he had personally supervised at the
 direction of SEMICLASTII, the Chairman of the Comittee
 for State Security (XGB).

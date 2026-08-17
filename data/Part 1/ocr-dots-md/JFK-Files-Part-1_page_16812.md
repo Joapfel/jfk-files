@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16812.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 DATE : 11 SEP 62
 

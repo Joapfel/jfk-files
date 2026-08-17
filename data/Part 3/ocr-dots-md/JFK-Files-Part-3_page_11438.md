@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11438.png
-
-Convert to MarkdownREC-100
+REC-100
 
 The Attorney General
 

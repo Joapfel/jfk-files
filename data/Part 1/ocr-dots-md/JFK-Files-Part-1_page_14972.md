@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14972.png
-
-Convert to Markdown3. At a convention of National Democrats in Paris, AEPADDLE met A. MIPLANI from London. MIPLANI is a former colonel of the Polish Army and works closely with General ANDERS. MIPLANI suggested working through American intelligence, and will send AEPADDLE a letter for making contact with the Anders group in the US.
+3. At a convention of National Democrats in Paris, AEPADDLE met A. MIPLANI from London. MIPLANI is a former colonel of the Polish Army and works closely with General ANDERS. MIPLANI suggested working through American intelligence, and will send AEPADDLE a letter for making contact with the Anders group in the US.
 
 4. AEPADDLE carried money (apparently from NY Georgians) to Paris to assist the publication and distribution of an emigre paper.
 

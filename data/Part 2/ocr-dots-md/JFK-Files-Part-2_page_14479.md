@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14479.png
-
-Convert to MarkdownMemo Branigan to Sullivan
+Memo Branigan to Sullivan
 
 Re: BUREAU INFORMANT 2007 POLICY
 105-93089

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27103.png
-
-Convert to MarkdownSECRET
+SECRET
 
 case rigged to disseminate an agent when lighted, a fountain pen dart launcher,
 an engine head bolt designed to release an agent when heated, a fluorescent

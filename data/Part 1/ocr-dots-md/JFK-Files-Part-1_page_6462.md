@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6462.png
-
-Convert to Markdown# CRITERIA FOR PRIORITY ASSISTANCE UNDER ESCAPE PROGRAM
+# CRITERIA FOR PRIORITY ASSISTANCE UNDER ESCAPE PROGRAM
 
 1. The Mutual Security Act of 1951 provides the basic legislative authority for the Escapce Program and thus establishes the elementary criteria for extending assistance.
 

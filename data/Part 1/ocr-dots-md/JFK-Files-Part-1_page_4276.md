@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4276.png
-
-Convert to MarkdownHe has always been a friend of the U.S. and tried to work with them, and will be very happy if they will simply relax and try to live with him for a few years. They may find out it will not be so difficult as they seem to expect. On the other hand, if the U.S. cuts him off, there are other countries eager to fill the gap.
+He has always been a friend of the U.S. and tried to work with them, and will be very happy if they will simply relax and try to live with him for a few years. They may find out it will not be so difficult as they seem to expect. On the other hand, if the U.S. cuts him off, there are other countries eager to fill the gap.
 
 b. On the latter point (made about mid-September 1965), A/I followed up by eliciting from the Nic Consul-General in Miami, who revealed that the French Ambassador in Managua had offered to match the U.S. Alliance for Progress commitments to Nicaragua if the State Dept. cut them off because of SOMOZA's election. A/I followed up further on this point with Gen. SOMOZA the night of 15 October and he confirmed the report, saying that the French Ambassador had by-passed Pres. SCHICK and come to him direct.
 

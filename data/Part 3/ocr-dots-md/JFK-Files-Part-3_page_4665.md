@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4665.png
-
-Convert to MarkdownDate 10/31/62
+Date 10/31/62
 
 Records of the General Telephone Company of Florida reveal that the below listed telephone toll calls have been charged to telephone number 248-3347, which is subscribed to by the Columbia Restaurant Liquor Annex, address 2117 East Broadway Avenue. This service has been afforded since January 9, 1940.
 

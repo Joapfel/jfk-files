@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1.png
-
-Convert to MarkdownACTION REQUIRED: FTI
+ACTION REQUIRED: FTI
 
 REFERENCE: CPG-24799
 

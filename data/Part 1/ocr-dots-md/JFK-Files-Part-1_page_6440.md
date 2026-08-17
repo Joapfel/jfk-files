@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6440.png
-
-Convert to Markdown1. Subject to two conditions in my office on Thursday,
+1. Subject to two conditions in my office on Thursday,
 2. (a) If necessary, painting out various signs and areas whereby
 it is not possible to obtain mutual benefit to each other. This
 proposals were that:

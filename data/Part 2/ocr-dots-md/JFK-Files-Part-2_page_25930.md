@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25930.png
-
-Convert to MarkdownSenator MUSKIE. Are you planning that?
+Senator MUSKIE. Are you planning that?
 
 Mr. BROWN. Yes, sir.
 

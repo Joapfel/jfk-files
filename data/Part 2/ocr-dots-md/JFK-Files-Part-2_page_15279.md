@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15279.png
-
-Convert to MarkdownMemo R. D. Cotter to W. C. Sullivan
+Memo R. D. Cotter to W. C. Sullivan
 
 INTELLIGENCE COVERAGE OF NON-COMMUNIST COUNTRIES
 65-63113

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16797.png
-
-Convert to Markdown# CALIBER .30 CARBINE BULLETS
+# CALIBER .30 CARBINE BULLETS
 
 Specimens previously submitted and referred to as Q40, Q41 and Q52 were identified as having been fired from the same .30 Carbine as specimens Q226, Q234 and Q245 listed above. Specimens Q234 and Q245 were identified as having been fired in the caliber .30 Universal Carbine, serial number 66174, referred to previously as K27. It follows, therefore, that specimens Q40, Q41, Q52 and Q226 were also fired from the caliber .30 Universal Carbine, serial number 66174, specimen K27.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18026.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 DATE OF CRYPTO NYR CHANGE - 20/04/71
 

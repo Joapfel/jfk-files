@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20097.png
-
-Convert to MarkdownNWI 88321 DocID:32989545 Page 381
+NWI 88321 DocID:32989545 Page 381
 
 <table><thead><tr><th>REPORTING OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td>BOSTON</td><td>NEW YORK</td><td>3/21/73</td><td>3/2 - 3/16/73</td></tr><tr><th>TITLE OF CASE</th><td colspan="3"></td></tr><tr><td rowspan="2">WOMEN'S NATIONAL ABORTION ACTION COALITION</td><td colspan="3">REPORT MADE BY<br/>ARTHUR V. SULLIVAN, JR.</td></tr><tr><td colspan="3">CHARACTER OF CASE<br/>IS - C (TROTSKYIST)</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5422.png
-
-Convert to MarkdownNWI 88608 DocId:32989626 Page 153
+NWI 88608 DocId:32989626 Page 153
 
 who gave the OK. Did this come from President Johnson
 or President Nixon or was this a decision made by Attorney

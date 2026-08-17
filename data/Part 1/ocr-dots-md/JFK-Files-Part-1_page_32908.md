@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32908.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AMSTALK/1 said that he believed that Idon B has passed on to him all the information who was told to by the CUIS. He said however that Idon B talked with Idon C about forty-five minutes and he feels certain that Idon C told her more about his (AMSTALK/2's) activities than she has admitted knowing.
 

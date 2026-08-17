@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10282.png
-
-Convert to Markdowncon la práctica, ya que en ella encuentra su fundamento, sus línes y criterio de verdad, como trataremos de poner de manifiesto más adelante. Pero por estrechas que sean las relaciones entre una y otra actividad, la actividad teórica de por si no muestra los rascos que hemos considerado privativos de la praxis, y, por ello, no debemos ponería en el mismo plano que las formus de actividad práctica que antes hemos examinado. A nuestro modo de ver, la actividad teórica no es de por si una forma de praxis.
+con la práctica, ya que en ella encuentra su fundamento, sus línes y criterio de verdad, como trataremos de poner de manifiesto más adelante. Pero por estrechas que sean las relaciones entre una y otra actividad, la actividad teórica de por si no muestra los rascos que hemos considerado privativos de la praxis, y, por ello, no debemos ponería en el mismo plano que las formus de actividad práctica que antes hemos examinado. A nuestro modo de ver, la actividad teórica no es de por si una forma de praxis.
 
 — Aunque la «práctica» teórica transforme percepciones, representaciones o conceptos, y crée el tipo peculiar de productos que son las histráesis, teorias, leyes, exce PCRAA, earnings de esos casos se transforma la realidad. No se cumplen en ella las condiciones que señalábamos anteriormente con respecto a la materia prima, la actividad y el resultado en el proceso práctico. Faltaba aquí el kalo material, objetivo, de la praxis, y por ello no consideramos que sea legítimo hablar de praxis teórica.
 

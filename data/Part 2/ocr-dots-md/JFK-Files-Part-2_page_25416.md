@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25416.png
-
-Convert to MarkdownFROM : Director, FBI
+FROM : Director, FBI
 
 SUBJECT: FIDEL CASTRO
 INTERNAL SECURITY - CUBA.

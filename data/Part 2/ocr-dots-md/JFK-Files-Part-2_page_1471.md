@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1471.png
-
-Convert to MarkdownTransmitted VIA
+Transmitted VIA
 7JIT 10,3h4
 
 SECRET

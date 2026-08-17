@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20226.png
-
-Convert to MarkdownWFO 100-54927
+WFO 100-54927
 
 WFO files show WELCH attended SWP National
 Convention, August, 1971.

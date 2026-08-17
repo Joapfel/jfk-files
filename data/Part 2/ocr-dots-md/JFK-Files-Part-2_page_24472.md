@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_24472.png
-
 to Allen Dulles). In summary, the evidence was:
 
 (i) Bissell testified that he did not inform the Special Group or President Eisenhower of the Castro assassination operation, and he had no personal knowledge that Allen Dulles informed either President Eisenhower or the Special Group. However, Bissell expressed the belief that Allen Dulles would have advised President Eisenhower (but not the Special Group) in a "circumlocutious" or "oblique" way. Bissell based this "pure personal opinion" on his understanding of Dulles' practice with respect to other particularly sensitive covert operations. But Bissell testified that Dulles never told him that he had so advised President Eisenhower regarding the Castro assassination operation, even though Dulles had told Bissell when he had employed this "circumlocutious" approach to the President on certain other occasions.

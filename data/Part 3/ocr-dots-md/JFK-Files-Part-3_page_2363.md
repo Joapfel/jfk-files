@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2363.png
-
-Convert to Markdownis a leading member of the Trotskyite Secretariat of the Fourth International. He is also an activist in the New Left movement throughout Western Europe.
+is a leading member of the Trotskyite Secretariat of the Fourth International. He is also an activist in the New Left movement throughout Western Europe.
 
 His wife, was active in founding the anarchistic Socialist German Students Federation (German SDS) in Berlin, Germany, and is friendly with leaders of various radical youth groups in Western Europe. trip was arranged by the Socialist Workers Party (SWP) while the Young Socialist Alliance (YSA) organized the tour of These two individuals, during September and October, 1968, made separate tours which took them to some 50 college and university campuses from coast to coast and border to border. Each appearance made by these two individuals was marked by their espousing the revolutionary doctrine of the New Left before United States college students.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2970.png
-
-Convert to Markdownsinn 23
+sinn 23
 
 1908
 

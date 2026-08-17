@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34531.png
-
-Convert to MarkdownIf you are passing through Moscow and have only a day to spare, it is what we recommend you to see:
+If you are passing through Moscow and have only a day to spare, it is what we recommend you to see:
 
 1. Excursion by car or tourist coach. A three-hour tour with will give you a general idea of all and create Moscow. The starts from Hotel National on the heart of the city and for
 

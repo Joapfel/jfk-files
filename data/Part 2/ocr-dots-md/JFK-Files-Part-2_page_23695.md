@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23695.png
-
-Convert to Markdown1. air too, I would expect.
+1. air too, I would expect.
 
 2. Before we get into the substance here, I understand that
 3. our new mandate is if possible to complete ours no later than

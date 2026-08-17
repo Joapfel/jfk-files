@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15939.png
-
-Convert to Markdown# BLACK PANTHER PARTY (BPP)
+# BLACK PANTHER PARTY (BPP)
 
 A source, who has furnished reliable information in the past advised that lawyers representing Junior, Bobby Rush, Deputy Minister of Defense, and William O'Neal, Chief of Security, both BPP members of the Chicago Chapter, appeared in local Chicago Court on this date regarding the arrests of Rush, O'Neal, and Junior, on January 22, 1969, by the Chicago Police Department, for unlawful use of weapons, possession of marijuana, and disorderly conduct, whereupon the court granted a continuance of this matter until June 17, 1969.
 

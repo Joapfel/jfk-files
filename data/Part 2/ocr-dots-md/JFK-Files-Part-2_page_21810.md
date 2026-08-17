@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21810.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Wides. No, I mean after that, after they were put in touch with the base.
 

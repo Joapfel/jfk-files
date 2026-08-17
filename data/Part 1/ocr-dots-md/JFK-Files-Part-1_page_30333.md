@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30333.png
-
-Convert to Markdown21 September 1958
+21 September 1958
 
 TECHNICAL DIVISION CHIEF, TECHNICAL DIVISION
 APPLICATIVITY ADD/PTO3

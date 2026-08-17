@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6149.png
-
-Convert to Markdowne. Pour internal office memorandum (EX) per-
+e. Pour internal office memorandum (EX) per-
 tained to Subject's travels, contacts and activi-
 ties. The source of three of these was information
 from the FBI; the source of one of these was the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32862.png
-
-Convert to MarkdownMiguel - Creo que las dos líneas saben que estamos aquí.
+Miguel - Creo que las dos líneas saben que estamos aquí.
 
 Guillermo - ¿Qué quiere decir eso?
 

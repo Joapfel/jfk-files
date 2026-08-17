@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3355.png
-
-Convert to Markdown14-0000-
+14-0000-
 
 <table><thead><tr><th colspan="2">DISPATCH</th></tr><tr><td>To</td><td>Deputy Chief, WH/SA</td></tr><tr><td>Subject</td><td>Chief of Station, JIMWAYK JR.<br/>RYBAT/TYPIC/Operational/AMWORLD<br/>AMOT Report</td></tr><tr><td>ACTION REQUIRED</td><td>REFERENCE</td></tr></thead><tbody><tr><td>ACTION REQUIRED: None</td><td>TRANSMITTED HERewith IS ADDITIONAL INFORMATION CONCERNING AMBIDDY/1'S HOME LIFE WHICH MAY BE OF INTEREST TO BECKHOFF. IT WOULD BE INTERESTING TO LEARN THE ORIGIN OF THE RECURRENT RUMOR THAT THE DATE OF THE PILON RAID WAS ADVANCED AT THE INSTIGATION OF ODYOKE and that AMBIDDY/1 FEELS HIMSELF BETRAYED.</td></tr><tr><td>ANDREW K. REUTEMAN</td></tr><tr><td>Attachment:<br/>AMOT Report DD-950<br/>1 Copy herewith<br/>Identities, Under Separate Cover</td></tr><tr><td>Distribution:<br/>S - DD/WH/SA, w/att/n/w & u/s/o</td></tr><tr><td>GROSS REFERENCE TO<br/>201-267437<br/>PLEASE IDENTIFY AS TO whether the document is intended for distribution within the UFGA-16525 group or whether it should be sent to UFGA-16525 HEADQUARTERS FILE NUMBER<br/>CLASSIFIED AS CONFIDENTIALIZED BY ORDER<br/>SECURITY CODE 18-8-3/4<br/>18-124-27/3</td></tr></tbody></table>
 

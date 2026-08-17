@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_939.png
-
-Convert to Markdown104-10077-10067
+104-10077-10067
 
 DATE: 07/05
 21 NOVEMBER 63

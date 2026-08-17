@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2944.png
-
-Convert to MarkdownSECRET
+SECRET
 
 29 June 1962 McCone meets with the Bureau of the Budget to review the projected intelligence community budget.
 

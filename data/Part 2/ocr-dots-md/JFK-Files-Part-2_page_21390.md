@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21390.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The following references in the file captioned "Robert Alexander Wood" set forth information pertaining to the activities of Richard Gibson during the period late 1959 through 2/3/64, in the United States, New York, Cuba, Europe, England, France, Switzerland and Algeria. Wood provided information pertaining to Gibson beginning with his first meeting in 1959 with Gibson when he offered his services to the FPCC. Wood, accompanied by Gibson's wife, left the US for Algeria where Gibson was editor of the publication "Revolution Africaine". Wood lived with Gibson in Algeria. According to Wood, after Gibson arrived in France he tried to get funds from the French CP without success and was embittered against the "comrades". Wood did not believe Gibson was a member of the CPUSA or any CP, but was an opportunist who rode high on which ever cause he could find. He believed Gibson could have been recruited for a good salary. Later Gibson was reportedly living in Switzerland where he was active among pro-Chinese communist elements. Further details set out.
 

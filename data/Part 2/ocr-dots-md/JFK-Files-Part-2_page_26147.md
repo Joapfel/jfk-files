@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26147.png
-
-Convert to Markdownhad already felt that our best bet was to turn to the king and force him to--or, not force, but to encourage him to taking the leadership role that would be the one thing acceptable to all these leaders. Instead of that, we were starting to become parts of a partisan ourselves there and playing off one guy against another, and Americans aren't good at that game. We have many Americans who think they are, but this is a little too foreign to our nature and we fell in love with the factions and people, almost unconscious of the fact that we were doing that. The paratroop leader there ...
+had already felt that our best bet was to turn to the king and force him to--or, not force, but to encourage him to taking the leadership role that would be the one thing acceptable to all these leaders. Instead of that, we were starting to become parts of a partisan ourselves there and playing off one guy against another, and Americans aren't good at that game. We have many Americans who think they are, but this is a little too foreign to our nature and we fell in love with the factions and people, almost unconscious of the fact that we were doing that. The paratroop leader there ...
 
 O'BRIEN: Kong Le?
 

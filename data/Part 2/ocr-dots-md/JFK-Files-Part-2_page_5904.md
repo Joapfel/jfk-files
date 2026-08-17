@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5904.png
-
-Convert to Markdown# Directorate of Administration
+# Directorate of Administration
 
 ## DA Records
 

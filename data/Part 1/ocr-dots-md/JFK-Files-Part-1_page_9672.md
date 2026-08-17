@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9672.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tbody><tr><td>REQUEST FOR INFORMATION AND REVIEW</td><td colspan="2">DATE<br/>24 July 1964 dlr</td></tr><tr><td>TO:<br/>WH/1/Mexico - W.J. Kaufman</td><td>C NO.<br/>C - 83492</td><td></td></tr><tr><td>FROM: CHIEF, CI/OA<br/>[Signature]<br/>Edward P. Brown</td><td>SUBJECT:<br/>LICOCKY/l</td><td></td></tr><tr><td colspan="3">IN ORDER THAT FURTHER CONSIDERATION MAY BE GIVEN YOUR REQUEST FOR APPROVAL IN THIS CASE. IT IS REQUESTED THAT YOU FURNISH THIS OFFICE THE INFORMATION CHECKED BELOW, OR REVIEW INFORMATION AS INDICATED.</td></tr><tr><td colspan="2"><table><tbody><tr><td>PRO I</td><td>REVIEW OF STAFF-OF-DOSSIER</td></tr><tr><td>PRO II</td><td>REVIEW OF STAFF'S COLLATERAL INFORMATION</td></tr><tr><td>FIELD TRACES</td><td>REVIEW OF SECURITY OFF. REPORT AT CI/0A</td></tr><tr><td>RI TRACES</td><td>REVIEW OF SEC. OFF. CONCURRENCE MEMS AT CI/0A</td></tr><tr><td>OPERATIONAL AND DIVISION TRACES</td><td>REVIEW OF FBI REPORT AT CI/0A</td></tr><tr><td>RESULTS OF TECH-NICAL INTERROGATION</td><td>REVIEW OF ATTACHED REFERENCE</td></tr><tr><td>GREEN LIST</td><td>[SIGNATURES (See Reserves)]</td></tr></tbody></table></td><td>NOTICE:</td><td>FIRST</td><td>SECOND</td><td>THIRD AND FORTH</td></tr></tbody></table>
 

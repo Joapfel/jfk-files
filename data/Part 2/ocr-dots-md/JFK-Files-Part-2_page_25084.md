@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25084.png
-
-Convert to MarkdownTOP SECRET - SENSITIVE
+TOP SECRET - SENSITIVE
 
 12 November 1964
 

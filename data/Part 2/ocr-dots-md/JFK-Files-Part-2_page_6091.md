@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6091.png
-
-Convert to Markdown5. Should there be any possible conflicts of interest in connection with my service as a member of the Assassination Records Review Board, I would receive information from all affected parties, and take appropriate steps to eliminate the conflict.
+5. Should there be any possible conflicts of interest in connection with my service as a member of the Assassination Records Review Board, I would receive information from all affected parties, and take appropriate steps to eliminate the conflict.
 
 6. I agree without reservation to having written opinions provided to the Committee by the designated agency ethics officer of the agency for which I have been nominated, as well as by the Office of Government Ethics concerning potential conflicts of interest or any legal impediments to my serving in the position for which I have been nominated.
 

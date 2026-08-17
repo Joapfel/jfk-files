@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6296.png
-
-Convert to Markdown# SEQUESTERED COLLECTION
+# SEQUESTERED COLLECTION
 
 First of all, every document in the sequestered collection is available to the Board for review. The documents are available in full, without redactions.
 

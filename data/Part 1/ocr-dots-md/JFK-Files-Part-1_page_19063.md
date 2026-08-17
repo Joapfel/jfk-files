@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19063.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 CONANT, JAMES BRYANT. Germany and freedom; a personal appraisal.
 Cambridge, Harvard University Press, 1958. 117p. (The

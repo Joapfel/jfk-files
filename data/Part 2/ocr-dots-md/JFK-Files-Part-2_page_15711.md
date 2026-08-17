@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15711.png
-
-Convert to Markdown# POLITICS AND THE BLACK COMMUNITY
+# POLITICS AND THE BLACK COMMUNITY
 
 The Black Panther Party program and platform is a result of the analysis that the Party, and especially its leader, Huey Newton, has made of the nature of politics in America.
 

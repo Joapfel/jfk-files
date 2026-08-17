@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5837.png
-
-Convert to MarkdownFBI doc
+FBI doc
 10 May 68 (Miami)
 Re - Antonio Cuesta Valle
 (Caki-Tony Cuesta)

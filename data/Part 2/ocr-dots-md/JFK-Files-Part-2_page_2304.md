@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2304.png
-
-Convert to MarkdownSPECIAL QUALIFICATIONS REASONS FOR ACTION DATE OF LAST PROMOTION
+SPECIAL QUALIFICATIONS REASONS FOR ACTION DATE OF LAST PROMOTION
 
 Slot #1, Employee #10 with organization 11 Feb. 1947 and has been at present station since 17 March 1947.
 

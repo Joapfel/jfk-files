@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25808.png
-
-Convert to MarkdownSECRET
+SECRET
 
 surveillance team,
 

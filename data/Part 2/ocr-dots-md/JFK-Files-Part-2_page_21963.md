@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21963.png
-
-Convert to MarkdownAt about 7 am that day the group that intended to kidnap General Schneider met to discuss last-minute instructions. According to the findings of the Chilean Military Court which investigated the Schneider killing, neither the Army (Lt. Colonel) nor the Navy (Captain) were there.
+At about 7 am that day the group that intended to kidnap General Schneider met to discuss last-minute instructions. According to the findings of the Chilean Military Court which investigated the Schneider killing, neither the Army (Lt. Colonel) nor the Navy (Captain) were there.
 
 Shortly after 8 am, General Schneider's car was intercepted, on his way to work, by the abductors and he was mortally wounded when he drew his handgun in self-defense. The Military Court determined that hand guns had been used to kill General Schneider, although it also found that one unloaded machine gun was at the scene of the killing.*
 

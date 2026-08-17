@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12892.png
-
-Convert to MarkdownA. It did not develop any such information.
+A. It did not develop any such information.
 
 Q. How did you know of whatever their CP affiliation may have been?
 

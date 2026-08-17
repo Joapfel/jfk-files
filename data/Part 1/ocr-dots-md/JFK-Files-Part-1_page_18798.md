@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18798.png
-
-Convert to MarkdownOSS PERSONNEL ACTION REQUESTS
+OSS PERSONNEL ACTION REQUESTS
 
 (Rev. 4-11-86)
 

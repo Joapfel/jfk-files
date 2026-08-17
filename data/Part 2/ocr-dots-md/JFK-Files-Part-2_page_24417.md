@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24417.png
-
-Convert to Markdown** Harvey said that he took over a "going operation" from Edwards (I.G., p. 42; Harvey, 6/25, p. 67) and emphasized that:
+** Harvey said that he took over a "going operation" from Edwards (I.G., p. 42; Harvey, 6/25, p. 67) and emphasized that:
 
 > "I would like to make as clear as I can that there was no phase 1, phase 2 in this. This is an ongoing matter which I injected into . . . (Harvey, 6/25, p. 90).
 

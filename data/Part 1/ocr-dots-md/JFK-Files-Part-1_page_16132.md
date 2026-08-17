@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16132.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="3">7-71 WFC. 2/75</td>
   </tr>

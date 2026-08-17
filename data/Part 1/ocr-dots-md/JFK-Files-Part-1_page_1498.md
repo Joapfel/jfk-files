@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1498.png
-
-Convert to MarkdownSECRET
+SECRET
 
 manuscript would be in his interest as well as ours. He had referred
 more than once during the meeting to the need to avoid the appearance

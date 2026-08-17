@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9071.png
-
-Convert to MarkdownSECRET
+SECRET
 
 from CIA. We did not obtain clearance from CIA for the inclusion of this information in our monograph. Clearance approval was not obtained because of the urgency of the document. CIA was irritated because it considered our action a distinct violation of the third agency rule. The Agency never made any protest.
 

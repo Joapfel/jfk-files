@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34165.png
-
-Convert to MarkdownCURRICULUM VITAE
+CURRICULUM VITAE
 
 Nombre: RAUL ESPINZA TABAREZ Casado Fdad: 46 años
 

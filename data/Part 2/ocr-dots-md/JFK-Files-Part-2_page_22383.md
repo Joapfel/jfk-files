@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22383.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A Well, not that I would call a base. We did have
 training facilities for the UDT teams.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21484.png
-
-Convert to Markdown12. DBF 63039, 22 November 1960
+12. DBF 63039, 22 November 1960
 Made reference to our teletype; said had no info persons involved;
 investigating POHORILIW, desired any further info we could develop.
 

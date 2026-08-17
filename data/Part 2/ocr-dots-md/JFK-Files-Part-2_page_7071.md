@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7071.png
-
-Convert to MarkdownCHAPTER 5: THE STANDARDS FOR REVIEW: REVIEW BOARD "COMMON LAW"
+CHAPTER 5: THE STANDARDS FOR REVIEW: REVIEW BOARD "COMMON LAW"
 
 individual who has provided or is currently providing information pertaining to national security matters, the disclosure of which could reasonably be expected to result in damage to the FBI's intelligence and counter-intelligence-gathering capabilities."
 

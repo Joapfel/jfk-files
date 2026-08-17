@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34377.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG</td><td>F. SHERRY/mak</td></tr><tr><td>UNIT</td><td>WIL/C/CA/EW</td></tr><tr><td>EXT</td><td>6957</td></tr><tr><td>DATE</td><td>1 APRIL 65</td></tr></table>
 

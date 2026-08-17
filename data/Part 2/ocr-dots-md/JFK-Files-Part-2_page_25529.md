@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25529.png
-
-Convert to MarkdownML: they were satisfied.
+ML: they were satisfied.
 
 FS: They were satisfied so evidently everything worked out alright. Even though...
 

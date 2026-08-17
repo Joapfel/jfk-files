@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25905.png
-
-Convert to MarkdownAugust 22, 1976
+August 22, 1976
 
 # Slain Mobster Claimed Cuban Link to JFK Death
 

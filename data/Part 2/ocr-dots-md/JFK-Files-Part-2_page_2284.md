@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2284.png
-
-Convert to MarkdownSTANDARD FORM 50 (8 PAGES)
+STANDARD FORM 50 (8 PAGES)
 NEW APPLICANT
 APPROVED BY
 

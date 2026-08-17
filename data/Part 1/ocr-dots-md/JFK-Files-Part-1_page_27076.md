@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27076.png
-
-Convert to MarkdownSOTO (VAZQUEZ), Antonio
+SOTO (VAZQUEZ), Antonio
 
 g242 369
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13198.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CONTINUATION OF DRS PATCH</td><td>S E C S T</td><td>BVCA-1528</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25276.png
-
-Convert to MarkdownSECRET
+SECRET
 
 11. Arrangements were made for KAZANTSEV to meet with Bernardo FERNES Morales of the Direction General de Prensa (Foreign Ministry Press Section) on 29 September at 12:00 a.m.
 

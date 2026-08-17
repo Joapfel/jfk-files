@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32234.png
-
-Convert to Markdown- 7 -
+- 7 -
 
 # ALTERNATIVE II
 United States Policy

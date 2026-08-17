@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30395.png
-
-Convert to MarkdownI think it would be a matter of chance in the sense that
+I think it would be a matter of chance in the sense that
 the analyst or whoever it was who reviewed that document, might
 react, and yet he or she might not, too, depending on how they
 woke up that morning. It is sheer whimsy.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27100.png
-
-Convert to MarkdownSECRET
+SECRET
 
 estimated to have been somewhat more than $3 million. These funds were apparently used to generally augment the level of effort undertaken by SOD. Agency requirements for specific R&D were not levied in any programmatic way, but rather the Agency identified particular work being done by SOD as part of its program supporting the Army Special Forces as being of interest and then levied requirements for the customizing of such developments for Agency use. Through the course of years, Agency objectives in the project became better defined. Thus a project approval memo of 1967 identifies the four functional categories of project activity:
 

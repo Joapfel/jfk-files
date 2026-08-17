@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11217.png
-
-Convert to MarkdownLa Habana, 30 de Mayo de 1963
+La Habana, 30 de Mayo de 1963
 
 "ALO DE LA SOLIDARIDAD"
 

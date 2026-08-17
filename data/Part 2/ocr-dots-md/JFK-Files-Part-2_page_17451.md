@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17451.png
-
-Convert to MarkdownInformant advised SA DAVID R. STRUCK on April 16, 1969:
+Informant advised SA DAVID R. STRUCK on April 16, 1969:
 
 Several individuals, all Negro youths, broke the windows in the Tastee-Freeze at 12th and Madison. The identities of the youths are not known to informant.
 

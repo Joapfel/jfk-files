@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24079.png
-
-Convert to MarkdownREVISED MEMORANDUM OF ORAL COMMITMENT
+REVISED MEMORANDUM OF ORAL COMMITMENT
 
 1. QRPHONE/1 collaborates with WOFIRM as a Field Agent who provides certain services of a confidential nature. He has received a Provisional Operational Approval, dated 23 MAY 66. Financial aspects of his activity are charged to approved Project QRPHONE.
 

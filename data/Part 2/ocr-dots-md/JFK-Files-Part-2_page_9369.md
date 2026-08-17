@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9369.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 1:00 to 4:00 p.m. on June 25, 1971. KENNETH HORSTON, leader, Detroit BPP, was master of ceremonies and introduced the speakers. Mrs. JOSEPH SMITH, mother of CAROLYN SMITH, one of the Detroit 15, spoke regarding political prisoners.
 

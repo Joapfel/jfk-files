@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10525.png
-
-Convert to MarkdownCONTROLLED DISSEM
+CONTROLLED DISSEM
 
 23 MAY 1972
 

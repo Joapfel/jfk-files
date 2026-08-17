@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16243.png
-
-Convert to Markdown# Suggested Plan for the Complete Break Down of the State of Ill. Power Structure.
+# Suggested Plan for the Complete Break Down of the State of Ill. Power Structure.
 
 ## Problem:
 

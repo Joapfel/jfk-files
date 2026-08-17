@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35371.png
-
-Convert to MarkdownDATE
+DATE
 
 | DATE | CASH NO. | TOTAL |
 |---|---|---|

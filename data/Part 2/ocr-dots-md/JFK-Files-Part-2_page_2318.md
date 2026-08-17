@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2318.png
-
-Convert to Markdown3 April 1961
+3 April 1961
 
 MESSAGE FOR: Director of Personnel
 SUBJECT: Personnel Reports

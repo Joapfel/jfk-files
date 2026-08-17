@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35144.png
-
-Convert to Markdown# MANUTENCION
+# MANUTENCION
 
 ANEXO "I-C"
 

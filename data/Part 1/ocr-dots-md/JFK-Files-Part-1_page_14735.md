@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14735.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SX-31225
 20 May 1977

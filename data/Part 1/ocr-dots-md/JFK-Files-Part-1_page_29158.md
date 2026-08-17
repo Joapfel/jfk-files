@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29158.png
-
-Convert to Markdown(Continued on next page)
+(Continued on next page)
 
 <table><thead><tr><th>OPTION</th><th>GRADE</th><th>CAREER<br>RATING</th><th>REFERENCE<br>RATING</th><th>AUGMENTATION<br>RATING</th></tr></thead><tbody><tr><td></td><td></td><td></td><td>☐ POINTS<br>(TENT)</td><td></td></tr><tr><td></td><td></td><td></td><td>☐ POINTS<br>WITE<br>OR<br>BETWEEN</td><td></td></tr><tr><td></td><td></td><td></td><td>☐ INSAL</td><td></td></tr><tr><td></td><td></td><td></td><td>☐ INTEGRATED</td><td></td></tr><tr><td colspan="5">INITIALS AND<br>DATE</td></tr></tbody></table>
 

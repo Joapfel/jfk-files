@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1458.png
-
-Convert to Markdown11 APR 1967
+11 APR 1967
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

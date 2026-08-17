@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22997.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 DATE: 9 July 1954
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4781.png
-
-Convert to MarkdownSECRET
+SECRET
 
 people. And that is why we have been trying, I think with a little bit of success, very little, starting to get in academe, in this country at least -- it's pretty hard in some other countries -- but in this country to try to get academics to understand government, history, political science courses, international relations courses, you name it. After all these years they have been missing abet in terms of the impact of intelligence by all governments, I don't care who they are, on foreign policy and foreign activities. You read history books in the 1930's, '40's, '50's, '60's. And then in the '70's beginning barely to mention the fact that there might have been some intelligence action, that some information a government didn't know or did know, which made a big impact. And until ULTRA broke in '72, I think it was, nobody had a clue. And yet thousands and thousands and thousands of people had been involved in ULTRA.
 

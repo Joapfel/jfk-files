@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8919.png
-
-Convert to Markdown14-00000
+14-00000
 
 COORDINATING OFFICERS
 <table><tr><td>SECRET</td></tr></table>

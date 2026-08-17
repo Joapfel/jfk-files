@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_454.png
-
-Convert to Markdown14-00000
+14-00000
 
 Entrada a las 1159hs.- HF por la respuerta del cable
 130 para renovación de pasaporte.-- Mory: que ya llegó.- 236

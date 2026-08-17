@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6125.png
-
-Convert to Markdown4. How do you view the job of ARRB Executive Director? What role do you anticipate playing in the selection of ARRB Executive Director and staff?
+4. How do you view the job of ARRB Executive Director? What role do you anticipate playing in the selection of ARRB Executive Director and staff?
 
 I consider the Executive Director to be the ARRB's chief administrator and coordinator of all functions of the panel. The Executive Director should be the day-to-day administrator of the staff and the administrator of all activities of the ARRB. I envision the Executive Director playing an important coordination role with other federal agencies.
 

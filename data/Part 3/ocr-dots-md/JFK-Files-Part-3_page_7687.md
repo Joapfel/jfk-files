@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7687.png
-
-Convert to MarkdownTELETYPE
+TELETYPE
 
 JUN 29 1975
 

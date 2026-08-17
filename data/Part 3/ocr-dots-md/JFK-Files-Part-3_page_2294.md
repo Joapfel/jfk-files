@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2294.png
-
-Convert to Markdown"(D) Authorizations for appropriations for the following:
+"(D) Authorizations for appropriations for the following:
 
 "(i). The Central Intelligence Agency.
 

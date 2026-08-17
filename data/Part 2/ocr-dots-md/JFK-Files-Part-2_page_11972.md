@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11972.png
-
-Convert to Markdown5. Utilization
+5. Utilization
 
 a. If confidential source is to be used for assistance in security investigations, secure Bureau approval, and background data must be furnished to the Bureau of the same type which is required for potential security informants.
 

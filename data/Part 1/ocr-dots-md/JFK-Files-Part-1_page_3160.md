@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3160.png
-
-Convert to Markdown14-00000
+14-00000
 
 La Presse du Précend, citoyen de l'union
 des RAPRES, les VUES SOCIETIQUES SOCIALISTE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13315.png
-
-Convert to Markdown1. Did the CIA intercept a letter & money order from Marguerite Osuall to Lee Harvey O. shortly after O. defected to Soviet U.?
+1. Did the CIA intercept a letter & money order from Marguerite Osuall to Lee Harvey O. shortly after O. defected to Soviet U.?
 
 CIA says No.
 Mail intercept program discussed in News Comm report

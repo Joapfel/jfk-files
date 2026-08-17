@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10468.png
-
-Convert to MarkdownProject TAMPER, an on-going program which may be politically sensitive.
+Project TAMPER, an on-going program which may be politically sensitive.
 
 A proposed OER wheat estimate program which may be politically sensitive.
 

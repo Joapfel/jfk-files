@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22342.png
-
-Convert to MarkdownF. Appraisals of NOSENKO, his Motivation, and Other Opera-
+F. Appraisals of NOSENKO, his Motivation, and Other Opera-
 tional Circumstances
 
 1. Introduction

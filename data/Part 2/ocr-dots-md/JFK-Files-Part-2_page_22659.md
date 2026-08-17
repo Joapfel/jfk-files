@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22659.png
-
-Convert to Markdown10 Full Street, S.C., Washington, D.C. 20003
+10 Full Street, S.C., Washington, D.C. 20003
 
 # TOP SECRET
 

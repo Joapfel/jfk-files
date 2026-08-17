@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33655.png
-
-Convert to Markdown14-00000
+14-00000
 
 The VOA Around the World
 and Around the Clock

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23329.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 about meetings held after the assassination back in Washington
 2 when Mr. Dearborn came back as well as those meetings held

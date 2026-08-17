@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35343.png
-
-Convert to MarkdownSTATEMENT "I"
+STATEMENT "I"
 
 BALANCE IN OUR BANKS ON DECEMBER 1, 1961 $ 30,597.97
 

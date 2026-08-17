@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31803.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # FAIR PLAY FOR CUBA COMMITTEE (cont'd.)
 

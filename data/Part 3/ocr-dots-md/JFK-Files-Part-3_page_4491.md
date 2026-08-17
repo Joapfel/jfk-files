@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4491.png
-
-Convert to MarkdownNO 87-14835
+NO 87-14835
 
 AT DENVER, COLORADO
 

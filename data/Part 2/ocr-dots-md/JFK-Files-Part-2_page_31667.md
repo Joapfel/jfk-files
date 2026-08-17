@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31667.png
-
-Convert to Markdown# FAIR PLAY FOR CUBA COMMITTEE
+# FAIR PLAY FOR CUBA COMMITTEE
 
 The April 6, 1960, edition of "The New York Times" newspaper contained a full-page advertisement captioned "What Is Really Happening in Cuba," placed by the Fair Play for Cuba Committee (FPCC). This advertisement announced the formation of the FPCC in New York City and declared the FPCC intended to promulgate "the truth about revolutionary Cuba" to neutralize the distorted American press.
 

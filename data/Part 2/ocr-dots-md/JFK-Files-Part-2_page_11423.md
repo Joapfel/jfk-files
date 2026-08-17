@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11423.png
-
-Convert to Markdown(b) In the field office
+(b) In the field office
 
 [The active security index in each field office is maintained in four sections: geographical, alphabetical, unavailable, and special sections. In addition, a complete set of each field office's security index is maintained away from headquarters city. This additional set is to be maintained in exactly the same manner as the geographical section security index breakdown with the unavailable and special section cards filed in back of the geographical section cards.]
 

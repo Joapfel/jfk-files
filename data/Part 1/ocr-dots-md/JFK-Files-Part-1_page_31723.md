@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31723.png
-
-Convert to Markdown5. To have an annual audit by a firm to be designated by the Fund.
+5. To have an annual audit by a firm to be designated by the Fund.
 
 6. To exercise management and operational authority within the framework of policy guidance provided by the Fund. The primary objective of the fund-raising activities is to provide a multiplicity and variety of plausible, attributable sources of funds. The secondary objective is to raise as large a sum of money annually as is feasible and consistent with the above purpose.
 

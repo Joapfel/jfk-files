@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9654.png
-
-Convert to Markdown(2)
+(2)
 
 to get at the door handle, and that I had no idea who they were etc. I was sufficiently scared and put the car in reverse, backed up and took it down and parked it out of sight. I explained that I had climbed over the back wall and so on. They were quiet aware of the problem since they had observed, or thought they had observed, people hanging around the house all day. They pointed out to me too, that when their 18 year old son, Bill, was riding on horseback he encountered two men who had just arrived in a white Camaro driven by a middleaged or younger blond lady. They got out of their car and walked up to my house. One of them, he said, was carrying a pipe and the other one was carrying a screwdriver. The son asked if he could help these men but they rushed him off saying that he couldn't. The two men peered in the front gate and stayed around, hanging around for quite a while until a blue Chevrolet appeared and two people got out of it and went inside the house. While these people were inside the house, the two men outside hung around near the house.
 

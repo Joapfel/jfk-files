@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24570.png
-
-Convert to Markdown# F. The August 10, 1962 Meeting
+# F. The August 10, 1962 Meeting
 
 As indicated above (see p. __), the question of a Castro assassination was raised at a meeting of the Special Group Augmented on August 10, 1962. Thereafter, on August 13, 1962, Lansdale directed Harvey to include in a proposed plan for Phase II of Mongoose a plan for the "liquidation of leaders" as an option. We took considerable testimony and examined the documents relating to the August 10 meeting, the nature of the discussion of a Castro assassination, and Lansdale's subsequent request for a contingency plan.
 

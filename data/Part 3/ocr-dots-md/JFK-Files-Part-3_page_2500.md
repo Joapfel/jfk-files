@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2500.png
-
-Convert to Markdown| Name | Assignmen t May, 1972 | Current Assignment | Address (Former Employees) |
+| Name | Assignmen t May, 1972 | Current Assignment | Address (Former Employees) |
 |---|---|---|---|
 | Adams, A. D., Jr. | Director's Office | Out of Service | 3280th Student Squadron, Lackland |
 | Baker, Betty, Mrs. | | Messenger - Courier Unit Supervisor | Air Force Base, Texas |

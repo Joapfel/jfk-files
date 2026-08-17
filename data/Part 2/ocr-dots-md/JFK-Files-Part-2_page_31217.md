@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31217.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a) Published Details
 

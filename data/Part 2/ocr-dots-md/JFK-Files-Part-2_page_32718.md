@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32718.png
-
-Convert to MarkdownSTEVENSON: You are in the courtroom of world opinion right now, and you can answer "yes" or "no". You have denied that they exist -- and I want to know whether I have understood you correctly.
+STEVENSON: You are in the courtroom of world opinion right now, and you can answer "yes" or "no". You have denied that they exist -- and I want to know whether I have understood you correctly.
 
 ZORIN: Will you please continue your statement, sir? You will have your answer in due course.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2174.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="9">SEC17</th>

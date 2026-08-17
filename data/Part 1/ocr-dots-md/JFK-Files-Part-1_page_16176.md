@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16176.png
-
-Convert to Markdown<table><tr><td>DC/074-4099</td></tr></table>
+<table><tr><td>DC/074-4099</td></tr></table>
 
 CENTRAL INTELLIGENCE AGENCY
 

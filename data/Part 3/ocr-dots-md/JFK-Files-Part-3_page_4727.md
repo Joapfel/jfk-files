@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4727.png
-
-Convert to MarkdownSAC, Miami (105-1742)
+SAC, Miami (105-1742)
 
 Director, FBI (109-584)
 

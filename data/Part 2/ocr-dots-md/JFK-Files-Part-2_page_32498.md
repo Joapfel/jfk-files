@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32498.png
-
-Convert to MarkdownTOP SECRET - SENSITIVE
+TOP SECRET - SENSITIVE
 
 Leites/Mandelstam/DRAFT/14 Mar 63/frc
 

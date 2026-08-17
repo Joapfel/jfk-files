@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10653.png
-
-Convert to MarkdownThursday - November 17, 1966
+Thursday - November 17, 1966
 
 MEMORANDUM OF CONVERSATION between
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3167.png
-
-Convert to Markdown8 F O B E R Y
+8 F O B E R Y
 
 X
 

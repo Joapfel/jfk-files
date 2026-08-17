@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21248.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 States in 1963 and 1964 under the sponsorship of the Council on Student Travel of the YMCA East-West Committee. NOSENKO selected the photograph of VLADIMIR GRIGORYEVICH STRUKOV which he said was familiar and he thought he was a young officer who "practiced" in SCD in 1962-63 after studying at the higher school of KGB. He also recognized the photograph and name of YURIY VLADIMIROVICH URVVAYEV as a senior case officer in Section 4 of 7th Department. He then recalled that STRUKOV had been afraid to come to the United States. He and URVVAYEV had been selected as security officers for the group but URVVAYEV for some reason did not receive a visa. STRUKOV became an officer in 2nd Section, 7th Department in 1963. (u)
 

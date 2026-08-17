@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32327.png
-
-Convert to MarkdownContinuation of Section D
+Continuation of Section D
 
 His professional, no-nonsense handling has already contributed to highly significant information (a value quotient of 7.0 with one XX report) on some of the Agency's current Cuba priorities including Cuba's negotiating attitude vis-a-vis the U.S.
 

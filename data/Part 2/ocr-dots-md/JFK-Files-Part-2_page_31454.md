@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31454.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FID/1P
 
 ELIZABETH CURLEY PLYNN also spoke and said she felt slighted because she was not indicted for failure to register along with GUS HALL and BEN DAVIS, however, she had some satisfaction in that the government was trying to take her passport from her.

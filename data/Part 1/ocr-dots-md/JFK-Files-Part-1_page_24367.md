@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24367.png
-
-Convert to Markdown1958 Q/1 worked for Agence France Presse - Paris. He was discharged by AFP when Ollie Harrington (American negro) brought forgery charges against him.
+1958 Q/1 worked for Agence France Presse - Paris. He was discharged by AFP when Ollie Harrington (American negro) brought forgery charges against him.
 
 Q/1 sent to a weekly American publication and to the British daily The Observer, over the signature of O. Harrington, xix violently anti-French articles which were printed and could have brought about the expulsion of author. William G. Smith (still in Paris), Richard Wright (deceased) widow still living in Paris and John Flint all took sides with Harrington.
 

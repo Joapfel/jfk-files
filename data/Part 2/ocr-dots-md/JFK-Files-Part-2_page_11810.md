@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11810.png
-
-Convert to Markdown10. Transfer of informants to other areas
+10. Transfer of informants to other areas
 
 a. Keep alert to possibility of transferring informants to areas needing coverage through change in residence or employment.
 

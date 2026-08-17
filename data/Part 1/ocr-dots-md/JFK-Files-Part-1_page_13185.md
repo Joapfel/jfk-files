@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13185.png
-
-Convert to MarkdownCIGUSTY Operational Reporting for March 1968
+CIGUSTY Operational Reporting for March 1968
 
 HVCA - 15368, 17 April 1968
 

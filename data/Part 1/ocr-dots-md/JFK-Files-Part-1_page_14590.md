@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14590.png
-
-Convert to Markdownc. RUIZ seems to have little compunction in talking to what he thinks of as old acquaintances, even though they may be on the opposite side of the political fence from him. He once mentioned how he went out of his way to greet a "gusano" on the street because they had been friends in Havana. The Cuban exile evidently turned away from him, but RUIZ defended his own action in initiating the greeting.
+c. RUIZ seems to have little compunction in talking to what he thinks of as old acquaintances, even though they may be on the opposite side of the political fence from him. He once mentioned how he went out of his way to greet a "gusano" on the street because they had been friends in Havana. The Cuban exile evidently turned away from him, but RUIZ defended his own action in initiating the greeting.
 
 41. Aside from the constant criticism of Havana's incompetence, lack of vision, and lack of realism, he is quick to point out the deficiencies of life in Cuba as reflected in his directive to his Embassy staff not to celebrate Christmas together, because there are hungry people at home. RUIZ has also said that medicine in general is quite backward in Cuba.
 

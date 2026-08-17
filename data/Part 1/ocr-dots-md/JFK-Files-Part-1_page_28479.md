@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28479.png
-
-Convert to Markdown14-0000
+14-0000
 
 FORM TO: 35-85
 NOV 1951

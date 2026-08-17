@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32570.png
-
-Convert to MarkdownAPR, 26 September 1952
+APR, 26 September 1952
 
 TRANSMIT ON FOR: PERSONNEL AND EQUIPMENT/ISO
 TO: ADMIRAL/ISO

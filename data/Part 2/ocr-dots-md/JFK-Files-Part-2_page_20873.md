@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20873.png
-
-Convert to MarkdownAPR 8 1971
+APR 8 1971
 
 TELETYPING SECTION
 

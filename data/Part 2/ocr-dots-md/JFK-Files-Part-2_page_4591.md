@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4591.png
-
-Convert to Markdown2. Operational Tasks:
+2. Operational Tasks:
 
 a. The Branch/L,CI officer will:
 

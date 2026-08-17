@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13146.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In early October, 1964, the Alliance of the MRP - SFNE (105-112098) - Alpha 66 Cuban exile group was planning to initiate armed action in Cuba and its paramilitary organization had been moved from the US (place not indicated) to prepare for infiltration of Cuba. Eloy Gutierrez Menoyo, military leader of the Alliance, had issued strict instructions that there should be no collaboration at any level with the MRR or the JURE during the process of infiltration. Gutierrez had no faith in the ability or willingness of Manuel Artime or Manuel Ray to adhere to a joint infiltration program. Once in Cuba, however, limited tactical collaboration would be encouraged.
 

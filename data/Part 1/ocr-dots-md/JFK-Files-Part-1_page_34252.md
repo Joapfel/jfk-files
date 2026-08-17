@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34252.png
-
-Convert to Markdown"HABLA... UNIDAD REVOLUCIONARIA" (W.A.U.L.)
+"HABLA... UNIDAD REVOLUCIONARIA" (W.A.U.L.)
 
 October 29, 1965: "Russia Rebuffs Castro".- A comment on the news that Cuba and the USSR have signed an agreement to send 7 engineers and 50 technicians to the Caribbean Island. It is pointed out that, substantially, such is the Soviet Union's reply to the request for technical and financial assistance for Cuba's reconstruction and for the sugar crop.
 

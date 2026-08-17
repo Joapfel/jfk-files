@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4675.png
-
-Convert to Markdown14-00000
+14-00000
 
 FBI LOGAN'S
 DATE: 16 SEPTEMBER 1973

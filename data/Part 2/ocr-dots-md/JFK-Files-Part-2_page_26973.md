@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26973.png
-
-Convert to MarkdownBy MR. MANFREDI:
+By MR. MANFREDI:
 
 Q. I am sorry for the interruption but over the long
 I think probably I saved you some time.

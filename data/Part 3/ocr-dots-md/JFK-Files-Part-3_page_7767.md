@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7767.png
-
-Convert to Markdown(2) The Socialist Workers Party (SWP) is the international Trotskyist movement founded in the 1920's when Leon Trotsky lost out in a power struggle to Joseph Stalin for control of the international communist movement. The basic philosophy of the SWP is that only violent revolution can destroy capitalism; that all political groups other than their own are counterrevolutionary and must be destroyed. We rely on Executive Order 10450 for investigative authority.
+(2) The Socialist Workers Party (SWP) is the international Trotskyist movement founded in the 1920's when Leon Trotsky lost out in a power struggle to Joseph Stalin for control of the international communist movement. The basic philosophy of the SWP is that only violent revolution can destroy capitalism; that all political groups other than their own are counterrevolutionary and must be destroyed. We rely on Executive Order 10450 for investigative authority.
 
 (3) The Venceremos Brigade consists of a loosely knit group of over 1500 individuals who have travelled to Cuba in separate contingents since November, 1969. Positive information has been developed that the organization is being used by various hostile intelligence services for spotting purposes and recruitment of intelligence agents and support personnel. The group is under investigation because it appears to be under the control and domination of a hostile power.
 

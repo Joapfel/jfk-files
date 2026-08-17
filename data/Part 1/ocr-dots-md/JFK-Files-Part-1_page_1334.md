@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1334.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 27 November 1962
 

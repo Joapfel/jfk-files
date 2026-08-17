@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30400.png
-
-Convert to Markdown14-00080
+14-00080
 
 DECLARATION OF APPOINTEE
 

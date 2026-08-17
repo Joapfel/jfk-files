@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32042.png
-
-Convert to MarkdownNOT INTEGRATED PROGRAM
+NOT INTEGRATED PROGRAM
 (CLASS OF JANUARY 1964)
 
 Introduction to Intelligence

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8205.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. The conclusion reached between me and Mr. Turner was that I should point out to Tichborn that we were under no obligation to recompense him for his injury; however, that upon the completion of treatment if he would submit a claim, we should be glad to review it sympathetically.
 

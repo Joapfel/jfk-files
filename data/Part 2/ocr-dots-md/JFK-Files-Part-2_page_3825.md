@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3825.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 (When Filled In)
 
 INCIDENT REPORT

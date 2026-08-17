@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6900.png
-
-Convert to Markdown# SECRET/NOFORM
+# SECRET/NOFORM
 CONTINUED CONTROL
 
 - 2 -

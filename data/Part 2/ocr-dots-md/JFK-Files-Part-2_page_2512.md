@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2512.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Thus, the wording of the quitclaim is clearly and purposefully unconditional and is specifically intended to bar the kind of belatedly raised claim which PDDONOR/1 is making now.
 

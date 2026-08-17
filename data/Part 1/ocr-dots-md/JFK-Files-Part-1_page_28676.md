@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28676.png
-
-Convert to Markdown14-0000
+14-0000
 
 **FROM** ______ TO ______ **City or Section** ______ **Country** ______ **Purpose**
 

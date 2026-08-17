@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16975.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Brenda Harris, Negro female, age 18, residing at 1848 South Hamlin. Harris received a gunshot wound in the hand and right leg.
 

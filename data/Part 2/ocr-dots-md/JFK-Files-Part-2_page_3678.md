@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3678.png
-
-Convert to Markdown1. USSR
+1. USSR
 
 a. TASS has finally announced that the USSR will conduct another series of ICBM firings to the Pacific during the period 2 December to 25 January.
 

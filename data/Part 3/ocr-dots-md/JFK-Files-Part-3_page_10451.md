@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10451.png
-
-Convert to Markdown# 1950s American Artistic Director Series: The Story of John Carpenter Stedman, M.D. Volume 62-114395-56
+# 1950s American Artistic Director Series: The Story of John Carpenter Stedman, M.D. Volume 62-114395-56
 
 © 1986 by John Carpenter Stedman, M.D.
 

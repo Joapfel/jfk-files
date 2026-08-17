@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23084.png
-
-Convert to MarkdownA mediados del año 1960, los elementos con-
+A mediados del año 1960, los elementos con-
 trarrevolucionarios Armando Cubría Ramos-
 y Mario Tauler Sagué, miembros de la orga-
 nización contrarrevolucionaria "La Cruz", -

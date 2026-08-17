@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25233.png
-
-Convert to MarkdownFidel Castro visiting the
+Fidel Castro visiting the
 Volgograd Tractor Works.
 
 (For material on

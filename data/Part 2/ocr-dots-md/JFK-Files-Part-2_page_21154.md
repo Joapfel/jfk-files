@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21154.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 have had access to information concerning all of them
 while Deputy Chief of the Section in 1958-59. [FISK] was there in 1959; [GINSBERG] was there in 1956 but had subsequent trips; [KANTOR] is believed to have visited relatives (As indicated above, such cases would probably not have come to NOSENKO's attention);

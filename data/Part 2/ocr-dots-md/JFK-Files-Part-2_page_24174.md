@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24174.png
-
-Convert to MarkdownTAB A
+TAB A
 Page 2
 
 ## (OPERATIONAL SUPPORT - Cont'd)

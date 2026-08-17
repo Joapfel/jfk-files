@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32949.png
-
-Convert to Markdown#62386
+#62386
 
 9 December 1966
 

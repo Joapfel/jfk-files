@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13892.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 With a view to keeping the Board fully informed of the President's indicated reactions to Board's work, Mr. Clifford said that for the time being the President prefers a quiet, unostentatious operation of the Board. It is the President's desire to try to avoid any explosions in the intelligence field, and any resignations in heat by any members of the intelligence community. After coming into office under most difficult circumstances, the President has found people are eager to help, and he relies heavily on Secretaries Rusk and McNamara and on others such as the members of this Board.
 

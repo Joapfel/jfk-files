@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4317.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 Al Fatah
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17549.png
-
-Convert to Markdown4
+4
 
 (1) Speaker fees and honorariums received by BPP leaders for appearances at educational institutions and other public gatherings.
 

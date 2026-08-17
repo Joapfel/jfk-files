@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22903.png
-
-Convert to Markdown21
+21
 
 the first of August.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18002.png
-
-Convert to Markdown**Memorandum E. S. Miller to Mr. Rosen**
+**Memorandum E. S. Miller to Mr. Rosen**
 
 Re: EXPANSION OF FOREIGN LIAISON
 

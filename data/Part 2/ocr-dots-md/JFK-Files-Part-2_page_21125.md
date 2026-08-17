@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21125.png
-
-Convert to Markdownis alleged that NOSENKO did not indicate the sources from
+is alleged that NOSENKO did not indicate the sources from
 which he obtained the information regarding the cases.
 
 During current interrogation NOSENKO provided sources

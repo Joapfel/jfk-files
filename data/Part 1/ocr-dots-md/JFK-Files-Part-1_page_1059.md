@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1059.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 0013 BUTLER, FRANCIS E. /MRS./
 CHINA-4 JULY 48 ADOPTED DAUGHTER OF MAXIM EGOROFF.

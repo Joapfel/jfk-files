@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25569.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>TO</td><td>Chief, VII Division</td><td>XIX</td><td>NO INCOMING REPORTS<br/>ONLY COMING OUT</td></tr><tr><td>LIEUT.</td><td>Chief, SB Division</td><td colspan="2"></td></tr><tr><td>FEBRUARY</td><td>Chief of Station, Mexico City</td><td colspan="2">MARCH/MAY</td></tr><tr><td>SUBMIT</td><td colspan="3">LIEUTENANT PROGRESS REPORT, 1 July through 31 December 1968</td></tr></table>
 

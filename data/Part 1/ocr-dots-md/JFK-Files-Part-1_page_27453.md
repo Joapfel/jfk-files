@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27453.png
-
-Convert to Markdown# SECTION 12. CHRONOLOGICAL HISTORY OF EMPLOYMENT (CONTINUED FROM PAGE 4)
+# SECTION 12. CHRONOLOGICAL HISTORY OF EMPLOYMENT (CONTINUED FROM PAGE 4)
 
 <table><tbody><tr><td colspan="3">YOUR DUTIES AND SPECIALTY</td><td colspan="2">NAME OF SUPERVISOR</td></tr><tr><td>DATES COVERED</td><td>FROM:</td><td>TO:</td><td>SALARY</td><td>PER</td></tr><tr><td colspan="5">REASONS FOR LEAVING</td></tr><tr><td colspan="5">EMPLOYER</td></tr><tr><td colspan="5">JOB TITLE</td></tr><tr><td>ADDRESS</td><td>STREET AND NUMBER</td><td>CITY</td><td>STATE</td><td>KIND OF BUSINESS</td></tr><tr><td colspan="5">YOUR DUTIES AND SPECIALTY</td></tr><tr><td>DATES COVERED</td><td>FROM:</td><td>TO:</td><td>SALARY</td><td>PER</td></tr><tr><td colspan="5">REASONS FOR LEAVING</td></tr><tr><td colspan="5">EMPLOYER</td></tr><tr><td colspan="5">JOB TITLE</td></tr><tr><td>ADDRESS</td><td>STREET AND NUMBER</td><td>CITY</td><td>STATE</td><td>KIND OF BUSINESS</td></tr><tr><td colspan="5">YOUR DUTIES AND SPECIALITY</td></tr><tr><td>DATES COVERED</td><td>FROM:</td><td>TO:</td><td>SALARY</td><td>PER</td></tr><tr><td colspan="5">REASONS FOR LEAVING</td></tr><tr><td colspan="5">NOTE: IN SPACE BELOW GIVE DETAILS CONCERNING ANY POSITION FROM WHICH YOU MAY HAVE BEEN DISCHARGED OR WHICH YOU MAY HAVE LEFT UNDER CIRCUMSTANCES WHICH WERE NOT ENTIRELY FAVORABLE.</td></tr><tr><td colspan="5">DETAILS:</td></tr><tr><td colspan="5">NONE</td></tr></tbody></table>
 

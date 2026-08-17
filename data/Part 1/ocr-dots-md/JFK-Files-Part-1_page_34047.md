@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34047.png
-
-Convert to MarkdownUNITED LIBERAL P.arty
+UNITED LIBERAL P.arty
 
 Founder & President:
 REV. HENRY MUIR

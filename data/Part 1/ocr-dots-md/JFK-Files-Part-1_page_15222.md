@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15222.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SR/09/59/1751
 

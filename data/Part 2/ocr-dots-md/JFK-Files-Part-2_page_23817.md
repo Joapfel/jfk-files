@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23817.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Kirbow. Mr. Chairman, may I suggest that maybe
 perhaps we use this type of part of the investigation and what

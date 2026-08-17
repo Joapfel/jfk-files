@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_140.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 Anonymous letters were mailed by the Chicago Division on September 11, 1961, to Board members and on September 14, 1961, to rank-and-file members of the Chicago Council of American-Soviet Friendship (CCASF) relative to a Board meeting of the CCASF held September 13, 1961, to discuss a policy statement on the Soviet Union's resumption of nuclear testing.
 

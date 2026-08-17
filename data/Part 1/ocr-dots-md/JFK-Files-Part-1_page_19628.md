@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19628.png
-
-Convert to MarkdownO'CONNELL, James P.
+O'CONNELL, James P.
 
 10 March 1969
 

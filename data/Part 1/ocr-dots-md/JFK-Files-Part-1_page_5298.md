@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5298.png
-
-Convert to MarkdownSUBJECT: Clemens Joseph CHARLES
+SUBJECT: Clemens Joseph CHARLES
 
 7. I met Mrs. Matlack in the lobby of the Hotel Willard shortly before noon, and a few minutes later, Mr. Charles arrived, accompanied by Mr. and Mrs. de Mohrenscchildt. We lunched in the restaurant in the hotel. Mr. de Mohrenscchildt mentioned that he had been born in Batu, Russia, but during the Bolshevik Revolution had been taken to Poland as a small child. He had spent approximately 20 years in Poland prior to World War II and had served in the Polish Army. He also mentioned that he had been a member of an ICA Team to Yugoslavia in 1957 and while in Belgrade had met Gomulka who was visiting Belgrade at the time. He had spoken to Gomulka and was invited to visit Poland, which invitation he had accepted. His home is in Dallas, Texas. He has a PhD. in geology and has had some teaching experience. Mrs. de Mohrenscchildt was born in Peking, China. Her father was Russian and her mother French, and she is now or has been a fashion designer. Mr. de Mohrenscchildt mentioned that he has known Charles for sometime and that he is a partner with him in a sisal business in Haiti.
 

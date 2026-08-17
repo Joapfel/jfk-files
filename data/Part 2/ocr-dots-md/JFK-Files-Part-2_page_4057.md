@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4057.png
-
-Convert to MarkdownResidences
+Residences
 
 (cont'd)
 

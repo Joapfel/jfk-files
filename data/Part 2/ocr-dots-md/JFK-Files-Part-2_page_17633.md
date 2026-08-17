@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17633.png
-
-Convert to Markdowninvestigations and could not be viewed in their real significance, except as they fit into the overall perspective of the case. This is indicative of the danger of using piecemeal intelligence taken out of context; properly used, however, intelligence is a legitimate and necessary part of all security investigations.
+investigations and could not be viewed in their real significance, except as they fit into the overall perspective of the case. This is indicative of the danger of using piecemeal intelligence taken out of context; properly used, however, intelligence is a legitimate and necessary part of all security investigations.
 
 Intelligence is information and the collection of it is inseparable from efficient investigative operations. In fact the two--investigation and intelligence--are mutually dependent.
 

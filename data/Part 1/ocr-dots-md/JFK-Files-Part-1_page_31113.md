@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31113.png
-
-Convert to MarkdownIN CUSTódInG ONLY
+IN CUSTódInG ONLY
 
 Dr. Lee H. Elyton
 213 Leibman Avenue

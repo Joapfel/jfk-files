@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16250.png
-
-Convert to Markdown14-0005
+14-0005
 
 <table><tr><td colspan="2">TO: Chief of Station, Kinshasa</td></tr><tr><td>NO: Chief of Station, Pretoria</td><td>CAN BE FILMED IN PERSONAL FORMATION</td></tr><tr><td>FROM: Chief Africa Division</td><td>BOTH LEFT</td></tr><tr><td>PROJECT: handwriting Analysis - Alastair WICKS</td><td>ACTION REQUIRED REFERENCES</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11620.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FROM: AIR ATTACHE MEXICO CITY
 TO: DEPARTMENT OF AIR FORCE

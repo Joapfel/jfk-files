@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22979.png
-
-Convert to MarkdownPhone (Area 202) 944-6000
+Phone (Area 202) 944-6000
 
 7 6 0 0 0 1 7 0 1 9 3
 

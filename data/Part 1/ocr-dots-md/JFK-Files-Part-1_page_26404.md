@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26404.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG : D. J. E. MCGRATH
 UNIT : W1/6/DPLPR [ ] INDEX

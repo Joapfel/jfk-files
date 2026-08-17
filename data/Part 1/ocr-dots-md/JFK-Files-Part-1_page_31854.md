@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31854.png
-
-Convert to Markdown16 September 1957
+16 September 1957
 
 PICCULO, Joseph S.
 

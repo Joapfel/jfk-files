@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29139.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>REFERENCE COPY, JFK Collection: HSCA (RG 233)</td>
    </tr>

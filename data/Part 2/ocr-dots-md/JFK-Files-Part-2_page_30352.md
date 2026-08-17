@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30352.png
-
-Convert to Markdown1 she was immediately recalled by her agency or her newspapers for
+1 she was immediately recalled by her agency or her newspapers for
 2 which she was working.
 
 3 Mrs. Burke. Do you think that is the wrong Priscilla

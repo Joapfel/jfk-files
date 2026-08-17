@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8106.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td></td><td></td><td>2</td><td></td><td>0</td></tr><tr><td></td><td>3</td><td></td><td>0</td><td></td></tr><tr><td></td><td>5</td><td></td><td>10</td><td></td></tr></table>
 

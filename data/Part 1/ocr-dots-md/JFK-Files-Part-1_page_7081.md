@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7081.png
-
-Convert to MarkdownHER AS NOTED REF.
+HER AS NOTED REF.
 
 SECRET
 

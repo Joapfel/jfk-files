@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24255.png
-
-Convert to Markdownequity in the corporation and 60 percent of the equity was osten-
+equity in the corporation and 60 percent of the equity was osten-
 sibly owned by the Chinese, who gave deeds of trust to the Agency
 for their shares. This overt arrangement demonstrated for purposes
 of international law that the company was majority-owned and con-

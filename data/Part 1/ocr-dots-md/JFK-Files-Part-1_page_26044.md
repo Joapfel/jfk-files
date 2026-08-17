@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26044.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">CONVICT NOTICES</td>
     <td>SECRET (Who Filled In)</td>

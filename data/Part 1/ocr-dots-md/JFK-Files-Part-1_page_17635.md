@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17635.png
-
-Convert to MarkdownAttachment to EN-4-A-10198
+Attachment to EN-4-A-10198
 KAPOK-1401
 
 | Field Agent | Presently | Possible Raise |

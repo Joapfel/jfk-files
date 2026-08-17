@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8630.png
-
-Convert to Markdown13,000,000
+13,000,000
 
 is not to cause sacrifice or hardship among the American people. Unless I can demonstrate that in balance the temporary sacrifices in a certain area are far overcome by immediate and ultimate benefits then nobody's going to buy it.
 

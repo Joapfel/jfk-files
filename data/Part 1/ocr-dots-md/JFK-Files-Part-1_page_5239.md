@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5239.png
-
-Convert to MarkdownIt may be well to recall that at the Conference in Punta del Este was emphasized the importance of the transformation of the people in the development process of under developed countries.
+It may be well to recall that at the Conference in Punta del Este was emphasized the importance of the transformation of the people in the development process of under developed countries.
 
 All this lends to consider the protection and preservation of the understructure works of which the urgency cannot be underestimated. Electric power, roads, bridges, urbanism, irrigation and drainage system etc., are the factors that the contemplated development calls for its full realization.
 

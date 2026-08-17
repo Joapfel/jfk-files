@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27108.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Gordon was certain that the shellfish toxin in storage in OTS is the same
 toxin as that listed on the inventory. There is, however, a discrepancy between

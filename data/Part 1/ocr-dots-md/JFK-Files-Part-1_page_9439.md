@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9439.png
-
-Convert to MarkdownVortr. I. Koenen am 16.3.50., Bist. 2.
+Vortr. I. Koenen am 16.3.50., Bist. 2.
 
 "Cuno" - Bericht Nr. 13. /Fortsetzung/
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21848.png
-
-Convert to Markdown6.
+6.
 
 "reacted significantly" to questions concerning his intentions in defecting to the United States and other related matters.* He was then told that he would remain at this safehouse, which thenceforward was his regular place of residence. Since this time NOSENKO has had contacts with CIA personnel only, has been under full-time guard, and has not been permitted access to news media.
 

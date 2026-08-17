@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12976.png
-
-Convert to Markdown1 - Mr. J. B. Adams
+1 - Mr. J. B. Adams
 3 - Mr. J. A. Mintz
 (Mr. J. B. Hotis)
 (Mr. P. V. Daly)

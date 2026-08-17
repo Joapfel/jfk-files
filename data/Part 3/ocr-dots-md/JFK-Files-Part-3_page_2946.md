@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2946.png
-
-Convert to MarkdownNRØØ6 MM CODE
+NRØØ6 MM CODE
 
 3:30PM NITEL JANUARY 8, 1976 JWB
 TO DIRECTOR (62-116395)

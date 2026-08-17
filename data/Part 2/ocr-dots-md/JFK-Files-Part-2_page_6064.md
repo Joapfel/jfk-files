@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6064.png
-
-Convert to Markdown13-00000
+13-00000
 
 American Society for Legal History (Chair of Program Committee, Member, Board of Trustees, Chair of Committee on Openness)
 The Society of Historians of the Early Republic

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25772.png
-
-Convert to MarkdownORIG : STANLEY J. SHULTZ:MS
+ORIG : STANLEY J. SHULTZ:MS
 UNIT : TSS/ID/FB#4
 EXT : 8315
 DATE : 26 MARCH 1959

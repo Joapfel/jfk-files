@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32341.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OPS SW OP
 SUBJECT: Interdepartmental Coordinating Committee of Cuban Affairs: Report on Status of Implementation of Actions Designed to Counter Subversion (U)

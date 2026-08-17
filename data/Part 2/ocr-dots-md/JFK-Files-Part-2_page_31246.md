@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31246.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Laurdale memo arranged shipping paper for vacate subjects related to Cuba operation. A portion exceeded four CT copy of memo was included eliminating of leader. Laurdale repeatedly tried to raise arraignment & counteract stay over not several weeks but stay delayed until must 5 people in Laandale place from MARBOSA & LAANDAE infact in arraignment as part of it.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24091.png
-
-Convert to Markdownevent, McCone went no further. He issued no general order banning consideration of assassination within the Agency.
+event, McCone went no further. He issued no general order banning consideration of assassination within the Agency.
 
 One of the programs forwarded to General Lansdale by the Defense Department in the Mongoose program was entitled "Operation Bounty" and envisioned dropping leaflets in Cuba offering rewards for the assassination of Government leaders. Although the plan was vetoed by Lansdale, it indicates that persons in agencies other than the CIA perceived that assassination might be permissible.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19382.png
-
-Convert to MarkdownTRANSPORTATION ACTION SHEET
+TRANSPORTATION ACTION SHEET
 
 KANS Isabelle James U. BRANCH 782
 

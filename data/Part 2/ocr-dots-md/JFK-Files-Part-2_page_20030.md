@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20030.png
-
-Convert to MarkdownMM 105-9843
+MM 105-9843
 
 Copies are being disseminated locally to NISO, 6 ND, Charleston, South Carolina; OSI, Robins AFB, Georgia; 111th MI Group, Orlando, Florida; and Secret Service, Miami.
 

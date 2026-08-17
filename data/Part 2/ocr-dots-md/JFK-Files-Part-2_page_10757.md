@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10757.png
-
-Convert to MarkdownPH 52-7165 SUB
+PH 52-7165 SUB
 
 MARGARET MARY INNESS
 

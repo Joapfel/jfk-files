@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7587.png
-
-Convert to MarkdownAppendix A
+Appendix A
 
 | Section | Subject |
 |---|---|

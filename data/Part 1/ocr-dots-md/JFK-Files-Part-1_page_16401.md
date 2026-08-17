@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16401.png
-
-Convert to MarkdownV. Biographic Data
+V. Biographic Data
 
 Date of Birth: 17 June 1933
 Place of Birth: Jarabacos, Dominican Republic

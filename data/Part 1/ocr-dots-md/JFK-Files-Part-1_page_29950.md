@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29950.png
-
-Convert to Markdown1 April 1964
+1 April 1964
 
 MEMORANDUM IN LIEU OF ANNUAL FITNESS REPORT
 (For the period ending 31 March 1964)

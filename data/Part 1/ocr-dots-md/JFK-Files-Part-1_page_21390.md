@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21390.png
-
-Convert to MarkdownFBI Doc.
+FBI Doc.
 
 29 Sept. 1962 (Wash.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16540.png
-
-Convert to MarkdownDate: June 6, 1969
+Date: June 6, 1969
 
 On June 4, 1969, Sas Jon W. Hodson, III, SCOTT, and SHELDON ROBINSON, JR., arrested LOCKERT R. DILLON on the sidewalk in front of 2350 West Madison. This address houses the offices of the Chicago Chapter of the Black Panther Party (BPP), and DILLON was about to enter same at the time he was arrested.
 

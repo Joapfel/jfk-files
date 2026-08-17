@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15981.png
-
-Convert to Markdownat Chicago that JEFF FORT, leader of BR, Negro youth gang, Chicago's south side, had sent him a message that he (FORT) would blow off HAMPTON's head if HAMPTON continues going into BR territory.
+at Chicago that JEFF FORT, leader of BR, Negro youth gang, Chicago's south side, had sent him a message that he (FORT) would blow off HAMPTON's head if HAMPTON continues going into BR territory.
 
 HAMPTON indicated he desired to join forces with BR, but FORT is opposed to joining with BPP.
 

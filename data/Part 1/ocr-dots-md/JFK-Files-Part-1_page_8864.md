@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8864.png
-
-Convert to Markdown27. Habilidades especiales, capacidades, afiliaciones, (radio, fotogra- fia, etc.)
+27. Habilidades especiales, capacidades, afiliaciones, (radio, fotogra- fia, etc.)
 
 28. Situación monetaria - sueldo, depósitos en los bancos, bonos, pro- piedades.
 

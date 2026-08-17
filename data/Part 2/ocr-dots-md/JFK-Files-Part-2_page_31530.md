@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31530.png
-
-Convert to Markdown"NATIONAL GUARDIAN"
+"NATIONAL GUARDIAN"
 
 The Guide to Subversive Organizations and Publications,
 revised and published December 1, 1961, prepared and released

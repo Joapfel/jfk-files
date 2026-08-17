@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24115.png
-
-Convert to Markdown12
+12
 
 NEGRO, IN PEKING,
 ACCUSES CUBANS

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33849.png
-
-Convert to Markdown-3-
+-3-
 
 **Sweden**
 

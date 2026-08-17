@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25323.png
-
-Convert to Markdown2515 N.W. 122nd Street
+2515 N.W. 122nd Street
 Miami, Florida 33167
 
 7 May 1976

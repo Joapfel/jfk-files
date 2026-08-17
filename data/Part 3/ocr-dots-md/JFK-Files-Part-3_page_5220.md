@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5220.png
-
-Convert to Markdownwho are associated with the LCN in this territory. SF-2689-C-TE
+who are associated with the LCN in this territory. SF-2689-C-TE
 has indicated that the recruits are the "second army" of the
 LCN and to be aware of and on top of activities of the LCN,
 it is necessary to identify these recruits. Since the last

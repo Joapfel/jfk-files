@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2358.png
-
-Convert to Markdowndelegation from the United States; SDS leaders , and , who headed an SDS delegation of nine; and both of SKCC; a writer for the "New Republic" magazine; and , both of the American Friends Service Committee; a professor at University; and , an editor of magazine.
+delegation from the United States; SDS leaders , and , who headed an SDS delegation of nine; and both of SKCC; a writer for the "New Republic" magazine; and , both of the American Friends Service Committee; a professor at University; and , an editor of magazine.
 
 Both North Vietnam and the NLF sent delegations
 to the conference.

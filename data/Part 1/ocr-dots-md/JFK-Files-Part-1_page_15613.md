@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15613.png
-
-Convert to MarkdownORIG: D. Miesciur
+ORIG: D. Miesciur
 UNIT: AFN/2
 EXT : 8284
 DATE: 22 December 1960

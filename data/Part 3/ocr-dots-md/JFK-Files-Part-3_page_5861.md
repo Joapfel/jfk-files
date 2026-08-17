@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5861.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 community leaders in Geneva, Rome, Istanbul, Tel Aviv, Jersuleum, Saigon, Kyoto, Tokyo, and Honolulu. He would also, according to the article, attend a meeting of the International Inter-Religious Symposium on Peace, January 14-17, 1968, in New Delhi, India.
 

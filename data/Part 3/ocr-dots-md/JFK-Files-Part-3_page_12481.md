@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12481.png
-
-Convert to Markdown2 - Mr. J. A. Mintz (1 - Mr. J. B. Hotis) 1 - Mr. W. R. Wannall 1 - Mr. W. O. Cregar
+2 - Mr. J. A. Mintz (1 - Mr. J. B. Hotis) 1 - Mr. W. R. Wannall 1 - Mr. W. O. Cregar
 
 June 11, 1975
 

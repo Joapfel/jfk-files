@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25624.png
-
-Convert to Markdownp. 44 After the Cuban Missile Crisis, the whole operation came to a halt and Rosselli said he was never in contact with the Cubans again.
+p. 44 After the Cuban Missile Crisis, the whole operation came to a halt and Rosselli said he was never in contact with the Cubans again.
 
 p. 45-46 Rosselli met Harvey at Dulles Airport in Washington after the Missile Crisis, in June 1963, and had dinner with him in Washington that night.
 

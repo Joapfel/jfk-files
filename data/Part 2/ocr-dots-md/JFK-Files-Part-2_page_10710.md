@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10710.png
-
-Convert to MarkdownAt the bottom, c. of the calendar is following number appear on: 6395; 612; M.
+At the bottom, c. of the calendar is following number appear on: 6395; 612; M.
 
 2. 3¼" x 2½" 1971 pocket calendar with the following names and telephone numbers on the reverse side:
 

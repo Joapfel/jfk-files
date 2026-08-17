@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18351.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">PERIODIC PAY INCREASE REPORT</td>
     </tr>

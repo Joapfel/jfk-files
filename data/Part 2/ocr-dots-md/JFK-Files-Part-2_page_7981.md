@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7981.png
-
-Convert to Markdown*The magazine of the design, applications, and implications of information processing systems — and the pursuit of truth in input, output, and processing, for the benefit of people.*
+*The magazine of the design, applications, and implications of information processing systems — and the pursuit of truth in input, output, and processing, for the benefit of people.*
 
 ## World Affairs and Social Policy (continued)
 

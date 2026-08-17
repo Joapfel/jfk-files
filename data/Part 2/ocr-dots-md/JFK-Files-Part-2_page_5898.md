@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5898.png
-
-Convert to MarkdownDirectorate of Administration
+Directorate of Administration
 
 DA Information Management Officer (DA/IMO)
 

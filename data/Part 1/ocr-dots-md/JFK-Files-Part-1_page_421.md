@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_421.png
-
-Convert to Markdown14-00000
+14-00000
 
 -0433/1 6 Mar 78
 

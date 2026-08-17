@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4693.png
-
-Convert to MarkdownSECRET
+SECRET
 
 got bigger and bigger and bigger -- it was crazy. We even had what
 was called a Vietnam levy. Des Fitzgerald decided, when he became DDP, he was

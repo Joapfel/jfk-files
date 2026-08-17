@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17625.png
-
-Convert to Markdown2 July 1958
+2 July 1958
 
 : MEMORANDUM FOR CI/OPS
 : ATTENTION : Mr. Robert Brown

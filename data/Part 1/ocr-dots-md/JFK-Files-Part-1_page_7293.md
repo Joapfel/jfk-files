@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7293.png
-
-Convert to Markdown4.14 Sleep
+4.14 Sleep
 
 <table><tr><td rowspan="2">4.14.01</td><td rowspan="2">Does he</td><td>Enjoy sleep and fall off easily?</td><td>Yes No</td></tr><tr><td>Read or walk to prepare himself for sleep?</td><td>Yes No</td></tr><tr><td rowspan="2">4.14.02</td><td rowspan="2">Does he</td><td>Rise easily?</td><td>Yes No</td></tr><tr><td>Prefer to remain bed until the last moment?</td><td>Yes No</td></tr><tr><td rowspan="2">4.14.03</td><td rowspan="2">Is he</td><td>An early starter?</td><td>—</td></tr><tr><td>A late starter?</td><td>—</td></tr></table>
 

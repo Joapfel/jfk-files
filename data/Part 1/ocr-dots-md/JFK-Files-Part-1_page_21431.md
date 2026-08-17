@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21431.png
-
-Convert to MarkdownTO Director
+TO Director
 Federal Bureau of Investigation
 Attention No. 3, J. Papich
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20346.png
-
-Convert to Markdown4.
+4.
 
 5.
 

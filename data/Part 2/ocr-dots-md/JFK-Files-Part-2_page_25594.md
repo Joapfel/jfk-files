@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25594.png
-
-Convert to Markdown# GENERAL SERVICES ADMINISTRATION
+# GENERAL SERVICES ADMINISTRATION
 National Archives and Records Service
 
 To all whom these presents shall come, Greeting:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6366.png
-
-Convert to MarkdownShelton claimed a standard deduction on each of the returns and they were filed timely and the tax paid which was shown to be due thereon.
+Shelton claimed a standard deduction on each of the returns and they were filed timely and the tax paid which was shown to be due thereon.
 
 3. I obtained MLW's tax returns from the files of the District Director, Birmingham, Alabama. They disclose gross receipts and taxable income as follows:
 

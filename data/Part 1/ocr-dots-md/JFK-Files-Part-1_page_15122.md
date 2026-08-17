@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15122.png
-
-Convert to Markdowneinzige Arbeitsstelle an die ich mich erinnere
+einzige Arbeitsstelle an die ich mich erinnere
 war die letzte Stelle die sie innehatte als
 Kassiererin in einem Schuhreparatur-Geschäft
 (artel ) in der Sowetskaja Ulitsa in Tbilisi.

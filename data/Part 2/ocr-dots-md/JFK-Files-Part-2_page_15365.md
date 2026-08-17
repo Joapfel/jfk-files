@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15365.png
-
-Convert to MarkdownSAC, New York (105-31099)
+SAC, New York (105-31099)
 
 Director, FBI (62-103139)
 

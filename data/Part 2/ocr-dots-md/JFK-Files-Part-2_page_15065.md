@@ -1,4 +1,2 @@
-# JFK-Files-Part-2_page_15065.png
-
-Convert to Markdownthe last 25 persons publicly announced and confirmed by the Senate.
+the last 25 persons publicly announced and confirmed by the Senate.
 He stated that this check revealed that the Bureau had only asked for IRS information in connection with about 8 of these 25 people. He stated he felt this was strange because there was some rather interesting information in connection with some of these people, such as the fact that one of these individuals, whom he did not identify, had not filed an income tax return for the past three years. (We have run checks on all requests received from the White House on Presidential appointees and it would appear from the above that the White House only asked for us to conduct investigations on 8 of the last 25 publicly announced appointees.)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10354.png
-
-Convert to Markdown7 May 197
+7 May 197
 
 C. V. NOYES
 

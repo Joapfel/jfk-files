@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12012.png
-
-Convert to Markdownb. Symbol number index
+b. Symbol number index
 
 (1) The same official as set out in la (1) above is to maintain the symbol number index. This index shall contain a card for each individual to whom a symbol number has been assigned.
 

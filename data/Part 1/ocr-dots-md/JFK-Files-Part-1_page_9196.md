@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9196.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMO OF RECORD
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18039.png
-
-Convert to Markdown3. Project Budget: The following is a cost breakdown for the preceding, current, and next fiscal years:
+3. Project Budget: The following is a cost breakdown for the preceding, current, and next fiscal years:
 
 | | FY 1971<br>Obligations<br>(Estimated) | FY 1972<br>Request | FY 1973<br>Projection | FY 1974<br>Projection |
 | :--- | :--- | :--- | :--- | :--- |

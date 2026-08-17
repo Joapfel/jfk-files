@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30604.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9/30 concern over bottom cover
 DEVELOP. under name CHADIN

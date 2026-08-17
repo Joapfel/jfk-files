@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_331.png
-
-Convert to Markdowntherefore, relied upon the experience, expertise, and judgment of the various supervisors assigned to the office for the day to day direction of the various matters under investigation, including the investigation of the Black Panther Party.
+therefore, relied upon the experience, expertise, and judgment of the various supervisors assigned to the office for the day to day direction of the various matters under investigation, including the investigation of the Black Panther Party.
 
 It was further explained that if a problem was encountered or a particularly unusual situation developed, Gebhardt was, of course, consulted and was available for such consultation to resolve any particular problem areas.
 

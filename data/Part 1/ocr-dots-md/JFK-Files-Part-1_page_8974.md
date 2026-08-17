@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8974.png
-
-Convert to Markdown- 11 -
+- 11 -
 
 changes come about, let us be careful that we do not ruin and that we do not set back our program by taking precipitous action, without plan. Suddenly, it came almost as a jarring note, he said--well perhaps we're not ready to act yet, but whatever we do, we've got to do it reasonably so that we don't lose the revolution as such. I don't know whether he had reference to the fact that maybe in Cuba the revolution did not work because certainly he was very pro Castro. I think that there was a kind of note of wariness in his talk, and it is interesting.
 

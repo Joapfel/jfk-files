@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11841.png
-
-Convert to Markdown# New Left Section
+# New Left Section
 
 ## Special Investigations Unit - East
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8802.png
-
-Convert to Markdownwork with any or every sector he wished but important
+work with any or every sector he wished but important
 point was that RUIZ was to be the boss.
 
 Memo for the Record by Alfonso RODRIGUEZ dated

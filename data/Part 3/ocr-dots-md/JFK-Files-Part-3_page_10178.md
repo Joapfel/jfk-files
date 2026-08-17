@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10178.png
-
-Convert to MarkdownNR 003 AX CODE
+NR 003 AX CODE
 
 11:43PM NITEL MAY 3, 1975 WMM
 

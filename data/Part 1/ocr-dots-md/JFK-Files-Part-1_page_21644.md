@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21644.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NOSENKO has furnished information on the travel of certain United States Government officials, including Congressional representatives to the USSR in 1955 - 1956; and the trip of Supreme Court Justice William O. DOUGLAS in 1955 which, when considered with the previously mentioned specifics, adequately substantiate his claimed service in the Seventh Department and work against American-British Commonwealth tourists during the late May 1955 - December 1959 period.
 

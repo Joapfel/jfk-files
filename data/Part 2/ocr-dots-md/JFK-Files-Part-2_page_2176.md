@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2176.png
-
-Convert to Markdown4 April 1969
+4 April 1969
 
 # MEMORANDUM
 

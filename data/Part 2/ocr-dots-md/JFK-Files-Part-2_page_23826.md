@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23826.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 larger in terms of finances, also. Then you have both of the
 problems we addressed in the paper, which was the risk of

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24167.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, KUWOLP
 

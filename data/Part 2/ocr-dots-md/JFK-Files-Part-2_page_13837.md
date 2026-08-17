@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13837.png
-
-Convert to MarkdownK. William O'Connor, Esq.
+K. William O'Connor, Esq.
 
 Page Two
 

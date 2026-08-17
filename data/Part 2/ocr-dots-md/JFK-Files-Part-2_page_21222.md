@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21222.png
-
-Convert to MarkdownIt is noted that NOSENKO was in the 7th Department from 1955 to 1960 and in the 1st Department in 1960-61.
+It is noted that NOSENKO was in the 7th Department from 1955 to 1960 and in the 1st Department in 1960-61.
 
 4. [ROBERT CHARLES CHRISTNER] On page 407 it is stated NOSENKO did not indicate the source or date he acquired information on ROBERT CHARLES CHRISTNER (S).
 

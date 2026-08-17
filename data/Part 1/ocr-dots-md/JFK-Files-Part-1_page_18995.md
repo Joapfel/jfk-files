@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18995.png
-
-Convert to MarkdownNPD
+NPD
 
 National Demokratische Partei. Deutschland (National Democratic Party of Germany)
 

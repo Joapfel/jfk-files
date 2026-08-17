@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9742.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>PROG:</td><td>ETbikerdanos/jnw</td></tr><tr><td>PRI:</td><td>L/C/M/1</td></tr><tr><td>CXT:</td><td>7375</td></tr><tr><td>DATE:</td><td>26 Sept 68</td></tr></table>
 

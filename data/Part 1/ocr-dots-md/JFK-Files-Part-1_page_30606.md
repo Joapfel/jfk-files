@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30606.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="3">"PAY ADJUSTMENT IN ACCORDANCE WITH S U.S.C. 5305 AND EXECUTIVE ORDER 11691 PURSUANT TO AUTHORITY OF OCI AS PROVIDED IN THE CIA ACT OF 1949, AS AMENDED, AND OCI DIRECTIVE CATED 08 OCTOBER 1962."</td>

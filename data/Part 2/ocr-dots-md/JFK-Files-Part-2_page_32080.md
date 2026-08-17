@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32080.png
-
-Convert to Markdown# AGENT REPORT
+# AGENT REPORT
 
 For use of this form, see FM 30-17(C); AR 381-130; the proponent agency is the Office of the Assistant Chief of Staff for Intelligence.
 

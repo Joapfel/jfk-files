@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4811.png
-
-Convert to MarkdownREVIEWED BY D&J JFK TASK FORCE
+REVIEWED BY D&J JFK TASK FORCE
 
 ON 10/2/97
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3226.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 operation of the two radio transmitters (one 50,000 watts and the other 7,500 watts) was that the Navy was going to purchase scientific signal time from the Gibralter Steamship Company, an Agency proprietary, which was nominally the operator of a commercial radio station then being established.
 

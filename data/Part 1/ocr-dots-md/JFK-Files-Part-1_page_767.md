@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_767.png
-
-Convert to MarkdownPOA CANCELLED
+POA CANCELLED
 
 SECRET
 

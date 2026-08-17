@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16550.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td style="vertical-align: top; padding-right: 20px;">
       CABLE SECRETARIAT DISSEMINATION<br/>

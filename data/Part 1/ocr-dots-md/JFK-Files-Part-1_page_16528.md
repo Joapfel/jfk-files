@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16528.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 EXCERPT FROM JOURNAL
 

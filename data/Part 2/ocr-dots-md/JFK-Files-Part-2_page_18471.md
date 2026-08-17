@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18471.png
-
-Convert to Markdownf. Over what period of time did the disrup-tive activities occur?
+f. Over what period of time did the disrup-tive activities occur?
 
 g. What evaluations were made of their effects?
 

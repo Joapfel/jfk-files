@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5241.png
-
-Convert to Markdown13-00000
+13-00000
 
 NOV. 26.1997 12:52PM
 

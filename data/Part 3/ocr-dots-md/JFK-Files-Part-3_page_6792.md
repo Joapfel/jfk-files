@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6792.png
-
-Convert to MarkdownMemo to Mr. Belmont from A. Rosen
+Memo to Mr. Belmont from A. Rosen
 
 Re: Hunter Pitts O'Dell
 

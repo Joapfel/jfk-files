@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24090.png
-
-Convert to Markdownindicated his displeasure about the lack of consultation on the impropriety of the attempt itself.* There is no evidence that the Attorney General told the CIA that it must not engage in assassination plots.
+indicated his displeasure about the lack of consultation on the impropriety of the attempt itself.* There is no evidence that the Attorney General told the CIA that it must not engage in assassination plots.
 
 At a meeting of the Special Group Augmented in August 1962, well after the assassination efforts were underway, Robert McNamara is said to have raised the question of whether the assassination of Cuban leaders should be explored, and General Lansdale issued an action memorandum assigning the CIA the task of preparing contingency plans for the assassination of Cuban leaders. While McCone testified that he had immediately made it clear that assassination was not to be discussed or condoned, Harvey's testimony and documents which he wrote after the event indicate that Harvey may have been confused over whether McCone had objected to the use of assassination, or whether he was only concerned that the subject not be put in writing. In any
 

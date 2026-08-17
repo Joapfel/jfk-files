@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18581.png
-
-Convert to Markdown11 AUG 1965
+11 AUG 1965
 
 Compartmented
 Clearance

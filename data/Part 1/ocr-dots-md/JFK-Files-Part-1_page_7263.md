@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7263.png
-
-Convert to MarkdownCONTACT REPORT
+CONTACT REPORT
 
 SUBJECT: LICANNY-1
 DATE OF MEETING: 28 September 1966

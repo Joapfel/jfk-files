@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_20131.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 For the information of the Albany Division, the New York Division has been instructed to prepare a national organizational report on WONAAC, to be submitted by December, 1972.

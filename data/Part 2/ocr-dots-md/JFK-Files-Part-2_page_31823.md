@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31823.png
-
-Convert to MarkdownDB PCH 1584 - continued. KACZ ARCEK, Ward M.J., DPC: Aug 06, 47, Boulbitz,
+DB PCH 1584 - continued. KACZ ARCEK, Ward M.J., DPC: Aug 06, 47, Boulbitz,
 West Germany, SSAN: 1C40 1665
 
 #15a. Subject was naturalized on 24 Oct 69 in US District Court, Honolulu, Hawaii. Naturalization No: 9271173

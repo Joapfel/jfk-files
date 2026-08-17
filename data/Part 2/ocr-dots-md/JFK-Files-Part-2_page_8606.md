@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8606.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Agency had become involved in a chain of events which forced it to intervene militarily in a second country to protect its operation against Cuba. The President may have set the original policy, but there was no way he could have known that simply by approving an attack on Cuba, he would set in train Agency paramilitary activities against Guatemala.
 

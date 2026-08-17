@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1110.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DDO INSTRUCTION
 NO. 50-10

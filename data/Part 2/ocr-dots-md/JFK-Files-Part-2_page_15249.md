@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15249.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 TO : M. C. Sullivan
 FROM : W. R. Wannall

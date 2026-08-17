@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29283.png
-
-Convert to Markdown# INS File Reviews...page 11
+# INS File Reviews...page 11
 
 J. Edward Browder, Jr.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13830.png
-
-Convert to MarkdownE JOB DATA
+E JOB DATA
 
 78. Job title: Second Secretary.
 

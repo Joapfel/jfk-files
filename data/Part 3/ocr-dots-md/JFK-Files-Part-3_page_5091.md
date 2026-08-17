@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5091.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Memo to Mr. W. R. Wannall
 Re: Senstudy 75

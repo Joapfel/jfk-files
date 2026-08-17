@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3286.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 election campaign, struck sensitive nerves within
 the Agency; and on 26 October 1960, General Cabell

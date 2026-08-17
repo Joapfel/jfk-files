@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7043.png
-
-Convert to MarkdownSUBJECT: THE JFK DECLASSIFICATION EXPERIENCE
+SUBJECT: THE JFK DECLASSIFICATION EXPERIENCE
 
 DA/OIM/IRG/SCD/CABriggs:bkh/31835 (29 Oct 99)
 s:/oim/fo/jim/hrp/jfk/C.B. JFK Declass Exp.doc

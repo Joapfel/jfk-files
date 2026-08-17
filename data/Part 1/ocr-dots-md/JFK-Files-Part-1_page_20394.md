@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20394.png
-
-Convert to MarkdownPUBLICATIONS
+PUBLICATIONS
 
 10
 

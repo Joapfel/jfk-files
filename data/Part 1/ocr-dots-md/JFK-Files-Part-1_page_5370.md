@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5370.png
-
-Convert to MarkdownIl est difficile en vérité, de déraciner cette prawidence à la politique tapagoue, à la politique verbeuse à l'infra-politique néfaste pour le citoyen, et encore plus néfaste pour la Nation nationale.
+Il est difficile en vérité, de déraciner cette prawidence à la politique tapagoue, à la politique verbeuse à l'infra-politique néfaste pour le citoyen, et encore plus néfaste pour la Nation nationale.
 
 Cependant ne s'agait à récoudre les problèmes de l'house et l'injection constructif et fructueuse par la M.C.H., s'est même de faire d'abord une nouvelle génération politico-économique qui partage avec soi les responsabilités que peuvent ce renouveau de la Nation. Des Missionnaires de la Fégénération Nationale, des Missionnaires "dont la valeur et l'efficacité mettent en jou des hommes convaincus qui travaillent à discipliner l'Economie et vue d'un objectif bien défini: des hommes qui rejettent systématiquement toute idée de" fatalité économiques", mutation de la conscience sociale", Voli! il ce qu'impose notre triomphe total pour et en faveur de notre pèple.
 

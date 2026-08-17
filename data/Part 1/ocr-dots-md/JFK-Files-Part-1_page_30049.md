@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30049.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2"> REQUEST FOR PERSONNEL ACTION </td>
     <td colspan="3"> H. M. VOGUE, III </td>

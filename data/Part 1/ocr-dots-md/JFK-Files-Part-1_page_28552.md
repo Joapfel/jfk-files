@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28552.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CONFIDENTIAL FUNDS PERSONNEL ACTION
 

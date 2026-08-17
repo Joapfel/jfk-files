@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35148.png
-
-Convert to Markdown# GASTOS GENERALES
+# GASTOS GENERALES
 
 ANEXO "I-I"
 Boja No. 3

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22534.png
-
-Convert to MarkdownA 2 July 1965 handwritten note apparently prepared for a briefing of Wiley states partially, "Turn over any assts to 'B' (FBI) they want - cooperate."
+A 2 July 1965 handwritten note apparently prepared for a briefing of Wiley states partially, "Turn over any assts to 'B' (FBI) they want - cooperate."
 
 In July 1965, Mendoza received information from
 Wiley concerning his contacts with the American Security

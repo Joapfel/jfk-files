@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9707.png
-
-Convert to MarkdownDate of transcription: 7/29/74
+Date of transcription: 7/29/74
 
 JAMES KEITH, in-mate, Burlington County Jail, was made known the identity of the interviewing agent by a show of credentials and was advised the FBI was inquiring of him any information he had regarding the activities of WILLIAM ERIC CARROLL, FRANK AUGUST DRAGER, and a group called the National Revolutionary Army.
 

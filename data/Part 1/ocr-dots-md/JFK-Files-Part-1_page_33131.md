@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33131.png
-
-Convert to Markdown<table>
+<table>
    <tbody>
     <tr>
      <td>RE:J. MERTZ:bly</td>

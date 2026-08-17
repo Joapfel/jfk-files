@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6147.png
-
-Convert to Markdown56 Md. L. Rev. 1, *18
+56 Md. L. Rev. 1, *18
 
 n107. See generally 9 James Madison, The Writings of James Madison (Gaillard Hunt ed., 1910) (photo. reprint 1971) (discussing how the Framers of the Constitution were affected by their prior experiences with the English).
 

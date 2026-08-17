@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16576.png
-
-Convert to Markdownwhether violations of 18 U.S.C. 242 and 241 are involved.
+whether violations of 18 U.S.C. 242 and 241 are involved.
 
 The investigation should include, but need not be limited
 to, the following.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8092.png
-
-Convert to MarkdownAppendix B
+Appendix B
 
 FURTHER DOCUMENTS PERTAINING TO THE FBI
 AND DEPARTMENT OF JUSTICE

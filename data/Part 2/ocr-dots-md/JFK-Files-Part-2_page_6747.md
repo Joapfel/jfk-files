@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6747.png
-
-Convert to MarkdownHEARING
+HEARING
 
 before the
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8048.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Subject: Further Information on the Juventud Socialista.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10263.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 A major thrust of Professor Elliff's paper concerned FBI authority derived from legislative enactments as opposed to that derived from Presidential directives, beginning with a directive issued by President Roosevelt in September, 1939. Professor Elliff is of the opinion that the 1939 directive, which was reiterated on three subsequent occasions, was magnified by the FBI from its original purpose to a definitive order to conduct intelligence-type investigations.
 

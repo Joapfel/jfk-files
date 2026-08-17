@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31136.png
-
-Convert to Markdowndeliberately tough on CIA personnel for
+deliberately tough on CIA personnel for
 security breaches in order to build
 his cover as a non-CIA foreign service officer.
 His salary was paid by the State Department SECRET

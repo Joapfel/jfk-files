@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9695.png
-
-Convert to Markdown10 February 1964
+10 February 1964
 
 MEMORANDUM FOR: COG/NC
 SUBJECT : LICOOKY-1

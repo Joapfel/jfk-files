@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23811.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION<br/>SECRET/KAPOK</th></tr><tr><th>TO</th><td>Chief of Station, Algiers</td><th>PROPOSED</th><td>RECEIVED</td></tr></thead><tbody><tr><th>INFO.</th><td>Chief of Station, Paris/LCPIPIT; Chief, AP<br/>Chief, VE; Chief, KUDESK; Chief, KUWOLFP</td><th>XXX</th><td>NO DOCUMENT REQUIRED</td></tr><tr><th>FROM</th><td>Chief of Station, London</td><th>ABSTRACT</th><td></td></tr><tr><th>SUBJECT</th><td>STEBOHY/Operational<br/>Plans and Progress with STEBOHY/1</td><th>CROSSMARKED</th><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION<br/>SECRET/KAPOK</th></tr><tr><th>TO</th><td>Chief of Station, Algiers</td><th>PROPOSED</th><td>RECEIVED</td></tr></thead><tbody><tr><th>INFO.</th><td>Chief of Station, Paris/LCPIPIT; Chief, AP<br/>Chief, VE; Chief, KUDESK; Chief, KUWOLFP</td><th>XXX</th><td>NO DOCUMENT REQUIRED</td></tr><tr><th>FROM</th><td>Chief of Station, London</td><th>ABSTRACT</th><td></td></tr><tr><th>SUBJECT</th><td>STEBOHY/Operational<br/>Plans and Progress with STEBOHY/1</td><th>CROSSMARKED</th><td></td></tr></tbody></table>
 
 <table><caption>ACTION REQUIRED - REFERENCES</caption><tbody><tr><td>Ref:</td><td>OELA 43,237</td></tr></tbody></table>
 

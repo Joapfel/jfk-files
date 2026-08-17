@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25367.png
-
-Convert to Markdown# The Calculated Rise And Abrupt Descent Of Johnny Roselli
+# The Calculated Rise And Abrupt Descent Of Johnny Roselli
 
 By Rudy Maxa
 

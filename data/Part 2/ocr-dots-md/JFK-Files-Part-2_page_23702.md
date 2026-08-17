@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23702.png
-
-Convert to MarkdownCIA as to the bona fides of a defector and there's no way for the government to come to a decision about it.
+CIA as to the bona fides of a defector and there's no way for the government to come to a decision about it.
 
 And this really makes that point and leads to the further point that we believe there ought to be some mechanism whereby some decision can be reached. Now people may still have reservations, as they do about this particular individual we refer to here. But in the end one has to make a decision and simply keeping him in a jail some place is probably not a useful way. to proceed, and in fact, this is the kind of recommendation that comes from Mr. Angleton and seems to be supported by other people, even his successor at the Agency.
 

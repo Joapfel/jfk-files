@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26744.png
-
-Convert to MarkdownKeel 22-ICO-28
+Keel 22-ICO-28
 
 3 May 1965
 

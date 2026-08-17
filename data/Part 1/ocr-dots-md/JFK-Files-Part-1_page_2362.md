@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2362.png
-
-Convert to MarkdownE. Can the information furnished by NOSENKO be considered in toto as having resulted in material damage to the KGB and/or has the information furnished by NOSENKO been of significant benefit to Western Intelligence? The conclusion in regard to both of the above questions is affirmative, even though it is realized that ultimate loss to the KGB and ultimate benefit to Western Intelligence are both partly of an intangible nature and not susceptible to accurate measurement.
+E. Can the information furnished by NOSENKO be considered in toto as having resulted in material damage to the KGB and/or has the information furnished by NOSENKO been of significant benefit to Western Intelligence? The conclusion in regard to both of the above questions is affirmative, even though it is realized that ultimate loss to the KGB and ultimate benefit to Western Intelligence are both partly of an intangible nature and not susceptible to accurate measurement.
 
 NOSENKO has, as previously indicated, furnished voluminous information during current and previous interviews. An accurate total of specific cases is not possible at this time and would at best be only an interesting figure, the actual significance of which would be marginal.
 

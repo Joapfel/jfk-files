@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13753.png
-
-Convert to MarkdownEMBAJADA CUBANA.- 14-13-26.-
+EMBAJADA CUBANA.- 14-13-26.-
 
 6 julio 64.-
 M30-L31.

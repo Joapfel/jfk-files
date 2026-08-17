@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_9291.png
-
 should be offered only a fixed fee, —half down,
 half on publication. Also credit line as collaborator if you think
 he deserves it. Consult Ken as to what would be a reasonable fee

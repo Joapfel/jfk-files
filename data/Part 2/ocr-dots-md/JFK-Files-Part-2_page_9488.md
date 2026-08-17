@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9488.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## "INNER CITY VOICE"
 

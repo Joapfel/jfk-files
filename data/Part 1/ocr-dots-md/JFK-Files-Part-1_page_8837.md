@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8837.png
-
-Convert to Markdown5 November 1965
+5 November 1965
 
 MEMORANDUM FOR: Chief, CI/OA
 ATTENTION : Mr. Brown

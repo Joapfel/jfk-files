@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24955.png
-
-Convert to MarkdownSECRET/RYBAT
+SECRET/RYBAT
 
 Attachment C to HESSW-2742
 

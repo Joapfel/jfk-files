@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9798.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 Section 8 lists the conditions for developing information which is of investigative and, by inference, adjudicative interest.
 

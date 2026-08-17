@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16013.png
-
-Convert to MarkdownMEETING OF WEST SUBURBAN CIVIL WELFARE AT FIRST BAPTIST CHURCH, 2114 MAIN STREET, MELROSE PARK, ILLINOIS, OCTOBER 14, 1969
+MEETING OF WEST SUBURBAN CIVIL WELFARE AT FIRST BAPTIST CHURCH, 2114 MAIN STREET, MELROSE PARK, ILLINOIS, OCTOBER 14, 1969
 
 He pleaded for unity among all poor people of every color to unite against capitalism, 'we've had too many wars on poverty, let's have some wars on the rich."
 

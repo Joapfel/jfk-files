@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15449.png
-
-Convert to MarkdownMemorandum Wannall to Sullivan
+Memorandum Wannall to Sullivan
 
 Re: INTELLIGENCE COVERAGE OF
 NON-SOUT-ET-BLOC COUNTRIES

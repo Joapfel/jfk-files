@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5923.png
-
-Convert to Markdownindictment with the State of Illinois charging he and fourteen others with kidnapping and related crimes. Junior advised that this was another case of police harassment of the BPP, and another example of how the BPP has lost its attractiveness to people in Chicago. Of the sixteen people who were originally charged in the kidnapping case, including the deceased Hampton, only two of those, Yvonne King, and Billy Brooks, continue as members of the BPP.
+indictment with the State of Illinois charging he and fourteen others with kidnapping and related crimes. Junior advised that this was another case of police harassment of the BPP, and another example of how the BPP has lost its attractiveness to people in Chicago. Of the sixteen people who were originally charged in the kidnapping case, including the deceased Hampton, only two of those, Yvonne King, and Billy Brooks, continue as members of the BPP.
 
 Junior claims to have no contact with any members or former members of the BPP, except when the persons charged with the kidnapping report for trial every month. Junior cites the numerous continuances of the kidnapping case as an example of white hobbyists playing with young black revolutionary hopefuls. To him the continuances represent a conspiracy on the part of the BPP attorneys and the States Attorney's Office, as on alternate months they ask that the case be continued and neither ever objects. If he could afford it he would not avail himself of the BPP attorney's services.
 

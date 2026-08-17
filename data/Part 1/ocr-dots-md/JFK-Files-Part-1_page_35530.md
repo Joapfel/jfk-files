@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35530.png
-
-Convert to Markdown3 March
+3 March
 
 Three thousand one hundred thirty-eight and 76/100 (Cashier's Check # 389049). Adjustment of Nov 64 bill (Invoice #1382) and Fob 65 bill (Invoice #1450) of "El Medico y Usted" program on WRUL.
 

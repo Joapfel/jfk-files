@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11280.png
-
-Convert to MarkdownNR026 CG CODE
+NR026 CG CODE
 
 610PM NITEL 3-25-75 RWR
 TO DIRECTOR

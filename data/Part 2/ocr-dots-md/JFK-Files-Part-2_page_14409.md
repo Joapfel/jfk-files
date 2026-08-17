@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14409.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Memorandum to Mr. W. R. Wannall
 Re: Senstudy 75
 
 Memorandum Cregar to Wannall dated 4/14/75 reported that Mr. J. Dennis Miller of the Legal Counsel Division was preparing the key issue paper entitled "Intelligence Files and Privacy." A copy of the outline for this paper was presented to the EXCOM with the commitment that a draft of the paper would be ready for review in the next two to three weeks.

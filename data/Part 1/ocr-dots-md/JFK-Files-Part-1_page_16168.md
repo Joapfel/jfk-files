@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16168.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="4">S-NO:R WILL CHECK CLASSIFICATION TOP AND BOTTOM</td>

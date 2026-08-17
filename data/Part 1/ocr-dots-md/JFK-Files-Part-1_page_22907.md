@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22907.png
-
-Convert to MarkdownWINFRED C. BARNES
+WINFRED C. BARNES
 
 Director
 Esso Inter-America Inc.

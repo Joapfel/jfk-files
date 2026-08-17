@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10016.png
-
-Convert to MarkdownMAR 25 1974 11:14 PM '75
+MAR 25 1974 11:14 PM '75
 
 RECEIVED
 ELETYPE UNIT

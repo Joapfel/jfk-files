@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6911.png
-
-Convert to Markdown592 EO/ATF/
+592 EO/ATF/
 
 ORIG : STEPHEN MILLETT
 UNIT : CI/SPD

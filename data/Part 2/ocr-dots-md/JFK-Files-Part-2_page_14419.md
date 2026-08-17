@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14419.png
-
-Convert to Markdown# 9. Techniques of Paraphrasing
+# 9. Techniques of Paraphrasing
 
 Paraphrasing of intelligence material may include the physical removal of the identity of a person, place or thing from written communication with or without regard for the residual content. Use of a substitute terms is an example of paraphrasing which permits intelligent continuity of the material without revealing the true identity. Paraphrasing does not extend to the use of false or misleading substitute material.
 

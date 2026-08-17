@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6688.png
-
-Convert to MarkdownNew Orleans, Sep. 23 de 1963
+New Orleans, Sep. 23 de 1963
 
 Sr. Ramon Camanyd,
 Hogguin, Cuba.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5762.png
-
-Convert to MarkdownI. 7 Sep 72
+I. 7 Sep 72
 
 B4
 

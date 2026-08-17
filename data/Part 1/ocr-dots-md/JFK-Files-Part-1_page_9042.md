@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9042.png
-
-Convert to MarkdownSECRET
+SECRET
 
 exercises varying somewhat from those prescribed by TICHBORN's New York doctor. TICHBORN said that his back pains him toward the end of the day. Dr. Feffer opined that this condition should be cleared up within three months.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35276.png
-
-Convert to MarkdownMiami, Octubre 6 de 1960
+Miami, Octubre 6 de 1960
 
 Señores Ejecutivos
 Frente Revolucionario Democrático

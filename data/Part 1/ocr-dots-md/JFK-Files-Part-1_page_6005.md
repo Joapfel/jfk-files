@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6005.png
-
-Convert to MarkdownFINANCIAS - RESUMEN
+FINANCIAS - RESUMEN
 
 Inforne No. 1 (Cst. 31)
 

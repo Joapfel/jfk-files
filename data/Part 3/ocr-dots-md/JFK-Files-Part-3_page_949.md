@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_949.png
-
-Convert to Markdown## 2. Dissemination of Information
+## 2. Dissemination of Information
 
 The proper utilization of information received by the FBI, either through investigation or otherwise, is foremost among our responsibilities. Such information may be of vital interest to another Government Agency and/or local law enforcement agency, and it is not FBI policy to withhold from dissemination information to which other agencies are justifiably entitled. Dissemination of information to other agencies is handled at the Headquarters level in Washington, D. C., as well as in the field.
 

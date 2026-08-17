@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26449.png
-
-Convert to MarkdownSECRET
+SECRET
 
 -3- 660, NOVEMBER 16, 11 AM, FROM SAIGON
 

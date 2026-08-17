@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22648.png
-
-Convert to Markdown1. assassination?
+1. assassination?
 
 2. Mr Angleton. Relating to assassination, KGB agents,
 3. VASSALL

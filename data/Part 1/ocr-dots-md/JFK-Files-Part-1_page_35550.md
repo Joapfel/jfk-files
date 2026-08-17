@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35550.png
-
-Convert to MarkdownRADIO NEW YORK WORLDWIDE
+RADIO NEW YORK WORLDWIDE
 
 January 27, 1965
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31664.png
-
-Convert to Markdown2.
+2.
 
 A sixth source advised in April, 1963, that WALTER STACK is a current CP member in San Francisco.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3216.png
-
-Convert to Markdown1828
+1828
 
 your own admission —
 

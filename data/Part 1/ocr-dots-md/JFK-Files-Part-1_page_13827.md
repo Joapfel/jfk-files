@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13827.png
-
-Convert to Markdown14-00000
+14-00000
 
 42. Mistress or lover's times of meeting. 3. data.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31043.png
-
-Convert to Markdown# Review of Manuel Ray y Rivero Files
+# Review of Manuel Ray y Rivero Files
 ## Volume vi of xviii
 
 Page 2

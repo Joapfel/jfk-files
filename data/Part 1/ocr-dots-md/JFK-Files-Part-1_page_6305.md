@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6305.png
-
-Convert to MarkdownENVELOPE:
+ENVELOPE:
 
 Mrs. Consuelo C. de MIRAS
 Xicotencalt 84

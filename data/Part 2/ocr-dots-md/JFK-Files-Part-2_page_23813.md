@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23813.png
-
-Convert to Markdownsuppose the same arguments could be used here on this matter.
+suppose the same arguments could be used here on this matter.
 
 Mr. Kirbow. But the point I raised at the staff meeting just before the Committee came back, when the subject was raised, was did Admiral Raborn, as a retired military officer, currently in a civilian status, although he was former -- break any American law, or had they sold it to this, would it have been a violation of the law, and the answer was no.
 

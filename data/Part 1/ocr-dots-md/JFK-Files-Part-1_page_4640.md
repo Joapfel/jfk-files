@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4640.png
-
-Convert to MarkdownFBI CABLES
+FBI CABLES
 
 **DATE:** 9 NOVEMBER 1974
 **CLASSIFICATION:** CONFIDENTIAL

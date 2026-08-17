@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5958.png
-
-Convert to MarkdownNew Memo\Standard
+New Memo\Standard
 
 11 August 1998
 

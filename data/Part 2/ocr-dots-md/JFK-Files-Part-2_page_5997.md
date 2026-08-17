@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5997.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 CIA - 7 - Review of CIA Histories
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6412.png
-
-Convert to MarkdownMessrs. Aly and Moore
+Messrs. Aly and Moore
 
 June 9, 1997
 

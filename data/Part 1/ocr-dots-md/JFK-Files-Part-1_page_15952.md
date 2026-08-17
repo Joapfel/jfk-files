@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15952.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG:</td><td colspan="3">ROBERT BOUCHARD</td></tr><tr><td>UNIT:</td><td colspan="3">AF/5</td></tr><tr><td>EXT:</td><td colspan="3">5032 1563</td></tr><tr><td>DATE:</td><td colspan="3">19 July 1962</td></tr></table>
 

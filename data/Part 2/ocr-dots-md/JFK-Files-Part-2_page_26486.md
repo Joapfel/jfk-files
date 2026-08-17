@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26486.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. We estimate that there are at present about 200 men in paramilitary units. Four corroborative reports establish that the regular Communist Party of Ecuador is forming a paramilitary command of 10 squads of 10 men each scattered throughout the country.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20711.png
-
-Convert to Markdown1 - Mr. R. L. Snack (Gord)
+1 - Mr. R. L. Snack (Gord)
 1 - Mr. A. W. Gray
 
 CODE

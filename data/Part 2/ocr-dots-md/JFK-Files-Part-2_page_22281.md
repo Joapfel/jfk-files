@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22281.png
-
-Convert to Markdownindividuals in it.
+individuals in it.
 
 Senator Schweiker. Did you get the other photograph, the supposed Oswald photograph leaving the Embassy?
 

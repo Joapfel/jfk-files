@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15675.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 referred to the inquest as illegally constituted because its members were not sworn in within four days of Hampton's body and that the jury as well as others handling the inquest, are not predisposed toward finding out the truth.
 

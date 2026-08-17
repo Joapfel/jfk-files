@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4155.png
-
-Convert to Markdown13-00000
+13-00000
 
 medicine and that the small amount of arms involved should not be cached.
 Otherwise the operation was approved.

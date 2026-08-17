@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14381.png
-
-Convert to MarkdownReport No. 316 (continued)
+Report No. 316 (continued)
 
 They continue to talk about De La Nuez, particularly the visitors. Ruiz says that after this they are going to have to strengthen the cadros, that it is important for everyone. He says he has spoken to J. MAURIL CASTRERIAZ (phon), and they have agreed to form new very strict cadres.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31511.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 of the people in the New York office talk about is the payment of $37,500 to Fred C. Smith, who worked for approximately one month in drawing up a Dimes for Freedom campaign which, as you recall, was rejected as a basis for this year's campaign.
 

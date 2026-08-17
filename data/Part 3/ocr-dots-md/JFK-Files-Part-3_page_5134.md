@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5134.png
-
-Convert to Markdown# Part IV -- requested for access by September 4, 1975
+# Part IV -- requested for access by September 4, 1975
 
 1. Materials pertaining to all actions undertaken by the FBI, in connection with COINTELPRO or otherwise, to encourage tension between the Chicago Black Panther Party and Chicago youth gangs.
 

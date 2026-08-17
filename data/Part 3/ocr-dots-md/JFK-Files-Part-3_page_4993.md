@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4993.png
-
-Convert to Markdown"On the morning of September 4, 1969, the Metropolitan Police Department was advised by the Washington National Airport Police that some silverware had been found near one of the entrances to the terminal at the Washington National Airport. The silverware was recovered by the Metropolitan Police Department and processed for latent fingerprints without success and the items were returned to Mrs. Kraft upon her identification of the silverware. No suspects were developed by either the FBI or the Metropolitan Police Department in the investigation of the matter."
+"On the morning of September 4, 1969, the Metropolitan Police Department was advised by the Washington National Airport Police that some silverware had been found near one of the entrances to the terminal at the Washington National Airport. The silverware was recovered by the Metropolitan Police Department and processed for latent fingerprints without success and the items were returned to Mrs. Kraft upon her identification of the silverware. No suspects were developed by either the FBI or the Metropolitan Police Department in the investigation of the matter."
 
 Mr. Kraft does not recall having spoken to the FBI about the burglary. Documents provided more recently to Mr. Kraft pursuant to the August 5, 1975, agreement do not shed any light on this question.
 

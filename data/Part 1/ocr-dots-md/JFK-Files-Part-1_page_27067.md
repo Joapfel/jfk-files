@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27067.png
-
-Convert to MarkdownPLEASE PRINT IN BLOCK CAPITAL LETTERS
+PLEASE PRINT IN BLOCK CAPITAL LETTERS
 
 <table>
     <tbody>

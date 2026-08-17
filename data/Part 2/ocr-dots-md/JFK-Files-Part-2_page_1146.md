@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1146.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In summary, Mr. Smith is a mature and responsible officer, keeps things nicely in perspective, and has a good sense of priorities. In tackling problems he strives to make molchills out of mountains, which is a refreshing change; in short, a dedicated and intelligent officer and, withal, unfailingly cordial and cooperative.
 

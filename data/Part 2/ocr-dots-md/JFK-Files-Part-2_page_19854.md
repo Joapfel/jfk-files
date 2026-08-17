@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19854.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 WFO 100-55420
 

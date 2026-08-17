@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20511.png
-
-Convert to MarkdownWFO 100-54927
+WFO 100-54927
 
 Copy Count Continued:
 

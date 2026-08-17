@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12043.png
-
-Convert to MarkdownC-U-N-F-I-D-E-N-T-I-A-L
+C-U-N-F-I-D-E-N-T-I-A-L
 
 When Filled In
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2304.png
-
-Convert to MarkdownSECRET
+SECRET
 
 available information, the remaining work will materially affect
 the conclusions drawn in this summary.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8683.png
-
-Convert to Markdown4.12.07 En general, lo describiría como
+4.12.07 En general, lo describiría como
 
 Iacónico ___ Promedio ✓ Locuaz ___
 

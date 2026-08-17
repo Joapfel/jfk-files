@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18497.png
-
-Convert to Markdownc. If the answer to "a" or "b" above is yes, what is the reason(s) for such change?
+c. If the answer to "a" or "b" above is yes, what is the reason(s) for such change?
 
 d. If the answer to "a" or "b" above is yes, what is the precise legal authority supporting such change in the formulation of the standard?
 

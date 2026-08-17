@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15575.png
-
-Convert to MarkdownLH
+LH
 
 # Church Predicts Change
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22740.png
-
-Convert to Markdown30 August 1963
+30 August 1963
 
 Washington 25, D.C.
 

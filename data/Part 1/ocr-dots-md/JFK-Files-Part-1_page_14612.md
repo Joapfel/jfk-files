@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14612.png
-
-Convert to MarkdownThe building, now that he knows "the past history of the cncs," that your friend has been used as a pool for "people's interests".
+The building, now that he knows "the past history of the cncs," that your friend has been used as a pool for "people's interests".
 
 14-09000
 

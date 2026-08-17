@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5498.png
-
-Convert to MarkdownCase 47,540 (Received) New Developments in Plans of Haitian Banker, Claud Joseph Charles to Overthrow the Davalier Government
+Case 47,540 (Received) New Developments in Plans of Haitian Banker, Claud Joseph Charles to Overthrow the Davalier Government
 
 NY-419-67
 

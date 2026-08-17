@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13249.png
-
-Convert to Markdowncould be subpoenaed for this purpose for open or closed testimony.
+could be subpoenaed for this purpose for open or closed testimony.
 
 Q: During the course of these investigations did you ever alter or fabricate any document previously prepared?
 

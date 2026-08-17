@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31067.png
-
-Convert to MarkdownSECRET
+SECRET
 (30 lines filled in)
 
 <table>

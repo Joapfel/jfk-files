@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2536.png
-
-Convert to MarkdownS: 66-2894
+S: 66-2894
 
 WOULD SHOW THIS OVERHEARD.
 

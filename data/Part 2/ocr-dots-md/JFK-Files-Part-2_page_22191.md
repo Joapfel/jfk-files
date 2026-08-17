@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22191.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Edwards<br>King ✓<br>Bannerman</td><td>11/62<br>Gomez<br>[HOLCOMB]<br>O'Connell</td><td>Castro</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Edwards<br>King ✓<br>Bannerman</td><td>11/62<br>Gomez<br>[HOLCOMB]<br>O'Connell</td><td>Castro</td></tr></tbody></table>
 
 ### OCCURRENCE:
 

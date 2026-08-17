@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6225.png
-
-Convert to Markdown4-00000
+4-00000
 
 SECRET SECTION
 DIR CITE WAVE 3534

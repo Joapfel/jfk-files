@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11924.png
-
-Convert to Markdown4-E
+4-E
 
 Information we furnished to the Department of State apparently has prevented the return to the United States of two Polish commercial officials formerly assigned to New York City. We told State how the one, a Polish military intelligence officer, with the assistance of the other had since mid-1969 been very active in trying to purchase electronic equipment of defense significance and ship it to Poland in violation of export licensing requirements. On 3/27/70, State informed the Polish Ambassador to the U. S. that the activities of these two Poles must cease. Both left the country. We have subsequently learned through our sources that one, expected to return to U. S., has been reassigned and will not return. The other has not returned. Thus, the usefulness of two Polish agents in the U. S. was destroyed by our investigations.
 

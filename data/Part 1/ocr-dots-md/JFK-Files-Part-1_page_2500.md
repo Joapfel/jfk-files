@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2500.png
-
-Convert to Markdownmatter that the individual has previously traveled on a similar mission, each trip must have specific high-level approval. The red tape which thus must inevitably have been involved in preparation for such a trip further supports the assumption that NOSENKO should have known about the KOSOLAPOV-GARLAND trip.
+matter that the individual has previously traveled on a similar mission, each trip must have specific high-level approval. The red tape which thus must inevitably have been involved in preparation for such a trip further supports the assumption that NOSENKO should have known about the KOSOLAPOV-GARLAND trip.
 
 The position taken by NOSENKO on this point is that he accepts the statement by the interviewer that KOSOLAPOV made such a trip, but he says that he, NOSENKO, simply does not know anything about it. He adds only that had anything significant developed in the study of GARLAND, he would have been aware of it.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31092.png
-
-Convert to Markdown① Request for Information & Review . 5 Nov. 1964
+① Request for Information & Review . 5 Nov. 1964
 
 POA granted 13 Nov 1964]
 

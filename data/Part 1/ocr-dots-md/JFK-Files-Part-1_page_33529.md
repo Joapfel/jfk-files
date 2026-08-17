@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33529.png
-
-Convert to Markdown# OUTGOING : SSAGE
+# OUTGOING : SSAGE
 
 SECRET
 MESSAGE HANDLING INDICATOR

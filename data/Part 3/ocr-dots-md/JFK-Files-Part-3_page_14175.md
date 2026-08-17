@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14175.png
-
-Convert to Markdown101. 9/11/62 - Senator Humphrey, speaking on the floor of the Senate said: ". . . I think it is ridiculous and insulting to the American people for grown men to wring their hands publicly about Cuba's being a military threat to the United States . . . I do not underestimate the fact that there are missiles, intermediate and short range. But I do know . . . that we have it within our capacity without even so much as violently flexing a muscle, to destroy every single military installation in one day. So I do not want the people of my state to lose a single night's sleep worrying about the might of Cuba . . ." (Source: Congressional Record)
+101. 9/11/62 - Senator Humphrey, speaking on the floor of the Senate said: ". . . I think it is ridiculous and insulting to the American people for grown men to wring their hands publicly about Cuba's being a military threat to the United States . . . I do not underestimate the fact that there are missiles, intermediate and short range. But I do know . . . that we have it within our capacity without even so much as violently flexing a muscle, to destroy every single military installation in one day. So I do not want the people of my state to lose a single night's sleep worrying about the might of Cuba . . ." (Source: Congressional Record)
 
 102. 9/12/62 - General Carter briefed the House Armed Services and Foreign Affairs Committees "on the Cuban situation". (Source: CIA Chronology, 11/7/62)
 

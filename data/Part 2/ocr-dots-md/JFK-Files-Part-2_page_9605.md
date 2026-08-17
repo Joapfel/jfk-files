@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9605.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 section entitled "Overall Activities" in order to more
 easily show the organization and growth of the group.

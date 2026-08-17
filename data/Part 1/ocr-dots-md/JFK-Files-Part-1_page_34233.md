@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34233.png
-
-Convert to MarkdownDecember 28, 1965:
+December 28, 1965:
 
 NEWS:
 

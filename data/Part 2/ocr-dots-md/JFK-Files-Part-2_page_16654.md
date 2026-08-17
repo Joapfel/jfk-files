@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16654.png
-
-Convert to MarkdownSergeant DANIEL R. GROTH,
+Sergeant DANIEL R. GROTH,
 ET AL
 
 CHICAGO POLICE OFFICERS

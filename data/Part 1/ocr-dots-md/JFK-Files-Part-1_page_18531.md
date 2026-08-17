@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18531.png
-
-Convert to Markdown<table>
+<table>
     <caption>REPORT OF PHYSICAL QUALIFICATIONS</caption>
     <tbody>
         <tr>

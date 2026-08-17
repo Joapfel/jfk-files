@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32804.png
-
-Convert to Markdown"5. Attack on staging areas employed by exiles in the Caribbean"
+"5. Attack on staging areas employed by exiles in the Caribbean"
 
 COMMENT:
 

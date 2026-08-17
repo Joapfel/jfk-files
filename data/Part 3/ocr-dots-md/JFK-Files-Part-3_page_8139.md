@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8139.png
-
-Convert to MarkdownMemorandum to Mr Adams
+Memorandum to Mr Adams
 Re: Senate Select Committee, etc.
 
 Schwarz offered as an alternative that the agencies would be advised of the identity of persons to be interviewed and that prior to the interview the agency would contact the witness to explain the authority, the security arrangements made by the Committee for the protection of information, to authorize the witness to answer questions where the witness was bound by a secrecy agreement, and to caution the witness concerning matters of a sensitive nature which should be deferred for discussion with members of the Committee or with the Chairman of the Committee.

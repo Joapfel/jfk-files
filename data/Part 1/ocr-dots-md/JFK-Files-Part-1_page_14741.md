@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14741.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SX-31527
 

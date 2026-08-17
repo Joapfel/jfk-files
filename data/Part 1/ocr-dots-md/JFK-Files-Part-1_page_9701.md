@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9701.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="6">SECTION VI</td>
     <td colspan="5">GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8185.png
-
-Convert to MarkdownSan Germán, Puerto Rico
+San Germán, Puerto Rico
 
 April 27, 1968
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25199.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 MCCONE
 LODGE

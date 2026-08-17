@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33154.png
-
-Convert to Markdown4-0000
+4-0000
 
 <table><tr><td rowspan="3">CABLE SECRETARIAT DISSEMINATION</td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIES</td></tr><tr><td colspan="2" style="text-align:center;">SECRET (When Filled In)</td></tr><tr><td colspan="2"><table><tr><td>GROUP I<br/>EXCLUDING FACE MAILINGS TO DEVELOPERS AND DECLARATION</td><td>1</td><td>5</td></tr><tr><td></td><td>2</td><td>6</td></tr><tr><td></td><td>3</td><td>7</td></tr><tr><td></td><td>4</td><td>8</td></tr></table></td></tr><tr><td>PERMIT UNIT NOTIFIED</td><td colspan="2"></td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☒ GLIPPED</td><td colspan="2"></td></tr><tr><td>BY: __________ ATI: __________</td><td>30</td><td></td></tr><tr><td>DISTRIBUTION PER __________</td><td colspan="2"></td></tr><tr><td>ACTION UNIT OH 8 IN FILE, VR RILAN 52 CYOPS CLOA</td><td colspan="2"></td></tr><tr><td>ACTION NO 838</td><td colspan="2"></td></tr></table>
 

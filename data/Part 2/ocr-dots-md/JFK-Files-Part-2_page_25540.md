@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25540.png
-
-Convert to Markdowntheir daughter on the FBI. We exchanged jewelry, clothes, and everything else. We were just one mother to another mother. Their little girl in trouble, mine not in trouble and it was little things like that that I would get very involved with. I don't know...
+their daughter on the FBI. We exchanged jewelry, clothes, and everything else. We were just one mother to another mother. Their little girl in trouble, mine not in trouble and it was little things like that that I would get very involved with. I don't know...
 
 FS: Morita let me ask you this here, did the agents ever tell you to go out with any of the diplomats in the mission?
 

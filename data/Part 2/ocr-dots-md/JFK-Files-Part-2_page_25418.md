@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25418.png
-
-Convert to MarkdownMM 105-1742
+MM 105-1742
 
 On August 23, 1963, ALFREDO BORJAS, Intelligence Chief of the Movimiento de Recuperacion Revolucionario (MRR) anti-CASTRO organization of MANUEL ARTINE, advised that the MRR-Commando of CARLOS BANDIN is a dissident group. BORJAS said that through his contacts in the latter organization, he had ascertained that only about five members of BANDIN's organization landed in Cuba at the time of the June 20, 1963 invasion hoax.
 

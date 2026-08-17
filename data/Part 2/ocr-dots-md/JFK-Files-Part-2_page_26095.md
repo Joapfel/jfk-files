@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26095.png
-
-Convert to Markdown# Oral History Interview
+# Oral History Interview
 
 with
 **EDWARD G. LANSDALE**

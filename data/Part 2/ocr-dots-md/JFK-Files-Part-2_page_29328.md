@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29328.png
-
-Convert to MarkdownPhillips, page 5.
+Phillips, page 5.
 
 Mr. Phillips said that there was a CI responsibility in the
 Cuban shop. "You always watch out for it, but there was no

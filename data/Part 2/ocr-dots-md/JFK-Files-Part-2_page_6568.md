@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6568.png
-
-Convert to MarkdownFollowing are examples of the types of activities which could be undertaken. This is not an exhaustive list, but is presented to illustrate the types of activity which might be considered.
+Following are examples of the types of activities which could be undertaken. This is not an exhaustive list, but is presented to illustrate the types of activity which might be considered.
 
 a. **Intelligence and Counterintelligence**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_565.png
-
-Convert to MarkdownSTAFF
+STAFF
 
 78-0763280
 

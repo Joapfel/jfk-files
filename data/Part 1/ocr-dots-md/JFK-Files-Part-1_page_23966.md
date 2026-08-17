@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23966.png
-
-Convert to Markdownbut he was willing to deduct the price of the mineograph machine.
+but he was willing to deduct the price of the mineograph machine.
 
 He didn't receive that either. So he can't be considered very (important).
 

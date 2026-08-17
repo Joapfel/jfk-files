@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20811.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 D. A. Phillips
 

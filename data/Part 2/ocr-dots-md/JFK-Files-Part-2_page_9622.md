@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9622.png
-
-Convert to Markdown3. Each member must respect the security of every other member. Do not, under any circumstances, identify one member of the organization even to other members without his expressed permission on each and every occasion.
+3. Each member must respect the security of every other member. Do not, under any circumstances, identify one member of the organization even to other members without his expressed permission on each and every occasion.
 
 9. Avoid loose talk. Do not discuss organizational plans in public places where you could be overboard. Do not even talk at such a discussion in the presence of non-members.
 

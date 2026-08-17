@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23806.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Mr. Maxwell. There may be a First Amendment argument here, particularly in fundamentalist groups whose religious beliefs are committed, are directed toward opposition toward Godless atheism.
 2

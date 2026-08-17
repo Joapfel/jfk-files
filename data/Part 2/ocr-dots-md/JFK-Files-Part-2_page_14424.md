@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14424.png
-
-Convert to MarkdownWe look forward to hearing from you and to making the necessary arrangements for your appearance.
+We look forward to hearing from you and to making the necessary arrangements for your appearance.
 
 With best personal regards,
 

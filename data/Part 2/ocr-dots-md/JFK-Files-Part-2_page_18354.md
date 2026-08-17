@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18354.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Memorandum to Mr. W. R. Wannall
 
 Re: Cointelpros
 62-116000

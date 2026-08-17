@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11113.png
-
-Convert to MarkdownApril 16, 1975
+April 16, 1975
 
 This is to acknowledge receipt of classified material by letterhead memorandum dated April 10, 1975, from the Federal Bureau of Investigation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22791.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Bundy. That is what I don't know. I cannot recollect who it was. And I think it inappropriate to guess when I have no recollection.
 

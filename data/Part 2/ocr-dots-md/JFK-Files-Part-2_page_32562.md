@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32562.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. The U.S. Information Agency:
 

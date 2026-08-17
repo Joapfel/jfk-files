@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8069.png
-
-Convert to MarkdownFBI DOCUMENT
+FBI DOCUMENT
 
 DATE: 29 JANUARY 1965
 

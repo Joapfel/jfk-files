@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34932.png
-
-Convert to MarkdownComo las cartas de allá para ser se demorán mucho, le ruego
+Como las cartas de allá para ser se demorán mucho, le ruego
 le diga al Sr. Paulbath que me写 el débil de los pasados,
 cuyos datos lo voy a poner a continuación:
 

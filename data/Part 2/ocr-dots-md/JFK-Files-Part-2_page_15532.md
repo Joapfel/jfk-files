@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15532.png
-
-Convert to Markdownboozed up and insulting people walking along the street. They have been building this up all day and I knew they would probably come down sometime sooner or later.
+boozed up and insulting people walking along the street. They have been building this up all day and I knew they would probably come down sometime sooner or later.
 
 Questions (inaudible).
 

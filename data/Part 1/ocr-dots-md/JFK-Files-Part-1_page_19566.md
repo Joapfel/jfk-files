@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19566.png
-
-Convert to MarkdownSECRET
+SECRET
 (Main Filled In)
 
 <table><caption>MEDICAL ACTION REQUEST AND REPORT</caption><thead><tr><th colspan="4">REQUEST FOR PHYSICAL EXAMINATION BY</th></tr><tr><td>1. NAME (Last, First)</td><td>(First)</td><td>(Middle)</td><td>2. DATE</td></tr></thead><tbody><tr><td>MOORE, James</td><td></td><td>W.</td><td>30 August 1957</td></tr><tr><th>3. TO POSITION</th><th>N. OFFICE, DIVISION, BRANCH</th><th>9. GRADE</th><td>GS-1L</td></tr><tr><td>IO</td><td>OJ/Contact Division, Field</td><td></td><td></td></tr><tr><th>6. TYPE OF POSITION</th><th colspan="3">7. EVALUATE FOR</th></tr><tr><td><input type="checkbox"/> Departmental<br/><input type="checkbox" checked disabled/> U.S. Field<br/><input type="checkbox"/> Overseas</td><td><input type="checkbox" checked disabled/> SCO<br/><input type="checkbox" checked disabled/> Overseas<br/><input type="checkbox" checked disabled/> Returnee</td><td><input type="checkbox" checked disabled/> Pre-Employment<br/><input type="checkbox" checked disabled/> Annual<br/><input type="checkbox" checked disabled/> Special (Specify)</td><td></td></tr><tr><th>11. REPORT OF MEDICAL EVALUATION</th><th colspan="3"></th></tr><tr><td><input type="checkbox"/> Qualified for Full Duty (Generals)<br/><input type="checkbox" checked disabled/> Qualified for Departmental Duty Only<br/><input type="checkbox"/> Disqualified</td><td colspan="3"><input type="text" placeholder="Remarks: Subject is qualified for U. S. Field. (9/16/57)"></td></tr></tbody></table>

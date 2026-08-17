@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13594.png
-
-Convert to MarkdownLa Passe, Belfette 12 de fevrier 1949
+La Passe, Belfette 12 de fevrier 1949
 
 Le Sui
 Boulevard du Traversier

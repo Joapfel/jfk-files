@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16090.png
-
-Convert to Markdown6. <u>Future Operations</u>
+6. <u>Future Operations</u>
 
 At the end of Phase V the NCTTT should have proved
 itself as one of the most effective counter-insurgency programs

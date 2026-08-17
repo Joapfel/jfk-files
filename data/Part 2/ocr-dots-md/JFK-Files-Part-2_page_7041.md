@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7041.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OIM 99-0281
 

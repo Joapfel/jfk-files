@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6129.png
-
-Convert to Markdown10 March 1976
+10 March 1976
 
 MEMORANDUM FOR: Chief, Information and Privacy Staff
 SUBJECT: Andrew Scott Berman

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9856.png
-
-Convert to Markdown22 March, 1968
+22 March, 1968
 
 Subject: LIRING/3 Report of Contact with Guatemalans in Mexico City.
 

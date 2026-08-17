@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20611.png
-
-Convert to MarkdownCODE
+CODE
 
 TO SACS DETROIT
 FEB 8 1972

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5945.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 From the Desk of Becky L. Rant
 DA/Information Review Office

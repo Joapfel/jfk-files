@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5360.png
-
-Convert to MarkdownCeci dit, malgré tous ces obstacules qui embléaticent inhumables, je n'ai pas totalement paru l'espoir de pouvoir t'élancer à sortir Clémard,ainc et eus, de la price eu ceeway ce défier rapidement, je le sais. L'essentiel est que je chef lui-même coit personnellement que l'inhabilité que nous éprouvons a satisfaire les exigences du moment, ne se sont en aucune façon imputables à Clémard mais plutôt à des circumstances totalement indépendantes de notre volonté.
+Ceci dit, malgré tous ces obstacules qui embléaticent inhumables, je n'ai pas totalement paru l'espoir de pouvoir t'élancer à sortir Clémard,ainc et eus, de la price eu ceeway ce défier rapidement, je le sais. L'essentiel est que je chef lui-même coit personnellement que l'inhabilité que nous éprouvons a satisfaire les exigences du moment, ne se sont en aucune façon imputables à Clémard mais plutôt à des circumstances totalement indépendantes de notre volonté.
 
 Je prie Dieu Tout-puissante pour que l'on finisse par réaliser que Clémard, en son patriote haïtien, a eu foi en son pays et n'a pas eu bon d'expatrier, comme plus d'un l'a fait, le fruit de ses dures labours et de son intelligence pro-
 activeive.

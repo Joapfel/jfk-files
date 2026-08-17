@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_863.png
-
-Convert to MarkdownCOMMENTS OF REVIEWING OFFICIAL
+COMMENTS OF REVIEWING OFFICIAL
 
 made and recommendations referred to DCOS/COS. Subject has
 been encouraged to continue to exploit these strengths, as

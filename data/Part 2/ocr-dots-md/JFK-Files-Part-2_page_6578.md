@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6578.png
-
-Convert to MarkdownSECRET
+SECRET
 - 5 -
 
 Specific programs to carry out this kind of approach to the Cuban problem are submitted in Annexes A and B.

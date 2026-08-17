@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20138.png
-
-Convert to MarkdownMP 100-16058
+MP 100-16058
 
 INFORMANTS
 

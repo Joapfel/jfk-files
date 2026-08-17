@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23342.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 or achieve the goal, including, indeed assassination, but not
 2 by any means limited to that, that we were in trouble finding

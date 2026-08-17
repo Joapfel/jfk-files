@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10805.png
-
-Convert to Markdown(3) The performance centrally, subject to NSC direction, of certain intelligence and related functions of common concern to various departments of the Government.
+(3) The performance centrally, subject to NSC direction, of certain intelligence and related functions of common concern to various departments of the Government.
 
 The report noted that Section 102 of the National Security Act of 1947 established a framework for a sound intelligence system and no amendment to that Section of the Act was deemed necessary.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27464.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FILE TITLE/NUMBER/VOLUME: CHRIST, P. O. L.
 OPP

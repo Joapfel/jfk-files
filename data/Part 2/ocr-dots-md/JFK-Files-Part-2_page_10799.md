@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10799.png
-
-Convert to MarkdownAt approximately 4:35 a.m., August 29, 1971, Selective Service space and surrounding area located on the fifth floor, U.S. Post Office, 401 Market Street, Camden, N.J., was entered by Special Agents of the Federal Bureau of Investigation. Special Agents LUGELI, S. DEBBAUDT, and TONG, E. TILLERLY entered the area and partook surrounding the Selective Service Office by way of the building fire escape. Special Agents ROBERT H. WALLER and JOE R. GINGERICH entered the Selective Service Office through the front door, which entered on to the fifth floor corridor.
+At approximately 4:35 a.m., August 29, 1971, Selective Service space and surrounding area located on the fifth floor, U.S. Post Office, 401 Market Street, Camden, N.J., was entered by Special Agents of the Federal Bureau of Investigation. Special Agents LUGELI, S. DEBBAUDT, and TONG, E. TILLERLY entered the area and partook surrounding the Selective Service Office by way of the building fire escape. Special Agents ROBERT H. WALLER and JOE R. GINGERICH entered the Selective Service Office through the front door, which entered on to the fifth floor corridor.
 
 Upon entrance into this space, Special Agents DEBBAUDT, TILLERLY, WALLER, and GINGERICH announced the FBI's presence and instructed everyone to remain as they were until told to do otherwise.
 

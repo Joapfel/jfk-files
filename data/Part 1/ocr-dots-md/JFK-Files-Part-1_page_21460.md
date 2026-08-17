@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21460.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td><table><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr><tr><td>DATE : 349<br/>30 NOV 60</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : PARIS</td></tr><tr><td>ACTION : TSD 4*</td></tr><tr><td>INFO : CI, CI/OPS, FI, EE 4, SR 4, WE 4, S/C 2</td></tr></tbody></table><table><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>2</td><td>4</td></tr><tr><td>2</td><td>3</td><td>5</td></tr><tr><td>3</td><td>4</td><td>6</td></tr></tbody></table><p>NOV 30 1750Z 60</p><table><tbody><tr><td>ROUTINE</td></tr><tr><td>IN 49970</td></tr></tbody></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td><table><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr><tr><td>DATE : 349<br/>30 NOV 60</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : PARIS</td></tr><tr><td>ACTION : TSD 4*</td></tr><tr><td>INFO : CI, CI/OPS, FI, EE 4, SR 4, WE 4, S/C 2</td></tr></tbody></table><table><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>2</td><td>4</td></tr><tr><td>2</td><td>3</td><td>5</td></tr><tr><td>3</td><td>4</td><td>6</td></tr></tbody></table><p>NOV 30 1750Z 60</p><table><tbody><tr><td>ROUTINE</td></tr><tr><td>IN 49970</td></tr></tbody></table>
 
 DIR CITE PARI 2579
 

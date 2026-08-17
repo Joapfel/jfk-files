@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1332.png
-
-Convert to MarkdownSECRET
+SECRET
 
 within the CS; advising and assisting CS components in the preparation of Operating Directives and the program portions of the annual response to the Program Call; chairing the Program Review Panel; preparing and/or coordinating special studies and surveys on operational programs; coordinating and preparing the annual DDP report to the PFIAE, preparing the annual DDP briefing of the PCI on CS problems and progress; and, as required, advising CS components on the requirements of PZBS that need to be addressed in CS documents requiring PCI or Executive Director-Controller action.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8880.png
-
-Convert to MarkdownSURVIVAL
+SURVIVAL
 PENDING
 REVOLUTION
 

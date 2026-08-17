@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11693.png
-
-Convert to Markdown4-H
+4-H
 
 COUNTERINTELLIGENCE PROGRAM - BLACK EXTREMISTS
 Budfile 100-448006

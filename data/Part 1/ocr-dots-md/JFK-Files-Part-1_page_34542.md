@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34542.png
-
-Convert to MarkdownMarina was already a KGB agent and she was directed to lure the diplomat to the hotel? In either case, the KGB would definitely know about Marina and if she was used by the KGB as a bait for foreigners, might she have already been an experienced KGB agent?
+Marina was already a KGB agent and she was directed to lure the diplomat to the hotel? In either case, the KGB would definitely know about Marina and if she was used by the KGB as a bait for foreigners, might she have already been an experienced KGB agent?
 
 8. You stated previously that you saw Oswald's file only briefly and you read only a summary. Then how would you know that Marina was never used by the KGB? Did you personally make a direct check on whether or not Marina was a KGB informant?
 

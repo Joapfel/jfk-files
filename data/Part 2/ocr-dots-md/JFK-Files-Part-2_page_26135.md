@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26135.png
-
-Convert to Markdown-41-
+-41-
 
 structure considerably for the lowest class
 in Bolivia, and with the armed forces doing

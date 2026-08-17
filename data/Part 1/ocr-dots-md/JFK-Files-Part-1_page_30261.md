@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30261.png
-
-Convert to MarkdownSECRET - SECURITY INFORMATION
+SECRET - SECURITY INFORMATION
 
 Inspection & Security Office
 

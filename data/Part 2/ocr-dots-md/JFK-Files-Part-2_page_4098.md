@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4098.png
-
-Convert to MarkdownRICHARD CASE NAGELL, AKA Born-8-J-30, Greenwich, NY.
+RICHARD CASE NAGELL, AKA Born-8-J-30, Greenwich, NY.
 
 JOE CRAMER
 JOE KRAMER

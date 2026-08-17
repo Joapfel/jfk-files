@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16952.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>PAGE NO.</th></tr></thead><tbody><tr><td>53a</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4582.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MC 105-2226
 

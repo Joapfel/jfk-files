@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5353.png
-
-Convert to MarkdownSECRET
+SECRET
 
 STATE OF
 COUNTY OF

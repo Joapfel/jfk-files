@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35718.png
-
-Convert to Markdown3. Frank Anthony Sturgis
+3. Frank Anthony Sturgis
 
 Mr. Frank Anthony Sturgis, who has used numerous aliases, formerly served in the U. S. Marine Corps and the U. S. Army in the 1940's. As of 1959, Mr. Sturgis was a Captain in the Cuban Army, but later became disillusioned with Castro, became a soldier of fortune, and in 1961 headed an organization called the International Anticommunist Brigade, which he claimed had 5,000 members. Mr. Sturgis was never recruited by the Agency, but has been associated with Mr. Eugenio Rolando Martinez Careaga, an Agency contact since the 1960's.
 

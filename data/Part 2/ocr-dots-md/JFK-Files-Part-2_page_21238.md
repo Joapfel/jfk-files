@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21238.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 initiated an operation against him. This man was born in
 Russia or his parents were born in Russia and KGB put a

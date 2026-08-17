@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28430.png
-
-Convert to Markdown333 East 23rd Street
+333 East 23rd Street
 Apartment #2B
 New York, New York 10010
 

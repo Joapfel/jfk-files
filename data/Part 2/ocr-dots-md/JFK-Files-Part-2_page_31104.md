@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31104.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① FBI - 23 Jan 1962 - #105-2878 - Subj: Military & Naval Matters - Cuba
 

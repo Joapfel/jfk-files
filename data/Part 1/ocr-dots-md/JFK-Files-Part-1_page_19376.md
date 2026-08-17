@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19376.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">FINAL INSTRUCTIONS FOR OVERSEAS TRAVEL</td>
     <td>DATE 7 April 1947</td>

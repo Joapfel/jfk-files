@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17399.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 twenty Negroes, males and females, were seen dispersing in varied directions from Rooms 240 and 241. Ted Boston and Bobby Lee Rush were stopped in the hallway, at which time, a .38 caliber Smith and Wesson revolver was observed protruding from a piece of luggage in the possession of Rush.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30524.png
-
-Convert to Markdown14-00010
+14-00010
 
 FIELD RESEARCH UNIT, FAR EAST COMMAND
 YOKOGUJA, JAPAN

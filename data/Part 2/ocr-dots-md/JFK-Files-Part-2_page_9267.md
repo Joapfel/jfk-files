@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9267.png
-
-Convert to MarkdownDavid Millard
+David Millard
 A BLACK PANTHER
 FREE BUSING PROGRAM
 TO PRISONERS

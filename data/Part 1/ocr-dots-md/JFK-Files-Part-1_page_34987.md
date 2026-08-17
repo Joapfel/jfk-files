@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34987.png
-
-Convert to MarkdownDec. 6 : Reimbursement of the remaining of the check 771 (Rafael Miguel) that was extended in the amount of $400.00 for a Caribbean Conference
+Dec. 6 : Reimbursement of the remaining of the check 771 (Rafael Miguel) that was extended in the amount of $400.00 for a Caribbean Conference
 
 $ 213.51
 

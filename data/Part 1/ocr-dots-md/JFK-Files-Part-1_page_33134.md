@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33134.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 2 WH/MIAMI. 5784 S E C R E T
 

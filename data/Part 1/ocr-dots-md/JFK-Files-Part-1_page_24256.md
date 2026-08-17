@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24256.png
-
-Convert to MarkdownORPHONE/1
+ORPHONE/1
 
 Subject is not by nature a role player, and it would not be operationally advantageous to have him switch roles, for he cannot psychologically handle role playing over a period of time. He has worked hard to establish an identity for himself, and could not cope as effectively with a new one.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3047.png
-
-Convert to Markdown# PARTE 2
+# PARTE 2
 
 irse de vacaciones en primeros días de mayo.
 

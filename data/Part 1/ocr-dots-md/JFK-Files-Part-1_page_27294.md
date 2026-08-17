@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27294.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM IN LIEU OF ANNUAL FITNESS REPORT FORM
 

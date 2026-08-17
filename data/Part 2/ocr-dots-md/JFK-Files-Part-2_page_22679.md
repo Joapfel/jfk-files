@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22679.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 everything. And he lived there for 16 or 18 years of his life.
 

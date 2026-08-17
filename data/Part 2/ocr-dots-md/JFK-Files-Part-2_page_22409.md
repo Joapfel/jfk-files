@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22409.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a successful operation. By that, I mean they didn't do as much damage as they wanted to because they had to get out because the Cuban defense came after them. It was that type of operation that we did.
 

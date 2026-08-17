@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4160.png
-
-Convert to MarkdownSSC LETTER 12-4-75
+SSC LETTER 12-4-75
 
 ITEM 2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24042.png
-
-Convert to MarkdownDon at the Joint General Staff headquarters and offered to surrender if he and Nhu were given safe conduct to an airport. Shortly afterwards, Diem offered to surrender unconditionally and ordered the Presidential Guard to cease firing. According to Conein, an escort for Diem appeared in front of the palace at 8:00 a.m., but Diem and Nhu were not present (Conein After-Action Report, p. 24).
+Don at the Joint General Staff headquarters and offered to surrender if he and Nhu were given safe conduct to an airport. Shortly afterwards, Diem offered to surrender unconditionally and ordered the Presidential Guard to cease firing. According to Conein, an escort for Diem appeared in front of the palace at 8:00 a.m., but Diem and Nhu were not present (Conein After-Action Report, p. 24).
 
 At 10:30 a.m. the bodies of Diem and Nhu were reported to be at the Joint General Chiefs' headquarters. Conein declined to view the bodies because he feared that doing so might damage United States interests (Conein, p. 57).
 

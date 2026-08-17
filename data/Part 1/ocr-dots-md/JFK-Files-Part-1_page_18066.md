@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18066.png
-
-Convert to Markdown10 January 1968
+10 January 1968
 
 MEMORANDUM FOR: Chief, MI Division
 

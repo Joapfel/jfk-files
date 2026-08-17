@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2639.png
-
-Convert to Markdown## SECTION D Narrative Comments (Continued)
+## SECTION D Narrative Comments (Continued)
 
 languages (Spanish and Italian), and his admirable command of English prose which enables him to write crisp operational communications with speed and precision, all aid him in carrying out his responsibilities in a superior manner.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29155.png
-
-Convert to Markdown<table><tr><td>FORM<br/>540</td></tr><tr><td>RESIDENT</td></tr></table>
+<table><tr><td>FORM<br/>540</td></tr><tr><td>RESIDENT</td></tr></table>
 
 CALIFORNIA
 

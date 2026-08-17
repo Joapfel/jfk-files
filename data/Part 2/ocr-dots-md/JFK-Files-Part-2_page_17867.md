@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17867.png
-
-Convert to MarkdownCPR
+CPR
 
 B82 BRING
 ENRICH

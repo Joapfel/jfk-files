@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26808.png
-
-Convert to Markdown8. **PASSPORT**: Subject, Mexican passport number 57115, with Cuban courtesy visas. On 9 September 1963 Subject was issued Mexican passport number 56341 (or 53641).
+8. **PASSPORT**: Subject, Mexican passport number 57115, with Cuban courtesy visas. On 9 September 1963 Subject was issued Mexican passport number 56341 (or 53641).
 
 9. **ACTIVITIES**: The reason for the October 1962 trip to Cuba was ostensibly to gather material for a political biography of Fidel Castro. The May/June 1963 trip was to interview Fidel Castro after his return from the Soviet Union. Subject claimed that he had spent eight days with Fidel during that visit, five of those aboard ship.
 

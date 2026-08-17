@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13549.png
-
-Convert to Markdowncb 36]
+cb 36]
 
 1
 2

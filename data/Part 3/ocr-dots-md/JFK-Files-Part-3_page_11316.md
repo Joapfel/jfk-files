@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11316.png
-
-Convert to MarkdownNWA 88608 Docld:32989628 Page 334
+NWA 88608 Docld:32989628 Page 334
 
 CTT L-I MACH CO GTE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29816.png
-
-Convert to Markdown14-00000
+14-00000
 
 Central Intelligence Agency,
 2630 E. Government, N.W.

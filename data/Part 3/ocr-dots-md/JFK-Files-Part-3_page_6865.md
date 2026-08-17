@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6865.png
-
-Convert to MarkdownFebruary 6, 1959
+February 6, 1959
 
 MANUAL OF INSTRUCTIONS
 REVISION NUMBER 185

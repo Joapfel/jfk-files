@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2104.png
-
-Convert to Markdown<table><thead><tr><th>Case Agent</th><th>Period assigned</th><th>Division, Section, or Squad of Assignment</th><th>Nature of Agent's Assign-ment prior to involvement in MURKIN investigation</th></tr></thead><tbody><tr><td>THOMAS J. WILSON</td><td>8/26/75 - 9/8/75</td><td>Atlanta - #8</td><td>Civil Rights, TFIS</td></tr><tr><td>THOMAS J. WILSON</td><td>1/7/78 - 3/23/76</td><td>Atlanta - #8</td><td>"</td></tr><tr><td>JOHN J. HAYMAN</td><td>10/12/77 - 11/8/77</td><td>Atlanta - #8</td><td>Civil Rights matters</td></tr></tbody></table>
+<table><thead><tr><th>Case Agent</th><th>Period assigned</th><th>Division, Section, or Squad of Assignment</th><th>Nature of Agent's Assign-ment prior to involvement in MURKIN investigation</th></tr></thead><tbody><tr><td>THOMAS J. WILSON</td><td>8/26/75 - 9/8/75</td><td>Atlanta - #8</td><td>Civil Rights, TFIS</td></tr><tr><td>THOMAS J. WILSON</td><td>1/7/78 - 3/23/76</td><td>Atlanta - #8</td><td>"</td></tr><tr><td>JOHN J. HAYMAN</td><td>10/12/77 - 11/8/77</td><td>Atlanta - #8</td><td>Civil Rights matters</td></tr></tbody></table>
 
 2. Atlanta Agents assigned to/or who handled the Atlanta Counterintelligence Program (Cointelpro) during the period 1965 - 1968 in which efforts were directed against KING and the SCLC
 

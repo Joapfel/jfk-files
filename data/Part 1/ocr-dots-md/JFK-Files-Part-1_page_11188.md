@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11188.png
-
-Convert to Markdown<table><tr><td>SIG: MARTIN GRAVES:ak</td></tr><tr><td>DATE: 17 AUGUST 1966</td></tr><tr><td>FILE IN CS FILE NO.:</td></tr><tr><td>RATING:</td></tr><tr><td>CUTOGRAPHY INDEX</td></tr><tr><td>TO BE RETURNED BY</td></tr><tr><td>FROM DIRECTOR</td></tr><tr><td>CONFIDENTIAL</td></tr><tr><td>SECRET</td></tr></table>
+<table><tr><td>SIG: MARTIN GRAVES:ak</td></tr><tr><td>DATE: 17 AUGUST 1966</td></tr><tr><td>FILE IN CS FILE NO.:</td></tr><tr><td>RATING:</td></tr><tr><td>CUTOGRAPHY INDEX</td></tr><tr><td>TO BE RETURNED BY</td></tr><tr><td>FROM DIRECTOR</td></tr><tr><td>CONFIDENTIAL</td></tr><tr><td>SECRET</td></tr></table>
 
 <table><tbody><tr><td colspan="2">TOTAL COPIES: 24</td></tr><tr><th colspan="2" style="text-align:center;">ROUTING</th></tr><tr><td>1</td><td style="text-align:right;">5</td></tr><tr><td>2</td><td style="text-align:right;">6</td></tr><tr><td>3</td><td style="text-align:right;">7</td></tr><tr><td>4</td><td style="text-align:right;">8</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28279.png
-
-Convert to MarkdownU.S. GOVERNMENT PRINTING OFFICE
+U.S. GOVERNMENT PRINTING OFFICE
 
 16—82058-1
 

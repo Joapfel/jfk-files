@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35586.png
-
-Convert to MarkdownFORM 1304 (44)
+FORM 1304 (44)
 
 ORIG.: SPECIFICATION: any
 

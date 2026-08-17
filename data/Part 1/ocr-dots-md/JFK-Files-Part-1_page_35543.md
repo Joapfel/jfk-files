@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35543.png
-
-Convert to MarkdownCOPY
+COPY
 RADIO NEW YORK WORLDWIDE - WRUL
 
 4 WEST 58TH STREET, NEW YORK 19. N. Y.

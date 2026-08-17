@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23389.png
-
-Convert to MarkdownVIA: Air
+VIA: Air
 (SPECIFY AIR OR SEA POMO)
 
 SPATCH NO.

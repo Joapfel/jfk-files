@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16068.png
-
-Convert to MarkdownGEORGIA WASHINGTON was placed under arrest at 2350 West Madison. She was immediately advised of her rights by S. J. ACKERD. VVIR:WALD. She advised she under- stood her rights, but refused to execute a warning and waiver form.
+GEORGIA WASHINGTON was placed under arrest at 2350 West Madison. She was immediately advised of her rights by S. J. ACKERD. VVIR:WALD. She advised she under- stood her rights, but refused to execute a warning and waiver form.
 
 WASHINGTON was shown photographs of the fol-
 

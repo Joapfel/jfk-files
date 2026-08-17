@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5445.png
-
-Convert to Markdownnot he go ahead and make it, you may ask? His reply is that should
+not he go ahead and make it, you may ask? His reply is that should
 he make it, what assurances does he have that his action will satisfy
 the U.S. As I stated before, Mr. Charles feels that without United
 States backing, no government can possibly exist in Haiti except under

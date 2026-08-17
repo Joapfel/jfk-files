@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4551.png
-
-Convert to MarkdownSTANDARD FORM NO. 64
+STANDARD FORM NO. 64
 
 Office M
 um • UNITED

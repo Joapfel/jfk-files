@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_487.png
-
-Convert to MarkdownCONTINUED KC-660
+CONTINUED KC-660
 
 S-E-C-R-E-T E2 IMPCET CL BY 015866
 

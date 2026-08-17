@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34883.png
-
-Convert to MarkdownSECRET TELEPOUCH
+SECRET TELEPOUCH
 
 DISP NO- UFGW-6934
 FILE NO- 19-124-25/6

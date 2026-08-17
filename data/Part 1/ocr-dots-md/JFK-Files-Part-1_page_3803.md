@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3803.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MIAMI, 3 April 1967
 

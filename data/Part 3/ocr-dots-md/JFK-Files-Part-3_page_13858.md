@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13858.png
-
-Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+CENTRAL INTELLIGENCE AGENCY
 
 All material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws. Title to this report belongs to the Agency and no further use, transmission or reproduction is permitted.
 

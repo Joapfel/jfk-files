@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6747.png
-
-Convert to MarkdownJanuary 28, 1963
+January 28, 1963
 
 L - 49
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13388.png
-
-Convert to Markdowngo over it briefly, of people I have been in contact with in the past
+go over it briefly, of people I have been in contact with in the past
 who were, I believe, to be CIA agents. Many of these are my personal
 friends, and many of them have worked with me.
 

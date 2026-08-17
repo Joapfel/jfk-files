@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24186.png
-
-Convert to Markdown# DISPOSITION OF ENTITIES SOLD OR OTHERWISE DISPOSED OF
+# DISPOSITION OF ENTITIES SOLD OR OTHERWISE DISPOSED OF
 
 WUSHINE/WUGAZELLE - The six air proprietaries in the WUSHINE and WUGAZELLE complexes were sold as a package in 1969 to a group of witting U.S. businessmen who had acted as nominee officers, directors, and stockholders for the companies in the WUSHINE complex. Although the group offered to provide cover and/or air support to the Agency after the sale, this offer was not made a condition of the sale, and no understanding or contract was negotiated for prospective purchase of goods or services or cover support. To date, the proprietaries sold have not been used by the Agency.
 

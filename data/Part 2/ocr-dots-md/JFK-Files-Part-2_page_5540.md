@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5540.png
-
-Convert to Markdown~~Administrative~~ HRG Internal Use Only
+~~Administrative~~ HRG Internal Use Only
 
 CIA SPECIAL COLLECTIONS
 RELEASE IN FULL

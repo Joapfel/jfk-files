@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6497.png
-
-Convert to Markdownas yet no bilateral mutual support agreement binding the USSR
+as yet no bilateral mutual support agreement binding the USSR
 to the defense of Cuba, Cuba has not yet become a member of the
 Warsaw Pact, nor have the Soviets established Soviet bases
 in Cuba in the pattern of US bases in Western Europe. Therefore,

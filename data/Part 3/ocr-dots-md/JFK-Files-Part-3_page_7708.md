@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7708.png
-
-Convert to Markdown5010-106
+5010-106
 
 OPTIONAL FORM NO. 10
 MAY 1962 EDITION

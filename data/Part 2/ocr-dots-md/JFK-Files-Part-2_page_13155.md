@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13155.png
-
-Convert to Markdown4 1 (Rev. 12-14-64)
+4 1 (Rev. 12-14-64)
 
 # DECODED COPY
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35220.png
-
-Convert to MarkdownDEMOCRATIC REVOLUTIONARY FRONT
+DEMOCRATIC REVOLUTIONARY FRONT
 
 Communications
 

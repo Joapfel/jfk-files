@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24819.png
-
-Convert to MarkdownC. CIA Views of Difficulty of Project
+C. CIA Views of Difficulty of Project
 
 On one point the testimony of CIA officials who were involved in
 Track II is unanimous: they all said they thought Track II was unlikely

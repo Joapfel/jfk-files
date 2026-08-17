@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18493.png
-
-Convert to MarkdownWarrantless Electronic Surveillance for National Security Purposes
+Warrantless Electronic Surveillance for National Security Purposes
 
 1. With respect to the "Special Review Group" which you have established within the office of the Attorney General for the purpose of examining requests for non-consensual electronic surveillance without a judicial warrant, the following questions are asked:
 

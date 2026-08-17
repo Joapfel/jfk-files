@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1887.png
-
-Convert to Markdown**OPTIONAL FORM NO. 10**
+**OPTIONAL FORM NO. 10**
 **JULY 1973 EDITION**
 **GSA FPMR (41 CFR) 101-11.8**
 

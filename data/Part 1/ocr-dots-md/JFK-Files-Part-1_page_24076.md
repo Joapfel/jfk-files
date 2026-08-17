@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24076.png
-
-Convert to MarkdownINLAND REVENUE MONOLOGUE (required)
+INLAND REVENUE MONOLOGUE (required)
 
 Until April of this year (1968), I lived mainly on assistance
 from my wife's family and occasional freelance journalism

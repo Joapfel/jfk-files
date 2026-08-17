@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21929.png
-
-Convert to Markdownthe man's fears were well-founded and had promised to seek a pistol.*
+the man's fears were well-founded and had promised to seek a pistol.*
 
 Although there is no direct evidence linking any of these pistols to the assassination of Trujillo, a June 7, 1961, CIA memorandum, unsigned and with no attribution as to source, states that two of the three pistols were passed by [Owen] to Lorenzo "Tainpy" Berry, a United States citizen who was in direct contact with the action element of the dissident group. It should also be noted that the assassination was apparently conducted with almost complete reliance upon hand weapons. Whether one or more of these .38 caliber Smith & Wesson pistols eventually came into the hands of the assassins and, if so, whether they were used in connection with the assassination, remain open questions.
 

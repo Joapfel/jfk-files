@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7905.png
-
-Convert to MarkdownCONTINuation OF
+CONTINuation OF
 
 DistrAch
 

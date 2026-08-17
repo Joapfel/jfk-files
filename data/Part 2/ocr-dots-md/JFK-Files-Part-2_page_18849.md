@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18849.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 SMIRNOVSKY said he had not received that issue as yet but to contact Mr. TARASOV in the New York office and see if he has that issue. JAFFE said he had contacted TARASOV regarding this matter and that TARASOV was checking on it. JAFFE said he would then recontact TARASOV.
 

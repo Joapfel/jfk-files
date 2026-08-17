@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20411.png
-
-Convert to MarkdownADDRESS Rockofollar Plaza, New York, N.Y. St. & No. City State Country
+ADDRESS Rockofollar Plaza, New York, N.Y. St. & No. City State Country
 
 KIND OF BUSINESS Publishing NAME OF SUPERVISOR Dan Longwell
 TITLE OF JOB War Correspondent SALARY $ 150. PER week

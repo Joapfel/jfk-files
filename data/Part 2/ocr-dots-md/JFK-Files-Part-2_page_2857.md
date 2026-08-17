@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2857.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEMORANDUM FOR: William M. Kent
 SUBJECT : Quality Step Increase

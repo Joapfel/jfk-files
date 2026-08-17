@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23702.png
-
-Convert to Markdown- 8 -
+- 8 -
 
 SUBJECT: Clarard Joseph CHARLES
 

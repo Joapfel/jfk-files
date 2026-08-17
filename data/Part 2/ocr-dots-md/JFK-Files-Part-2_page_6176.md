@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6176.png
-
-Convert to Markdown04/23/97 WED
+04/23/97 WED
 
 CIA's argument to protect employee names emphasizes a number of points. First, since many employees are "under cover," the maintenance of that cover is critical to gathering intelligence. CIA argues that identification of a name can identify the cover provider and jeopardize operations. Second, although the majority of names are of retired CIA employees, CIA has a confidentiality agreement with them and many do not want their past Agency affiliation released. The argument here is that release may jeopardize business relationships or personal safety. Such arguments have already been presented to the Board. Their merit can only be determined on a case-by-case basis. However, due to the volume of names in the JFK Collection, the individual review and evaluation of each case would delay significantly the review of documents and ultimately lead to less total information becoming available to the public.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27955.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 FR 73-228
 6 JUN 1973

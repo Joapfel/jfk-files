@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15695.png
-
-Convert to MarkdownIII. TEACHING OF REVOLU-
+III. TEACHING OF REVOLU-
 TIONARY PROGRAM
 
 advised on December 15, 1969, that he

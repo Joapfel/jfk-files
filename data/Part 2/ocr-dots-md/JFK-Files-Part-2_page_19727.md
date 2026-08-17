@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19727.png
-
-Convert to MarkdownHO 100-12404
+HO 100-12404
 
 PAGE TWO
 

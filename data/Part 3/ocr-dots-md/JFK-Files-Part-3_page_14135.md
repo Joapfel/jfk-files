@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14135.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 nonattribution, and that short cuts were desirable.)
 

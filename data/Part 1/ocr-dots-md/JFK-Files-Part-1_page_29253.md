@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29253.png
-
-Convert to MarkdownS-E-C-R-F-T
+S-E-C-R-F-T
 
 Date 16 August 1962
 

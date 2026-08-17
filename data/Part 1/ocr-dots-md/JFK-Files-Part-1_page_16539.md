@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16539.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>PERSON/UNIT NOTIFIED</td>
     <td colspan="2">CABLE SECRETARIAL DISSEMINATION</td>

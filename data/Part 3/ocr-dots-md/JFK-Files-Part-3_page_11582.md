@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11582.png
-
-Convert to Markdownment of Weatherman sympathizers. Approval has been obtained for this Unit to supervise this Pine Street case in view of its intimate connection with the overall Weatherman investigation. Approval has also been obtained for this Unit to supervise a New Left - Violence case in Tucson, Arizona, which involves Unlawful Possession or Receipt of Firearms (UPRF) charges. This Tucson case concerns five New Left extremists, three of whom have now been indicted by a Federal Grand Jury. Two of these have been apprehended and the third is a fugitive. Another subject in this case has been sentenced to jail for contempt of court for refusing to testify before the Grand Jury.
+ment of Weatherman sympathizers. Approval has been obtained for this Unit to supervise this Pine Street case in view of its intimate connection with the overall Weatherman investigation. Approval has also been obtained for this Unit to supervise a New Left - Violence case in Tucson, Arizona, which involves Unlawful Possession or Receipt of Firearms (UPRF) charges. This Tucson case concerns five New Left extremists, three of whom have now been indicted by a Federal Grand Jury. Two of these have been apprehended and the third is a fugitive. Another subject in this case has been sentenced to jail for contempt of court for refusing to testify before the Grand Jury.
 
 An example of the salutary effect of vigorous
 investigation and prosecution of New Left extremists is seen

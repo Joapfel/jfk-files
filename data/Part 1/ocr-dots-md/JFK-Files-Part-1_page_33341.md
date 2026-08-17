@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33341.png
-
-Convert to Markdownemploy it in his speeches but the importance of preserving "democracy, pluralism and liberty" was conspicuously absent.
+employ it in his speeches but the importance of preserving "democracy, pluralism and liberty" was conspicuously absent.
 
 The government's policy was very much to Moscow's liking: seizure of US investments, the espousal of the doctrine of "ideological pluralism" (relations with all states regardless of ideology and internal political character), closer relations with the socialist camp, and the fostering of an "anti-imperialist (anti-US) front in Latin America.
 

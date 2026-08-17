@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10781.png
-
-Convert to MarkdownThere appears to be much confusion in professional
+There appears to be much confusion in professional
 circles regarding the use of the term "positive intelligence. "
 Some professionals use the term "positive intelligence" synonymously
 with the term "foreign intelligence." In still another

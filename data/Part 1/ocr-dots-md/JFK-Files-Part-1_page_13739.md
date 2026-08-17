@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13739.png
-
-Convert to Markdownparticipantes ó sean 560 dólares en "nuestra cuenta en el -
+participantes ó sean 560 dólares en "nuestra cuenta en el -
 ... Bank de Washington", pero resulta que recibieron un --
 telegrama de Roma diciendo que la fecha límite para ese do-
 pósito es el 20 de julio y querían saber si se había hecho

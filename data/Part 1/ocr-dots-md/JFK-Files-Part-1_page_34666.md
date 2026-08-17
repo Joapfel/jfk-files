@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34666.png
-
-Convert to Markdownthe area. Clearances have been obtained for two Cubans who will act as coordinators for the operation.
+the area. Clearances have been obtained for two Cubans who will act as coordinators for the operation.
 
 e. AVCEL-T-1, a Hungarian diplomat, has been recruited and has agreed to act as a courier for the intel net in Cuba. The agent is currently on his way to Cuba via boat.
 

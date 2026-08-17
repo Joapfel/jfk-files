@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9610.png
-
-Convert to MarkdownSECRET ARMY ORGANIZATION
+SECRET ARMY ORGANIZATION
 GENERAL HEADQUARTERS
 
 Dear Fellow American,

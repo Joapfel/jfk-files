@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11480.png
-
-Convert to Markdown2.
+2.
 
 sort of slander since the LIRING office was always
 trying to neutralize persons and groups not acting

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_839.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the verge of really picking up speed and momentum. As a result of its role in the case of the four deserting sailors, BEHEIREN has reaped bountiful publicity, has succeeded in touching a delicate Japanese public nerve of sympathy and pacifism, opening a floodgate of support for BEHEIREN from all over Japan. When this case fades from the limelight, it is still most likely that a fair percentage of current wave of popular support for BEHEIREN will solidify into permanent mass backing, giving BEHEIREN, for the first time, a meaningful base to support its future activities.
 

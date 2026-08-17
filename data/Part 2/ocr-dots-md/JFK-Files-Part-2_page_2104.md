@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2104.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">23. IDENTITY - List three persons living in the United States or Territory of the United States who are NOT related to you and whom you consider family members or close friends.</td>
    </tr>

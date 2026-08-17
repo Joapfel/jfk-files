@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2482.png
-
-Convert to MarkdownFirst Section could listen to a particular tape but he had to go to OTU
+First Section could listen to a particular tape but he had to go to OTU
 to do so and as a result this was done very infrequently.
 
 It is believed that any presumption that the KGB recovered or

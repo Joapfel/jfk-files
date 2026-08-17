@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18690.png
-
-Convert to MarkdownJ. The additional SAC letters and memoranda identified
+J. The additional SAC letters and memoranda identified
 on the attached list.
 
 K. The performance ratings (Form FD 185) of the

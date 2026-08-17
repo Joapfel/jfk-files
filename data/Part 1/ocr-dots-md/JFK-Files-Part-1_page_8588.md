@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8588.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Soviet Confidential Contracts:
 

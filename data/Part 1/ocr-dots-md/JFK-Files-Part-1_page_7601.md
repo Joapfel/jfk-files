@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7601.png
-
-Convert to Markdown**LOGINOV:** "All right, Miriam, I'll do it for you (i.e., give KUTTLER the visa). But you know, a favor must be repaid by a favor."
+**LOGINOV:** "All right, Miriam, I'll do it for you (i.e., give KUTTLER the visa). But you know, a favor must be repaid by a favor."
 
 **Subject:** "All right...in that case, let me in the name of the company invite you to dinner."
 

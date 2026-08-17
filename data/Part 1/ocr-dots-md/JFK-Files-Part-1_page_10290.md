@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10290.png
-
-Convert to Markdownde la guerraftenay el fascismo. Dys- paña de la guerra, la lucha de clases, Hoy tenemos la civilización industrial o de los consumos. Hoy, a pesar de que siguen existiendo las clases y las raciones de clase, me interesan principalmente males de la civilización industrial.
+de la guerraftenay el fascismo. Dys- paña de la guerra, la lucha de clases, Hoy tenemos la civilización industrial o de los consumos. Hoy, a pesar de que siguen existiendo las clases y las raciones de clase, me interesan principalmente males de la civilización industrial.
 
 Veltroni: Yo quiera hablar de nuestra estación de universitarios, de nuestra po- lémica. Nosotros nos damos cuenta de ut- la universidad, en la sociedad occidental, sólo sirve para proveer los técnicos que contribuyen al fomentamiento de la es- tructura capitalista. No es instrumento de libertad, no sirve para sustituir la re- creación political con un libre juego inte- lectual. Por eso criéremos tanto a un determinado tipo de hande de cultura. Ciertos intelectuales para nosotros son simplemente agentes, fijos representar a la izquierda, pero en realidad no hacen otra cosa que servir el sistema.
 

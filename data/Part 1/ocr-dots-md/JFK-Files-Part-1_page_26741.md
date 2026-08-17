@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26741.png
-
-Convert to MarkdownReel 72-KICO-37
+Reel 72-KICO-37
 
 2 'May 1965
 

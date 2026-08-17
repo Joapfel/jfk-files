@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34387.png
-
-Convert to MarkdownSECRET
+SECRET
 
 102334Z
 CITE WAVE 9407 (ING HURST ACTING)

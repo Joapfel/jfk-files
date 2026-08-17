@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22992.png
-
-Convert to MarkdownSECRET
+SECRET
 
 40. With what agencies and files has subject's name been checked? When?
 Result? What else has been done to verify biographical information furnished by subject?

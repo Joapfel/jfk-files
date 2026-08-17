@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11067.png
-
-Convert to Markdown# IMPLEMENTATION OF AUTHORITY
+# IMPLEMENTATION OF AUTHORITY
 
 The criteria and guidelines for FBI investigations are furnished to the field in a "Manual of Instructions," the "F. B. I. Handbook," and in Letters to all Special Agents in Charge. In addition, instructions and guidance are given to the field in Headquarters Communications on specific cases. Compliance with criteria and guidelines is obtained by supervision in both the field and at Bureau Headquarters. In addition, regular inspections of field and Headquarters Divisions assure that Bureau policies concerning investigations are being followed.
 

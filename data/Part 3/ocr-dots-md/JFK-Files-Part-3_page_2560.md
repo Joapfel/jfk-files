@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2560.png
-
-Convert to Markdowna. Former Special Agent Robert R. Nichols.
+a. Former Special Agent Robert R. Nichols.
 
 b. Former Special Agent Alan Sentinella.
 

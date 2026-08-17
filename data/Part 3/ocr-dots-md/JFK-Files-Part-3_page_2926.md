@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2926.png
-
-Convert to Markdown2513
+2513
 
 Mr. Kelley. Removing him from his position or whatever is necessary in order to make it impossible or at least as impossible as possible to perpetuate this thing.
 

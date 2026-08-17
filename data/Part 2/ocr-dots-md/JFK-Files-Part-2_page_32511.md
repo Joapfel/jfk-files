@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32511.png
-
-Convert to MarkdownSECRET
+SECRET
 
 was suspected of carrying subversives and arms from Cuba to British Guiana in mid-July. MITCHURINSK was under U.S. surveillance from its departure from Havana until United Kingdom forces assumed the task of keeping this ship under surveillance upon its approach to Georgetown, British Guiana.
 

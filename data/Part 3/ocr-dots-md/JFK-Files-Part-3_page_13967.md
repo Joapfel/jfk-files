@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13967.png
-
-Convert to Markdown procedures are in readiness for making such
+procedures are in readiness for making such
 releases; and (3) that U-2 and OXCART pilots
 are instructed as to appropriate action to
 be taken in case of mission failures.

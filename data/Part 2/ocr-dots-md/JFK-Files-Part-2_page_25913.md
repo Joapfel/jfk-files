@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25913.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 To: Files
 From: Mike Madigan

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11171.png
-
-Convert to Markdown"(4) the extent to which the position taken or advanced by it from time to time on matters of policy do not deviate from those of any Communist-action organization, Communist foreign government, or the world Communist movement referred to in section 781 of this title."
+"(4) the extent to which the position taken or advanced by it from time to time on matters of policy do not deviate from those of any Communist-action organization, Communist foreign government, or the world Communist movement referred to in section 781 of this title."
 
 e. [Deleted]
 

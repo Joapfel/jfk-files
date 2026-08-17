@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_972.png
-
-Convert to MarkdownHSCA Chron, page 5
+HSCA Chron, page 5
 
 27 Jan 78 Stokes Letter to DCI re procedures for HSCA staff personnel investigating on "full access" basis.
 

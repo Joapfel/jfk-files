@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4428.png
-
-Convert to Markdown19-20
+19-20
 NEXT MONTH
 
 Sat-Sun

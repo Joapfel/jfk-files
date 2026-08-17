@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15649.png
-
-Convert to MarkdownIV. DOCUMENTS URGING THE REVOLUTIONARY PROGRAM
+IV. DOCUMENTS URGING THE REVOLUTIONARY PROGRAM
 
 furnished the following leaflet
 on November 30, 1969:

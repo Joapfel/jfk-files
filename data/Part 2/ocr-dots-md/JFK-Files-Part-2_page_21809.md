@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21809.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 49
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9344.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET
 ROUTING AND RECORD SHEET

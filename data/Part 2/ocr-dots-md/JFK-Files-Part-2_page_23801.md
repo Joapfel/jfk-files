@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23801.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 really haven't quite been able to deal with.
 

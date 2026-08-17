@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20836.png
-
-Convert to MarkdownUSFDR-CG
+USFDR-CG
 
 17 January 1968
 

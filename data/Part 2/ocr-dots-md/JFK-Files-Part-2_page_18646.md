@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18646.png
-
-Convert to MarkdownThis document is prepared in response to your request and is not for dissemi-
+This document is prepared in response to your request and is not for dissemi-
 nation outside your Committee. Its use is limited to official proceedings by
 the Committee and to the light may not be disclosed to unauthorized person-
 nel without the express approval of the FBI.

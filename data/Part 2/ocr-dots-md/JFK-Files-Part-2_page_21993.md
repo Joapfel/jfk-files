@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21993.png
-
-Convert to MarkdownC-VII
+C-VII
 
 C-VII-1 Letter/Jeanne Davis to Belin re: Review of NSC Documents Relating to Assassination, May 30, 1975
 

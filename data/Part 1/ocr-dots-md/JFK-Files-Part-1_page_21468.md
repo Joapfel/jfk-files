@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21468.png
-
-Convert to Markdown14-00060
+14-00060
 
 <table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td><table><tbody><tr><td>DATE : 18 NOV 60</td><td style="text-align:right; vertical-align:bottom;">SECRET</td></tr></tbody></table></td></tr><tr><td><table><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>2</td><td>4</td></tr><tr><td>2</td><td>3</td><td>5</td></tr><tr><td>3</td><td>Ashore</td><td>6</td></tr></tbody></table></td></tr><tr><td><strong>TO :</strong> DIRECTOR<br/><strong>FROM :</strong> PARIS<br/><strong>ACTION :</strong> C/TSD 2 (TSD ISSUED TEMPO COPY AT 1345 18 NOV 60)<br/><strong>INFO :</strong> COP, C/C1, C/F1 2, C/EE 3, C/SR 3, C/WE 2, S/C 2</td><td>NOV 18 1821Z 60<br/>OPERATIONAL IMMEDIATE<br/>IN 44558</td></tr></table>
 

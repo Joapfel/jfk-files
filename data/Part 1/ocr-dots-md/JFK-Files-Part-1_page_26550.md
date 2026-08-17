@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26550.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 4 MEXICO CITY 8416 SECRET
 

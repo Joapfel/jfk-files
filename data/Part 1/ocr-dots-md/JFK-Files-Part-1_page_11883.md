@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11883.png
-
-Convert to Markdown<table><thead><tr><th>19D NUTS</th><th>201 NUTS</th><th>GMYT</th></tr></thead><tbody><tr><td>(72663)</td><td>(788757)</td><td>( )</td></tr><tr><td>(72666)</td><td>( )</td><td>( )</td></tr><tr><td>(72668)</td><td>( )</td><td>( )</td></tr><tr><td>✓ (72669)</td><td>(330681)</td><td>(AUG 8/21)</td></tr><tr><td>(72671)</td><td>(787126)</td><td>( )</td></tr></tbody></table>
+<table><thead><tr><th>19D NUTS</th><th>201 NUTS</th><th>GMYT</th></tr></thead><tbody><tr><td>(72663)</td><td>(788757)</td><td>( )</td></tr><tr><td>(72666)</td><td>( )</td><td>( )</td></tr><tr><td>(72668)</td><td>( )</td><td>( )</td></tr><tr><td>✓ (72669)</td><td>(330681)</td><td>(AUG 8/21)</td></tr><tr><td>(72671)</td><td>(787126)</td><td>( )</td></tr></tbody></table>
 
 2. The identities of the above reports are forwarded as a rate cover attachment.
 

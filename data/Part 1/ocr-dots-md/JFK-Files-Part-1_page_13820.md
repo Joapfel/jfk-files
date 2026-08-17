@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13820.png
-
-Convert to Markdown# TARGET PERSONAL DATA FORM
+# TARGET PERSONAL DATA FORM
 
 (Not including phone numbers or addresses)
 

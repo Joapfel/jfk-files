@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5244.png
-
-Convert to Markdown1) Why, in his supervision of these matters, he failed to insure that cases involving minor thefts were immediately presented to the U. S. Attorney for prosecuting opinion in accordance with existing Bureau instructions.
+1) Why, in his supervision of these matters, he failed to insure that cases involving minor thefts were immediately presented to the U. S. Attorney for prosecuting opinion in accordance with existing Bureau instructions.
 
 2) Why, in his overall supervision, he failed to detect that FD-302s were not prepared in the aforementioned cases.
 

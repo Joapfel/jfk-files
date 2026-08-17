@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10980.png
-
-Convert to MarkdownL. ALTERNATIVES
+L. ALTERNATIVES
 
 In addition to the recommended plan set forth in preceding sections, there are several alternative courses of action we might take:
 

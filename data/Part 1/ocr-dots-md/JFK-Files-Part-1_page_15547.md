@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15547.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td colspan="2">DATE : 19 APR 61</td></tr><tr><td>TO : DIRECTOR</td><td></td></tr><tr><td>FROM : LEOPOLDVILLE</td><td></td></tr><tr><td>ACTION : IC/AF 3</td><td></td></tr><tr><td>INFO : COP, C/C1, C/EE 3, S/C 2</td><td></td></tr></table>
 

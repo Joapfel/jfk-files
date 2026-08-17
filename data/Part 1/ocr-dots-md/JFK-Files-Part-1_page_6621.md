@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6621.png
-
-Convert to Markdown17 July 1953
+17 July 1953
 
 Chief, Contact Division
 Deputy Chief, Foreign Documents Division

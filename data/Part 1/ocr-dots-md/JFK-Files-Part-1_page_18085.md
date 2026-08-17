@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18085.png
-
-Convert to MarkdownSECRET/KAPOK
+SECRET/KAPOK
 
 A. Current Objectives. The original objectives of the project have not changed but have been added to in the last year. The project is functioning well as a technical (primarily photographic) surveillance operation against the PBRUMEN Embassy in Mexico City. It is designed to:
 

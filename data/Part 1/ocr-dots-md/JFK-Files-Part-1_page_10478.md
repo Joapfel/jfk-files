@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10478.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Chief, Washington Field Office
 

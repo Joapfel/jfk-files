@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26093.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 242220Z CITE CARACAS 8417
 

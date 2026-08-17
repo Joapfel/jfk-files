@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29730.png
-
-Convert to MarkdownMYROELAN ANDREW MAGSYNIEC
+MYROELAN ANDREW MAGSYNIEC
 
 APRIL 20, 1967
 FM. 171 - Experience 18-1

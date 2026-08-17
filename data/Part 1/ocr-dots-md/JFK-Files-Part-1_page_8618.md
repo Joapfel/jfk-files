@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8618.png
-
-Convert to Markdown1 October 1969
+1 October 1969
 
 Below is translation of document written by LIBAC. Is re his friend
 HERNANES who lives in San Juan del Rio.

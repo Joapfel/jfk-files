@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19226.png
-
-Convert to MarkdownPH 100-49497
+PH 100-49497
 
 PH 475-S advised on 12/19/67, that VIVIAN HALLINAN,
 Apartment Houses, 61 Peninsula Road, Belvedere, Calif., wrote

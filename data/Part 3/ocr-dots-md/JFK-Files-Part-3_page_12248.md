@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12248.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 June 12, Jr 1975
 

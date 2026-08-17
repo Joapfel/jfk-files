@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21323.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On 2/23/61, Cirita Lopez Cejas, residence, Miami, Fla., and a messenger for Manuel Ray and the underground, advised that Manuel Ray had helped Gutierrez Menoyo and the group who came with him, to escape from Cuba on 1/27/61. Lopez stated that she assisted in the arrangements for the defection and had hidden 5 or 6 of the revolutionaries in her home in Havana. She advised that Ray recognized that Gutierrez pulled a considerable amount of support and following as a former leader of the Escambray. He was considered a good campaigner and knew the Sierra Escambray Mountains extremely well.
 

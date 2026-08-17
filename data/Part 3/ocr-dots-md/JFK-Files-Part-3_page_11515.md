@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11515.png
-
-Convert to MarkdownThis might be termed a balancing approach, an approach which
+This might be termed a balancing approach, an approach which
 has been unrecognized by many of the FBI's Critics.
 
 Moreover, in an effort to balance the right of protection from violations of privacy against other rights don't we have to decide, among other things, how much law enforcement agencies should be allowed to infringe on the privacy of suspects in order to protect the privacy—and all the rights—of other citizens—above all the rights of those latter citizens not to be victimized by law breakers and/or politically or revolutionary motivated suspects? This is a major dilemma.

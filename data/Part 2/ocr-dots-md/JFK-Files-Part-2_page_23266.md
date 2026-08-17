@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23266.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 my period as Chief of the African Division and the Congo --
 let's leave the balance of Africa out -- and U.N. and U.S.

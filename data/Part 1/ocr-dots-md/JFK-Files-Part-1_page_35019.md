@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35019.png
-
-Convert to MarkdownPERU:
+PERU:
 
 Payroll:
 

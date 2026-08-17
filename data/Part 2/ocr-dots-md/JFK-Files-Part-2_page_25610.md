@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25610.png
-
-Convert to MarkdownFILED
+FILED
 
 DEC 21 1967
 

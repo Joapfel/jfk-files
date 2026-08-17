@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16075.png
-
-Convert to MarkdownIV. CONCEPT OF OPERATIONS
+IV. CONCEPT OF OPERATIONS
 
 A. General Concept
 

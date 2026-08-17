@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2806.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Fitness Report - William M. Kent
 

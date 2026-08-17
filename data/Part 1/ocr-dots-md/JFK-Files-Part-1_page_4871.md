@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4871.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="5">FOR ADO</td></tr><tr><td colspan="5">3-11 WFG. 30/76</td></tr><tr><td>CABLE SEC. DIGITAL BY <u>PURSUIT</u></td><td>TOTAL COPIES <u>SUN 01</u></td><td colspan="3"></td></tr><tr><td>PERSON/UNIT NOTIFIED <u>SECRETS</u></td><td colspan="4"></td></tr><tr><td colspan="5">REPRODUCTION BY OTHER THE ADDING OFFICE IS REQUIRED</td></tr><tr><td colspan="2"><u>ADVANCE COPY ISSUED/ARRIVED</u></td><td><u>BY AT:</u> <u>STAFF</u></td><td colspan="2"></td></tr><tr><td>ACTION UNIT <u>I N F O</u></td><td><u>RF. FILE VR.</u></td><td colspan="3"></td></tr><tr><td rowspan="3">ACTION # <u>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</u></td><td colspan="2"></td><td colspan="2" rowspan="3"><u>STAFF</u></td></tr><tr><td><u>1</u></td><td><u>4</u></td></tr><tr><td><u>2</u></td><td><u>3</u></td></tr><tr><td><u>3</u></td><td><u>6</u></td></tr></table>
 

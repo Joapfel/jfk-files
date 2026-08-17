@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9753.png
-
-Convert to MarkdownInstitution of the United States available to him in such country or in any country under military investigatory jurisdiction;
+Institution of the United States available to him in such country or in any country under military investigatory jurisdiction;
 
 (b) In other areas the Department of State will utilize and investigative authority of the United States available in that country, concerned. If no country's investigative facilities are available in that country, the investigative facilities of the United States in a nearby country will be utilized by the Department of State.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2507.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, Counterintelligence Staff
 

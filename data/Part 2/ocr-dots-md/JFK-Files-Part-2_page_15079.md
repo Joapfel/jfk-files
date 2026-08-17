@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15079.png
-
-Convert to MarkdownLOUIS WOLFSON
+LOUIS WOLFSON
 INFORMATION CONCERNING
 
 At request of the Department, received April 17, 1969, we are ascertaining subscribers to some 400 telephone numbers in various parts of the United States called from the Florida farms of Louis Wolfson, who was recently convicted in two Securities and Exchange Commission cases in New York. Most of these have been determined and furnished Criminal Division. Remaining are being expedited and results being furnished to Department as received. Bureau records also checked with negative results regarding $20,000 check from Wolfson Family Foundation to Abe Fortas, Supreme Court Justice, dated January 3, 1966, and $20,000 check from Fortas to Wolfson Family Foundation dated December 22, 1966. Internal Revenue Service conducted investigation and determined $20,000 check to Fortas was allegedly for discrimination study and $20,000 returned to Wolfson Family Foundation by Fortas as study was not undertaken.

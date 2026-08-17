@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3122.png
-
-Convert to Markdownhas responded to public expectations and from pressure from a higher authority in government.
+has responded to public expectations and from pressure from a higher authority in government.
 
 While this does not excuse what happened, we should temper our criticism of the FBI's excesses by understanding that in large part it was only the instrument of our own intolerance. Indeed, I believe that is why our laws and the charter of the FBI must be carefully redrawn to protect the FBI's integrity from political pressures and hysteria.
 

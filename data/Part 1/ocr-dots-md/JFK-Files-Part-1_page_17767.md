@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17767.png
-
-Convert to Markdown..6.-
+..6.-
 
 TAPIA se entera y da las gracias, y dice que su esposa y su familia fueron a las piramides de Tootihuacan; cambia de tema y pregunta que le tría RENE con el cable cifrado. GUZMAN dice que nada y que era otro cable grande y ya quedó todo arreglado, y que " ese hombre es un bruto que el gobernador", cambia de tema y dico que hay que andarle un regalo a esa muchacha.
 

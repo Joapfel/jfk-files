@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25254.png
-
-Convert to MarkdownUSSR
+USSR
 
 1963
 

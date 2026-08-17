@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5881.png
-
-Convert to MarkdownW.E.B. DU BOIS CLUBS
+W.E.B. DU BOIS CLUBS
 OF CHICAGO (DCC)
 
 On May 3, 1965, a source advised that on June 30, 1964,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33809.png
-
-Convert to MarkdownMcCAMPBELL & COMPANY
+McCAMPBELL & COMPANY
 INCORPORATED
 
 Forty Worth Street

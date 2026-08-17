@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3881.png
-
-Convert to MarkdownNovel to Testify
+Novel to Testify
 Oct. 20 Before
 BR Grand Jury
 

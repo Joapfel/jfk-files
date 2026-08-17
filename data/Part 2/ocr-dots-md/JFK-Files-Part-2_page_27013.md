@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27013.png
-
-Convert to MarkdownB. Histories not requested
+B. Histories not requested
 
 1. Logistics Support for Operations in Cuba, March 1960 - October 1961 (OL-7) (but note that the time period covered by the history begins in the Kennedy Administration)
 

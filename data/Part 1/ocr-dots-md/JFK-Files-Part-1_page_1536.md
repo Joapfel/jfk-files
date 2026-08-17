@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1536.png
-
-Convert to Markdown(text of Russian Protest: Unofficial Translation)
+(text of Russian Protest: Unofficial Translation)
 
 Embassy of the Union of Soviet
 Socialist Republics

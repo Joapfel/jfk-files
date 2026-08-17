@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33658.png
-
-Convert to MarkdownJanuary 24, 1952
+January 24, 1952
 
 MEMORANDUM
 

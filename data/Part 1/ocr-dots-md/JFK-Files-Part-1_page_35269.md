@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35269.png
-
-Convert to Markdown-Continuación-
+-Continuación-
 
 ## NOMINA (ANEXO "I-D")
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27061.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 3. The Intelligence Community view of the Cuban problem in this period was crystallized in NIE 85-2-62, The Situation and Prospects in Cuba, passed by USIB on 1 August 1962, as the intelligence foundation for MONGODB. This estimate stated that:
 

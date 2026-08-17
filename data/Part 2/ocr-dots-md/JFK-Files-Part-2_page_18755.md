@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18755.png
-
-Convert to MarkdownJanuary 12, 1959
+January 12, 1959
 
 Re:
 

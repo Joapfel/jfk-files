@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11486.png
-
-Convert to MarkdownThere may be exceptional circumstances requiring a special prosecutor from outside the Department of Justice who is not dependent on the Attorney General or the President for future promotion or other preferment. The primary obligation to appoint such an attorney should reside in the Attorney General.
+There may be exceptional circumstances requiring a special prosecutor from outside the Department of Justice who is not dependent on the Attorney General or the President for future promotion or other preferment. The primary obligation to appoint such an attorney should reside in the Attorney General.
 
 The relationship between the Justice Department and the intelligence service unquestionably presents us with an exceptional circumstance.
 

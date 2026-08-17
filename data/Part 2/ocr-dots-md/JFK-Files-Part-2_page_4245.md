@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4245.png
-
-Convert to Markdown13-00000
+13-00000
 
 The briefing was well received and members expressed the opinion
 that the session had been extremely useful.

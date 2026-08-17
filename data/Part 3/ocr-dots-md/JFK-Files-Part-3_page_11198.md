@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11198.png
-
-Convert to MarkdownSupplemental Agreement No. VI
+Supplemental Agreement No. VI
 to the Delimitations Agreement
 
 Investigation in Areas Not Specifically Assigned

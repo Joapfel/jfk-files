@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33065.png
-
-Convert to MarkdownSECRET
+SECRET
 AGENT SERVICE RECORD
 
 1. Agent's Cryptonym or Pseudonym: AMCHALK-5 (formerly AMSTALK-1 and AMICE-14) (See also SD 56490)

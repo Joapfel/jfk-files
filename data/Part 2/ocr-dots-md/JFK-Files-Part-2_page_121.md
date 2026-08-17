@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_121.png
-
-Convert to Markdown10-29748
+10-29748
 SEP F DGB
 
 CIT ?

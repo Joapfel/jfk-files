@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_526.png
-
-Convert to MarkdownEX-9816
+EX-9816
 
 1 March 1972
 

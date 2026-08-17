@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8152.png
-
-Convert to MarkdownOctober 30, 1963
+October 30, 1963
 
 Dear Bob,
 

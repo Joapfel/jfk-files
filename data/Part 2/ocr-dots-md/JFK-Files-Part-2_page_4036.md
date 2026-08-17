@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4036.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 On September 21, 1963, Assistant United States Attorney FREDERICK J. MORTON was furnished the facts of the case involving the attempted robbery of the State National Bank of El Paso, on September 20, 1963, and Mr. MORTON then authorized the filing of a complaint charging the subject with bank robbery.
 

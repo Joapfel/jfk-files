@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16744.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IN MEXICO CITY
 36488

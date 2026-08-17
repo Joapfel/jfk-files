@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30732.png
-
-Convert to MarkdownMEMORANDUM FOR: Supervisors and Training Officers Concerned
+MEMORANDUM FOR: Supervisors and Training Officers Concerned
 
 SUBJECT: Training Evaluations for Phase III #2
 

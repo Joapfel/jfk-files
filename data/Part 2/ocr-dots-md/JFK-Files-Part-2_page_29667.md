@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29667.png
-
-Convert to Markdown# Classification
+# Classification
 
 (This classification has been extracted from a general document.)
 from Castro's documents.)

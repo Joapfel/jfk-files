@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16371.png
-
-Convert to MarkdownTHE PEOPLE'S COURT
+THE PEOPLE'S COURT
 
 Manuel Ramos, a Revolutionary Brother, was murdered in cold blood by the off-duty racist dog police. This same pig creates disorder in our schools, and vamps on us when we stand up for what is ours, as Manuel did. We make demands for better conditions in our schools. Manuel made a demand for the people. He said, "Man, I believe all people should have power whether they're Black, Brown, or White." And for that he was assassinated.
 

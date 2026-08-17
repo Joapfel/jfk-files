@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6900.png
-
-Convert to MarkdownBut it seems to me the time has come to open these files to
+But it seems to me the time has come to open these files to
 the public and let them speak for themselves. Let historians and
 journalists and the people read them, and draw the appropriate
 conclusions.

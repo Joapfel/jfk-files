@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4898.png
-
-Convert to MarkdownOUTGOIN MESSAGE
+OUTGOIN MESSAGE
 
 <table><tr><td>14-00000</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_161.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><tr><td>TO<br/>Chief, WII Division</td><td>CLASSIFIED</td><td colspan="3">PROCEEDING ACTION</td></tr><tr><td>OFFICE</td><td rowspan="4" style="vertical-align: top; text-align: center; padding-left: 10px;">XXX</td><td colspan="2">MARKS FOR DELIVERING</td><td rowspan="4" style="vertical-align: top; text-align: center; padding-left: 10px;">NO MEDICAL REQUIRED<br/>ONLY QUALIFIED DOCTOR CAN MAKE DELIVERING</td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td>CAN MAKE DELIVERING</td></tr><tr><td>SUBJECT<br/>LICKERY Project<br/>Termination of LICK-87-1</td><td>BOTH ENDS</td></tr><tr><td>ACTION REQUIRED REQUIRES<br/>ACTION REQUIRED: FYI</td><td colspan="3"></td></tr></table>
 

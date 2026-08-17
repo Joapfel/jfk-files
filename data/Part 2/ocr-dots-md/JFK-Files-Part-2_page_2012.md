@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2012.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>STANDARD FORM 52<br/>FORM 6103-7<br/>US ARMY<br/>JANUARY 1971—FEDERAL PERSONNEL<br/>BASIC CLASS OF</td>
         <td>SECRET</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3590.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>FILE AND COPY</td><td></td><td>SECRET</td></tr><tr><td>COPY</td><td></td><td></td></tr><tr><td>REVERSE SIDE</td><td></td><td></td></tr><tr><td>REFERENCE NUMBER</td><td></td><td>201-300923</td></tr></table>
 

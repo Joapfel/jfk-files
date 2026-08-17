@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18495.png
-
-Convert to Markdown8 September 1960
+8 September 1960
 
 # MEMORANDUM IN LIEU OF FITNESS REPORT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_379.png
-
-Convert to MarkdownB-
+B-
 
 Development of LIKING/3 by Rowton:
 

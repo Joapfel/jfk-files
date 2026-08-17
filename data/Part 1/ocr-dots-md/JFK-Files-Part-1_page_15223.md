@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15223.png
-
-Convert to MarkdownSR: OB/59/17218
+SR: OB/59/17218
 
 30 September 1959
 

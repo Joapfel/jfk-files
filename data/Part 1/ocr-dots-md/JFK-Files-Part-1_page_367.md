@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_367.png
-
-Convert to Markdowndeletions were made to protect our proposed operational use of Subject as outlined in Paragraph 5, the name of an Agency employee and internal organizational data.
+deletions were made to protect our proposed operational use of Subject as outlined in Paragraph 5, the name of an Agency employee and internal organizational data.
 
 c. Memorandum dated 30 March 1962--I recommend that further information be released to the requester, as noted in Tab B2, and the remainder withheld on the basis of Title 5 U.S.C. 552 (b)(1) and (b)(3). The deletions were made to protect the names of Agency employees, and internal organizational data.
 

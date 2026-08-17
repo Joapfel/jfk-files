@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3695.png
-
-Convert to MarkdownEDITIONS
+EDITIONS
 
 <table><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>CLASS: <u>CONFIDENTIAL</u></td><td>TOTAL COPIES: 20</td><td>PRINTING AND DISTRIBUTION SCHEDULE</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27303.png
-
-Convert to MarkdownMEMORANDUM IN LIEU OF FITNESS REPORT
+MEMORANDUM IN LIEU OF FITNESS REPORT
 
 SUBJECT: BROE, William V. (1 April 1964 - 31 March 1965)
 

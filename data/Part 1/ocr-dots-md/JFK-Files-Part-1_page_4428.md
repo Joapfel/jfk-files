@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4428.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 their association with the Agency. I explained the Agency's serious reservations concerning the possibility of compromise of agents and operations that are still in being. I explained that the Agency continues to have associations with some of the individuals with whom Messrs. Barker and Martinez had contact during their Agency association. Mr. Schultz seemed to appreciate this problem. Thus, in order to attempt to protect those individuals, I explained that the Agency is currently not in a position to give Messrs. Barker and Martinez blanket authorization to identify individuals with whom they had contact during their Agency association. Mr. Schultz readily acknowledged those conditions.
 

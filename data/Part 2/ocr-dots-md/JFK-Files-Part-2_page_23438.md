@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23438.png
-
-Convert to MarkdownJuly 7
+July 7
 
 Allen DULLES reported to the NSC that the Venezuelan government wants the United States to lead the way in breaking relations with TRUJILLO. DULLES stated: The Venezuelan government was engaged in an all-out effort, through the OAS and otherwise, to isolate, condemn and cause the downfall of TRUJILLO. . . . [Because] they have convincing evidence that TRUJILLO was responsible for the assassination attempt on BETANCOURT [President of Venezuela] . . . BETANCOURT believes another attempt will be made momentarily and therefore it [his government] wants a showdown without delay." (NSC Minutes)
 

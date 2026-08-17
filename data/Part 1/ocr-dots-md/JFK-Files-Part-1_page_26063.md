@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26063.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIES</td></tr></thead><tbody><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td rowspan="7"><table><tbody><tr><td colspan="3" style="text-align: center;">SECRET (When Filled In)</td></tr><tr><td colspan="3" style="text-align: center;">GROUP EXCLUDED FROM ORIGINAL REPRODUCTION AND DECLASSIFICATION</td></tr><tr><td colspan="3" style="text-align: center;">REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td>INDEX ☐ YES ☐ NO</td><td colspan="2"></td></tr><tr><td>CLASSIFY TO FILE NO.</td><td colspan="2"></td></tr><tr><td>X-REF TO FILE NO.</td><td colspan="2"></td></tr><tr><td>FILE MD ☐ RET. TO BRANCH ☐ DESTROY ☐ BY NO.</td><td></td><td></td></tr><tr><td>ACTION</td><td colspan="3"></td></tr></tbody></table></td></tr><tr><td colspan="2">ADVANCE COPY ☐ ISSUED ☐ SLOTTED</td></tr><tr><td>BY:</td><td>AT:</td></tr><tr><td>DISSEM BY:</td><td>PER:</td></tr><tr><td>WHAS ☑</td><td>RID COPY</td></tr></tbody></table></td></tr><tr><td>INFO.</td><td colspan="2">VR: wtkcag8, cybers, cytec</td></tr><tr><td>FILE.</td><td colspan="2"></td></tr></tbody></table>
 

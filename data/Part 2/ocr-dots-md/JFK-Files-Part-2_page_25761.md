@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25761.png
-
-Convert to Markdown799 BROADWAY NEW YORK 3, N. Y. Oregon 4-8295
+799 BROADWAY NEW YORK 3, N. Y. Oregon 4-8295
 
 May 29, 1963
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18506.png
-
-Convert to MarkdownFORM FS-285
+FORM FS-285
 
 (THIS SIDE MAY BE USED AS A SUPPLEMENTAL SHEET)
 

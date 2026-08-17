@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17107.png
-
-Convert to Markdowndispatching base for the LIEMBRACE surveillance team.
+dispatching base for the LIEMBRACE surveillance team.
 
 5. The photographs from all these operations are of value to the Station in their operational planning, for identification by surveillance teams, for mug books, which are often used by surveillance teams and singleton agents in identifying Soviets, and for Headquarter's permanent files.
 

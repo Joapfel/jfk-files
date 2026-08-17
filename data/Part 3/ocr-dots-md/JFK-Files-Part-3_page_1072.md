@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1072.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 During June, 1969, Mr. Patrick Poulte, Poulte Realty Company, Ann Arbor, Michigan, was contacted by the Detroit FBI Office and confidentially furnished public source information concerning the Radical Education Project (REP), which is the educational arm of the Students for a Democratic Society (SDS), in that REP had office space in a building owned by Mr. Poulte.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25842.png
-
-Convert to MarkdownChief, WH-3
+Chief, WH-3
 
 25 May 1957
 

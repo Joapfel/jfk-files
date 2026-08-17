@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14237.png
-
-Convert to Markdown14-00000
+14-00000
 
 26 enero 1968
 13-15h

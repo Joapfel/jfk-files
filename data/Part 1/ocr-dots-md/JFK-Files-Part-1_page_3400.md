@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3400.png
-
-Convert to Markdownof Chinese from red Manchuria while the government was selling
+of Chinese from red Manchuria while the government was selling
 steel to Berlin.
 
 In the case of the French government I was sorrowful be-

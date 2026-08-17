@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17186.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DISPATCH</td>
     <td><table><tbody><tr><td rowspan="2">CLASSIFICATION<br/>SECRET</td><td colspan="3">PROCESSING ACTION</td></tr><tr><td colspan="3"></td></tr><tr><td>TO<br/>Chief of Station, Mexico City</td><td>X</td><td colspan="2">MARKED FOR DELIVERING</td></tr><tr><td>CC:<br/>Chief, WU Division</td><td colspan="3">NO INVOICE REQUIRED</td></tr><tr><td>SUBJECT<br/>C Renewal of LIEMPTY</td><td colspan="3">ONLY QUALIFIED DISK CAN BE OBLIGATED</td></tr><tr><td></td><td colspan="3">MICROFILM</td></tr><tr><td colspan="4">ACTION REQUIRED - REFIRMES</td></tr></tbody></table></td>

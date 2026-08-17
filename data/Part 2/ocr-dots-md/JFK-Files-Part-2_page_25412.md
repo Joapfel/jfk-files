@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25412.png
-
-Convert to MarkdownMM 105-1742
+MM 105-1742
 
 machine guns, nine sub-machine guns, automatic rifles and a number of foreign-made weapons. LAUCHLI sold nearly all of these arms, and at reasonable prices.
 

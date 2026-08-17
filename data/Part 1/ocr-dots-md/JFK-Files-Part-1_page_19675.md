@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19675.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Piled In)
 
 BJT: 27 JAN 67

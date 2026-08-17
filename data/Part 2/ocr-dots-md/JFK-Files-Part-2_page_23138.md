@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23138.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 clearinghouse, and the U. S. government had a grip on what it was doing in this clandestine field.
 

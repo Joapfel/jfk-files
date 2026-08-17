@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9794.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 6. During the 14-15 April week-end, Guatemalan authorities arrested three individuals near the Mexican border. They were brought to Guatemala City where they are being held for interrogation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33938.png
-
-Convert to Markdown27 March 1952
+27 March 1952
 
 MEORANDAN FOR: Assistant Director for Policy Coordination
 Deputy Director (Plans)

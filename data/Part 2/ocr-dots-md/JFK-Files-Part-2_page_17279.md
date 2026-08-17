@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17279.png
-
-Convert to Markdown# RICARDO JAMES
+# RICARDO JAMES
 
 Inquiry among Chicago Panthers has determined that this person is a Panther, about 19 years old, 5'9", 160 pounds, brown skinned, always wears fatigues, natural hair style and does serve or did serve on the Information Staff. His current whereabouts are unknown.
 

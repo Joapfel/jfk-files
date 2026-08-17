@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2371.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In September, 1968, a SNCC leader in New York City, traveled to Cuba via France. On October 2, 1968, an interview with [illegible] was broadcast on Radio Havana. In answering a question regarding urban guerrilla warfare, [illegible] said it is going to become more and more a method that will have to be employed by people not only in America but also throughout the world as they struggle for liberation: In answering a question about the full independence of Afro-American people, [illegible] stated that the Afro-American people cannot achieve their liberation without the liquidation of United States imperialism.
 

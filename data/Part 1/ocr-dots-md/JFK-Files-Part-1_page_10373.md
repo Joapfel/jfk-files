@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10373.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tbody><tr><td>OCG: M. Francis/re</td></tr><tr><td>UNIT: WH/1</td></tr><tr><td>EXT: 4157/1973</td></tr><tr><td>DATE: 6 November 68</td></tr></tbody></table>
 

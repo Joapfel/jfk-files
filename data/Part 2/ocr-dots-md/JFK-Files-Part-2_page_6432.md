@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6432.png
-
-Convert to Markdown# Operation "HORN SWOGGLE"
+# Operation "HORN SWOGGLE"
 
 ## Objective:
 

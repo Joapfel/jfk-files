@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23749.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>CLASSIFY TO FILE NO</td>

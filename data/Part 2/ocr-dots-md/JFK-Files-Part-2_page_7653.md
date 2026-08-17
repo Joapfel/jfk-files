@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7653.png
-
-Convert to MarkdownMr. BELMONT. That is correct, sir.
+Mr. BELMONT. That is correct, sir.
 
 The CHAIRMAN. They find themselves in a mousetrap then.
 

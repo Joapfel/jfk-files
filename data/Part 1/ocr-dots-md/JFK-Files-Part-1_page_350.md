@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_350.png
-
-Convert to Markdown14-00000
+14-00000
 
 WHEELER, Robert (Pete)
 6600 Millewaal Rd.

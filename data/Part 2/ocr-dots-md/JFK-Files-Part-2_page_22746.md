@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22746.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 to promote the best kind of a national program.
 

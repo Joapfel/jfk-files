@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19142.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 Women's Bail Fund
 

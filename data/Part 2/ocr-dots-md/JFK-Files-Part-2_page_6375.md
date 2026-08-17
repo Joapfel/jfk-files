@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6375.png
-
-Convert to Markdown(1) Unless the Review Board in its sole discretion directs otherwise, records that are identified by the Review Board with respect to a particular operation or program shall include all records, pertaining to that program by any other name, pseudonym, codeword, symbol, number, or cryptonym
+(1) Unless the Review Board in its sole discretion directs otherwise, records that are identified by the Review Board with respect to a particular operation or program shall include all records, pertaining to that program by any other name, pseudonym, codeword, symbol, number, or cryptonym
 
 § 1400.8 Implementing the JFK Act— Notice of Assassination Record Designation.
 

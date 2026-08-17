@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15100.png
-
-Convert to MarkdownEXHIBIT NO. TO
+EXHIBIT NO. TO
 
 # NCIC NETWORK
 

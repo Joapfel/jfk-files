@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29023.png
-
-Convert to Markdown<table><tr><td>SCHEDULE<br/>C</td></tr><tr><td>FORM 540</td></tr></table>
+<table><tr><td>SCHEDULE<br/>C</td></tr><tr><td>FORM 540</td></tr></table>
 
 CALIFORNIA
 PROFIT (OR LOSS) FROM BUSINESS OR PROFESSION

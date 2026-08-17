@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23659.png
-
-Convert to MarkdownD. AMTRUNK-16, Guide
+D. AMTRUNK-16, Guide
 
 AMTRUNK-16 is a 41-year-old single Cuban citizen who, as a commercial fisherman, lived and worked in the infil/ exfil area all of his life. He participated in Operation AMTRUNK VI in December 1963 and his up-to-date knowledge of the infil/exfil areas from which he fled in late October 1963, proved invaluable on this mission. While he was still in Cuba, AMTRUNK-16 was a trusted contact for the AMTRUNKs on both Operation III/IV and V.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27349.png
-
-Convert to Markdown2 August 1948
+2 August 1948
 
 TO : Chief, FBZ/SEA
 

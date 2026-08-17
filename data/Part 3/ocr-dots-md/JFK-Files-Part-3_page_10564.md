@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10564.png
-
-Convert to MarkdownMAR 25 1975
+MAR 25 1975
 
 <table>
    <tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13460.png
-
-Convert to Markdownamt
+amt
 
 1. responsibilities of other Federal agencies.
 2. Is this essential to their functions, or do you

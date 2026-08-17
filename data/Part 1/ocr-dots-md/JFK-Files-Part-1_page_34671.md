@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34671.png
-
-Convert to Markdownrepairs during the period. The principal activity
+repairs during the period. The principal activity
 during the period revolved around preparation and
 support of operation YABAG, to be implemented 16
 September.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11507.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (S translation of report from, III JCK on: Hernandez (GONZALEZ) Vega)
 

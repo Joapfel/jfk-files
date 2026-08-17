@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27288.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A. Behavioral Activities Branch (TOP SECRET)
 

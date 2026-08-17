@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20151.png
-
-Convert to Markdown1 June 1959
+1 June 1959
 
 MEMORANDUM FOR: Chairman, CS Career Service Board
 SUBJECT : Nominations for Promotion to GS-15

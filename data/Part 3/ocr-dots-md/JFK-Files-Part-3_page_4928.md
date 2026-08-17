@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4928.png
-
-Convert to MarkdownFBI
+FBI
 
 Date: 6/13/63
 

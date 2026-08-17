@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21241.png
-
-Convert to Markdownthat he had furnished information to the Soviets in Moscow
+that he had furnished information to the Soviets in Moscow
 but stated that he was afraid not to continue to meet with
 them.
 

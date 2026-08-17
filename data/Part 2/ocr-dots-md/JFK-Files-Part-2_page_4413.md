@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4413.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td colspan="7">OCTOBER 1961</td>

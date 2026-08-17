@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2734.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (When filled in)
 

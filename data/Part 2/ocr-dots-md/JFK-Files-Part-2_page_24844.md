@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24844.png
-
-Convert to MarkdownThat same day, General Valenzuela informed Colonel Wimert that he,
+That same day, General Valenzuela informed Colonel Wimert that he,
 General Huerta, Admiral Tirado and an Air Force General were prepared
 to sponsor a coup. (CIA Report on Chilean Task Force Activities, 18
 November 1970) Their plan was to begin with the kidnapping of General

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_203.png
-
-Convert to Markdown-2-
+-2-
 
 6. American-Asian Educational Exchange, Inc. - Manhattan,
    New York (7) 08

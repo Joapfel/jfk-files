@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16422.png
-
-Convert to Markdown-3-
+-3-
 
 **Language Ability:** Spanish and some English.
 (English listed as "fair")

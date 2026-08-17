@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9624.png
-
-Convert to MarkdownSECRET - Kafok
+SECRET - Kafok
 
 TZP - A - 121
 

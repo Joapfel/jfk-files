@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6908.png
-
-Convert to Markdownhearings and subpoena records and witnesses.
+hearings and subpoena records and witnesses.
 
 The Review Board would have final say as to the release or non-release of all materials, except that in the case of Executive branch materials, the President would have the authority to supersede the Board's determination and postpone release. But each time the President did so, he would be required to explain his reasons, both in a notice to the public and to the Congress. Decisions by the Review Board itself to postpone release of records would also have to be explained to the public and Congress.
 

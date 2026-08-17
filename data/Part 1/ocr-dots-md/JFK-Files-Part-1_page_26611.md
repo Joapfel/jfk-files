@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26611.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
 
 TOCS-319/101 J-(S) MM-10.610
 

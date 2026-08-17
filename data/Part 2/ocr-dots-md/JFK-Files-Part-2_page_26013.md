@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26013.png
-
-Convert to Markdown-45-
+-45-
 
 LANSDALE: Very much so, very much so.
 

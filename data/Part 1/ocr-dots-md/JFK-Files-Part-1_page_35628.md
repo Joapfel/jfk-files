@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35628.png
-
-Convert to MarkdownPrograma radial FM "Medico y Usted"
+Programa radial FM "Medico y Usted"
 Marzo, 1965
 
 3 Lunes # 339 Importancia de la tos como sintoma de serias afecciones respiratorias

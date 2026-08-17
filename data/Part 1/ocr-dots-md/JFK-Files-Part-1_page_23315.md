@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23315.png
-
-Convert to Markdown# C. Security Considerations
+# C. Security Considerations
 
 (1) Period of Employment with CIA
 June 1949 to present

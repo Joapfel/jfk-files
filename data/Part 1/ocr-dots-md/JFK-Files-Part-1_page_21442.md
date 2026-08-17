@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21442.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG: RPerkins
 UNIT: SR/2/CE

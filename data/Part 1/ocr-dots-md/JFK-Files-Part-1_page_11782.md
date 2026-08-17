@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11782.png
-
-Convert to MarkdownMEMORANDUM FOR: DEPUTY DIRECTOR (PLANS)
+MEMORANDUM FOR: DEPUTY DIRECTOR (PLANS)
 
 SUBJECT: Project PEGEVEL, An amendment No. 1
 

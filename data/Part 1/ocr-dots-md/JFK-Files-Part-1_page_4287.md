@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4287.png
-
-Convert to Markdown<table><tr><td>FORM B-60 1401</td><td>CLASSIFICATION</td><td></td><td>PAGE NO.</td></tr><tr><td>USE PREVIOUS EDITION</td><td>SECRET</td><td>CONTINUED</td><td>2.</td></tr></table>
+<table><tr><td>FORM B-60 1401</td><td>CLASSIFICATION</td><td></td><td>PAGE NO.</td></tr><tr><td>USE PREVIOUS EDITION</td><td>SECRET</td><td>CONTINUED</td><td>2.</td></tr></table>
 
 14-00009
 

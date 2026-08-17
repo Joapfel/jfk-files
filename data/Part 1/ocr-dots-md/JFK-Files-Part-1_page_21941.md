@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21941.png
-
-Convert to MarkdownHe first identified GILMORE's cook, "AGLODINA," as Yelena S. KOSIENKO in the fall of 1965, while reviewing a list of Soviets employed by Americans in Moscow. He told CIA at that time that he had taken over KOSIENKO from TORMOZOV upon entering the U.S. Embassy Section in 1953, and that she subsequently worked for and reported on GILMORE's successor, Richard KASISCHKE. NOSENKO said that KOSIENKO "never provided any interesting information."
+He first identified GILMORE's cook, "AGLODINA," as Yelena S. KOSIENKO in the fall of 1965, while reviewing a list of Soviets employed by Americans in Moscow. He told CIA at that time that he had taken over KOSIENKO from TORMOZOV upon entering the U.S. Embassy Section in 1953, and that she subsequently worked for and reported on GILMORE's successor, Richard KASISCHKE. NOSENKO said that KOSIENKO "never provided any interesting information."
 
 NOSENKO estimated that he was responsible for handling 10 to 12 agents in operations against the correspondents. This, he said, was a normal load, although more experienced case officers might have as many as 15. In April 1964 NOSENKO broke his agentura down as follows:
 

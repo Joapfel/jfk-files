@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12883.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 2720202 OCT 76 STAFF
 

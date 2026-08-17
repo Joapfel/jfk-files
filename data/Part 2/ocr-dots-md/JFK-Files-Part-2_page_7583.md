@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7583.png
-
-Convert to MarkdownCO-2-5,206,971
+CO-2-5,206,971
 
 observation of an unstable non-rotating ionized particle with albumin and glycerin as the result of moderately high caloric doses of mixtures of the acids of lactalbumin: 3% or 20%. It is also revealed from such exposures what appeared to be a variable exponential or power type of urinary uranium excretion function and a strong retention of the uranium oxides in the lungs and mucosal areas. These conclusions also allegedly caused a deterioration of conditioned reflexes: in their dogs but no pathological changes were found in the nervous system at autopsy. They did find acolerotic damage in the pulmonary mesenchymal, peritoneum and mediastinal lymph nodes. This damage was more prominent in the dogs inhaling mixtures of oxides containing the highest per cent of Uranium 210. One case, however, was so severe that with a carcinoma of the lung and another type of atypical interstitial changes in the lung. V S Karmakar of the US reported that silicosis plus radon exposures in animals caused more deaths and pathologically pulmonary damage than either silica or radon alone. In I N calls boy of the USSR reported on the body distribution and biological effects of numerous inhaled radioisotopes with acute, subacute, chronic and late-onset lung diseases. A personally know so little about the effects of the radiation sources of which he is not aware whether it was new knowledge or not.
 

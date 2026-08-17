@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2515.png
-
-Convert to MarkdownChief of the First Department in circa mid-1961.) Research in regard
+Chief of the First Department in circa mid-1961.) Research in regard
 to the four non-Soviet names leaves no doubt that (LUBIN is George)
 (LUBIN; and that Will BURTIN and Sipe BURTIN) are correct names,
 with Sipe being the wife of Will BURTIN. All three are American

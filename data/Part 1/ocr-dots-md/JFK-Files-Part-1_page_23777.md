@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23777.png
-
-Convert to MarkdownSECRET/KARK
+SECRET/KARK
 
 OTLA 2595
 

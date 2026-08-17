@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21750.png
-
-Convert to Markdown# STATEMENT BY E. HOWARD HUNT
+# STATEMENT BY E. HOWARD HUNT
 
 A year ago when Congress established the Church Committee, Senator Baker was quoted as saying that I would be an early witness. I was then free on Appeal and readily available to testify concerning CIA involvement in allegedly illegal activities. Moreover, I viewed testifying before the opportunity Committee as a further/to testify under oath concerning my total non - involvement with Messrs Oswald, Bremer and Sirhan, persons with whom my name has been slanderously and libelously linked in press and electronic media. Although I had been interviewed previously by the FBI and the Rockefeller Commission with regard to these allegations a host of assassination buffs and media advocates continued irresponsibly to associate me with the deaths of the Kennedy brothers and the crippling of Governor Wallace.
 

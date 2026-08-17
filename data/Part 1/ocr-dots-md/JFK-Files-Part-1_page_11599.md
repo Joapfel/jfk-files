@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11599.png
-
-Convert to Markdown29. (Continued)
+29. (Continued)
 
 30. Has subject done any writing? Give details including titles of books, articles, publishers, dates. Yes, newspaper work generally and playwriting specifically. No plays published but one Teh Snow Job produced. Also written under contract for radio.
 

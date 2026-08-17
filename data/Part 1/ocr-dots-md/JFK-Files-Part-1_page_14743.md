@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14743.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 7. Later Source learned (he does not remember from whom) that telephones are also used as audio listening devices and that they are effective even without the receiver being taken off the hook (i.e., hot mike).
 

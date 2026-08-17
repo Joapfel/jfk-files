@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17775.png
-
-Convert to Markdown# Supplemental Agreement No. V
+# Supplemental Agreement No. V
 to the Delimitations Agreement
 
 Investigation of Reserve and Civilian

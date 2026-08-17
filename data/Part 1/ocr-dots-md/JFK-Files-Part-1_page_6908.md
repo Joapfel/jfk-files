@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6908.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td></td><td>SECRET.</td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td></td><td>SECRET.</td></tr></table>
 
 DATE : 21 OCT 1958
 

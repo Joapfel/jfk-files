@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_15061.png
-
 to Herbert G. Klein at the White House.
 
 In September, 1966, at the request of Senator Kuchel, a very discreet inquiry was conducted into an allegation Senator Kuchel had received that Mrs. Savell was possibly operating a rookie joint out of the Senator's Los Angeles, California, office. The inquiry developed no information to substantiate the allegation. The investigation did develop information that Mrs. Savell reportedly was an alcoholic.

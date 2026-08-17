@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2641.png
-
-Convert to Markdownourselves whether Mr. Hoover was off on a wild goose chase or whether there was, in effect, some reason. Again, I am not advocating it, I am merely asking a question. They would be available if the Committee took a vote to hear them and decided on it.
+ourselves whether Mr. Hoover was off on a wild goose chase or whether there was, in effect, some reason. Again, I am not advocating it, I am merely asking a question. They would be available if the Committee took a vote to hear them and decided on it.
 
 Mr. Kelley. I don't think it would be within my jurisdiction to respond to this, Senator. It would have to be the Attorney General.
 

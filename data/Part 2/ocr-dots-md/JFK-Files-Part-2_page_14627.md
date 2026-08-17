@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14627.png
-
-Convert to MarkdownMay 26, 1960
+May 26, 1960
 
 LABOR-MANAGEMENT REPORTING AND
 DISCLOSURE ACT OF 1959

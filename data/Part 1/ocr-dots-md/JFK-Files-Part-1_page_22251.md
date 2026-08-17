@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22251.png
-
-Convert to Markdownmonitored and productive "points" in 1960-1961. NOSENKO was not able to explain why he would need this list to know the locations of the microphones when he had been daily receiving, selecting, and distributing the product of all of them for two years. Similarly, it was never clear why NOSENKO did not remember in 1962 that there were eleven points--as the list showed--rather than the four-to-six NOSENKO reported on in 1962.
+monitored and productive "points" in 1960-1961. NOSENKO was not able to explain why he would need this list to know the locations of the microphones when he had been daily receiving, selecting, and distributing the product of all of them for two years. Similarly, it was never clear why NOSENKO did not remember in 1962 that there were eleven points--as the list showed--rather than the four-to-six NOSENKO reported on in 1962.
 
 NOSENKO's account of how the product from the microphones was distributed and exploited would inevitably mean that all KGB case officers who had served in the U.S. Embassy Section since the microphones were installed would know of their existence--despite any effort to paraphrase and disguise the product as "agent reports." NOSENKO nonetheless maintained in 1962 that "it is a tremendous secret that we are listening to you," and that the microphones were known to so few that any countermeasures the Americans might take on the basis of NOSENKO's statements could reflect dangerously on him as the source.*
 

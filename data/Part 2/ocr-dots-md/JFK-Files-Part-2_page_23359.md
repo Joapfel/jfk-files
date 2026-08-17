@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23359.png
-
-Convert to Markdownafter Mr. Gottlieb arrives in the Congo, is that correct?
+after Mr. Gottlieb arrives in the Congo, is that correct?
 
 Mr. Tweedy. This, in effect, is that (Indicating). You can tell by the Chief of Station, there is no further reference to Mr. Gottlieb, as I recall.
 

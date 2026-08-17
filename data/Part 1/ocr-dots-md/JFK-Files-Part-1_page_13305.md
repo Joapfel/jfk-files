@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13305.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9. DEAD ON ARRIVAL.
 IN THE APARTMENT

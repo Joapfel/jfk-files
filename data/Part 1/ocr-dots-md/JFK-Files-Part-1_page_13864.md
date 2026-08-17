@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13864.png
-
-Convert to MarkdownSECRET
+SECRET
 
 on the photos.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16038.png
-
-Convert to Markdown28 februay 1973
+28 februay 1973
 
 MEMORANDUM FOR THE RECORD
 

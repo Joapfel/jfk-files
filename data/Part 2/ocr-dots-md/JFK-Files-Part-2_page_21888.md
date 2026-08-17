@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21888.png
-
-Convert to Markdown(iii) Bissell Testified That he Asked (O'Donnell) to Plan and Prepare for an Assassination Operation
+(iii) Bissell Testified That he Asked (O'Donnell) to Plan and Prepare for an Assassination Operation
 
 Bissell remembered "very clearly" that he and O'Donnell discussed the assassination of Lumumba in the fall of 1960 (Bissell, 6/9/75, p. 75) and that O'Donnell reacted negatively (Bissell, 9/11/75, p. 18). According to Bissell, O'Donnell said that he thought that assassination "was an inappropriate action and that the desired object could be accomplished better in other ways" (Bissell, 6/11/75, p. 54).
 

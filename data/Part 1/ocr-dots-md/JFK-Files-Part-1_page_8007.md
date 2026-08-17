@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8007.png
-
-Convert to Markdownon the walls of houses Marxist militants such as 'Abajo BATISTA' and '26 de Julio' and waging a campaign of proselytism in favor of thebrothered 'Revolutionary Enigros,' this is, the mobilization of Fidel CASTRO.«
+on the walls of houses Marxist militants such as 'Abajo BATISTA' and '26 de Julio' and waging a campaign of proselytism in favor of thebrothered 'Revolutionary Enigros,' this is, the mobilization of Fidel CASTRO.«
 
 2. The source of a previous report on plans for a revolutionary coup on 26 February 1956 has furnished the following additional information:
 

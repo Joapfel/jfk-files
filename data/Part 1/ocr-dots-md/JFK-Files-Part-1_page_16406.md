@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16406.png
-
-Convert to Markdown## V. Biographic Data
+## V. Biographic Data
 
 DOB: 14 May 1935
 POB: San Salvador, El Salvador

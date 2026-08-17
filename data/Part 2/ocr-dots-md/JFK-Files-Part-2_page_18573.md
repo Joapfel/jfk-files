@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18573.png
-
-Convert to MarkdownNRO01 TP CODE
+NRO01 TP CODE
 
 8:58AM URGENT JULY 21, 1975 JFD
 

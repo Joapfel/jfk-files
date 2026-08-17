@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7985.png
-
-Convert to MarkdownLack of Interest
+Lack of Interest
 
 At the present time, widespread lack of interest
 is joining a cooperative is more of a problem to po-

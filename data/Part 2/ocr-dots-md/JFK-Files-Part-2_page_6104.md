@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6104.png
-
-Convert to MarkdownConsultant, Bicentennial Council of the Thirteen Original States,
+Consultant, Bicentennial Council of the Thirteen Original States,
 September 1977- February 1978.
 
 Prepared history-related material for a commemorative

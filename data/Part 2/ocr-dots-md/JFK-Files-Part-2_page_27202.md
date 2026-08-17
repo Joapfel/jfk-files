@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27202.png
-
-Convert to MarkdownIII. DEPOSITIONS
+III. DEPOSITIONS
 
 A. Schoenman, Ralph; Groden, Robert; Groden, Christine; Jaffee, Stephen; Gregory, Dick (plus exhibits) (2 volumes, March 26 and 27)
 

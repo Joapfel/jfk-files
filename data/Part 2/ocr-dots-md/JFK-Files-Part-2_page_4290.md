@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4290.png
-
-Convert to Markdownthe Soviet government. (d) In the case of the Sea of Okhotsk, however, no flights will be scheduled during the visit. Baltic flights will be very carefully reviewed. Black Sea flights should not require cancellation. In general, all flights around the Soviet periphery will be subject to special review during this period.
+the Soviet government. (d) In the case of the Sea of Okhotsk, however, no flights will be scheduled during the visit. Baltic flights will be very carefully reviewed. Black Sea flights should not require cancellation. In general, all flights around the Soviet periphery will be subject to special review during this period.
 
 2. NRO Forecast
 

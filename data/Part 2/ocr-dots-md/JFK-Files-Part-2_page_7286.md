@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7286.png
-
-Convert to MarkdownIII. FIELD DISCUSSIONS WITH U.S. INTELLIGENCE PERSONNEL SHOULD BE CONDUCTED ONLY IN GENERAL TERMS.
+III. FIELD DISCUSSIONS WITH U.S. INTELLIGENCE PERSONNEL SHOULD BE CONDUCTED ONLY IN GENERAL TERMS.
 
 It is more fitting that Washington be the place where operational details are conveyed to the SSC. Field intelligence elements will only discuss operations in general terms--operational priorities, the kinds of operations conducted, the operational environment, relationships with the Embassy and defense attaches, etc. In all cases, such discussions will only be conducted in physical surroundings which meet appropriate security standards.
 

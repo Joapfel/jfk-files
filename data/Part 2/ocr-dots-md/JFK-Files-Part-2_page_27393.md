@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27393.png
-
-Convert to MarkdownA. Memo for Mr. Knoche from Weidner - Request for Files - 13 May 75
+A. Memo for Mr. Knoche from Weidner - Request for Files - 13 May 75
 SECRET - SENSITIVE
 
 B. Memo from Knoche to Weidner - 3 June 75

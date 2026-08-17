@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26994.png
-
-Convert to MarkdownGeneral Carter briefed the meeting on the provision of the security advice to the President of Colombia.
+General Carter briefed the meeting on the provision of the security advice to the President of Colombia.
 
 General Carter read the CIA memo on CINCARIB communications problems. The meeting expressed delighted surprise at our capability. We are now a full-fledged member of the State-Defense group which is considering this problem.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16355.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CLASSIFICATION - CONFIDENTIAL TO LEFT BOSSE</td>
     <td>SECRET</td>

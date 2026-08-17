@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16194.png
-
-Convert to MarkdownFED-302 (Rev. +15-64)
+FED-302 (Rev. +15-64)
 
 # FEDERAL BUREAU OF INVESTIGATION
 

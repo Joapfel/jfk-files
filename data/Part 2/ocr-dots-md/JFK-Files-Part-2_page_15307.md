@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15307.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 We would, therefore, like to be notified by the recipients of this letter when information is received that an intelligence representative of a foreign government is coming to the United States. We would like to be advised in the event any agency sets up a liaison arrangement with such an intelligence representative and to be furnished with brief details of his approved activity. This information is needed in order to guide this Bureau in discharging its responsibilities and, at the same time, it will enable us to advise the appropriate agency in the event information is received that the intelligence representative is acting outside the scope of his approved activity. Similarly, any information concerning the activities of these intelligence representatives coming to the attention of any agency which would appear to be outside the scope of their prescribed activity should be brought to the attention of this Bureau. These data will assist us in eliminating unnecessary inquiries and in concentrating on those matters of this type which merit close attention.
 

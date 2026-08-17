@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17643.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">L. J. Pickett</td>
    </tr>

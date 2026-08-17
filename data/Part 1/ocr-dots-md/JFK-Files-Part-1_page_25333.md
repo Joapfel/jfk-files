@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25333.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 <table><tr><td>TA</td><td>IS</td></tr><tr><td colspan="2">Specify Air or Sea Beach</td></tr></table>
 

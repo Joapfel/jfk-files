@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25501.png
-
-Convert to MarkdownTranscript of tapes provided the Select Committee on Intelligence
+Transcript of tapes provided the Select Committee on Intelligence
 by Frank Sturgis on September 3, 1976
 
 Marita Lorenze (ML) -- Interviewed by Frank Sturgis on 9/2/76

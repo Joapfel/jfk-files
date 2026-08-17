@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8580.png
-
-Convert to MarkdownAugust 26, 1969.
+August 26, 1969.
 
 Contact Report
 

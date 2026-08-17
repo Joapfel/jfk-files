@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25176.png
-
-Convert to Markdown**PERSONS/ENTITIES:**
+**PERSONS/ENTITIES:**
 
 Conein, Tonthat
 Dinh, Tonthat

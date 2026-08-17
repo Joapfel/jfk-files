@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3037.png
-
-Convert to MarkdownSpecial Agent in Charge
+Special Agent in Charge
 
 U.S.Government Printing Office: 1972 - 455-574
 

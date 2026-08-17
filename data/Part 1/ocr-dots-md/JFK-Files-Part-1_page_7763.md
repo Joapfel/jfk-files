@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7763.png
-
-Convert to MarkdownVI. IDEOLOGICAL SET
+VI. IDEOLOGICAL SET
 
 15. General
 

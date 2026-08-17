@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19063.png
-
-Convert to MarkdownSAC, WFO (105-8906)
+SAC, WFO (105-8906)
 
 2/20/69
 

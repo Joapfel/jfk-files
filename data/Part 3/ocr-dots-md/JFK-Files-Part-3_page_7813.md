@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7813.png
-
-Convert to Markdown# Office of the Attorney General
+# Office of the Attorney General
 Washington, D. C. 20530
 
 January 18, 1973

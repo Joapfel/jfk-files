@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29128.png
-
-Convert to MarkdownNWW 88326 DocId:32245535 Page 174
+NWW 88326 DocId:32245535 Page 174
 
 # CALIFORNIA
 ## ITEMIZED DEDUCTIONS

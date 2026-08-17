@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19683.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="3">COST CENTER NUMBER</th><td colspan="2"></td></tr><tr><td>Series No.</td><td>7</td><td>Name</td><td>Cost Center Number</td><td>Made up text</td></tr><tr><td colspan="3">009784 OCONNELL J P JR</td><td colspan="2"><b>NEW SALARY RATE</b></td></tr><tr><th rowspan="2">Grade</th><th rowspan="2">Step</th><th rowspan="2">Salaried</th><th rowspan="2">Last Fm Date</th><th colspan="2" style="text-align: center;">NEW ACTION</th></tr><tr><th>Salaried</th><th>Last Mth Date</th></tr></thead><tbody><tr><td colspan="5">OS 12 2 919,055 12/25/00 OS 12 3 $14,300 06/24/61</td></tr><tr><td colspan="6">3. Remarks and Authentication<br/>To DV V.J. 10/15<br/><br/>NO EXCESS LWOP / EXCESS LWOP<br/><br/>IN PAY STATUS AT END OF WAITING PERIOD<br/><br/>IN LWOP STATUS AT END OF WAITING PERIOD<br/><br/>CLEARS INITIALS... AUDITED BY<br/>HONI SOIT HUMMERT<br/><br/>PAY CHANGE NOTIFICATION</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19159.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>PERS. SERIAL NO.</th></tr></thead><tbody><tr><td>19477</td></tr></tbody></table>
 

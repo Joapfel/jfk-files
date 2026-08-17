@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11324.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>MEMORANDUM FOR: Chief,<br/>W-1/4503 - D. E. Zout</td><td><table><tr><td>NUMBER</td><td>C - 101331</td></tr><tr><td>SUBJECT</td><td>LITANIL/9</td></tr><tr><td>REFERENCE:</td><td>Your Memorandum, Dated<br/>19 April 1965 crn</td></tr></table></td></tr></table>
 

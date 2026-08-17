@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30486.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, Transactions & Records Branch
 Office of Personnel

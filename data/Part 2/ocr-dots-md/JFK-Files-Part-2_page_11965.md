@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11965.png
-
-Convert to Markdown5. Below are all of the Bureau offices and the dates annual
+5. Below are all of the Bureau offices and the dates annual
 1 years should be submitted:
 
 | **Date** | **Dates** |

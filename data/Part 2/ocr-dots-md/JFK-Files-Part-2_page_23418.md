@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23418.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **PRITY DIR**
 

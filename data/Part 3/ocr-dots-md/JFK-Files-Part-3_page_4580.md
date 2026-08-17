@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4580.png
-
-Convert to MarkdownDate : 06/13/98
+Date : 06/13/98
 Page : 1
 
 # JFK ASSASSINATION SYSTEM IDENTIFICATION FORM

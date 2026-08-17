@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10355.png
-
-Convert to MarkdownThomas P. Noe
+Thomas P. Noe
 
 5/7/73
 

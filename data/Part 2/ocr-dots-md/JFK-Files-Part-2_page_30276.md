@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30276.png
-
-Convert to MarkdownSoviet citizens with foreign. A foreigner can marry a Soviet citizen, by the law. There is not a thing that KGB can in any way try not to give, not to make it possible, but this is in cases when the person who is marrying a foreigner worked in some sensitive place, let's say, in missiles, rocket industry production, was in process of any place of his working seeing classified material. In these cases, KGB will try to put different type of fences. But it is unlawful. In accordance with Soviet law, marriage is allowed; he doesn't need to ask permission of Soviet Government or anyone. And his wife, Marina, wasn't working in any place which was sensitive from the point of view of Soviet security.
+Soviet citizens with foreign. A foreigner can marry a Soviet citizen, by the law. There is not a thing that KGB can in any way try not to give, not to make it possible, but this is in cases when the person who is marrying a foreigner worked in some sensitive place, let's say, in missiles, rocket industry production, was in process of any place of his working seeing classified material. In these cases, KGB will try to put different type of fences. But it is unlawful. In accordance with Soviet law, marriage is allowed; he doesn't need to ask permission of Soviet Government or anyone. And his wife, Marina, wasn't working in any place which was sensitive from the point of view of Soviet security.
 
 Mentally unstable it doesn't mean that he is raving mad; it is mentally unstable.
 

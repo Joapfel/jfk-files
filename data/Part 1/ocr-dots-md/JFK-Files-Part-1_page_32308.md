@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32308.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DEFERRED TELEPOUCH
 

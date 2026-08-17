@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5525.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. If the rationale of the HSCA for pursuing the question of Nosenko's treatment is contrived, and largely peripheral to the real purpose of the Committee, as we believe it to be, it should be faced in those terms. No one would disagree with there being relevant inquiries, but it is hardly proper to take an internal critique and turn it against the Agency on a point irrelevant to the central purpose of the inquiry. The HSCA staff position is tendentious, and reflects on its face a hostile attitude that the Committee may not otherwise want to be so obvious. The Committee has the right to determine what is relevant to its charter, but the Agency should also assert a similar right to defend itself from truly peripheral and hostile fishing expeditions.
 

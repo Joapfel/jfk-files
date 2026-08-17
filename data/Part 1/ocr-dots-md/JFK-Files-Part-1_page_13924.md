@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13924.png
-
-Convert to MarkdownORIG.:
+ORIG.:
 
 EXT.:
 

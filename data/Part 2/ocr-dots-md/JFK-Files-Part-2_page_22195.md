@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22195.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>William Harvey<br/>Gen. Lansdale<br/>Walter Elder<br/>DCI</td><td>DDP<br/>Mr. Halpern<br/>CHEEVER</td><td>Special Group Augmented<br/>Operation Mongoose<br/>Cuba<br/><i>10/30/62</i></td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>William Harvey<br/>Gen. Lansdale<br/>Walter Elder<br/>DCI</td><td>DDP<br/>Mr. Halpern<br/>CHEEVER</td><td>Special Group Augmented<br/>Operation Mongoose<br/>Cuba<br/><i>10/30/62</i></td></tr></tbody></table>
 
 ### OCCURRENCE:
 

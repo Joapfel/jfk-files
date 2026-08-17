@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8839.png
-
-Convert to Markdown14-00000-
+14-00000-
 
 Section de baux Tanques, Petroleo, Mielos y Alcobal
 

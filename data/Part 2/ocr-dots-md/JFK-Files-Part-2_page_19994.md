@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19994.png
-
-Convert to Markdownwho are outraged by the ruthless slaughter in Vietnam
+who are outraged by the ruthless slaughter in Vietnam
 and the persistent neglect of human needs at home
 
 TO COME TO WASHINGTON JANUARY 8

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11125.png
-
-Convert to Markdown1 APR '75
+1 APR '75
 
 MEMORANDUM FOR: Associate Deputy to the DCI
 for the Intelligence Community

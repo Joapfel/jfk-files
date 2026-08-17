@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25088.png
-
-Convert to MarkdownTOP SECRET - SENSITIVE
+TOP SECRET - SENSITIVE
 
 5. On 5 October 1964, the Joint Chiefs of Staff were presented with a briefing on the study and discussed some of the issues of the proposed actions.
 

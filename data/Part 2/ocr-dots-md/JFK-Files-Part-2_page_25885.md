@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25885.png
-
-Convert to MarkdownHW 50955 DocId:32423630 Page 618
+HW 50955 DocId:32423630 Page 618
 
 HF:oky; he asks where she is going to stay now, and LUISA comments that now
 she plans to move tonight to the house of the doctor (female). HF asks if they

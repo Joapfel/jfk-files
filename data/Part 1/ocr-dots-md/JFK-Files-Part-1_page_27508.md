@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27508.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 AH: 25 APRIL 67

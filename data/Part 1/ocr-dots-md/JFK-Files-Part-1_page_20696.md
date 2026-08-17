@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20696.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">NOTIFICATION OF ESTABLISHMENT OR CANCELLATION<br>OF OFFICIAL COVER BACKSTOP</td><td>CA<br>27 July 1973</td><td>FILN NO.<br>2500</td></tr><tr><td rowspan="4">TO:<br>(Check)</td><td>X CHIEF, CONTROL DIVISION, OP</td><td colspan="2">SS NUMBER<br>391-24-1032</td></tr><tr><td>CHIEF, CONTRACT PERSONNEL DIVISION, OP</td><td colspan="2">EMPLOYEE NUMBER<br>024345</td></tr><tr><td>X CHIEF, OPERATING COMPONENT (For action)</td><td>ID CARD NUMBER<br>WH</td><td></td></tr><tr><td colspan="2">ATTN: Chief Support Staff</td><td>OFFICIAL<br>COVER</td><td>X ESTABLISHED<br>DISCONTINUED</td></tr><tr><td>REF:</td><td colspan="3">Form 1322 dated 7 Jun 73</td></tr><tr><td>SUBJECT</td><td colspan="3">PHILLIPS, DAVID A.</td></tr><tr><td colspan="4">UNIT<br>Department of State</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4641.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 Information was further developed by an informant aboard "Wappan Von Hamburg" during the voyage of November 20, 1962, to Nassau and return, he learned 100 slot machines, plus faro table and other gambling equipment, to be delivered to ship within 30 days. Informant states "the doctor", or "the general", is to provide this gambling equipment. Identity of "the doctor" closely guarded aboard ship, but informant was told in confidence "the doctor" is "SANTOS from Tampa, Florida".
 

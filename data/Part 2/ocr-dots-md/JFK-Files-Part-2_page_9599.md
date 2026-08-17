@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9599.png
-
-Convert to Markdownmail drop for the Phoenix group would be the address of HOWARD FRANCIS CLARK, 1080 6th Street, Ramona, California, a former member of the MM organization.
+mail drop for the Phoenix group would be the address of HOWARD FRANCIS CLARK, 1080 6th Street, Ramona, California, a former member of the MM organization.
 
 En route to the gun show, CY ANDERSON's automobile had broken down some place in the State of Nevada and it had been necessary for him to hire transportation from there to the gun show. After the gun show, DAVIS drove to Las Vegas, Nevada, accompanied by ANDERSON, to make contact with people known to him regarding the SAO.
 

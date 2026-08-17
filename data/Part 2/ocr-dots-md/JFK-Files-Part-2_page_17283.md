@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17283.png
-
-Convert to MarkdownOn April 22, 1969, advised that records furnished to Black Panther Party Headquarters designated SATCHEL as the official Minister of Health.
+On April 22, 1969, advised that records furnished to Black Panther Party Headquarters designated SATCHEL as the official Minister of Health.
 
 On May 22, 1969, advised that RONALD SATCHEL was one of thirty Black Panther Party members attending a party for the Black Panther Party on May 18, 1969.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7273.png
-
-Convert to MarkdownThe committee notes that the evidence presented to Senator Mc-Clellan's Permanent Subcommittee on Investigations of the Senate Committee on Government Operations, in hearings beginning in July 1970, indicates that, in the several years preceding the hearings, there were significant increases in illegal acts of violence directed against Government facilities and a disturbing number of such acts directed against law enforcement officials.⁴³
+The committee notes that the evidence presented to Senator Mc-Clellan's Permanent Subcommittee on Investigations of the Senate Committee on Government Operations, in hearings beginning in July 1970, indicates that, in the several years preceding the hearings, there were significant increases in illegal acts of violence directed against Government facilities and a disturbing number of such acts directed against law enforcement officials.⁴³
 
 Dean testified, however, that the White House concern was directed not only toward violent demonstrations, but also to peaceful demonstrations and dissent. As an illustration he said:
 

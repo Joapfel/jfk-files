@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17947.png
-
-Convert to MarkdownEND
+END
 
 JDR
 FBIHQ CLR

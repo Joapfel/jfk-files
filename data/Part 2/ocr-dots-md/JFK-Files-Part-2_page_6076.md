@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6076.png
-
-Convert to Markdown13-00000
+13-00000
 
 b. What do you believe in your background or employment experience affirmatively qualifies you for this particular appointment?
 

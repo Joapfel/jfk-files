@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1658.png
-
-Convert to Markdown1 - Mr. Monahan
+1 - Mr. Monahan
 1 - Mr. Peelman
 1 - Mr. Foster
 1 - Mr. McGirl

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2145.png
-
-Convert to Markdown<table>
+<table>
    <tbody>
     <tr>
      <td colspan="2"> FACTORS AFFECTING SUBJECT (PUBLIC EXPOSURE - PRESS, RADIO, TV), KNOWN OR SUSPECTED IDENTIFICATION TO OTHER THAN C.I.A. STAFF PERSONNEL, INTELLIGENCE, OR SECURITY SERVICES </td>

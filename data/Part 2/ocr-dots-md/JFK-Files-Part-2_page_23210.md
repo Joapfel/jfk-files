@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23210.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 14 by and large I reckon the Agency worked and that was the way it was set up to work and that is the way it worked, but to say every time Bissell talked to me he always talked to Allen Dulles first I would think is nonsense.
 

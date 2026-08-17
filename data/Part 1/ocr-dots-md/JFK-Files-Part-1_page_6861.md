@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6861.png
-
-Convert to MarkdownCONTINUED CONTROL
+CONTINUED CONTROL
 
 Attachment to CO-01-3/753, 048
 

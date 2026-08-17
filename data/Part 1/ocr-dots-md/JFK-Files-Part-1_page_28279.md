@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28279.png
-
-Convert to MarkdownSEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
+SEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
 
 USA Army Air Force USA
 (Country) (Service) (Rank)

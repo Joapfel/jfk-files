@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24326.png
-
-Convert to MarkdownSECRET
+SECRET
 
 under section 8(b) of the CIA Act of 1949. I am informed that when an expenditure of this type is recorded on Agency books, nevertheless, a memorandum account is maintained so that the Agency has a record of the precise amount of Government funds invested in the proprietary. I am also informed that, if a proprietary were to be fully liquidated with the proceeds scheduled to go to the Reserve, but the funds returned are in excess of the investment, the excess would not be placed in the Reserve, but would be credited to Miscellaneous Receipts. Where funds are returned to the Agency from a proprietary, the current procedure is for the Agency to "reverse" the original expenditure entry and, for those funds which are to go into the Reserve, the Reserve account on the Agency books is credited, with notification to OMB.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28444.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DD/P 6-1089
 16 March 1966

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29170.png
-
-Convert to Markdown(8)
+(8)
 
 FROM 2/50 TO 5/10 CLASSIFICATION GRADE (IF IN FEDERAL SERVICE)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30378.png
-
-Convert to MarkdownSECRET
+SECRET
 
 other interested components of this Agency as they are completed. Questions were solicited by this Office of all interested components, in order to cover all matters in the debriefings of interest to the Agency. Careful arrangements have been made with the Air Force in order that Agency interests will be adequately protected and proper security will be maintained in the handling of information and reports derived from the debriefings, and so that no compromise of the Agency Interest in the flight of the C-118 will be made to the press.
 

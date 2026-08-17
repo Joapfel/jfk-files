@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13274.png
-
-Convert to MarkdownAnnex to November 29, 1963, Diary:
+Annex to November 29, 1963, Diary:
 
 About 5:30 on Friday, November 29, while I was sitting around the fire after a game of golf at Lloyd Neck, the telephone rang and I was advised that the President wanted to speak with me. I went to the phone and the White House operator said that the President wanted to speak with me, that he was on another line, and would I hold on for a minute. After a short wait the operator told me that someone had gone into the room and that she would call me back.
 

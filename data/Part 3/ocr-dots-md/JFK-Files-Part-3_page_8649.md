@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8649.png
-
-Convert to MarkdownREVOLUTIONARY HANDIWORK OF THE
+REVOLUTIONARY HANDIWORK OF THE
 URBAN GUERILLA
 
 predawn kill all--destroy all mis-

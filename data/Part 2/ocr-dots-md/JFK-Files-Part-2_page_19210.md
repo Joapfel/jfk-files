@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19210.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A CALL TO ALL AMERICAN WOMEN who are outraged by the ruthless slaughter in Vietnam and the persistent neglect of human needs at home
 

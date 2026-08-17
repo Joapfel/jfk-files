@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1492.png
-
-Convert to Markdown10. Page 73 beginning with "Communism" on line 14 and ending with "reputation" on line 15. This passage could serve to identify a former asset in Mexico who is still living. (Page 123, lines 7-8.)
+10. Page 73 beginning with "Communism" on line 14 and ending with "reputation" on line 15. This passage could serve to identify a former asset in Mexico who is still living. (Page 123, lines 7-8.)
 
 11. Page 73 beginning with "cover" on line 17 through "legend" on line 19. This should be deleted because it identifies a CIA-sponsored cover arrangement in Bangkok. Furthermore, this particular type of cover, the movie industry, has figured in earlier unfavorable publicity to CIA in other Southeast Asian countries and thus serves to further render suspect the use of such cover in still other areas. (Page 123, lines 10-12.)
 

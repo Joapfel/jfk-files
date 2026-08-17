@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30292.png
-
-Convert to MarkdownThe Clerk. JFK-F-6.
+The Clerk. JFK-F-6.
 
 (The document referred to was marked as JFK Exhibit No. F-6 for identification.)
 

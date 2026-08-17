@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6192.png
-
-Convert to Markdownto the assassination of President Kennedy;
+to the assassination of President Kennedy;
 
 * receive information from the public regarding the identification and public disclosure of assassination records; and
 

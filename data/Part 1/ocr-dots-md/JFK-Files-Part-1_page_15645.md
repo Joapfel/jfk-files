@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15645.png
-
-Convert to Markdown/11/
+/11/
 
 37. Subject's chief motivation for such an activity appears to be the following: (a) Friendship. Apparently Subject will do anything for a friend. (b) Action. Apparently Subject relishes novelty and excitement and daring-do. Apparently he is a Jesse James type. (c) Emotional outlet for success of planning. Apparently Subject indulges himself in problem-solving and obtains a compulsive satisfaction if his plans succeed. In other words, he is motivated to carry out such an action because of his displaced interest in successfully engineering and accomplishing a job. (d) Money. Subject apparently is not motivated for material reward. In the case of the robbery his friend got 2/3 of the take and Subject got 1/4. Subject was content not to spend his money freely because his wife might become suspicious.
 

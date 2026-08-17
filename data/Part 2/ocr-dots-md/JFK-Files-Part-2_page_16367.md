@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16367.png
-
-Convert to MarkdownThe following six pages sets forth copies of materials obtained at Chicago BPP headquarters on June 4, 1969. All materials were available in sufficient quantities to suggest likelihood of distribution. Materials described as follows:
+The following six pages sets forth copies of materials obtained at Chicago BPP headquarters on June 4, 1969. All materials were available in sufficient quantities to suggest likelihood of distribution. Materials described as follows:
 
 (a) "The People vs. FRED HAMPTON." This circular indicates dissatisfaction with U.S. judicial system.
 

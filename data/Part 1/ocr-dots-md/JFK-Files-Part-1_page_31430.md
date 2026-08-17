@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31430.png
-
-Convert to Markdown- 7 -
+- 7 -
 
 remain for a period of from six to nine months, and then must return to Europe, oftentimes without being able to complete the work for which they came.
 

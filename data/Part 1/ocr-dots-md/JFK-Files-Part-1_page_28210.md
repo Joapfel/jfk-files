@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28210.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 9 JUL 1965
 

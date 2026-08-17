@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1269.png
-
-Convert to MarkdownPage 16, Paragraph J. This will confirm our understanding that on July 14, there will be available for your review in Room 4171, a 160 page summary document reflecting an analysis of the O & C files.
+Page 16, Paragraph J. This will confirm our understanding that on July 14, there will be available for your review in Room 4171, a 160 page summary document reflecting an analysis of the O & C files.
 
 After you have reviewed that analysis, I will discuss with you an appropriate further step with regard to the O & C files if such is indicated; such an agreement would be generally similar in terms to the foregoing arrangements.
 

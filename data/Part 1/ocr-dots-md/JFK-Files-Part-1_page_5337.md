@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5337.png
-
-Convert to MarkdownHOWARD L. BURRIS
+HOWARD L. BURRIS
 
 SUITE 101, R.C.A. BUILDING
 1725 K STREET, N. W.

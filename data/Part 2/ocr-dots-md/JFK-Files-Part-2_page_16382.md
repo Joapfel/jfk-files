@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16382.png
-
-Convert to Markdown# "ILLINOIS BLACK PANTHER PARTY
+# "ILLINOIS BLACK PANTHER PARTY
 
 2350 West Madison
 Chicago, Illinois 60612

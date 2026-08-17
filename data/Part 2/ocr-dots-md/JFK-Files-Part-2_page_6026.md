@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6026.png
-
-Convert to MarkdownM.A., St John's University (N.Y.), 1966
+M.A., St John's University (N.Y.), 1966
 
 B.A., Providence College, 1964
 

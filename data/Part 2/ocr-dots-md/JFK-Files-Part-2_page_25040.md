@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25040.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 stronghold of Lumumba and his supporters?
 

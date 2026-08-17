@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24764.png
-
-Convert to Markdownc. page 4 - Specific date of clandestine contact between MIRANDA December 68 could pinpoint LIFEAT on LEONOV residence.
+c. page 4 - Specific date of clandestine contact between MIRANDA December 68 could pinpoint LIFEAT on LEONOV residence.
 
 d. page 4 - Specific date of clandestine contact between LEONOV and CARDENAS 19 April 1963 might reveal surveillance (LIEEMBRACE though probably would not identify team members. It could also be argued that Soviets have long ago identified these teams.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4478.png
-
-Convert to MarkdownPH 92-444
+PH 92-444
 
 DICKSON said that local meetings have been held in Salem in an effort to get an ordinance passed forbidding any such dumping and an official of the City Health Department, one JOHN ZEMHAMPSKI (phonetic) has appeared and argued strongly against passage of such restrictions. In DICKSON's opinion this man had no business at such a meeting. DICKSON said there had been many rumors around Salem concerning large payoffs to New Jersey state officials but DICKSON cannot substantiate any of these. DICKSON said he would attempt to cooperate with the FBI in every way should threats be made to him as he definitely did not intend to sell his land for a dump.
 

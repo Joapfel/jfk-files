@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5550.png
-
-Convert to Markdown**Reel 46, Folder 2A**
+**Reel 46, Folder 2A**
 
 This folder contains pages 603-835, parts VII, VIII, and IX of the 835 page study "The Case of Yuriy Ivanovich Nosenko" prepared by Peter Bagley of the Soviet Division (DC/SB) in 1967.
 

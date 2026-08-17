@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14419.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>ANCL</td></tr><tr><td>ABX</td></tr><tr><td>IN</td></tr><tr><td>PS MIO</td></tr><tr><td>BX 14</td></tr><tr><td>RES NFD</td></tr><tr><td>FI</td></tr><tr><td>10/20/79</td></tr></table>
 

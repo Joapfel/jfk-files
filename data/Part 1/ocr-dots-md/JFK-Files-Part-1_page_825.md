@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_825.png
-
-Convert to Markdownsurprise "Carlos" who again began to accuse AMFAUNA-14 of double-crossing him. AMFAUNA-14 explained the absence of SW by saying that KUBARK was probably testing its communications channels and waiting for things to quiet down before sending messages.
+surprise "Carlos" who again began to accuse AMFAUNA-14 of double-crossing him. AMFAUNA-14 explained the absence of SW by saying that KUBARK was probably testing its communications channels and waiting for things to quiet down before sending messages.
 
 89. "Carlos" then told AMFAUNA-14 to get in touch with AMWEE-2 and get the package which he was holding for her. She telephoned AMWEE-2 from her office and said she wanted to see him. AMWEE-2 agreed to a meeting, but stipulated that it be after 1700 hours and in his office. AMFAUNA-14 reported this conversation to "Carlos" who told her to proceed with the meeting.
 

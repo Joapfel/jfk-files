@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30729.png
-
-Convert to MarkdownDepartment of Defense Computer Institute
+Department of Defense Computer Institute
 
 The Department of Defense Computer Institute
 has conferred upon

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1768.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CTL NO 3019 REQUESTOR HALL OFFICE SRS 06AUG69
 

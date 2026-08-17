@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24721.png
-
-Convert to Markdownapproval if an assassination operation were mounted (Dillon, 9/24/60, pp. 42-43).
+approval if an assassination operation were mounted (Dillon, 9/24/60, pp. 42-43).
 
 Richard Bissell stated that in his opinion the language of the Special Group Minutes of August 25, 1960 indicated that the assassination of Lumumba was part of a general strategy at the NSC and within the CIA for removing Lumumba from the political scene (Bissell, 9/10/75, pp. 29, 32). Bissell added:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23104.png
-
-Convert to MarkdownAl fallar este intento, el contrarrevolucionario Tony Varona envió otro frasco con 500 cápsulas, a fin de tratar de realizar nueva mente el hecho.
+Al fallar este intento, el contrarrevolucionario Tony Varona envió otro frasco con 500 cápsulas, a fin de tratar de realizar nueva mente el hecho.
 
 Asimismo, "Polita" recibió de la CIA para -- iguales propósitos, varias armas con silenciadores y proyectiles especiales para atentados personales, las que fueron ocupadas - en junio de 1965, al ser detenidos estos -- elementos.
 

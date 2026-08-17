@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12680.png
-
-Convert to Markdown(b) Handle change in office of origin by submission of form FD-128. Forward section A cards to new office of origin. Where necessary, forward pertinent information to new office of origin by succinct LHM and appropriate cover communication. Yellow file copy of LHM must show location of all original information contained therein.
+(b) Handle change in office of origin by submission of form FD-128. Forward section A cards to new office of origin. Where necessary, forward pertinent information to new office of origin by succinct LHM and appropriate cover communication. Yellow file copy of LHM must show location of all original information contained therein.
 
 b. Section B
 

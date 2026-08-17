@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26670.png
-
-Convert to MarkdownRESTAURANT
+RESTAURANT
 MILAGROS"
 
 VIA MARIA CARRIÓN DE MIGUEL

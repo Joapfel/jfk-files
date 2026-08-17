@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11355.png
-
-Convert to MarkdownII. Activity in support of Cuban regime
+II. Activity in support of Cuban regime
 
 Careful consideration should be given to recommending for inclusion in the security index those individuals who in the light of the clear identification of the Cuban Government as procommunist, pro-Soviet bloc, and anti-U. S., would be deemed dangerous or potentially dangerous to the internal security of the U. S. in the event of an emergency involving Cuba and the U. S. In connection therewith, there should be a substantial showing of data within the following standards:
 

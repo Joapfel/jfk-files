@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3349.png
-
-Convert to MarkdownAppendix D
+Appendix D
 
 Memorandum for Assistant Deputy Director (Plans) -
 

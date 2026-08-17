@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23845.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Maxwell. It's not that you create a channel, but you aid the, increase the temptation for the proprietaries to try to generate funds, and secondly, I think it is the easiest way for the oversight committee to have a handle on covert action, and particularly its funding, is to say there are two ways you can do it. You can do it either by the regular appropriation process, or you can do it through the contingency reserve fund. But if you start to build in the ways that the contingency reserve fund can be replenished, I think people -- I think there may be a loss of control.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13336.png
-
-Convert to MarkdownADVICE AND WAIVER
+ADVICE AND WAIVER
 
 Place: New York, N.Y.
 Date: March 31, 1974

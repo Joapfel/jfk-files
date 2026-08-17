@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10276.png
-
-Convert to Markdowndesigned to pick up high quality audio of typing in the office. It was hoped to break these audio signals into clear text using advanced computer techniques developed by Division D. No useful product, however, was ever obtained.
+designed to pick up high quality audio of typing in the office. It was hoped to break these audio signals into clear text using advanced computer techniques developed by Division D. No useful product, however, was ever obtained.
 
 c. A battery-powered, masked transmitter and switch concealed in the door of the Embassy, which would supply crytographic information for NSA. (Produced excellent quality signals until it became inoperative in early 1972 because of battery failure.)
 

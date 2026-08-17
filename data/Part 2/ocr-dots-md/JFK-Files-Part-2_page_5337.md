@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5337.png
-
-Convert to Markdowniv. The release of the officer's name would cause significant harm to the national security or the foreign relations of the U.S. (a criteria which is broad enough to drive the proverbial Mack truck through).
+iv. The release of the officer's name would cause significant harm to the national security or the foreign relations of the U.S. (a criteria which is broad enough to drive the proverbial Mack truck through).
 
 2. In Part II, the Gunn memorandum takes back part of what it gave in the previous section. It sets up a test of "importance to the assassination story vs. evidence of harm." Essentially, it advises that the Board will weigh the CIA's evidence but, if within its view, the true name being considered for postponement is important to the assassination story, the Board will release it. This means for those few individuals who may be viewed as "important to the story," truly substantial evidence must be brought to bear. Absent such evidence, the Board will release, and the only recourse left to the Agency would be an appeal to the President.
 

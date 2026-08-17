@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21079.png
-
-Convert to Markdownfiasco, we have not seen any evidence of high-grade intelligence being developed by CIA in Cuba since McCone became Director of the agency. To show impressive results, McCone must fall back on intelligence information developed through high-altitude photography and the use of other sophisticated technical equipment being used to photograph targets and to intercept communications. Much of this is, of course, being done in collaboration with other U. S. agencies such as the Air Force.
+fiasco, we have not seen any evidence of high-grade intelligence being developed by CIA in Cuba since McCone became Director of the agency. To show impressive results, McCone must fall back on intelligence information developed through high-altitude photography and the use of other sophisticated technical equipment being used to photograph targets and to intercept communications. Much of this is, of course, being done in collaboration with other U. S. agencies such as the Air Force.
 
 # FBI COOPERATION WITH CIA
 

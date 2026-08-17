@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26098.png
-
-Convert to Markdownthe meetings that the United States had. When Allen Dulles (Allen-W-Dulles) was first raised the notion to this inner Senate group. I was present at the meeting as an Assis-
+the meetings that the United States had. When Allen Dulles (Allen-W-Dulles) was first raised the notion to this inner Senate group. I was present at the meeting as an Assis-
 
 O'BRIEN: What is the thinking about it at that time?
 What kind of operation is this? - As it basically a guerilla operation at this point?

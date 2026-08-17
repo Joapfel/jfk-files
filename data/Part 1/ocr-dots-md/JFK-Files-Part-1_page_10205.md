@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10205.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE: 522</td><td>FROM: 3 APR 62</td><td>TO: DIRECTOR</td></tr><tr><td colspan="3">APR 2 21512 62</td></tr><tr><td>INFO: MEXICO CITY</td><td></td><td>RULEN</td></tr><tr><td>DDP, COP, CA 2; CA/P&G, CA/PROP, CI, CI/OPS</td><td></td><td>IN 12825</td></tr></table>
 

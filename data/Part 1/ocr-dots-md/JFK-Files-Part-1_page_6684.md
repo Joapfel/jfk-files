@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6684.png
-
-Convert to MarkdownC O P Y
+C O P Y
 
 Querido Dr. Guitart:
 

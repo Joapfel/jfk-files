@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3403.png
-
-Convert to MarkdownA. - Neither of the most conservative nor of the most liberal; that would be "clericalism" and it is expressly condemned in Pepal Enoycolicals.
+A. - Neither of the most conservative nor of the most liberal; that would be "clericalism" and it is expressly condemned in Pepal Enoycolicals.
 
 I personally am a Catholic and will never deny my faith, because I have no vocation to be an apostate.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9237.png
-
-Convert to Markdown# A PROGRAM FOR SURVIVAL
+# A PROGRAM FOR SURVIVAL
 
 ## Free Breakfast Program
 Provides children a free hot breakfast every school morning.

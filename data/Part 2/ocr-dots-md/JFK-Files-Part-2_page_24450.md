@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24450.png
-
-Convert to MarkdownAgency" (without specifying whom) and they had "duly orally approved."* It further states that "knowledge" of the project had been "kept to a total of six persons."
+Agency" (without specifying whom) and they had "duly orally approved."* It further states that "knowledge" of the project had been "kept to a total of six persons."
 
 Dulles had left the Agency between the time of Edwards' two statements.
 

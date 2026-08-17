@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17421.png
-
-Convert to MarkdownSAC, CHICAGO
+SAC, CHICAGO
 
 DATE: FEB 25 1968
 

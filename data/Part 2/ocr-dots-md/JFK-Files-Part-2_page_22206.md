@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22206.png
-
-Convert to MarkdownNo DoD objection to public disclosure
+No DoD objection to public disclosure
 pursuant to P.L. 102-526, as amended.
 
 <table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>GENERAL LANSDALE, MCGEORGE BUNDY</td><td>4 Sept 1962</td><td>MONGOOSE (Phase II)</td></tr></tbody></table>

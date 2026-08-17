@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32499.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>SECTION XXVI</td>
     <td>CERTIFICATION</td>

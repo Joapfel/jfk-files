@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14979.png
-
-Convert to MarkdownUNIFORM CRIME REPORTS
+UNIFORM CRIME REPORTS
 1966 PRELIMINARY ANNUAL RELEASE
 
 On Wednesday, p.m., March 15, 1967, the FBI's preliminary crime reports for 1966 were released to the press.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30589.png
-
-Convert to MarkdownFROM: SHANGHAI
+FROM: SHANGHAI
 
 TO: SPECIAL OPERATIONS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14201.png
-
-Convert to Markdown181. 11/6/62 - (IL-28s) As of this date photographic evidence reflected the following regarding IL-28 medium jet bombers in Cuba:
+181. 11/6/62 - (IL-28s) As of this date photographic evidence reflected the following regarding IL-28 medium jet bombers in Cuba:
 
 9 already assembled or in the process of assembly at St. Julian
 

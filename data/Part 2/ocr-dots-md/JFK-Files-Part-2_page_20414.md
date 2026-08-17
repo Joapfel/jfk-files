@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20414.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 ## COMMUNIST INFILTRATION OF THE WOMEN STRIKE FOR PEACE, Also Known As Women's International Strike for Peace
 
 A source advised on May 14, 1967, that the Women Strike for Peace (WSP) in the Southern California area began its operations in the late fall of 1961, as an affiliate of the national organization formed in Washington, D.C. It is a peace oriented women's organization which is opposed to the present American foreign policy in Vietnam. It has also sought legislation which would bring about the abolition of the House Committee on Un-American Activities (HCUA). In recent months the organization has sponsored demonstrations protesting the United States involvement in Vietnam and calling for the complete withdrawal of all United States troops from Vietnam. In the spring of 1966, it was instrumental in originating and putting into effect a campaign advocating support for "peace candidates" in the upcoming 1966 Congressional elections.

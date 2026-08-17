@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32294.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR THE NATIONAL SECURITY COUNCIL'S EXECUTIVE COMMITTEE
 (Prepared for the Meeting of Thursday, January 24, 1963, at 10 a.m)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15131.png
-
-Convert to Markdownin den Krieg ging. Während des Krieges
+in den Krieg ging. Während des Krieges
 hörte ich, dass Nina's Mann im Krieg ge-
 fallen war und ich entschloss mich nach
 Zchakaja zurückzukehren um in ihrer Nähe

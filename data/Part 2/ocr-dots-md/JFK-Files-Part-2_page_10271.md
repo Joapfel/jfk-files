@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10271.png
-
-Convert to Markdown23 FEB 1972
+23 FEB 1972
 
 SUBJECT: Foreign Support For Activities Planned to Disrupt or Harass the Republican National Convention
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4380.png
-
-Convert to Markdown## PANEL
+## PANEL
 
 sí. Se llama "La Ileguera Feliz". Pena a Juana de Arco en la actualidad y, por aspere. Juana de Arco llevada por un espiritualismo combatte contre el Communismo.
 

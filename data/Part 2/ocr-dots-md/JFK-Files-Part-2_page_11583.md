@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11583.png
-
-Convert to Markdownh. To include as many pertinent photographs as possible to make the write-up interesting. The photographs should not necessarily be of subjects alone but should be of paraphernalia used by the criminal, photographs of unusual loot obtained, scenes of various locales, etc. If photographs submitted do not belong to the FBI, it is necessary to inform the Bureau of their source and whether the owner of the photographs has any objection to their being reproduced in publications.
+h. To include as many pertinent photographs as possible to make the write-up interesting. The photographs should not necessarily be of subjects alone but should be of paraphernalia used by the criminal, photographs of unusual loot obtained, scenes of various locales, etc. If photographs submitted do not belong to the FBI, it is necessary to inform the Bureau of their source and whether the owner of the photographs has any objection to their being reproduced in publications.
 
 [i. Each portion of the write-up should be documented as to the identity of the report or other communication from which facts were taken. The documentation should be set off by parentheses and follow immediately the portion of the write-up to which it pertains.]
 

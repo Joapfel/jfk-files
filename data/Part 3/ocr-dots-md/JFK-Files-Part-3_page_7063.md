@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7063.png
-
-Convert to Markdown# Federal Bureau of Investigation
+# Federal Bureau of Investigation
 
 United States Department of Justice
 

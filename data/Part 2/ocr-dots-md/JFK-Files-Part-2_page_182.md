@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_182.png
-
-Convert to MarkdownPANORAMA NACIONAL
+PANORAMA NACIONAL
 
 CARLOS PELLICER
 **MARTÍN LUIS GUZMÁN**

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7244.png
-
-Convert to Markdown31 August 1966
+31 August 1966
 
 Sujeet:
 

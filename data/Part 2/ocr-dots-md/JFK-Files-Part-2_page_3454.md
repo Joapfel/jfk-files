@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3454.png
-
-Convert to MarkdownSECRET SENSITIVE NOFORN
+SECRET SENSITIVE NOFORN
 
 maintained that Angleton and Miler had given these files to
 him to review and to keep as long as he needed them, and he

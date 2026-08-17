@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32279.png
-
-Convert to MarkdownSECRET
+SECRET
 
 JJD: 21 APR 69
 

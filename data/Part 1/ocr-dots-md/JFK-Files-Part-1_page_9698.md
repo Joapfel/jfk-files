@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9698.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      DO NOT USE THIS SPACE

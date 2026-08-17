@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12111.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF DISPATCH</td><td>CLASSIFICATION SECRET</td><td>OPERATIONAL AND COORDINATING NITA-25520</td></tr></table>
+<table><tr><td>CONTINUATION OF DISPATCH</td><td>CLASSIFICATION SECRET</td><td>OPERATIONAL AND COORDINATING NITA-25520</td></tr></table>
 
 begged if someone needs help (getting a vehicle or when asking for a favor), but when he decides to help, OBYEDKOV will stay with the problem until he gets results. Although OBYEDKOVA seems to be more cultured and better educated than her husband, it is certain that only OBYEDKOV makes the final decisions. OBYEDKOV could be very pleasant, helpful and even kind, but it usually depended on his mood.
 

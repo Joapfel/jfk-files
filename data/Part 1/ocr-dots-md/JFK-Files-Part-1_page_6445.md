@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6445.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>TO</td><td>Chief of Staff ( Chief of CO )<br/>1973-305</td></tr><tr><td>FROM</td><td>Chief of Military, Transport<br/>CS06</td></tr><tr><td>SUBJECT:</td><td>GENERAL - RESCUE, AEROPlane<br/>MEETING - Assistance to Soviet Escapures Through USEP</td></tr><tr><td>REF:</td><td>B2A-20572</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31660.png
-
-Convert to MarkdownCOPY
+COPY
 
 April 1, 1953
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10716.png
-
-Convert to MarkdownBAC, Atlanta
+BAC, Atlanta
 
 September 2, 1964
 

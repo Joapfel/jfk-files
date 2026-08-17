@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_870.png
-
-Convert to MarkdownSeptember 14, 1973
+September 14, 1973
 
 ELECTRONIC SURVEILLANCE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11511.png
-
-Convert to Markdown(f) Advise the Bureau promptly in form suitable for dissemi-
+(f) Advise the Bureau promptly in form suitable for dissemi-
 nation of a subject's return from travel abroad in those
 instances in which stops have been placed with security
 services abroad through the agencies listed above. In

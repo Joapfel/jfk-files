@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12604.png
-
-Convert to Markdown14-09-68
+14-09-68
 
 <table><thead><tr><th colspan="3">DISPATCH</th><th>CLASSIFIED</th><th></th><th>FORMING ACTION</th></tr></thead><tbody><tr><td></td><td>TO<br/>Chief of Station, Caracas</td><td>FROM<br/>Chief, MFD</td><td>S E C R E T</td><td></td><td>Mailed for delivery:</td></tr><tr><td></td><td></td><td></td><td></td><td>NO REACHING REQUIRED</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td>ONLY QUALIFIED OFFICE CAN REACH YOU</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td>MICROFILM</td><td></td></tr><tr><td></td><td>Luis POSADA Carriles</td><td>ACTION ORDERED - REFERENCES</td><td>Action: FYI</td><td></td><td></td></tr></tbody></table>
 

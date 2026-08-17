@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11598.png
-
-Convert to Markdown25. Military service - date, country, unit, rank, duty, where services performed, decorations, when discharged, why. Give details if ever prisoner of war. Served in U.S. Army with the 438th Bomb Group. Staff Sergeant, arms-rer-fireman on S-24. Silver medal, Purple Heart. Discharged October 31, 1944 on points.
+25. Military service - date, country, unit, rank, duty, where services performed, decorations, when discharged, why. Give details if ever prisoner of war. Served in U.S. Army with the 438th Bomb Group. Staff Sergeant, arms-rer-fireman on S-24. Silver medal, Purple Heart. Discharged October 31, 1944 on points.
 
 Prisoner of War, Captured by German troops in May 29, 1944 in Yugoslavia after parachuting from crashing plane. Taken to Stalag Inft. I.I in Poland. Later moved to Stammlager Inft. XIII near Aurenburg, Germany. Liberated by American forces about middle of April 1945. Returned to Camp Lucky Strike in France.
 

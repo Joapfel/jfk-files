@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13271.png
-
-Convert to Markdown**Appendix D - Item 13**
+**Appendix D - Item 13**
 
 Rita Iglesias Ambrosio
 DOD July 19, 1939

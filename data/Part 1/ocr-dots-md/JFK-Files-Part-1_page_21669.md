@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21669.png
-
-Convert to Markdownthere is no doubt that the hostile interrogation has confused matters to
+there is no doubt that the hostile interrogation has confused matters to
 the point where complete clarification appears impossible. In any event,
 one thing is clear -- since he may well have transferred out of the First
 Section, First Department, by 31 December 1961 and most certainly had

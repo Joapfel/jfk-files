@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12424.png
-
-Convert to MarkdownPor información bancaria obtenida extraoficialmente, no-
+Por información bancaria obtenida extraoficialmente, no-
 mos podido saber cuo procedentes del exterior fué girado
 a Ciudad Bolivar una suma cercana a los 70 millones de bo-
 liveros destinada a compra de diamantes durante 1970.

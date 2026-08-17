@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15737.png
-
-Convert to MarkdownIf people are not on guard, do not realize that such one-sidedness is a shortcoming and do not strive to overcome it, they are liable to go astray.
+If people are not on guard, do not realize that such one-sidedness is a shortcoming and do not strive to overcome it, they are liable to go astray.
 
 However, of the two kinds of subjectivism, dogmatism is still the greater danger in our Party. For dogmatists can easily assume a Marxist guide to bluff, capture and make servitors of cadres of working-class and peasant origin who cannot easily see through them; they can also bluff and ensnare the naive youth. If we overcome dogmatism, cadres with book-learning will readily join with those who have experience and will take to the study of practical things, and then many good cadres who integrate theory with experience, as well as some real theorists, will emerge. If we overcome dogmatism, the comrades with practical experience will have good teachers to help them raise their experience to the level of theory and so avoid empiricist errors.
 

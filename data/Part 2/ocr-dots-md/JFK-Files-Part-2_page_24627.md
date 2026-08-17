@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24627.png
-
-Convert to MarkdownSeveral days later, while warning a key Congolese leader about coup plots led by Lumumba and two of his supporters, the Chief of Station
+Several days later, while warning a key Congolese leader about coup plots led by Lumumba and two of his supporters, the Chief of Station
 
 URGED ARREST OR OTHER MORE PERMANENT DISPOSAL OF LUMUMBA, GIZENGA, AND MULELE (CIA Cable, IN 15643, Leopoldville to Director, 9/20/61).
 

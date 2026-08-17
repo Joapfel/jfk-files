@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16070.png
-
-Convert to MarkdownSIONICS, Inc. will have immediately available a team of selected military and technical experts to work on the project. These personnel, led by Mr. Mitchell L. Werbell, III, SIONICS field representative in Thailand and Vietnam, will be backed by appropriate civilian technical personnel who would provide expertise as required in the general fields of sniper and special operations training and the maintenance of the operational equipment and weapons. The Corporation would assign these people to projects in accordance with their individual capabilities.
+SIONICS, Inc. will have immediately available a team of selected military and technical experts to work on the project. These personnel, led by Mr. Mitchell L. Werbell, III, SIONICS field representative in Thailand and Vietnam, will be backed by appropriate civilian technical personnel who would provide expertise as required in the general fields of sniper and special operations training and the maintenance of the operational equipment and weapons. The Corporation would assign these people to projects in accordance with their individual capabilities.
 
 Program Schedule -- See Figure 1 (NCTTT Program Schedule, Twelve Months).
 

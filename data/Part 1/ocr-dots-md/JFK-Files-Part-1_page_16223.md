@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16223.png
-
-Convert to MarkdownMallin states : all of the planning sessions r Brown's group have been held in the living room of Mallin's Coral Gables home.
+Mallin states : all of the planning sessions r Brown's group have been held in the living room of Mallin's Coral Gables home.
 
 Brown's group is all white but he has been in contact with some of the local Blacks in Abaco. The Blacks have had no formal training nor do they possess the proper weapons for any sizable operation. In order to obtain weapons and training the Blacks have made friendly overtures to Brown's group.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21030.png
-
-Convert to MarkdownCould then be communicated by the committee to
+Could then be communicated by the committee to
 the United States Government, in a hope of
 bringing about a state of coexistence between
 Cuba and the United States. (H)

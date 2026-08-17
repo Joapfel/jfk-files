@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3840.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th colspan="2">CREDIT INFORMATION REQUESTED</th><th>DATE</th><th>$ AMOUNT</th></tr></thead><tbody><tr><td>CREDIT APPROVED</td><td></td><td>DATE</td><td>INITIAL</td></tr></tbody></table>
 

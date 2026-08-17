@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13377.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>TO: H Stilson</td><td style="text-align:right;">7 OCT 1969</td></tr><tr><td colspan="2">FROM: F1/D<br/>SEE Dossier on subject in F1/D biographic files.</td></tr><tr><td>B. ☐</td><td>A MEMORANDUM IS ATTACHED HERETO.</td></tr><tr><td>C. ☐</td><td>WITH THE LIMITED IDENTIFICATION PROVIDED IN THE REQUEST, F1/D IS UNABLE TO DETERMINE WHETHER THERE IS INFORMATION ABOUT THE SUBJECT OR NOT.</td></tr><tr><td>D. ☐</td><td>F1/D HAS NO PERTINENT INFORMATION ON SUBJECT.</td></tr><tr><td>E. ☐</td><td>THE SUBJECT OF THIS REQUEST IS APPARENTLY THE SUBJECT OF THE FOLLOWING:</td></tr></table>
 

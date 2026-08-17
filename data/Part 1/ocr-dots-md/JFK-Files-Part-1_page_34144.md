@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34144.png
-
-Convert to MarkdownSECRET
+SECRET
 
 UNDER SEPARATE COVER to
 OSMA-21648, 10 Aug 66

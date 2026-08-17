@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3488.png
-
-Convert to MarkdownCONTACT REPORT # 57
+CONTACT REPORT # 57
 
 OPERATION: AMWORLD
 CONTACT: AMYUN-19

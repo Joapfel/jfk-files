@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16207.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. A knowledge of the background of the principals is essential to a comprehension of the affair as recounted by Muldoon:
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_31593.png
-
 , was arrested on March 25, 1966, during the Charter
 Day ceremonies and was charged with being a "public nuisance".
 

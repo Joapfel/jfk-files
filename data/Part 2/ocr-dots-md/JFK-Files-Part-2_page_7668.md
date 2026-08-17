@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7668.png
-
-Convert to Markdown13-00000
+13-00000
 
 minutes to the Senate. I would like to direct your attention to that period of time when Oswald was a defector, beginning when he left the United States and when he returned.
 

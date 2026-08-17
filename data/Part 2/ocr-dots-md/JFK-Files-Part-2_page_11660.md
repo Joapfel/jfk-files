@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11660.png
-
-Convert to MarkdownDecember 29, 1967
+December 29, 1967
 
 MANUAL OF RULES AND REGULATIONS
 REVISION 186

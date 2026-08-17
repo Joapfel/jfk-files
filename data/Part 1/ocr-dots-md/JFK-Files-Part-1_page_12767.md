@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12767.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RECORD COPY FILED IN
 

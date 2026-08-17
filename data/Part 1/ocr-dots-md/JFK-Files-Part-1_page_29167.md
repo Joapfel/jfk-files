@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29167.png
-
-Convert to MarkdownSEC. 9. MOTHER-IN-LAW
+SEC. 9. MOTHER-IN-LAW
 
 FULL NAME (First) (Middle) (Last)
 LIVING OR DECEASED DATE OF DECEASE CAUSE

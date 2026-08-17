@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22316.png
-
-Convert to Markdownsurveillance had been discontinued. NOSENKO did not tell CIA about this incident in 1962, he said, because he knew that the watch had been discontinued and that nothing suspicious had been noted; therefore, he thought the incident would not have been of interest to American Intelligence.
+surveillance had been discontinued. NOSENKO did not tell CIA about this incident in 1962, he said, because he knew that the watch had been discontinued and that nothing suspicious had been noted; therefore, he thought the incident would not have been of interest to American Intelligence.
 
 NOSENKO has stressed that ABIDIAN was under special surveillance by at least two surveillance teams at all times and that, on the day he visited Pushkin Street, ABIDIAN was under continuous watch from the moment he left the embassy. NOSENKO has been able to give a detailed description of ABIDIAN's movement to the dead drop site.
 

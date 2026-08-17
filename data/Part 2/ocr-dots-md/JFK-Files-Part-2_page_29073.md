@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29073.png
-
-Convert to Markdown## Part II
+## Part II
 
 ### Ordinary Gains and Losses
 

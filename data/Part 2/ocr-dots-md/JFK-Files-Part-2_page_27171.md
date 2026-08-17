@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27171.png
-
-Convert to Markdown# Documents Reviewed by CIA Personnel
+# Documents Reviewed by CIA Personnel
 
 | Form of Document | Correspondents or Title | Date |
 |---|---|---|

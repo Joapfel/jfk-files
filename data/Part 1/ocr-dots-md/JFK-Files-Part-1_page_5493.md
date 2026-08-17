@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5493.png
-
-Convert to MarkdownNY-12587
+NY-12587
 12 May 1967
 Once 47,500 (Beopanel)
 

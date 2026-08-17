@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8050.png
-
-Convert to Markdown-3-
+-3-
 
 Report No: T.H-1365.
 Date 22 January 1951.

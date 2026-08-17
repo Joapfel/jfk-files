@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_4183.png
-
-Convert to Markdown<table><thead><tr><th>REVALIDACIONES<br>REVALIDATIONS</th></tr></thead><tbody><tr><td>Revalidado este pasaporte de<br>This passport is revalidated from</td></tr><tr><td>Válido hasta<br>Valid until</td></tr><tr><td>Firma Autorizada<br>Authorized Signature</td></tr><tr><td>Revalidado el<br>Revalidated on</td></tr><tr><td>Válido hasta<br>Valid until</td></tr><tr><td>Firma Autorizada<br>Authorized Signature</td></tr><tr><td>Revalidado el<br>Revalidated on</td></tr><tr><td>Válido hasta<br>Valid until</td></tr><tr><td>Firma Autorizada<br>Authorized Signature</td></tr></tbody></table>
+<table><thead><tr><th>REVALIDACIONES<br>REVALIDATIONS</th></tr></thead><tbody><tr><td>Revalidado este pasaporte de<br>This passport is revalidated from</td></tr><tr><td>Válido hasta<br>Valid until</td></tr><tr><td>Firma Autorizada<br>Authorized Signature</td></tr><tr><td>Revalidado el<br>Revalidated on</td></tr><tr><td>Válido hasta<br>Valid until</td></tr><tr><td>Firma Autorizada<br>Authorized Signature</td></tr><tr><td>Revalidado el<br>Revalidated on</td></tr><tr><td>Válido hasta<br>Valid until</td></tr><tr><td>Firma Autorizada<br>Authorized Signature</td></tr></tbody></table>
 
 <table><thead><tr><th>OBSERVACIONES<br>CASEMENTS</th></tr></thead><tbody><tr><td>REPUBLICA DE NICARAGUA · AMERICA CENTRAL</td></tr></tbody></table>

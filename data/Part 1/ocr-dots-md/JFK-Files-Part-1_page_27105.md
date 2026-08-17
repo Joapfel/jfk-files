@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27105.png
-
-Convert to MarkdownPRIVACY ACT REQUEST
+PRIVACY ACT REQUEST
 
 **PRIVACY ACT REQUEST**
 

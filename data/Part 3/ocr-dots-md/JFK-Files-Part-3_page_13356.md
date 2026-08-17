@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13356.png
-
-Convert to MarkdownOLSEN: Did you ever make contact with or confer with anybody relating to the Cuban Revolutionary Movement or any other Cuban anti-Castro groups in New Orleans?
+OLSEN: Did you ever make contact with or confer with anybody relating to the Cuban Revolutionary Movement or any other Cuban anti-Castro groups in New Orleans?
 
 STURGIS: No, sir. I didn't.
 

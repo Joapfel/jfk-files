@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21700.png
-
-Convert to MarkdownHouse. It was further noted that [GAEY] was recalled from Moscow in the summer of 1962 because of drunkenness and during interview had admitted being intimate with IVANOVA at the American House and at her apartment and that she had claimed pregnancy.
+House. It was further noted that [GAEY] was recalled from Moscow in the summer of 1962 because of drunkenness and during interview had admitted being intimate with IVANOVA at the American House and at her apartment and that she had claimed pregnancy.
 
 As to whether the above information raises a question concerning NOSENKO, the following factors should be considered:
 

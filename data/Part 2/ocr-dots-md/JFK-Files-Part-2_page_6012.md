@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6012.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 and for files on the crypts cited in this document and searched for HMMA 20307 and other cables or dispatches cited in this document. As previously explained, the crypts in HMMW 12454 have been researched. The dispatch was apparently written in haste and in truncated language without correct knowledge of the operational crypts for the specific operations in Mexico City. The crypts in the dispatch are the more generic crypts for teltap operations, not for the then-current operations in Mexico City, which are in question.
 

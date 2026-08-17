@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16688.png
-
-Convert to MarkdownS-E-C-R-I-T
+S-E-C-R-I-T
 
 NO FOREIGN DISSEM
 

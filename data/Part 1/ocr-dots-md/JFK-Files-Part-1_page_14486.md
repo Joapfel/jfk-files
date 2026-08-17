@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14486.png
-
-Convert to Markdownfor as she says, "It is a boy who also claims to be a relative of yours and wants to come here, but that he has a brother in New York." NILDA says, "That is a bunch of lies..." N wants A to take down the name of that person if he should come back to the Consulate, so that she may find out who they are.
+for as she says, "It is a boy who also claims to be a relative of yours and wants to come here, but that he has a brother in New York." NILDA says, "That is a bunch of lies..." N wants A to take down the name of that person if he should come back to the Consulate, so that she may find out who they are.
 
 FRANCO talks with ALICIA and says that the case of the <u>gusano</u> who killed this wife is being handled by HORACIO.
 

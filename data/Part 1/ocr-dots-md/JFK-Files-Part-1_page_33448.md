@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33448.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>1</td></tr><tr><td>185635</td></tr><tr><td>DISSENT BY:</td></tr><tr><td>07.09.73</td></tr><tr><td>00000</td></tr></table>
 

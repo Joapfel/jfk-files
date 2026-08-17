@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27226.png
-
-Convert to Markdown10 June 1948
+10 June 1948
 
 MEMORANDUM FOR THE CHIEF, INVESTIGATION DIVISION
 

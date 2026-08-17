@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2402.png
-
-Convert to Markdown**SEC. 17. SELECTIVE SERVICE**
+**SEC. 17. SELECTIVE SERVICE**
 
 CLASSIFICATION 4A
 

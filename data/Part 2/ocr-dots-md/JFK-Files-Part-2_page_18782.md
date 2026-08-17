@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18782.png
-
-Convert to MarkdownUnited States Department of Justice
+United States Department of Justice
 Federal Bureau of Investigation
 
 New York, New York

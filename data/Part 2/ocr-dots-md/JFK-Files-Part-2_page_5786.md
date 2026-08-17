@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5786.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 27 August 1998
 

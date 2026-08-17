@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27334.png
-
-Convert to Markdown# Routing and Record Sheet - from Chief, SAD and Ed Sayle, SRS - 26 Apr 68
+# Routing and Record Sheet - from Chief, SAD and Ed Sayle, SRS - 26 Apr 68
 
 SECRET EYES ONLY
 

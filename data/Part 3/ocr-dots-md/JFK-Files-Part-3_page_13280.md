@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13280.png
-
-Convert to MarkdownDUTT, Rajani Palme
+DUTT, Rajani Palme
 
 Dutt was born in 1896 at Cambridge, England. His father, a doctor in Cambridge, belonged to a prominent Bengali family. His mother was Swedish. Was educated at Perse School in Cambridge, Balliol Oxford. He became a charter member of the British Communist party in 1920. Has been the British Communist party's leading theoretician since then.
 

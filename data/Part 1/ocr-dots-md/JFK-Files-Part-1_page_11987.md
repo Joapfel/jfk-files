@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11987.png
-
-Convert to Markdownwaiter, "W. . . will you have?" he asks
+waiter, "W. . . will you have?" he asks
 graciously.
 
 Two reporters had figure-I breakfast

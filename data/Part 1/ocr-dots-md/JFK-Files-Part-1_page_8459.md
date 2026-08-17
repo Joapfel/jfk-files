@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8459.png
-
-Convert to MarkdownSECRET
+SECRET
 
 May 2, 1968
 No. 080

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8051.png
-
-Convert to Markdown# III. ROBERT P. KENNEDY
+# III. ROBERT P. KENNEDY
 
 "The Accused: Ray and Sirhan." *Life*, 21 June 1968, pp. 24-34.
 Aftermath of a tragedy; boy's deep hate, a senator slain." *D.S. News and World Report*, 17 June 1968, pp. 25-28.

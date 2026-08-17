@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24233.png
-
-Convert to Markdownto collect the proceeds from the sale of Agency proprietary entities and to refund such proceeds to the Agency. At December 31, 1973, its total assets were $650,220 and its total liabilities were $633,897.
+to collect the proceeds from the sale of Agency proprietary entities and to refund such proceeds to the Agency. At December 31, 1973, its total assets were $650,220 and its total liabilities were $633,897.
 
 Total stockholders equity was $16,323. It has no employees. As of December 31, 1974, it had invested $400,000 in a convertible subordinated debenture from the sale of a company and $45,440 in notes receivable. Another company in this TACTIC complex is LPGLITTER.
 

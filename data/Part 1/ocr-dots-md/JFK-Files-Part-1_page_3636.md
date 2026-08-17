@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3636.png
-
-Convert to MarkdownSECRET
+SECRET
 
 d. Rafael Aurelio Cipriano QUINTERO-Ibarbia
 (201-281270)

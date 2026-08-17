@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2220.png
-
-Convert to MarkdownU. S. Senate Select Committee
+U. S. Senate Select Committee
 
 auxiliary offices (of which Detroit was one) were required to submit 90-day summary reports on BPP activities. In those cases no annual reports were submitted. It is for this reason that more than five reports are being furnished concerning Black Panther Party activities in Detroit.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6596.png
-
-Convert to Markdown14-00000
+14-00000
 
 A CITE NYOR 35U.
 

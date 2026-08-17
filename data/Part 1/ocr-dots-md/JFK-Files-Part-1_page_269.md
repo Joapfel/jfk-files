@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_269.png
-
-Convert to Markdown1. AMPATROL (Project)
+1. AMPATROL (Project)
 2. HUMAIL-1
 3. DTRACCOON
 4. AMWAII -5

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1573.png
-
-Convert to Markdown(e) With respect to request no. 8, the Committee would hold in abeyance such a request until the FBI provides a list of the most appropriate case agent(s) in the office of origin for the several Klan organizations in existence. In 1967 and 1968. (While such was not part of the understanding reached at the time of the meeting with FBI officials, the Committee would request however that all materials related to the United Klans of America for the period 1965 and 1966 be made ready for inspection by November 20, 1977.)
+(e) With respect to request no. 8, the Committee would hold in abeyance such a request until the FBI provides a list of the most appropriate case agent(s) in the office of origin for the several Klan organizations in existence. In 1967 and 1968. (While such was not part of the understanding reached at the time of the meeting with FBI officials, the Committee would request however that all materials related to the United Klans of America for the period 1965 and 1966 be made ready for inspection by November 20, 1977.)
 
 (f) With respect to request no. 8, the FBI would first advise the Committee as to the identity of other cities reporting on the White Citizens Council before a determination be made as to the final content of this request.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25697.png
-
-Convert to MarkdownSubject: Actions of Sileria DRAY, Underlies Echevarria Employed by the Cuban Consulate, Following Her First Interrogation by the Mexican Authorities
+Subject: Actions of Sileria DRAY, Underlies Echevarria Employed by the Cuban Consulate, Following Her First Interrogation by the Mexican Authorities
 
 1. A female used criminal source, well induced on political伪personality and events in the Cuban Embassy and Consulate in Mexico City, and attempted times on her return to the Cuban Consulate on 20 November 1963, that Sileria DEA told her collugue immediately the same story about her occupation with Lee Barys OSAID that was published in the Miami City press. This information, which goes to have been surprehendedly given to the press by certain Modern authorities, indicated that it According to DEA, OSAID had visited so Cuba and Soviet Consulate to obtain a permit in order to visit these countries, and she had submitted his case as the Cuban Consulate.
 

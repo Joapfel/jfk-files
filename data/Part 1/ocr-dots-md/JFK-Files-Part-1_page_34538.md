@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34538.png
-
-Convert to MarkdownIV. Belorussian KGB and MVD.
+IV. Belorussian KGB and MVD.
 
 1. It would be useful to question Nosenko about his knowledge of the chiefs
 of the KGB and the MVD in the Belorussian Republic. A list of names

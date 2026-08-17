@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15301.png
-
-Convert to Markdowna new last name: DE PANASKHET, which he has taken sometimes in 1946 or '47. Panaskhet is the name of the village in Georgia where the family had its origine.
+a new last name: DE PANASKHET, which he has taken sometimes in 1946 or '47. Panaskhet is the name of the village in Georgia where the family had its origine.
 
 The official full version of Achilles name is now:
 TZITZICHVILI dit De PANASKHET. For his children the full

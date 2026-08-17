@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7568.png
-
-Convert to Markdownsubject of the "Anti-war Congress" which at your specific request I did not publish. Instead, to my regret, I published the foul rot of Marley & Co., without freely giving play to the true facts about that farcical junket which had convinced me that the policies which gave it birth do not one single whit advance the international struggle against imperialist war.
+subject of the "Anti-war Congress" which at your specific request I did not publish. Instead, to my regret, I published the foul rot of Marley & Co., without freely giving play to the true facts about that farcical junket which had convinced me that the policies which gave it birth do not one single whit advance the international struggle against imperialist war.
 
 On one occasion - and this at least I can take comfort in - I passively resisted when you requested me to write and publish a slanderous attack on Chen Du Hsiu when he was condemned to 13 years imprisonment by the Kuo Min Tang. Your request was specific. I was not to deal with the issues which had brought Chen Du Hsiu from being the leader of the C.P. in 1927 to being leader of the Chinese Opposition in 1933. I was only to string together a vile series of labels in an effort to explain why the Kuo Min Tang even imprisoned the leader of the Left Opposition. As you know, that attack was never written or published.
 

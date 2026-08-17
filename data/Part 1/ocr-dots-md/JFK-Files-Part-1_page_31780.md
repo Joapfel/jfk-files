@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31780.png
-
-Convert to MarkdownSECRET UP/TRU
+SECRET UP/TRU
 
 FORM 1152.89 - USE PREVIOUS EDITIONS
 

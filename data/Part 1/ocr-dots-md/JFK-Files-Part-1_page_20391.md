@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20391.png
-
-Convert to MarkdownJuly 29, 1948
+July 29, 1948
 
 To: Director of Personnel
 

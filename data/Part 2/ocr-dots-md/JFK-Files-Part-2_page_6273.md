@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6273.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 The following Agency members will attend the meeting with the ARRB on Thursday, 18 May 1995:
 

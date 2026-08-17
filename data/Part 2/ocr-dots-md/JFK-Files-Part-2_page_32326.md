@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32326.png
-
-Convert to MarkdownSECRET
+SECRET
 - 4 -
 
 (3) delivered a memorandum to the Minister of Interior concerning Cuban charter flights to Brazil which supported the Ambassador's request that the Argentine government express concern over such flights.

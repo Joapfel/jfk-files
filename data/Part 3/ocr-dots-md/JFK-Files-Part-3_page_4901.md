@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4901.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On January 20, 1967, MM T-7 advised that NORMAN ROTHMAN spent some time with MAX EDER at the Fontainebleau Hotel, Miami Beach, Florida.
 

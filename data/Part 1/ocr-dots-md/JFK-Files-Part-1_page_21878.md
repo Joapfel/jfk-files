@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21878.png
-
-Convert to Markdown1 February 1964: At NOSENKO's request, it was firmly agreed that the defection would take place in the morning of 8 February. NOSENKO said that he assumed that exfiltration would be by automobile to West Germany and thence by plane to the United States.* His case officers confirmed that this was correct.
+1 February 1964: At NOSENKO's request, it was firmly agreed that the defection would take place in the morning of 8 February. NOSENKO said that he assumed that exfiltration would be by automobile to West Germany and thence by plane to the United States.* His case officers confirmed that this was correct.
 
 3 February 1964: NOSENKO reviewed the CHEREPANOV materials. The defection was still scheduled for Saturday, 5 February.
 

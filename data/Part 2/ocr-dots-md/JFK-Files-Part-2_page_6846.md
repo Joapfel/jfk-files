@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6846.png
-
-Convert to MarkdownIt's a small fraction of what we have, but I want to do it right away as an earnest of our intention to move on, to declassify these documents and to get them before the public as quickly as possible.
+It's a small fraction of what we have, but I want to do it right away as an earnest of our intention to move on, to declassify these documents and to get them before the public as quickly as possible.
 
 I've also made publicly available this week the agency's new guidelines for historical review and declassification.
 

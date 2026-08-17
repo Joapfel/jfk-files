@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24457.png
-
-Convert to MarkdownEdwards: Well, I did not want to drag Mr. McCone into this thing that in my opinion had petered out, and I did not want to involve him. (Edwards, p. 18)
+Edwards: Well, I did not want to drag Mr. McCone into this thing that in my opinion had petered out, and I did not want to involve him. (Edwards, p. 18)
 
 James O'Connell, who was the case officer for the opera-
 tion under Edwards, testified that he recalled that Edwards had

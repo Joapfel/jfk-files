@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19072.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 74. Memo of SUPV. EDWARD F. GAMBER, dated 12/9/65, at NY captioned "DEPT;" IS - R".
 

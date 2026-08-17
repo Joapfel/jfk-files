@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18725.png
-
-Convert to MarkdownSECRET
+SECRET
 
 GROUP 1
 EXCLUDED FROM AUTOMATIC BARCHARTING

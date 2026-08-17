@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22867.png
-
-Convert to MarkdownHW 30953
+HW 30953
 
 410 First Street, S.E., Washington, D.C. 20003
 

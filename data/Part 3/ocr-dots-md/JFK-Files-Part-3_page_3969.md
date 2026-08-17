@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3969.png
-
-Convert to MarkdownIssues and Options for Discussion with
+Issues and Options for Discussion with
 Former Attorneys General Rogers, Katzenbach, and Clark
 
 MDR-16

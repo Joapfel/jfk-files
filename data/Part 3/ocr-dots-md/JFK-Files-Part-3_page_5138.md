@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5138.png
-
-Convert to Markdown# Part VI -- materials to be coordinated with response under special procedures for electronic surveillance and surreptitious entry
+# Part VI -- materials to be coordinated with response under special procedures for electronic surveillance and surreptitious entry
 
 Materials pertaining to FBI electronic surveillance policy, as listed below, and any other materials logically related thereto (based on analysis of materials in "Black Notebook"):
 

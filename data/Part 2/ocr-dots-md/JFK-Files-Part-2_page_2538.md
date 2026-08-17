@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2538.png
-
-Convert to MarkdownSECRET
+SECRET
 
 17 October 1977
 

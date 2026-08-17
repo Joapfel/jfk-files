@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4534.png
-
-Convert to Markdown# ROUTING AND RECORD SHEET
+# ROUTING AND RECORD SHEET
 
 **CLASSIFIED**
 

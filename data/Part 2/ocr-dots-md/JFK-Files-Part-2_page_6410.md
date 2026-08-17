@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6410.png
-
-Convert to Markdown104-10333-10014
+104-10333-10014
 
 Assassination Records Review Board
 600 E Street NW • 2nd Floor • Washington, DC 20530

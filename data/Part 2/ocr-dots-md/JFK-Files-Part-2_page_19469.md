@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19469.png
-
-Convert to MarkdownTHOUSANDS of American women will see to it that PEACE in Vietnam will be the first order of business when Congress convenes.
+THOUSANDS of American women will see to it that PEACE in Vietnam will be the first order of business when Congress convenes.
 
 Speaker of the House John McCormick and Senator Mike Mansfield will receive a delegation of 50 women led by Jeanette Rankin. The women will present a petition to those two Congressmen who represent the whole Congress.
 

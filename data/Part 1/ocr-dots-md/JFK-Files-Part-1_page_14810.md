@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14810.png
-
-Convert to MarkdownAnniversary of the Occupation of Berlin on the Anniversary of the Unification of Germany, they returned to the Soviet Union. On April 17, 1968, they visited East Berlin.
+Anniversary of the Occupation of Berlin on the Anniversary of the Unification of Germany, they returned to the Soviet Union. On April 17, 1968, they visited East Berlin.
 
 Winston together with Gus Hall visited U.S. CBRN
 delegation to the World Conference of Communists and Workers'

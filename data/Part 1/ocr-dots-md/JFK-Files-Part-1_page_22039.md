@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22039.png
-
-Convert to MarkdownGOLITSYN: Yes, probably. He reminds me a little of one of my friends.
+GOLITSYN: Yes, probably. He reminds me a little of one of my friends.
 
 Question: He looks a little like your friend?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33674.png
-
-Convert to MarkdownSTRICTLY PRIVATE
+STRICTLY PRIVATE
 
 5 November 1951
 

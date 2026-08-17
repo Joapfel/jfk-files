@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12536.png
-
-Convert to Markdown# VIII. PROPAGANDA
+# VIII. PROPAGANDA
 
 Although posters, pamphlets, recordings, and a singing group called "The Lumpen" are among propaganda vehicles used by the Black Panther Party, the main channel to the public is through their official organ, The Black Panther. Funds permitting, it is published weekly in Oakland, California. It includes editorials by Party leaders and spokesmen; provocative slogans; inflammatory articles; revolutionary art," comprising cartoons; and an international news section.
 

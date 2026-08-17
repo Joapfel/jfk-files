@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10480.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>2. NATURE OF INCIDENT</td>

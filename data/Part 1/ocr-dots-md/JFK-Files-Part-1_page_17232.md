@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17232.png
-
-Convert to MarkdownSECRET/~~K~~
+SECRET/~~K~~
 
 # Review of Project LIEMPTY
 (For the Purpose of Project Renewal)

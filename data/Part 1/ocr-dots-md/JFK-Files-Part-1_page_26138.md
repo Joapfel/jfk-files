@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26138.png
-
-Convert to Markdown<table><tr><td>DATE RECEIVED</td><td>DATE RETURNED</td><td>REVIEWED BY (PRINT NAME)</td><td>SIGNATURE OF REVIEWING OFFICIAL</td></tr><tr><td></td><td></td><td></td><td>'NOT REVIEWED BY HSCA'</td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></table>
+<table><tr><td>DATE RECEIVED</td><td>DATE RETURNED</td><td>REVIEWED BY (PRINT NAME)</td><td>SIGNATURE OF REVIEWING OFFICIAL</td></tr><tr><td></td><td></td><td></td><td>'NOT REVIEWED BY HSCA'</td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></table>
 
 Victor RICO Galan
 

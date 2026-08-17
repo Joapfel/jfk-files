@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15040.png
-
-Convert to MarkdownTranslation of German report from the BFV to the American Embassy, OCA, z.H. Mr. C. W. SCHMITZ in Mehlem.
+Translation of German report from the BFV to the American Embassy, OCA, z.H. Mr. C. W. SCHMITZ in Mehlem.
 
 Concerning Georg SANDERS, gebrix86x born 25 July 1919 in Tiflis/USSR. Present residence in Oberursel/Ts, Hohemarkstr. 145.
 

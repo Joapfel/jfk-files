@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7930.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Attached is one copy of a communication being sent to an East German address. This item was obtained from Bureau Source 300, which is to be described in communications prepared for dissemination as "another govern- ment agency which conducts intelligence investigations." The item is classified CONFIDENTIAL by the originating agency and bears the special marking "Warning Notice - Sensitive Sources and Methods Involved."
 

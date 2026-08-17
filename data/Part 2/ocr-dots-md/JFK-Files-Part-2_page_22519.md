@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22519.png
-
-Convert to Markdowninsane. Wiley commented that obviously the prison attendants and officials were very worried about Wiley's health because of his refusal to eat and he was constantly being checked by various doctors. Wiley stated that he was released from the hospital and was given back all of his effects except his tape recorder and his hat. On Wednesday, 3 August, he was released.
+insane. Wiley commented that obviously the prison attendants and officials were very worried about Wiley's health because of his refusal to eat and he was constantly being checked by various doctors. Wiley stated that he was released from the hospital and was given back all of his effects except his tape recorder and his hat. On Wednesday, 3 August, he was released.
 
 Wiley commented that the individuals who were political prisoners impressed him very much; they seemed "real men" and were fanatically anti-Castro; most as far as Wiley could tell were connected with the MRR. He stated the regular guards were obnoxious and were detested by the prisoners. He commented that the G-2 Headquarters, as far as he could tell, had been in operation somewhat over two months and that they had probably processed over 5,000 prisoners since he recalled seeing the number attached to his card as 5028.
 

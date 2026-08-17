@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4772.png
-
-Convert to MarkdownSECRET
+SECRET
 
 again, I don't know who his staff officer was or who was briefing him beforehand.
 

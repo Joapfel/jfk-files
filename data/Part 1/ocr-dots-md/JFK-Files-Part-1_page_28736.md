@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28736.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>205 c</td>
     <td>Modern Supervisory Practice</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4293.png
-
-Convert to MarkdownState will inform the British Minister that we propose to proceed in this manner.
+State will inform the British Minister that we propose to proceed in this manner.
 
 ## 2. Cuba - Status of Soviet Personnel and Materiel
 

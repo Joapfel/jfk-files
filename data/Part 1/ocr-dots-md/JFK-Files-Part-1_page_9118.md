@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9118.png
-
-Convert to MarkdownCOMPANY AUXILIAR DE PARROQUIA S.A.
+COMPANY AUXILIAR DE PARROQUIA S.A.
 Police de Cub. : Urquijo, Marques de Fontalba (Urquijo)
 Inmovilizado Neto 1,237,043,000 pts
 

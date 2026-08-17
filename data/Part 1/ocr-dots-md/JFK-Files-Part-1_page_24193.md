@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24193.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>SECRET</td>
         <td>CITE DIRECTOR</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11683.png
-
-Convert to MarkdownSTUDENT NATIONAL COORDINATING COMMITTEE (SNCC)
+STUDENT NATIONAL COORDINATING COMMITTEE (SNCC)
 100-439190
 
 SNCC was originally organized in Atlanta, Georgia,

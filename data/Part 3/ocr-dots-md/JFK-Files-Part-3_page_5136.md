@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5136.png
-
-Convert to Markdownf. Joseph Burton;*
+f. Joseph Burton;*
 
 g. Thomas Tongyai;
 

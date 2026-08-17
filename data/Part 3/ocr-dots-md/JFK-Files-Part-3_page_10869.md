@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10869.png
-
-Convert to Markdown6) Arrange for attendance of selected Bureau personnel to schools of other agencies such as State Department, CIA, and the military services.
+6) Arrange for attendance of selected Bureau personnel to schools of other agencies such as State Department, CIA, and the military services.
 
 7) Arrange for attendance of selected personnel at War Colleges.
 

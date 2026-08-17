@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22701.png
-
-Convert to Markdown094 ERB/RG
+094 ERB/RG
 DATE '10 JUN 1958
 
 <table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>BONFIDENTIAL</td></tr></table>

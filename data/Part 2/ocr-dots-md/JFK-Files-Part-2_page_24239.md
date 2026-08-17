@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24239.png
-
-Convert to Markdownthe risk or if there were security problems, then it would be handled through MHMUTUAL.
+the risk or if there were security problems, then it would be handled through MHMUTUAL.
 
 What we would do when it came to aviation and marine, we would go to one of the cooperating companies and see if they wanted the insurance for their own accounts, because we had made arrangements that if there were operations security problems in any one claim, that they could handle the investigation so it wouldn't be a problem if they wanted to take for their own account. If they didn't want to take it for their own account or they didn't want to take it all for their own account, they might then seed back to us what they didn't want. And it would be then underwritten technically out of MUTUAL's account, although they would be the ostensible insurers.
 

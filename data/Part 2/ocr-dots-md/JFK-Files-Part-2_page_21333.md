@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21333.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO : D. J. BRENNAN
 FROM : S. J. PAPICH

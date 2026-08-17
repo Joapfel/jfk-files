@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19613.png
-
-Convert to Markdown28 August 1973
+28 August 1973
 
 MEMORANDUM FOR: Director of Security
 

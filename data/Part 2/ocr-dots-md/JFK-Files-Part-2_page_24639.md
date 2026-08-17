@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24639.png
-
-Convert to MarkdownHedgman: It is my recollection that he identified the President, and I cannot -- the President of the United States -- and I cannot recall whether he said "the President," or whether he identified him by name. (Hedgman, 8/21/75, pp. 30-31.)
+Hedgman: It is my recollection that he identified the President, and I cannot -- the President of the United States -- and I cannot recall whether he said "the President," or whether he identified him by name. (Hedgman, 8/21/75, pp. 30-31.)
 
 Hedgman continued to explain that he was told "something to the effect that the President had instructed the Director" (Hedgman, 8/21/75, pp. 32, 34). Hedgman was clear that the ultimate source of authority for the assassination mission was the President:
 

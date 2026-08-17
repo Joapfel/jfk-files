@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16629.png
-
-Convert to MarkdownHis wife did not accompany him and source speculated that her arrival may be delayed in view of NOVAS' present incitement for feminine diversion.
+His wife did not accompany him and source speculated that her arrival may be delayed in view of NOVAS' present incitement for feminine diversion.
 
 3. In a report dated March 1964, this same source said that Julian NOVAS Fernandez, the Cuban Commercial Attache at the Cuban Consulate in Kingston, Jamaica, was born on 2 September 1938, in Habana, Cuba. He carried diplomatic passport D/64/90 which was issued in Habana on 20 February 1964. His home address was given as Carman No. 18, Vibora. He arrived in Kingston from Mexico on 18 March 1964, on Mexicana Flight Number 305.
 

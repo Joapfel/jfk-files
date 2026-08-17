@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11054.png
-
-Convert to Markdown# CONSEJO NACIONAL DE CULTURA
+# CONSEJO NACIONAL DE CULTURA
 
 ## República Popular de Mongolia
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9449.png
-
-Convert to MarkdownMr. Don Jones
+Mr. Don Jones
 
 May 28, 1975
 Page 2

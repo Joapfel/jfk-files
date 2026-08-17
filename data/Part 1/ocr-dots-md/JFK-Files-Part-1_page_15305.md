@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15305.png
-
-Convert to Markdown-7-
+-7-
 
 throwing of a big knife. This was made noise, he was detected and thrown out.
 

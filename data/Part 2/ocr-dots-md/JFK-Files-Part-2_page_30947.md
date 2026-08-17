@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30947.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① 27 Aug 1965
 Memo & File from Laurence G. Parr

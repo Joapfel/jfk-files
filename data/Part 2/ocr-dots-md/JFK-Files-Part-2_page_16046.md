@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16046.png
-
-Convert to MarkdownDate: June 5, 1969
+Date: June 5, 1969
 
 On June 4, 1969 SA RAMON W. STRATTON was present at 2350 West Madison, Chicago, Illinois, when arrests were made for harboring a fugitive from justice, in building occupied by an organization calling themselves the Black Panthers. Special Agent in Charge MARLIN W. JOHNSON of the Chicago Federal Bureau of Investigation office instructed SA STRATTON to conduct a lawful search of the building in which the arrests were made, with assistance of other Special Agents of the FBI.
 

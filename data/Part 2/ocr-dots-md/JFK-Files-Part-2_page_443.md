@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_443.png
-
-Convert to MarkdownCírculo 930-19 octubre 65
+Círculo 930-19 octubre 65
 
 el lugar va a ser en el Salón 14 de la Escuela Nacional de Ciencias Políticas de la Ciudad Universitaria a las 19 horas, que si le intereza ir,--- electa; que hay un compromiso con los hijos.--- quedan en comunicado para hacerlo cante para verse.--- 553.
 

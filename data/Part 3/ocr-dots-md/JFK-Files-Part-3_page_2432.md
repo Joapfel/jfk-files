@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2432.png
-
-Convert to MarkdownF B I
+F B I
 
 Date: 6/24/75
 

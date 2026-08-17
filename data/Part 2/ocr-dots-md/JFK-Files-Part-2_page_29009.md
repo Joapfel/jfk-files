@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29009.png
-
-Convert to Markdown# Schedules A&B—Itemized Deductions AND
+# Schedules A&B—Itemized Deductions AND
 Dividend and Interest Income
 
 1974

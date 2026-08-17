@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23959.png
-
-Convert to Markdownobviously Meto does have some American support as well or had some
+obviously Meto does have some American support as well or had some
 American support. His father did, I think.
 
 (Do you know Michael Tabasa)

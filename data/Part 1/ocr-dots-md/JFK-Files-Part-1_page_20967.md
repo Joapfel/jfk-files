@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20967.png
-
-Convert to Markdownemployee of the United States Government paid from Government funds. Therefore, if in the future you are employed by the United States Government in a status covered by the Civil Service Retirement Act, periods of service under this contract will be available as creditable service for retirement purposes in conformity with Civil Service Regulations.
+employee of the United States Government paid from Government funds. Therefore, if in the future you are employed by the United States Government in a status covered by the Civil Service Retirement Act, periods of service under this contract will be available as creditable service for retirement purposes in conformity with Civil Service Regulations.
 
 5. **Cover** It is anticipated that you will undertake certain cover employment in the course of your performance under this agreement. It is expressly understood and agreed that any and all documents which you may execute in the course of such cover employment are subordinate to this agreement and any contradiction in terms which may in any way amplify, extend or restrict your rights and/or obligations hereunder shall be resolved by this agreement which shall always be dominant.
 

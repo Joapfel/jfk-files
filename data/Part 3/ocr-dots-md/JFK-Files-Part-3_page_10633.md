@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10633.png
-
-Convert to MarkdownAs the Bureau is aware, some few months ago several
+As the Bureau is aware, some few months ago several
 individuals, who had been active officials and/or dedicated
 members of the National States Rights Party (NSRP), left
 the NSRP. They are trying to form and make a going party

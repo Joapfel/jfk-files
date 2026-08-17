@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9905.png
-
-Convert to Markdown30 October, 1967
+30 October, 1967
 
 Subject: Report of LIRING/3 Suspect Affiliation with WOFIRM.
 

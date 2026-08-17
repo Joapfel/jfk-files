@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_10216.png
-
 ) that LIRING/9 was in. At this moment LIRING/9 himself emerged from his office with papers in his hand, winked at LIRING/3, and returned without addressing him. A few minutes later L/3 was told by the receptionist that L/9 would see him. The following is Rowton's reconstruction of the conversation that took place between LIRING/3 and LIRING/9, based on L/3's report to Rowton:
 
 L/9: "Come in. I'm sorry I couldn't see you Friday or yesterday. I was out of town."

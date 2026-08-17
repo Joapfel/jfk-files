@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24426.png
-
-Convert to Markdownment was to "stay in place and report to us" (Case Officer 1, p. 38).
+ment was to "stay in place and report to us" (Case Officer 1, p. 38).
 
 At a meeting in August 1962 in a foreign capital, AM/LASH-1 stated that he would remain in Cuba if he "could do something really significant for the creation of a new Cuba", and expressed a desire to plan the execution of Fidel Castro (Case Officer 1 Contact Report, August 1 meeting). The subject of assassinating Castro was again discussed at a meeting on August 10, 1962, between AM/LASH-1 and his case officer. The case officer's contact report states that assassination was raised in discussing AM/LASH-1's role in Cuba, and that AM/LASH-1 was visibly upset. "It was not the act that he objected to, but merely the choice of the word used to describe it. 'Eliminate' was acceptable." (Case Officer 1, Contact Report, August 7-10, meetings).
 

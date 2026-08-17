@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6316.png
-
-Convert to MarkdownCKA - 137
+CKA - 137
 
 a. He said that his father is in jail in Puerto Bonito, and that in order to try and get him free, the source went to see Major Delamino "Anibal" Castilla, the chief of training for the Palma Soriano Military Encampment, whom he knew from their days in the Santiago High School. Source made his plea and "Anibal" told him that before he could act upon it, he would have to talk to the source for five hours in order to determine his political orientation. The source replied that he did not come to talk: politics but to plead for his father. "Anibal" answered that he would think about it and call the source one way or another, but he never called. Source thought that this story adequately demonstrated the (Communist) political orientation of "Anibal."
 

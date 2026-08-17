@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23673.png
-
-Convert to MarkdownSNAP-ON SIGHT HOOD FOR
+SNAP-ON SIGHT HOOD FOR
 THE 7.62 BELGIUM (FAL) RIFLE
 
 1. The sight hood snaps over the existing rear sight on the 7.62 Belgium (FAL) rifle. It is designed to raise the rear sight to compensate for the more curving trajectory of the under-loaded ammunition and is an open sight for increased night sighting capability.

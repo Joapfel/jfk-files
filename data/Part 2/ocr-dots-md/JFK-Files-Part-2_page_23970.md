@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23970.png
-
-Convert to Markdown# SCHNEIDER REPORT
+# SCHNEIDER REPORT
 
 ## I. Summary
 

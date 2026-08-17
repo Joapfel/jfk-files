@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15079.png
-
-Convert to Markdownwas strictly a HARVARD agent resettlement case of no AIS ops interest and not a routine CABEZONE case. OCA stated that the political recognition interview story had naturally drawn the interest and attention of CAVATA.
+was strictly a HARVARD agent resettlement case of no AIS ops interest and not a routine CABEZONE case. OCA stated that the political recognition interview story had naturally drawn the interest and attention of CAVATA.
 
 OCA advised REINBOLD that CAVATA would be kept out of the case by being told Subject was of continuing AIS ops interest and HARVARD could go about its resettlement efforts.
 

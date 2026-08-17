@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5302.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 SUBJECT: Clement Joseph CHAMLE
 

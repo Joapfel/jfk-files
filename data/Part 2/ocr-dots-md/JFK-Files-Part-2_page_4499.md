@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4499.png
-
-Convert to MarkdownCont'd.3--- Enclosed find the groups belonging to the Frente that was written for me by this Dr. Fidez.
+Cont'd.3--- Enclosed find the groups belonging to the Frente that was written for me by this Dr. Fidez.
 
 Enclosed find marked) "Reporte and Informe" (2 sheets) given me Dr. Fidez. to show what they are doing now.
 

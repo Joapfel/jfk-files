@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3907.png
-
-Convert to Markdownas Mr. Turner, the FBI and the CIA damn well know.
+as Mr. Turner, the FBI and the CIA damn well know.
 
 I have never stated to anybody, either verbally or in writing, that in 1963 I was an agent for the CIA, although in 1974 I did state, under oath, that I thought I had been functioning for the CIA during part of 1963. Mr. Turner is also aware that less than two months after President Kennedy's death FBI agents confronted me with their suspicion that I had "acted as an unregistered agent for a foreign power," inferring that I was a spy for one of the Cuban intelligence services (several years later the CIA, through one of its "former" case officers, accused me of having been a Soviet spy; still later, one FBI agent suggested that I had worked for the Chinese).
 

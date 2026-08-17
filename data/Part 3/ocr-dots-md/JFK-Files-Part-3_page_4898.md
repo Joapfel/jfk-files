@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4898.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION ON
+FEDERAL BUREAU OF INVESTIGATION ON
 WASHINGTON 25, D.C.
 
 The following FBI record, NUMBER 32 5 5 D, is furnished FOR OFFICIAL USE ONLY.

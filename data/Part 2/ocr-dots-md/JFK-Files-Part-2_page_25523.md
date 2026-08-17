@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25523.png
-
-Convert to MarkdownHW 50955 DocId:32423630 Page 256
+HW 50955 DocId:32423630 Page 256
 
 FS: It could be very dangerous.
 

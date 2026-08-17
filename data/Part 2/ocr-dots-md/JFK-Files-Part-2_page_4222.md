@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4222.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Third, the Soviets having accomplished one of their objectives,
 that of securing a U.S. guarantee against invasion, will increase their

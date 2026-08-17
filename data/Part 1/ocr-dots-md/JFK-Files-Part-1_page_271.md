@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_271.png
-
-Convert to Markdown1. No project - A1 was en Fl reporting asset
+1. No project - A1 was en Fl reporting asset
 2. Eduardo Alfredo ESPINOSA de los Monteros de Zulaita
 3. ILR- International Institute of Labor Relations
 4. Manuel F. GOUDIE

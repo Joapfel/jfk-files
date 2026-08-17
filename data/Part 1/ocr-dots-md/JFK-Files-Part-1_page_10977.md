@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10977.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CONTRACT FOR ON-LINE COMMITMENTS
 

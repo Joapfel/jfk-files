@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2429.png
-
-Convert to MarkdownJune 24, 1969
+June 24, 1969
 
 BY LIAISON
 

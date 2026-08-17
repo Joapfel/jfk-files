@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9210.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RASILSKY wrote an recently that the book was now at a stage where most of the work had to be done by his collaborator. Since his name is so appear on it, I imagine he will still have to put in quite a bit of time on it, from time to time. Resemblant he is about as active as when I last heard— doing "part-time" work on loan to MI in connection with RADARAVE.
 

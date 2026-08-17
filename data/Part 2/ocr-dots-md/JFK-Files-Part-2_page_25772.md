@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25772.png
-
-Convert to Markdownthat the cumulative psychological and political impact within Cuba of sustained sabotage operations is a necessary element in the accomplishment of our mission.
+that the cumulative psychological and political impact within Cuba of sustained sabotage operations is a necessary element in the accomplishment of our mission.
 
 6. Support of autonomous anti-Castro Cuban exile groups. These operations are intended to provide a deniable activity, a means of supplementing and expanding our covert capability and a means of taking advantage of untapped political and resistance resources of the exile community. The program now includes two autonomous groups whose credibility as to autonomy is strengthened by the facts that:
 

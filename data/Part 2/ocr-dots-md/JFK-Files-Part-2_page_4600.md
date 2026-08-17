@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4600.png
-
-Convert to Markdownf. Assign trainer to Miami after BENDER gets concurrence of Chief, FRD/Intelligence and Security Subcommittee.
+f. Assign trainer to Miami after BENDER gets concurrence of Chief, FRD/Intelligence and Security Subcommittee.
 
 g. Arrange for Project CI officer in Miami to brief trainer on his assignment.
 

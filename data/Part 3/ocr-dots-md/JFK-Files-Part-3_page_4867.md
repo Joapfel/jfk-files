@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4867.png
-
-Convert to MarkdownJK 92-879
+JK 92-879
 MED/mhw
 
 The following listed individuals were reflected in the subject's prison file as individuals who were on his approved correspondence and/or approved visitor list:

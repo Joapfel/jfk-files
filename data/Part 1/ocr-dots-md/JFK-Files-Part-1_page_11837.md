@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11837.png
-
-Convert to MarkdownFBI DOCUMENT
+FBI DOCUMENT
 
 DATE: 8 MAY 1975
 

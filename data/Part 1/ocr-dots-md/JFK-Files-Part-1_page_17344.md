@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17344.png
-
-Convert to Markdown10:40
+10:40
 
 RILANDE con acuerdo contrapropuesta a vía de la Sede de Cuba que sí en el avión de aeropuerto no llevará nadie más de su via. Vea y sin contestar a su propuesta le indica que wanta a la In bajada, pero que adelante media hora a la que hayan fijado. RILANDE allí quedará.
 

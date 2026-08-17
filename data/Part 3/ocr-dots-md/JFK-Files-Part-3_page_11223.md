@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11223.png
-
-Convert to MarkdownThe Third Agency Rule
+The Third Agency Rule
 
 1. As early as November 1953, the third agency rule was included in Executive Order 10501, which has now been revoked. Section 7(c) prohibited the dissemination of "classified defense information originating in another Department or agency" to an agency "outside the receiving Department or agency without the consent of the originating Department or agency". The only exception to this rule is that dissemination may be made under the authority of Section 102 of the National Security Act. This section authorizes the Director of Central Intelligence "to correlate and evaluate intelligence relating to the national security, and provide for the appropriate dissemination of such intelligence within the Government using, where appropriate, existing agencies and facilities".
 

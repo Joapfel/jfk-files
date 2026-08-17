@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4555.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 had flown from London to California, then to Las Vegas,
 Nevada, then to New York, and then to Miami, before return-

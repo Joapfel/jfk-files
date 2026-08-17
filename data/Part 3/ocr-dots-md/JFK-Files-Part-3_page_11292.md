@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11292.png
-
-Convert to MarkdownCLIPPED
+CLIPPED
 TELETYPE UNIT
 
 MAR 26 6 48 PM '75

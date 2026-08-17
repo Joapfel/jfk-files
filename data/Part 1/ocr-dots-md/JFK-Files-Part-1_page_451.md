@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_451.png
-
-Convert to MarkdownSLOVER/CONFIDENTIAL
+SLOVER/CONFIDENTIAL
 
 Miss McGillen testified from 1025 hours until 1040 hours and her testimony was completely uneventful. She identified Mr. Hollis Whitaker. Also, her uncertainty over whether McCord retired in 1970 or 1971 raised a possibility that she had seen McCord in Agency Headquarters in 1971 after McCord had retired, but eventually it was clarified that she had seen McCord before his retirement and not after it.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33632.png
-
-Convert to MarkdownSECURITY Classification:
+SECURITY Classification:
 
 SECRET
 

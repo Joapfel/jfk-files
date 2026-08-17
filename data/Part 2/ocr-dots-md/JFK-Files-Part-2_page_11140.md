@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11140.png
-
-Convert to Markdownwith any additional information contained in the Bureau's files.
+with any additional information contained in the Bureau's files.
 
 6. The names of subscribers to Communist Party nominating petitions and names appearing on subscription lists of "The Worker," "People's World," and publications and organs of the organizations set forth in 1 a, b, c, and d must be indexed in the field office covering the address shown for the subscriber and should not be forwarded to the Bureau for indexing. Nailing lists as such which cannot be identified as membership lists are subversive organizations also. should be indexed in the field and so awarded to the Bureau. Field offices obtaining such lists must prompt. furnish them to the office covering the address shown for the subscriber.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24156.png
-
-Convert to Markdown14-00000
+14-00000
 
 ORIG : JAMES M. MORPHY
 UNIT : CH/CF

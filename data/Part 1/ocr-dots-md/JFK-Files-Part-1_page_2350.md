@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2350.png
-
-Convert to Markdown# Operational Memo # N-4
+# Operational Memo # N-4
 
 SUBJECT: NOSENKO, Yuri Ivanovich
 

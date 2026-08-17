@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24776.png
-
-Convert to Markdown23 June 1967
+23 June 1967
 
 MEMORANDUM FOR: Chief, CI/OA
 

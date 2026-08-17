@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4746.png
-
-Convert to MarkdownRH 92-264
+RH 92-264
 
 Credit Bureau, Inc., at which time he located a report dated 7/5/63. This report reflects that KEITH L. HANNA, and his wife VIRGINIA, have resided at 615 Poplar Drive, Falls Church, Virginia, since August 1, 1944. He was listed as being 51 years of age and employed by the Small Business Administration as an Administrator Comptroller where he had been employed since 12/17/51. His estimated income was listed as $12,845.00 per year. He was formerly employed by the U. S. Department of Agriculture as an accountant. He formerly resided at 316 N. Oxford St., Arlington, Va., and at Acton, Indiana. His credit was rated as satisfactory.
 

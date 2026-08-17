@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32260.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to get agreement from Free World industrial nations
 to prevent shipping of critical spare parts and equipment

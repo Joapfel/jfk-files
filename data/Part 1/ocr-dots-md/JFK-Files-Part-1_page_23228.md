@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23228.png
-
-Convert to MarkdownJounelistic - AGV p.2
+Jounelistic - AGV p.2
 
 14 A nil 1958.
 

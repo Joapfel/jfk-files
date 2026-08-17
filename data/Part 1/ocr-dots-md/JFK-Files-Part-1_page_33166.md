@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33166.png
-
-Convert to MarkdownPAN AMERICAN WORLD AIRWAYS
+PAN AMERICAN WORLD AIRWAYS
 
 February 26, 1969
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16804.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE : 30 OCT 62</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: C/WH 5</td></tr><tr><td>INFO : ADDP, C/CI, D/OL 2, S/C 2</td></tr></table>
 

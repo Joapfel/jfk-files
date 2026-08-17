@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27253.png
-
-Convert to MarkdownA. Memo for Executive Dir-Comptroller , Subj: Report of the Working
+A. Memo for Executive Dir-Comptroller , Subj: Report of the Working
 Group on Contacts with American Business Firms (1972) SECRET
 
 B. Memo from Edward W. Proctor - 18 Apr 72 SECRET

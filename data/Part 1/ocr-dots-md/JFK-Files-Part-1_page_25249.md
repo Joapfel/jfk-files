@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25249.png
-
-Convert to Markdown<table><thead><tr><td></td><td>DATE</td><td>TO NO.</td></tr></thead><tbody><tr><td>1960-12-25</td><td>1960-12-25</td><td>1960-12-25</td></tr></tbody></table>
+<table><thead><tr><td></td><td>DATE</td><td>TO NO.</td></tr></thead><tbody><tr><td>1960-12-25</td><td>1960-12-25</td><td>1960-12-25</td></tr></tbody></table>
 
 DISTRIBUTION STATEMENT: SEVERAL EDITIONS PUBLISHED. DO NOT SHARE WITH OTHERS.
 

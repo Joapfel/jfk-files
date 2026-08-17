@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4039.png
-
-Convert to MarkdownCONCLUSION
+CONCLUSION
 
 and sternpost are then set in place after the framework is cut to size.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4012.png
-
-Convert to MarkdownEP G5-951
+EP G5-951
 
 and making allegations to the Los Angeles Police Department, which he later stated were not true.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8150.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE : 8 NOV 61</td>
     <td>CLASSIFIED MESSAGE</td>

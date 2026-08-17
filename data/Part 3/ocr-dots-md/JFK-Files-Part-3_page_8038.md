@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8038.png
-
-Convert to Markdownconcluding chapter of an unfortunate series of telephonic exch
+concluding chapter of an unfortunate series of telephonic exch
 
 Further, I requested that in the future, and for the good of all
 parties concerned, he should direct all his requests and inquiries

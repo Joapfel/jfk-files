@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3283.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>REPRODUCTION PROHIBITED</td><td></td></tr></table>
 

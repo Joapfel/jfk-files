@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13795.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>FROM<br/>ACTION<br/>C/W H S</td><td>MEXICO CITY</td><td></td><td>34 SECRET</td></tr><tr><td>ADVANC COPY</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td>INFO<br/>VR. FILE</td><td colspan="3">ADDL DC/WH/SA J, ADDL CICI, C/FI.</td></tr></tbody></table>
+<table><thead><tr><th colspan="4">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>FROM<br/>ACTION<br/>C/W H S</td><td>MEXICO CITY</td><td></td><td>34 SECRET</td></tr><tr><td>ADVANC COPY</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td>INFO<br/>VR. FILE</td><td colspan="3">ADDL DC/WH/SA J, ADDL CICI, C/FI.</td></tr></tbody></table>
 
 SECRET 2200032
 

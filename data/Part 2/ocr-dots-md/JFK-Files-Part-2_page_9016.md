@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9016.png
-
-Convert to Markdownreturned to their point of origin.
+returned to their point of origin.
 
 d. Instructed Embassy Mexico City on August 29 to inform the Mexican airline CNA that the United States is opposed to a proposal that CMA operate charter flights to carry refugees from Havana to Central America. CMA, as a result, stated that they had no intention of proceeding further with this project.
 

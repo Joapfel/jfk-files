@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_757.png
-
-Convert to MarkdownB-2-C-K-E-T
+B-2-C-K-E-T
 
 30 January 1968
 

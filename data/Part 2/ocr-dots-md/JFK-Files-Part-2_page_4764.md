@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4764.png
-
-Convert to MarkdownSECRET
+SECRET
 
 you don't touch, pretty soon you can fine-tune that to the
 point where there isn't anybody in the world you are allowed to

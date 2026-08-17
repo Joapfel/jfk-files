@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20104.png
-
-Convert to MarkdownBoston, Massachusetts
+Boston, Massachusetts
 
 March 21, 1973
 

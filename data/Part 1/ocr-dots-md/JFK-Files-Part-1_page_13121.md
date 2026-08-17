@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13121.png
-
-Convert to MarkdownWH Addressees of DIR 92664
+WH Addressees of DIR 92664
 
 ✓ Asuncion X San Jose
 ✓ Bogota X San Salvador

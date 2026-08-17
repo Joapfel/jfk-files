@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7962.png
-
-Convert to MarkdownI. O. 4132
+I. O. 4132
 4-29-68
 
 CIVIL RIGHTS - CONSPIRACY

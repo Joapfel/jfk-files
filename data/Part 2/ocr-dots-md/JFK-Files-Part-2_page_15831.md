@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15831.png
-
-Convert to MarkdownIn 1945 and resided in Oakland on Brush Street. attended the Santa Fe and Lafayette elementary schools in Oakland. He went to Woodrow Wilson Jr. High School and then attended Oakland Technical High. His childhood was the same as that of most black youths. He was never given the opportunity to do skilled work but worked very diligently as a seasonal cannery worker from his graduation from high school onward.
+In 1945 and resided in Oakland on Brush Street. attended the Santa Fe and Lafayette elementary schools in Oakland. He went to Woodrow Wilson Jr. High School and then attended Oakland Technical High. His childhood was the same as that of most black youths. He was never given the opportunity to do skilled work but worked very diligently as a seasonal cannery worker from his graduation from high school onward.
 
 Huey Newton learned to read well at the age of 16. This was when his high school counselors told him he was not college material. He set out to show them that no white man could tell him what he was capable of doing.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6522.png
-
-Convert to MarkdownInternational Rescue Committee, Inc.
+International Rescue Committee, Inc.
 
 DCS/SD/Alien Staff
 George Neagoy

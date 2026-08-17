@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11157.png
-
-Convert to MarkdownMemorandum for the Record
+Memorandum for the Record
 
 Subject: Meeting with LITANL-9
 

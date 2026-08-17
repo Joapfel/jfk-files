@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7021.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>DISPATCH SYMBOL AND NUMBER<br/>UFGA-5212</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>DISPATCH SYMBOL AND NUMBER<br/>UFGA-5212</td></tr></table>
 
 c. §325. was given to AMDENIM-1 in support of Operation Antonico I, which operation is described under paragraph 4.
 

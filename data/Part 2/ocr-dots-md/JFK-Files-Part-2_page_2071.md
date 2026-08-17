@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2071.png
-
-Convert to MarkdownSECRET
+SECRET
 SECURITY INFORMATION
 
 JAMES A. HUGHES, JR.

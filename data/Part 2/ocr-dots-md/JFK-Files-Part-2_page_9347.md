@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9347.png
-
-Convert to Markdown# WORD LIST
+# WORD LIST
 
 **REVOLUTION**- Revolution means change. A revolutionary is one who is dissatisfied with a system that brutalizes, murders, exploits and oppresses the people it pretends to serve (Amerikka). He is not only dissatisfied but he also moves to change the system by educating the people to truth and setting examples of how to change it, so that it functions for the poor and not just the rich.
 

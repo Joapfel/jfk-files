@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29537.png
-
-Convert to MarkdownSECRET
+SECRET
 
 case officers, instructors, advisors, or consultants; and capable of
 developing indigenous forces, directing operations, and personally

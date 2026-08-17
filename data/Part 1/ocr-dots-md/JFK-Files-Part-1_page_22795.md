@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22795.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr><tr><td colspan="2"><b>SECRET</b></td><td rowspan="2"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td colspan="2" style="text-align:center; padding: 5px;">ROUTING</td></tr><tr><td style="vertical-align:top; padding: 5px;"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td style="padding: 2px 5px;">1</td><td style="padding: 2px 5px;">4</td></tr><tr><td style="padding: 2px 5px;">2</td><td style="padding: 2px 5px;">5</td></tr><tr><td style="padding: 2px 5px;">3</td><td style="padding: 2px 5px;">6</td></tr></tbody></table></td><td style="vertical-align:top; padding: 5px;"></td></tr><tr><td colspan="2"></td></tr></tbody></table></th></tr></thead><tbody><tr><td colspan="2">DATE : 396. 20 SEP 61</td></tr><tr><td>TO : DIRECTOR</td><td></td></tr><tr><td>FROM : JHWAVE</td><td></td></tr><tr><td>ACTION : BELL 10</td><td></td></tr><tr><td>INFO : WH 5, S/C 2</td><td></td></tr></tbody></table>
 

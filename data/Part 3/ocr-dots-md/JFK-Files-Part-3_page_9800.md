@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9800.png
-
-Convert to Markdownas they took their revolution to the streets of Chicago in 1969 during their "Days of Rage."
+as they took their revolution to the streets of Chicago in 1969 during their "Days of Rage."
 
 As the tide of crime and disruption swelled, it brought with it new and pressing problems on the domestic security scene. FBI domestic security investigations increased accordingly. There was also an immediate increase in FBI intelligence collection concerning the lawlessness and violent tactics of these emerging revolutionary elements.
 

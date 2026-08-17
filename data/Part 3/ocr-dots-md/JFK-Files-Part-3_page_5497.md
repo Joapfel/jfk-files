@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5497.png
-
-Convert to MarkdownNWC Memos & Letter
+NWC Memos & Letter
 Page 3
 
 5/4

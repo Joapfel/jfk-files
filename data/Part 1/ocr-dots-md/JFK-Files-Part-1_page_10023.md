@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10023.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3 AUG 67 IN 24956
 

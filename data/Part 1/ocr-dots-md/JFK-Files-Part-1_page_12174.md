@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12174.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="8">SECRET</td></tr><tr><td colspan="8">DATE TIME GROUP</td></tr><tr><td colspan="8">17:23:32 CTIME</td></tr><tr><td colspan="8">DIRECTOR</td></tr></table>
 

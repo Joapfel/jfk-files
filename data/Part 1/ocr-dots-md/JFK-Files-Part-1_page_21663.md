@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21663.png
-
-Convert to MarkdownABIDIAN has now stated that he arrived in Moscow in March
+ABIDIAN has now stated that he arrived in Moscow in March
 1960 with the intention that he would not employ a Soviet maid. Approxi-
 mately three months later his close association began with Myra
 KEMMER, a Department of State employee; this association continued

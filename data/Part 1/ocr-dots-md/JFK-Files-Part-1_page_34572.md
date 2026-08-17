@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34572.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SP-1687
 

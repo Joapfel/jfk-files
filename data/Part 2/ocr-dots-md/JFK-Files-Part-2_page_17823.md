@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17823.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 Memorandum
 
 TO :Mr. J. B. Adams

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21709.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Hunt. Does this satisfy your request?
 

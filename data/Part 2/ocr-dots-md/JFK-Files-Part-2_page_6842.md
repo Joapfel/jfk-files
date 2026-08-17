@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6842.png
-
-Convert to Markdown13-00000
+13-00000
 
 Serial Removal Charge Out.
 4-674 (Rev. 7-8-73)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1840.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 Chapter III (commencing at page 45. This is a second Chapter III and apparently was misnumbered.)
 

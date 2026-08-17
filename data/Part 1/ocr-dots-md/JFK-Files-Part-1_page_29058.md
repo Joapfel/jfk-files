@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29058.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 MAN: 18 JULY 67

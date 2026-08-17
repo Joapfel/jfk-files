@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34896.png
-
-Convert to Markdown---
+---
 ADMISSION OF JOSÉ A. RUIZ AND ANNEXATION OF AMERICA.
 
 <u>**The agreement is as follows between Mr. and Mrs. Sancho de la Torre:**</u>

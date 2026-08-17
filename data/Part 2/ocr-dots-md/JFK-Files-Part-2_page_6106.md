@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6106.png
-
-Convert to Markdown"Disorder in the House: The Inaccessible Record," *The Public Historian*, Summer, 1980.
+"Disorder in the House: The Inaccessible Record," *The Public Historian*, Summer, 1980.
 
 *The Records of Federal Officials*, (ed.) Garland Press, 1979.
 

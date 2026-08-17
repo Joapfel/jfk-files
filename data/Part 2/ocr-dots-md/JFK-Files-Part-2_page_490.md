@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_490.png
-
-Convert to MarkdownC.W. ANDERSON/pap
+C.W. ANDERSON/pap
 
 WH/C/CA/PA
 2975.

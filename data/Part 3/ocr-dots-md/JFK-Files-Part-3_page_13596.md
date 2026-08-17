@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13596.png
-
-Convert to MarkdownNWW 78141 Docld:32201382
+NWW 78141 Docld:32201382
 
 TOP SECRET
 

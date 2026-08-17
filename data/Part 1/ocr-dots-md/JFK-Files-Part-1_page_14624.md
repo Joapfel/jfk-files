@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14624.png
-
-Convert to Markdown1430000
+1430000
 
 From No. 2016, 23, 29, is 30 November 1969.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3266.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 senior Agency personnel -- notably C. Tracy Barnes, the ADDP/A -- began to question the Agency's relationship with Mr. William Pawley, particularly as Pawley's support for Rubio Padilla was apparently intended to establish a group of Pawley supported Cubans in exile in opposition to the FRD, the Agency's supported exile group. Barnes's concern was that if the US continued to support the extremely conservative element represented by Pawley's group, it would be charged that any anti-Castro action undertaken by the US would be "on the basis of protecting economic royalists."
 

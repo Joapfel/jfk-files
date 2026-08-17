@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14327.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>14-0006</td></tr><tr><td>CONTINUATION OF<br/>DISPATCH</td></tr></table>
 

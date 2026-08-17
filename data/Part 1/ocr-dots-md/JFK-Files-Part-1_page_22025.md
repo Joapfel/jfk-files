@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22025.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 (iii) TDY's by KOSOLAPOV on Code Clerk Cases
 

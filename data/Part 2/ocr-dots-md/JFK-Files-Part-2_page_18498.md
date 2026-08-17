@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18498.png
-
-Convert to Markdownf. What have been the identities of the agencies and the Presidential appointees who have initiated requests for warrantless electronic surveillance in such cases from 1965 to the present?
+f. What have been the identities of the agencies and the Presidential appointees who have initiated requests for warrantless electronic surveillance in such cases from 1965 to the present?
 
 g. How many such requests have been initiated by each agency and each Presidential appointee?
 

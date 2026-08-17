@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34558.png
-
-Convert to Markdown# DEFECTORS - NOSENKO
+# DEFECTORS - NOSENKO
 
 | **TAB** | **TITLE** | **DATE** |
 |---|---|---|

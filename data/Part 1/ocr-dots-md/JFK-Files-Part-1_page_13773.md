@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13773.png
-
-Convert to MarkdownEXCERPT
+EXCERPT
 
 HZPW-5835
 

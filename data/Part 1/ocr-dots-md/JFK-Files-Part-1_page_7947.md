@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7947.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 From: 
 Date: 

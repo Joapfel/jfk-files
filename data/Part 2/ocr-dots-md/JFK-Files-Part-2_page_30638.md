@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30638.png
-
-Convert to MarkdownVOLUME II, DEVELOPMENT AND PLANS.
+VOLUME II, DEVELOPMENT AND PLANS.
 
 **π** Memorandum for DD Pre:
 "Request for Renewal of

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8832.png
-
-Convert to Markdown# FIELD INFORMATION REPORT
+# FIELD INFORMATION REPORT
 
 S-Z-C-R-E-T
 NO FOREIGN DISSM

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30833.png
-
-Convert to MarkdownMay 5, 1971
+May 5, 1971
 
 Wells Fargo Bank
 400 California Street

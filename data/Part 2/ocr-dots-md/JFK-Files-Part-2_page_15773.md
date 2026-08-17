@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15773.png
-
-Convert to MarkdownThe black people, they are the elected officials of their constituency. And the constituency, which is primarily black, and they had moved to come and to find, to investigate matters, to find out what was really going on, I think. (Garbled)
+The black people, they are the elected officials of their constituency. And the constituency, which is primarily black, and they had moved to come and to find, to investigate matters, to find out what was really going on, I think. (Garbled)
 
 MARTY FAYE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11694.png
-
-Convert to Markdown# SURVEYS, PROJECTS AND/OR INTENSIFICATION PROGRAMS 4-H
+# SURVEYS, PROJECTS AND/OR INTENSIFICATION PROGRAMS 4-H
 
 SECTION CHIEF W. R. WANNALL
 NATIONALITIES INTELLIGENCE SECTION: There are attached separate write-ups regarding the following programs supervised in the Nationalities Intelligence Section:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19177.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 JGD 28 AUG. 63

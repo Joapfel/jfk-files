@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1827.png
-
-Convert to MarkdownH-602 (John Gravett)
+H-602 (John Gravett)
 MATTING LOA
 
 Operations Forward Orientation - Stage

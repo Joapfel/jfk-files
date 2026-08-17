@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25573.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 The Central Intelligence Agency has not been involved
 in any way in the resistance and dissident activities which

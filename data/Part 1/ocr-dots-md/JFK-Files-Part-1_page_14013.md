@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14013.png
-
-Convert to Markdown1. **INFORMATION OBTAINED FROM SOURCE "BELGIAN" ON 19 OCTOBER 68**
+1. **INFORMATION OBTAINED FROM SOURCE "BELGIAN" ON 19 OCTOBER 68**
    **CUBAN PERSONALITIES, 23rd UN GENERAL ASSEMBLY DELEGATION**
 
 2. **Fernando ALVAREZ Tabio.** Not pro-Communist and not really pro-CASTRO. A political rationalizer who is happy with the regime that allows him to lead his own life. Would not consider defection unless the regime changed its attitude toward him, which is not likely, according to Source.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27370.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A-JI (G)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16407.png
-
-Convert to MarkdownThe seizure of power by armed force, the settlement of the issue by war, is the central task and the highest form of revolution. This Marxist-Leninist principle of revolution holds good univer-sally, for China and for all other countries.
+The seizure of power by armed force, the settlement of the issue by war, is the central task and the highest form of revolution. This Marxist-Leninist principle of revolution holds good univer-sally, for China and for all other countries.
 
 MAO TSE-TUNG
 

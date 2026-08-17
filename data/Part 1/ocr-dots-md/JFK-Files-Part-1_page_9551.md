@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9551.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 17 February 1950
 

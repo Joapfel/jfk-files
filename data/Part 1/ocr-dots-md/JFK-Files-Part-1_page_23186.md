@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23186.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      HKHW-1847

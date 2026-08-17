@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8990.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
 
 <table><tbody><tr><td rowspan="3">DATE :<br/>317<br/>12 MAY 62</td><th colspan="2" style="text-align:center;">S E C R E T</th></tr><tr><td colspan="2"></td></tr><tr><td colspan="2"></td></tr><tr><td>TO :<br/>DIRECTOR</td><td colspan="2"></td></tr><tr><td>FROM :<br/>MEXICO CITY</td><td colspan="2"></td></tr><tr><td>ACTION :<br/>WH 8</td><td colspan="2"></td></tr><tr><td>INFO :<br/>CA 2, CA/PRG, S/C 2</td><td colspan="2"></td></tr></tbody></table>
 

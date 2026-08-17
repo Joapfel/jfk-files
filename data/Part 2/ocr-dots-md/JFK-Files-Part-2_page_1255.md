@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1255.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th>NAME OF EMPLOYEE (LAST-FIRST-MIDDLE)</th><th>DATE OF BIRTH</th><th>CASE OR CLAIM NUMBER</th></tr></thead><tbody><tr><td>SMITH, Joseph D.</td><td>unk</td><td>56-255</td></tr></tbody></table>

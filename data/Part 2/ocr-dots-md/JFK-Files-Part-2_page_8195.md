@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8195.png
-
-Convert to Markdown13-00000
+13-00000
 
 Schedule B (Form 1040) 1987 Page 2
 

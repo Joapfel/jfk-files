@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10165.png
-
-Convert to MarkdownFEB 12 1976
+FEB 12 1976
 
 DOJ
 

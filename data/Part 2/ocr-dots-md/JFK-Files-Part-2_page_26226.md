@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26226.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. Covert political operations technically require State Department clearance. In practice, however, CIA has often been able to seize the initiative in ways which reduce State's role almost to that of a rubber stamp.
 

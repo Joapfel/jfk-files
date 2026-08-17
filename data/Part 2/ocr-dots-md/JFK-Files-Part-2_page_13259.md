@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13259.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <!-- Section 6: Employment -->
     <tr>

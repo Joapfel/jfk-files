@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4839.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTERVIEWER: How about your impressions regarding support from
 the White House during the Congressional investigations?

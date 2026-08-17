@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9471.png
-
-Convert to Markdowne) Until recently a school for higher functionaries in Mecklenburg near the zone border was supplied with copies of Der Monat which were read officially as the basis for working out counter-arguments. The connection was broken by the arrest of the courier, who was carrying telegrams leaflets.
+e) Until recently a school for higher functionaries in Mecklenburg near the zone border was supplied with copies of Der Monat which were read officially as the basis for working out counter-arguments. The connection was broken by the arrest of the courier, who was carrying telegrams leaflets.
 
 2) Twenty copies are regularly supplied for distribution to and through a Volkspolizei unit in Thuringia.
 

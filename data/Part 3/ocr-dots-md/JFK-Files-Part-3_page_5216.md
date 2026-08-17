@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5216.png
-
-Convert to Markdown# PART C. TOP-ECHELON INFORMANT MATTERS
+# PART C. TOP-ECHELON INFORMANT MATTERS
 
 1. At the time of the last inspection, San Francisco had 7 top-echelon (TE) criminal informants. Of those 7, 4 were LCN members:
 

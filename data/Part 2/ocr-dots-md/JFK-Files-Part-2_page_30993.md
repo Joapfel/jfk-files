@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30993.png
-
-Convert to Markdown**Memo 12/12/63.**
+**Memo 12/12/63.**
 
 Skj: Dergabarin
 

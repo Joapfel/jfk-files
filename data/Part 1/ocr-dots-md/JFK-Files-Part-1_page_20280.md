@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20280.png
-
-Convert to MarkdownSECRET
+SECRET
 (Given or oral In)
 
 <table>

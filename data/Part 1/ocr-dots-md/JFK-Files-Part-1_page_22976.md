@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22976.png
-
-Convert to Markdown10. Cover - Operational Duties
+10. Cover - Operational Duties
 
 VAIVADA's present cover consists of being a graduate student at the University of Habana. Efforts are currently underway to obtain a new cover as representative in Habana of a well-known U.S. polling agency. Subject's duties are those of a P/A handling a rather large net of sub-agent informants in Cuban University-youth circles with emphasis on Communist and revolutionary matters. He reports directly to the Habana Station.
 

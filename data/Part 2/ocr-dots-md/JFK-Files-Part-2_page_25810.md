@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25810.png
-
-Convert to MarkdownSECRET
+SECRET
 
 period requirements from NSA became more refined and in many respects more sensitive. Because most stations are not equipped to conduct this type of operation and because of the desirability of completely centralized control over this entire effort, it was determined that Division D, which is in closest touch with NSA on procurement requirements, could best conduct the activity. The first spotting activity has now advanced far enough to justify removing from the OOA category.
 

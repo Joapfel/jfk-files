@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23889.png
-
-Convert to Markdownof Revolution I can do it in 48 hrs. Lots of people want Rev out of business. Question
+of Revolution I can do it in 48 hrs. Lots of people want Rev out of business. Question
 
 Question is where does Verges get the small sums necessary to keep going.
 He's paying at least 5 progris a day. plus the penultimate price.

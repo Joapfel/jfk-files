@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27765.png
-
-Convert to MarkdownL-1
+L-1
 
 <table>
   <tbody>

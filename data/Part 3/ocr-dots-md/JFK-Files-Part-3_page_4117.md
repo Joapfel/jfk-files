@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4117.png
-
-Convert to MarkdownG. The FBI's internal security intelligence program was used by Presidents from Franklin Roosevelt to Richard Nixon to serve their political interests, usually by collecting information on critics or political opponents.
+G. The FBI's internal security intelligence program was used by Presidents from Franklin Roosevelt to Richard Nixon to serve their political interests, usually by collecting information on critics or political opponents.
 
 H. The program was conceived and implemented in secrecy, and although parts of the program were shared with outside authorities from time to time, until now no President, Attorney General, or Congressional committee has been exposed to the entire program in detail.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10871.png
-
-Convert to Markdown# PROJECT
+# PROJECT
 
 <table><tr><td rowspan="2">PROJECT<br>XP</td><td colspan="3">DATE OF INFORMATION</td></tr><tr><td>10-13 Apr 64</td><td colspan="2"></td></tr><tr><td>SOURCE</td><td colspan="3">DATE ACQUIRED</td></tr><tr><td>LITANIL-9</td><td colspan="3">10-13 Apr 64</td></tr><tr><td></td><td colspan="3">FIELD DISTRIBUTION</td></tr><tr><td rowspan="4">SUBJECT<br>Cuban Embassy Information Bulletin</td><td>DATE</td><td colspan="2">28 May 64</td></tr><tr><td>GRADE</td><td colspan="2">B-2</td></tr><tr><td>TO</td><td colspan="2"></td></tr><tr><td colspan="3">WASH DISTRIBUTION</td></tr><tr><td></td><th>DATE</th><th>REPORTS OFFICER</th></tr><tr><td></td><th>GRADE</th><td>A.D.</td></tr><tr><td></td><th>TO</th><td>AREA</td></tr><tr><td colspan="3">COMMENTS (if any): _________________________________</td></tr></table>
 

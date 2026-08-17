@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25775.png
-
-Convert to Markdown- 12 -
+- 12 -
 
 ago, he said, "has given way to a wave of optimism that the
 Maximum Leader is no longer necessarily a permanent fixture."

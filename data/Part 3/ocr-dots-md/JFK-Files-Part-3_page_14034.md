@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14034.png
-
-Convert to Markdown<table><tr><td>206-10001-10004</td></tr></table>
+<table><tr><td>206-10001-10004</td></tr></table>
 
 MEETING OF THE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1727.png
-
-Convert to Markdown20 December 1967
+20 December 1967
 
 MEMORANDUM FOR: Chief, LEOB/GRG
 SUBJECT: December 1967 RAMPARTS Article Entitled "The CIA's ' Brown and Root Dimensions'"

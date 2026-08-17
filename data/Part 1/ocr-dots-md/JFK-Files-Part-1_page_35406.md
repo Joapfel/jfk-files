@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35406.png
-
-Convert to Markdown10 Octobor 1961
+10 Octobor 1961
 
 MEMORANDUM FOR THE RECORD
 

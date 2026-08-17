@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30421.png
-
-Convert to Markdownyou are making, let us say you adduced a number of analysts who examined this thing thoroughly and were in a position of making that kind of judgment, I would say, "I want to have these analysts talk to my analysts because I am not in a position to make that kind of judgment."
+you are making, let us say you adduced a number of analysts who examined this thing thoroughly and were in a position of making that kind of judgment, I would say, "I want to have these analysts talk to my analysts because I am not in a position to make that kind of judgment."
 
 Mr. Goldsmith. First of all, I am not making the statement that Nosenko's story on Oswald is inaccurate in any way.
 

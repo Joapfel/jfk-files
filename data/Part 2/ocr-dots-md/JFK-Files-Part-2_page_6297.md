@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6297.png
-
-Convert to Markdown# REVIEW AND DECLASSIFICATION OF THE SEQUESTERED FILES
+# REVIEW AND DECLASSIFICATION OF THE SEQUESTERED FILES
 
 In 1992, CIA wrote to Speaker of the House Thomas Foley requesting approval to begin declassifying and releasing the records. In October of that year, Mr. Foley wrote a letter to the DCI granting CIA the authority to do so. The Speaker's decision was made in anticipation of passage of the Assassination Records Collection Act.
 

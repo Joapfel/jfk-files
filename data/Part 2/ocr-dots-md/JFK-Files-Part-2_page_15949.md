@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15949.png
-
-Convert to MarkdownOn May 1, 1969, Chicago Chapter of BPP advised
+On May 1, 1969, Chicago Chapter of BPP advised
 BPP members the following ten points continue to reflect
 "What We Want - What We Believe":
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31948.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">FORM<br/>341<br/>REPLACES WD AGO FORM 341, 1 JUN 47, WHICH MAY BE USED.</td>
     </tr>

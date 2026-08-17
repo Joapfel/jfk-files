@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4009.png
-
-Convert to MarkdownAP 65-951
+AP 65-951
 
 two of his officers at a Japanese restaurant which they were
 checking in regard to well known Oriental gamblers. When

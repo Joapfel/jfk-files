@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11646.png
-
-Convert to MarkdownC
+C
 O
 P
 Y

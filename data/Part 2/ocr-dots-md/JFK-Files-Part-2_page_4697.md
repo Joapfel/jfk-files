@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4697.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: Bad in terms that the leadership had no trust in us.
 

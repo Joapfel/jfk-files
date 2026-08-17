@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22635.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In other words, if he asked you about the passage of both fissionable material and technology, did you deny wholly or in part that there had been a passage of fissionable material?
 

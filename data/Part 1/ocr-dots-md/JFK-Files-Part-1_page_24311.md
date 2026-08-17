@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24311.png
-
-Convert to MarkdownQRPHONE REPORTING
+QRPHONE REPORTING
 
 | | Cuban | AAPSO AAJA | African Liberation | War Crimes Tribunal | Anti-US | European Communism | FBI | FBI SR* | Total Dissems |
 |---|---|---|---|---|---|---|---|---|---|

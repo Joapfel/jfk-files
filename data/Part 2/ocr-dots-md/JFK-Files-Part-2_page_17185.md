@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17185.png
-
-Convert to MarkdownFor purchasing these-- the jetex fuse is used for model racing cars and can be bought at any hobby shop. The black powder can be bought at any gun shop, and is used for old muskets and flintlock pistols. CO2 cartridge at gunshop.
+For purchasing these-- the jetex fuse is used for model racing cars and can be bought at any hobby shop. The black powder can be bought at any gun shop, and is used for old muskets and flintlock pistols. CO2 cartridge at gunshop.
 
 **Directions:**
 

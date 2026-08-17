@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2234.png
-
-Convert to Markdown# DRAFT
+# DRAFT
 
 ## PROPOSED BIOGRAPHY
 

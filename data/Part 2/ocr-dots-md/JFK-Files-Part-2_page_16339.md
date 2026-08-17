@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16339.png
-
-Convert to MarkdownDERAL BUREAU OF INVESTIGA
+DERAL BUREAU OF INVESTIGA
 
 June 5, 1969
 

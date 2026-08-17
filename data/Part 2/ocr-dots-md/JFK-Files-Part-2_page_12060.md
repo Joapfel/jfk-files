@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12060.png
-
-Convert to Markdown[107F - G
+[107F - G
 
 SECTION 107. SECURITY INFORMANTS[AND CONFIDENTIAL SOURCES]
 

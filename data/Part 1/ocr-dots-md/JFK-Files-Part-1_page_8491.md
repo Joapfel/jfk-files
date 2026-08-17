@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8491.png
-
-Convert to MarkdownAnother very prominent trait of LOGINOV'S character is his extreme chauvinism, bordering on jingoism. In reference to other nationalities, LOGINOV uses such depreciatory epithets as: "Asterikachki", "Unidovka", "Nenchura", etc.
+Another very prominent trait of LOGINOV'S character is his extreme chauvinism, bordering on jingoism. In reference to other nationalities, LOGINOV uses such depreciatory epithets as: "Asterikachki", "Unidovka", "Nenchura", etc.
 
 It is doubtful if LOGINOV has any true friends. His sneering attitude is probably the reason for it. Although he made several errors in judgement in his work and social behaviour, LOGINOV by no means is a fool and should be kept in mind for any possible developments.
 

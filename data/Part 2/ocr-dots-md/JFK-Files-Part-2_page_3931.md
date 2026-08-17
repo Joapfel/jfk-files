@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3931.png
-
-Convert to Markdown28 January 1970
+28 January 1970
 
 Washington, D.C.
 

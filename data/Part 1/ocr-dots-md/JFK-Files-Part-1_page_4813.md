@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4813.png
-
-Convert to Markdownone poes se son actiendos. Fero tomada qve lo buie
+one poes se son actiendos. Fero tomada qve lo buie
 de sotay qno de lio, (o el soy. (If on, Loro
 
 parte un cuarto con los choferes de las Radiopatrillas de la Co-

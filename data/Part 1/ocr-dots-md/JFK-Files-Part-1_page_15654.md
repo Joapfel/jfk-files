@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15654.png
-
-Convert to Markdown82. Another important characteristic is his curiosity and his interest for ~~experiential~~ experience.
+82. Another important characteristic is his curiosity and his interest for ~~experiential~~ experience.
 
 83. Another interesting proclivity is Subject's tendency to assume blame for the mistakes of others even when he is not necessarily guilty. As a child he was gifted but undisciplined and an unsuitable student who couldn't concentrate and adapt to the school situation. As a result he was always in trouble but, more interestingly, he was always glad to assume responsibility for the anti-social actions of others. Whether he did this for masochistic reasons or because he wanted to obtain the approval of others for whom he sacrificed is difficult to determine. What is true, however, is that he will submit himself for punishment even though he has not done wrong. He may do this out of friendship in order to have others feel greatful to him. He has the attitude he should be punished for doing wrong, but should not be degraded for doing right. Subject has always realized that he has needed help as regards his emotional problems. He likes to be helped materially, not as and it-self (?) but because material help involves the implication of moral help. For example, a dentist in Gap offered to help Subject in his in-ventions without asking for advantages. This means a lot to Subject. He attaches small importance to money and he derives a tremendous satisfaction out of helping others or being helped.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23407.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. Since the Chief of Station has only direct contact with HUMANOID and not with the sub-agents, this project is considered as one project, the HUMANOID Project. For accounting purposes, however, the sub-agents are being handled as individual agents although under the control of the cut-out HUMANOID.
 

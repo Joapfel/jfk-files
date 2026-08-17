@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4358.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 Members of the BPP in Baltimore sell BPP newspapers, appear as speakers at high schools, colleges and rallies and distribute inflammatory literature. Members of the Baltimore BPP have been arrested for interfering with police, assault and murder of police and carrying dangerous weapons. BPP members may seize the opportunity during the trial of the BPP members in the above-mentioned murder to cause violent demonstrations.
 

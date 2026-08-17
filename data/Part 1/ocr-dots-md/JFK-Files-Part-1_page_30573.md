@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30573.png
-
-Convert to Markdown8 August 1947
+8 August 1947
 
 Dear Scotty
 

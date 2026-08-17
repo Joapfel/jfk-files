@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6893.png
-
-Convert to Markdown-2-
+-2-
 
 recent past instituted separate records procedures to safeguard their
 most sensitive documents. CIA files, for one, are compartmentalized to

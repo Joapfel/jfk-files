@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3097.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Castro to recuperate lost prestige and
 rally local and foreign sympathy and sup-

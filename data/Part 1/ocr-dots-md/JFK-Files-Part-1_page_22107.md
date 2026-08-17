@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22107.png
-
-Convert to Markdown266.
+266.
 
 outside of the acoustic rooms....The military attaches reported that most cables were drafted in longhand or typed by the originator and then turned over to the code clerks for transmission. In certain instances cables were dictated in the offices. There were many discussions in the offices relating to official duties, office routine, proposed travel, personal observations and normal office talk not specifically in themselves considered classified. From 1953 to 1959, sensitive classified matters were discussed in whispers or to the accompaniment of external noises, such as radios and-- street noises....In 1959 a secure inner room was constructed in the attache section and has since been utilized for classified discussions and debriefings...."

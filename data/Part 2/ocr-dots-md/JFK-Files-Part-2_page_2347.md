@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2347.png
-
-Convert to Markdown14-0000.
+14-0000.
 
 3. IF COURSES OF INSTRUCTION WERE COMPLETED DURING PERIOD OF THIS REPORT, LIST TITLE, LOCATION OF SCHOOL, LENGTH OF COURSE AND DATE COMPLETED.
 <table><thead><tr><th rowspan="2">C. PROFICIENCY IN<br/>POSITION LINE:</th><th colspan="3">DELEGATING</th><th colspan="3">SPECIFYING</th><th colspan="3">TERMINATING</th></tr><tr><th>YES</th><th>NO</th><th>PARTIAL</th><th>YES</th><th>NO</th><th>PARTIAL</th><th>YES</th><th>NO</th><th>PARTIAL</th></tr></thead><tbody><tr><td>SPANISH</td><td>✓</td><td></td><td></td><td></td><td>✓</td><td></td><td></td><td>✓</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>

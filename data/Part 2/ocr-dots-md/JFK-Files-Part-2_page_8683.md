@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8683.png
-
-Convert to MarkdownXAAZ 6269 (OUT 90031) 26 June 1960
+XAAZ 6269 (OUT 90031) 26 June 1960
 
 The Agency provided the above information on proposed
 abduction of VARONA to the FBI, and advised that the

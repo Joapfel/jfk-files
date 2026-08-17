@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25195.png
-
-Convert to MarkdownIII New Mugbook: new identifications.
+III New Mugbook: new identifications.
 
 #5 (FEDYANIN, Vladimir P.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2336.png
-
-Convert to MarkdownSECRET
+SECRET
 
 B. Is the claimed KGB career of NOSENKO plausible? In the past the theory has been advanced that NOSENKO was never an officer in the KGB. Information of a detailed nature from NOSENKO concerning the KGB, particularly the Second Chief Directorate, has been so extensive as to invalidate any contention that he was not a KGB officer.
 

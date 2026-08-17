@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3714.png
-
-Convert to MarkdownAsia-Africa
+Asia-Africa
 
 AREA NOTE
 

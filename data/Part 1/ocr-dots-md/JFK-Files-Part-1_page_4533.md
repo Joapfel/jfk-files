@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4533.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>TRANSMITTAL SLIP</td>

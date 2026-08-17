@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23692.png
-
-Convert to MarkdownAFTERNOON SESSION
+AFTERNOON SESSION
 
 (2:20 p.m.)
 

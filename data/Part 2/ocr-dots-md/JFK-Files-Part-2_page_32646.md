@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32646.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ANNEX E - PERU
 

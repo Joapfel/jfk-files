@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14147.png
-
-Convert to Markdown11. 8/24/60 - Castro charged the U.S. with supporting counter-revolutionaries, and stated that Cuba would be friends with the Soviets and Chinese Peoples Republic.
+11. 8/24/60 - Castro charged the U.S. with supporting counter-revolutionaries, and stated that Cuba would be friends with the Soviets and Chinese Peoples Republic.
 
 12. 11/18/60 - U.S. stated that at least 12 Soviet ships have delivered arms and ammunition to Cuba since July 1960, and that Soviet bloc arms provided to Cuba amount to at least 28,000 tons.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12025.png
-
-Convert to Markdown4-H
+4-H
 
 NATION OF ISLAM
 Budfile 25-330971

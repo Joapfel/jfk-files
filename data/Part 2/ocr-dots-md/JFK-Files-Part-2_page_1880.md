@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1880.png
-
-Convert to MarkdownFORM 103
+FORM 103
 JAN 1950 37-70C
 
 WEAR

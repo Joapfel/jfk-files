@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26578.png
-
-Convert to Markdownb. This year's harvest was clearly very bad. The weight of evidence suggests that Soviet grain stockpiles have been far drawn down this year and are not sufficient to protect the country from another poor harvest.
+b. This year's harvest was clearly very bad. The weight of evidence suggests that Soviet grain stockpiles have been far drawn down this year and are not sufficient to protect the country from another poor harvest.
 
 c. Our estimate is that total grain production each year since 1958 has been well below that year's level of 125 million tons, while the population has continued to grow.
 

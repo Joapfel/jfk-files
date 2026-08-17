@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5059.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
 
 a sensitive ongoing foreign intelligence operation; and other
 data concerning King which by prior agreement has been excluded

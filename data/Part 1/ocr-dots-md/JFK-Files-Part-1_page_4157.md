@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4157.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>W. D. SANCHEZ</td>
     <td>83</td>

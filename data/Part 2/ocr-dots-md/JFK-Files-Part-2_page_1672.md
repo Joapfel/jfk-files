@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1672.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="4">NOTIFICATION OF CHANGE OR CANCELLATION<br>OF OFFICIAL COVER BACKSTOP</th><th rowspan="2">FILE NO.</th></tr><tr><td colspan="2">CHIEF, CONTROL DIVISION, OP</td><td colspan="2">CS NUMBER</td></tr></thead><tbody><tr><td colspan="2">TO:<br>(Check)</td><td colspan="2">CHIEF, CONTRACT PERSONNEL DIVISION, OP</td><td>EMPLOYEE NUMBER</td></tr><tr><td colspan="2">CHIEF, OPERATING COMPONENT (For action)</td><td colspan="2"></td><td>T0 CARD NUMBER</td></tr><tr><td>ATTN:</td><td colspan="3"></td><td>ESTABLISHED</td></tr><tr><td>REF:</td><td colspan="3"></td><td>DISCONTINUED</td></tr><tr><td>SUBJECT</td><td colspan="3"></td><td>OFFICIAL<br>COVER</td></tr><tr><td colspan="4"></td><td>UNIT</td></tr></tbody></table>
 

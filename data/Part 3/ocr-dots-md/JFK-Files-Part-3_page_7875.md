@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7875.png
-
-Convert to MarkdownDate: __________
+Date: __________
 Caption on Folder or File: (Print) Aides Initial: __________
 
 Cabinet 4 Drawer 1

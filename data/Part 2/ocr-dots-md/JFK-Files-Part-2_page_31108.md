@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31108.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ③ 22 March 1963
 Memo. to Director, FBI, from DDP

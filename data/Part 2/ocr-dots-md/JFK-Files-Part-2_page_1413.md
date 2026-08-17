@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1413.png
-
-Convert to MarkdownSECRET
+SECRET
 
 P. H. 15 AUG 68
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20564.png
-
-Convert to MarkdownUFO 100-54927
+UFO 100-54927
 
 PAGE THREE
 

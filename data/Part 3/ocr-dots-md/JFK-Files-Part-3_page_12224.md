@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12224.png
-
-Convert to MarkdownNR002 DN PLAIN
+NR002 DN PLAIN
 
 5:15 PM URGENT 5-5-70 DCM
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14372.png
-
-Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+FRANK CHURCH, IDAHO, CHAIRMAN
 JOHN G. TOWER, TEXAS, VICE CHAIRMAN
 
 <table><tr><td colspan="2">Executive Registry</td></tr><tr><td>7-5-76</td><td></td></tr></table>

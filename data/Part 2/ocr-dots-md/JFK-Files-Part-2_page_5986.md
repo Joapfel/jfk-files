@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5986.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 GARRISON, James AIN 0 535 449 1994
 HSCA list reflects Garrision, James. CCS has no record.

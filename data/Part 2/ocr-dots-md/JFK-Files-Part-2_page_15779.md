@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15779.png
-
-Convert to Markdown# DAVID HILLIARD
+# DAVID HILLIARD
 
 ## BLACK PANTHER PARTY
 

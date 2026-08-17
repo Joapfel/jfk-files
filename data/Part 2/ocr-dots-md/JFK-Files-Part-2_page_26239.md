@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26239.png
-
-Convert to MarkdownSECRET
+SECRET
 
 For its part, CIA had developed a whole series of functions paral-
 leling already existing functions of the State Department, and of

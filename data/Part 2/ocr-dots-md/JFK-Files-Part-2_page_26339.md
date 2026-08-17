@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26339.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFICATION - DISSEMINATION CONTROLS</th></tr></thead><tbody><tr><td>SECRET<br/>(When Pilled In)</td><td>TDCS DB-3/655,517<br/>A NO DISSEM ABROAD/BACKGROUND USE ONLY</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFICATION - DISSEMINATION CONTROLS</th></tr></thead><tbody><tr><td>SECRET<br/>(When Pilled In)</td><td>TDCS DB-3/655,517<br/>A NO DISSEM ABROAD/BACKGROUND USE ONLY</td></tr></tbody></table>
 
 <table><tr><td>IN 78592</td></tr><tr><td>PAGE 4</td></tr></table>
 

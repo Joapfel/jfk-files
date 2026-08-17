@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30527.png
-
-Convert to Markdown4 August 1951
+4 August 1951
 
 Steven S. HILLER 23
 

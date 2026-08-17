@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28972.png
-
-Convert to Markdown**NAME**: S&P Ruby
+**NAME**: S&P Ruby
 **ADDRESS**:
 I.D. NO. OR SOC. SEC. NO.: 322-12-7997
 **CALENDAR YEAR 1976**

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6176.png
-
-Convert to Markdown22 September, 1935
+22 September, 1935
 
 great deal of information from its concerning the present political and economic situation in Cuba. It was not immediately available and had no connection with the documents allegedly possessed by Version. Ortega, a former newspaper columnist and member of Batista's Consultative Council, was also described by Jackson as a prolific source of information on Cuban political matters. He too was not immediately available and had no connection with the Verezon documents. In the circumstances, I told Jackson that I would defer interviews with Martínez and Ortega until some future time.
 

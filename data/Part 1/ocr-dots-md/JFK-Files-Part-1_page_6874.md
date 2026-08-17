@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6874.png
-
-Convert to MarkdownSECRET INFORMATION
+SECRET INFORMATION
 CONTINUED CONTROL
 
  Correspondence has been furnished the representative of your Bureau in Mexico City.

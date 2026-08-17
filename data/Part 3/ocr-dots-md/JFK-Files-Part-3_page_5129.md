@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5129.png
-
-Convert to Markdown## Part II -- requested for access by August 29, 1975
+## Part II -- requested for access by August 29, 1975
 
 1. Materials pertaining to the dispatch of an FBI informant to attend the World Conference on Vietnam in Stockholm, Sweden, in November 1970, and the dispatch of this informant to any other such conference(s) abroad.
 

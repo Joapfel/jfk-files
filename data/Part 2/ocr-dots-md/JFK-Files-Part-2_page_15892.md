@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15892.png
-
-Convert to MarkdownArrested: 1/12/69
+Arrested: 1/12/69
 
 Charge: Violation of Federal Firearm Act
 

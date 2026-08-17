@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26192.png
-
-Convert to MarkdownS-F-C-R-E-T
+S-F-C-R-E-T
 NO FOREIGN DISSEM
 
 Current Biographic Data on Victor RICO Galan as of

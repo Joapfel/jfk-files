@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33349.png
-
-Convert to Markdownbut even if he had, it might not have worked. To support Castro's Cuba is believed to have cost Moscow the equivalent of about $1 million a day for many years. To support a similar regime in Chile would probably have cost even more. There was never the slightest sign that Mr Allende, or anyone else in the Kremlin, was ready to accept such a burden.
+but even if he had, it might not have worked. To support Castro's Cuba is believed to have cost Moscow the equivalent of about $1 million a day for many years. To support a similar regime in Chile would probably have cost even more. There was never the slightest sign that Mr Allende, or anyone else in the Kremlin, was ready to accept such a burden.
 
 To sum up, then, it seems to me that the idea of an American conspiracy to overthrow Allende is both unproven and unnecessary to explain his downfall. I am not saying, of course, that Washington was not relieved to see him go; although I think some American officials would have preferred to see him stumble on for sometime longer in the hope that growing disillusionment would infect even his stoutest supporters and accordingly diminish the chances of his being made a martyr when nemesis finally overtook him. But in general the American attitude seems to have been a predictably cautious one:
 

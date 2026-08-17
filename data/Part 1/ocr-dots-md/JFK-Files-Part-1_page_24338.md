@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24338.png
-
-Convert to Markdownthe combination of the security factors operative in this case and the unlikelihood of Q/1's continued access to targets of interest over a prolonged period argue against his being regarded as a career asset.
+the combination of the security factors operative in this case and the unlikelihood of Q/1's continued access to targets of interest over a prolonged period argue against his being regarded as a career asset.
 
 AARON C. LAGINSTRRA
 FIELD CASE OFFICER

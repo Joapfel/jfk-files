@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7928.png
-
-Convert to Markdown13-00000
+13-00000
 
 BON-2 (RV 36-71)
 OFFICE COPY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17359.png
-
-Convert to MarkdownPRODUCTION FOR JANUARY 1953
+PRODUCTION FOR JANUARY 1953
 
 | MEXI's | HMM's | HMMA's |
 |---|---|---|

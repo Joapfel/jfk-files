@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34995.png
-
-Convert to MarkdownF AYROLL
+F AYROLL
 
 ANEX "I-F"
 Page No. 5

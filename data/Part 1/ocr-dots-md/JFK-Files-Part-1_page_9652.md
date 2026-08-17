@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9652.png
-
-Convert to MarkdownSUBJECT: LIHUFF-1
+SUBJECT: LIHUFF-1
 
 The attached explains the involvement of Subject in the circumstances surrounding the recruitment attempt and personal harassment of Soviet official A.F. COSENT (201-733422) in June, 1968.
 

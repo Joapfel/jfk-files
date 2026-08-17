@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15836.png
-
-Convert to MarkdownThe Sacramento Independent
+The Sacramento Independent
 
 14. commend that the sheriff who shot Dowell be removed from duty pending the investigation.
 

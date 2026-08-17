@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29078.png
-
-Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+C-O-N-F-I-D-E-N-T-I-A-L
 
 Covert Action Operations Seminar No. 2-73
 35 hours, full time

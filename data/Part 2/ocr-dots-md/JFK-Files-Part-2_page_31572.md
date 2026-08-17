@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31572.png
-
-Convert to MarkdownSF . 100-55462
+SF . 100-55462
 FSP:mb
 
 At approximately 11:30 AM, October 15, 1965, the VDC held a press briefing on the UCB campus, and announced that in spite of the fact that the Oakland City authorities had refused to issue a parade permit, the march from the UCB campus to OAT, 7 miles away, would begin as scheduled at 7:30 PM.

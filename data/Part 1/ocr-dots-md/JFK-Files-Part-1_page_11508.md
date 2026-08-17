@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11508.png
-
-Convert to MarkdownS E C R A T
+S E C R A T
 
 5. GONZALEZ' nickname is "El Toro" ( 'o cat) -- a nickname applied to him because of his light colored eyes. He is about 5'7" in height, has light colored skin, strong build, and has a stoop. He has a large land and a closely triangular nose. His most distinctive features are his large nostrils. He is what you might call ruffly-cheeked. When he walks he struts. Undoubtedly the Security service in Guatemala have numerous photographs of Gonzalez, as well as a more accurate physical description. The description I have given is largely from memory.
 

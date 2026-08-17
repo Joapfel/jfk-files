@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35021.png
-
-Convert to MarkdownDELEGATIONS
+DELEGATIONS
 
 1-532 "J"-H"
 Page No. 4

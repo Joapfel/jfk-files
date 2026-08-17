@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11440.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 There may have been some violence, but we're not even sure about that now." Morgan is further quoted as saying, "There is nothing basically wrong with having an informer in any organization but when these informers do more than just listen, when they instigate trouble, that's wrong." Morgan also said the FBI financed the operations of the Federally organized Klaverns.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25319.png
-
-Convert to MarkdownSECRET
+SECRET
 
 From: Mexico City
 Number of pages: 8

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14411.png
-
-Convert to MarkdownTHE WHITE HOUSE
+THE WHITE HOUSE
 WASHINGTON
 
 April 16, 1975

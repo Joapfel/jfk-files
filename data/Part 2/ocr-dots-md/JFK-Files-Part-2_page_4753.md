@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4753.png
-
-Convert to MarkdownSECRET
+SECRET
 
 forces, the people who are down there. I can't be out of action. I don't
 know what's going to happen. Maybe nothing will happen. But I can't take a

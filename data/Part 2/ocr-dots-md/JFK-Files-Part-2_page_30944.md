@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30944.png
-
-Convert to MarkdownOffice of Security - File Review
+Office of Security - File Review
 
 Carlo Bringner - no note
 

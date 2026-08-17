@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24672.png
-
-Convert to MarkdownO'Donnell said that in one of his two conversations with
+O'Donnell said that in one of his two conversations with
 Bissell about Lumumba, he raised the prospect "that conspiracy
 to commit murder being done in the District of Columbia might be
 in violation of federal law" (O'Donnell, 6/9/75, p. 14). He said

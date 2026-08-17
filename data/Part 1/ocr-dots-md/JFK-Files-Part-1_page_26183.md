@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26183.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Victor RICO Galan
 

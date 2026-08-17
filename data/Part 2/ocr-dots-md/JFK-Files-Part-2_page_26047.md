@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_26047.png
-
-Convert to Markdown-77-
+-77-
 
 LANSDALE: Yes: In some ways it was. Initially, he was unwilling to delegate any authority at all and he had the tendency to try and do everything himself. If the problem came up in agriculture, he would be the guy to do all the paper work and the deciding rather than his Minister of Agriculture and so on. He had gotten over that to a very large extent later, so he had learned to be more the administrator and executive later on, as far as putting some authority in the hands of others. But at the same time, he also seemed to have lost some of his critical faculty, in some of the things that were going wrong, of not being able to see it. He was getting around the country and visiting, but not as much anymore because of the security problems. He had been shot at several times, so that he had a larger and larger security guard around him all the time, which meant that when he went in and talked to people,

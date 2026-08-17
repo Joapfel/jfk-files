@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12322.png
-
-Convert to MarkdownMay 23, 1975
+May 23, 1975
 
 Mr. Morton H. Halperin
 122 Maryland Avenue, N. E.

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17671.png
-
 to LIPSTICK for routine office work.
 
 LIFTER and LIPSTICK, who handle Czech languages tapes for the LIPTAT Project, are included under the LIPTAT Project since the translation of the material and application of it to Czech operations are considered LIPSTICK functions. LIFTER received an operational approval on 3 July 1958 and his wife, LIPSTICK's, received one on 5 July 1958.

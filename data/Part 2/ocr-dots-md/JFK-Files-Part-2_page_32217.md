@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32217.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a split in the leadership of the regime at the national or provincial levels; and, 2) create a political base of popular opposition to the regime; and, 3) secure intelligence;
 

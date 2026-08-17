@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5277.png
-
-Convert to Markdown4. Page 00221
+4. Page 00221
 
 Item (A) is believed to be accurate and in the absence of additional detail no serious damage would be suffered by release of this information.
 

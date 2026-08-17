@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23468.png
-
-Convert to MarkdownRe:
+Re:
 
 15 January 1955
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22556.png
-
-Convert to MarkdownA. If Mr. Wiley, because of his talents and capacity as a writer-journalist and his considerable knowledge of Soviet activity throughout the world, is offered a highly remunerative job job with a major publication, news service or radio chain, Mr. Wiley (ostensibly) will sever his connection with us and go on the payroll of the organization chosen and will retain our connection on a purely personal basis.
+A. If Mr. Wiley, because of his talents and capacity as a writer-journalist and his considerable knowledge of Soviet activity throughout the world, is offered a highly remunerative job job with a major publication, news service or radio chain, Mr. Wiley (ostensibly) will sever his connection with us and go on the payroll of the organization chosen and will retain our connection on a purely personal basis.
 
 B. If Mr. Wiley does not find this situation attractive, he is to be considered for conversion to staff employee, where his considerable capabilities could be fully exploited.
 

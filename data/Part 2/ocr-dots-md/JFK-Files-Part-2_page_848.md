@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_848.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## SECTION-D - Comments of Reviewing Official (continued)
 

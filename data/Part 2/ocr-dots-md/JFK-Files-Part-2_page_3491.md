@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3491.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Handle via BYEMAN
 Control System

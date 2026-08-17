@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9057.png
-
-Convert to Markdownthis prospecting owing to budgetary limitations and a lack of spare time. Also, the other ICAP offices abroad have been too busy with their own affairs to think too much about getting business for each other.
+this prospecting owing to budgetary limitations and a lack of spare time. Also, the other ICAP offices abroad have been too busy with their own affairs to think too much about getting business for each other.
 
 As you may know, part of the original idea was that George Train would carry out this representative function with the American business community, but in the event, he developed a close relation with a Spanish bank, and devoted most of his available time to their concerns.
 

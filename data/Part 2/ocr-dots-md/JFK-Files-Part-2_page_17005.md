@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17005.png
-
-Convert to Markdown1/5/70
+1/5/70
 
 TELETYPED.
 

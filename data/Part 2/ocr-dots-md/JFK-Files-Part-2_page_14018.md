@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14018.png
-
-Convert to MarkdownAPPOINTMENT AFFIDAVITS
+APPOINTMENT AFFIDAVITS
 
 (Position to which appointed)
 

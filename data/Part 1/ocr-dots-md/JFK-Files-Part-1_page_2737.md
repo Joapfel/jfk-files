@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2737.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 ## CHAPTER VII
 ### AMERICAN EMBASSY SECTION OF AMERICAN DEPARTMENT

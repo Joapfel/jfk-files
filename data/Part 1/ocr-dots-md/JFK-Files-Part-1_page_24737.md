@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24737.png
-
-Convert to MarkdownSEC
+SEC
 
 TO: Deputy Assistant Secretary for Security
 Department of State

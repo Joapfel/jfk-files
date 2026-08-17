@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11137.png
-
-Convert to Markdown(10) [Delete a]
+(10) [Delete a]
 
 f. Establish records and informants who are students or employees of an institute, school, college, or university, but who are not reporting on any current activities other pertaining to the educational institution, may be contacted about Bureau authority. These contacts must be made away from the campus.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4803.png
-
-Convert to Markdown14-0000
+14-0000
 
 S E C R E T 2 812.962 MAR 76 STAFF
 

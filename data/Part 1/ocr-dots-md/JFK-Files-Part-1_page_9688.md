@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9688.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">CONFIDENTIAL INFORMATION</th><th>17-42<br>Routing</th></tr></thead><tbody><tr><td>SECRET</td><td>☐ INDEX<br>☑ NO INDEX<br>☐ FILE IN CS FILE NO.</td><td><table><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr></tbody></table>
 

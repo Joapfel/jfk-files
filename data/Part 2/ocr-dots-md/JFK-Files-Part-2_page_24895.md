@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24895.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 attention of the DCI, he directed that the United States
 would have no part in such activity, and this information

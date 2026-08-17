@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16628.png
-
-Convert to MarkdownThis material contains information affecting the National Defense of the United States within the meaning of the Espionage Law, Title 18, U.S.C. §§22 and 736, the translation of which in any manner to an unauthorized person is prohibited by law.
+This material contains information affecting the National Defense of the United States within the meaning of the Espionage Law, Title 18, U.S.C. §§22 and 736, the translation of which in any manner to an unauthorized person is prohibited by law.
 
 SECRET
 NO FOREIGN DISSEM

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31939.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="7">NOTIFICATION OF PERSONNEL ACTION</td></tr><tr><td colspan="3">PAS: 22 JULY 1960</td></tr><tr><th>1. Serial No.</th><th colspan="2">2. Name (Last,First,Middle)</th><th colspan="4">3. Date Of Birth<br/>4. Vol. Pref. 5. Sex</th><th>e. CS. EOD<br/>Mo. Da. Yr.</th></tr><tr><td>125658</td><td colspan="2">PICCOLO JOSEPH S</td><td>12</td><td>08</td><td>35</td><td>Nona-0<br/>5 Pt.-1<br/>10 Pt.-2</td><td>M 1</td><td>02</td><td>04</td><td>57</td></tr><tr><th rowspan="2">7. SCD<br/>Mo. Da. Yr.</th><th colspan="2">8 CSC Petmt.</th><th colspan="3">9. CSC Or Other Legal Authority</th><th rowspan="2">10 Apm Allday<br/>Code<br/>No.-2</th><th colspan="3">11 REGL<br/>19 LCD</th><th rowspan="2">13 alt Grup. Lte<br/>Code<br/>No.-2</th></tr><tr><td>Yes. 1<br/>No. -2</td><td>1</td><td>Yes.<br/>No.-2</td><td>1</td><td>Mo. Da. Yr.</td><td>Mo. Da. Yr.</td><td>Yrs.</td></tr></table>
 

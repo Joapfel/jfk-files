@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34214.png
-
-Convert to Markdown# "HARLA... UNITE! REVOLUCIONARIA" (W.R.U.L.)
+# "HARLA... UNITE! REVOLUCIONARIA" (W.R.U.L.)
 
 **November 17, 1965: "War Drums on the Sino-Soviet Border".**- On the basis of long-time difference between Red China and Russia, we agree with Vice-President Humphrey who, during a recent TV appearance, disclosed that Soviet and Chinese border гарриsons were being beefed up lately. The motto "more cannons and less butter" is becoming fashionable again, with the consequent decrease of production and increase of military budget appropriations, as well as with a decrease of foreign aid to countries such as Cuba. From this, we may conclude that Castro's situation worsens day by day. Cuba's only solution is to get rid of Castro in order that it may once again enjoy peace and prosperity.
 

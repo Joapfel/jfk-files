@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12374.png
-
-Convert to Markdown<table><tr><td>SECRET</td></tr></table>
+<table><tr><td>SECRET</td></tr></table>
 
 TO CARACAS INFO WH/MIAMI.
 

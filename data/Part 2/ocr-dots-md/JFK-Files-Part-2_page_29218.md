@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29218.png
-
-Convert to Markdown6-1-78
+6-1-78
 
 3:30 PM
 

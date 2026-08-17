@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24836.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="4"></td>
     <td colspan="2">C. E. H.</td>

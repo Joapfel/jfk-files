@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30082.png
-
-Convert to MarkdownDecember 11, 1956
+December 11, 1956
 
 # I. DUTIES AND RESPONSIBILITIES
 

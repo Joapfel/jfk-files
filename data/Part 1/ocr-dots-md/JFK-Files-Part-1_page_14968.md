@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14968.png
-
-Convert to Markdown6. REYAS COCITIDZE
+6. REYAS COCITIDZE
 
 Has new name (unknown to AEPADDLE). About 18 years old. French citizen. Well-balanced, intelligent. Was medical student in Georgia. Now is chemist. Makes ca. 80,000 france per month. Wife Nellie née MOIVANI. Has son and daughter. Lives at 53 Boul. St. Michel, Phone D'Anton 7829. Mlle Ll escapes. Strong man, 6'1", 180 lbs. Former international volleyball player. Long face, curly hair, no moustache. Never expressed any interest in active work. Loves money. Likes France.
 

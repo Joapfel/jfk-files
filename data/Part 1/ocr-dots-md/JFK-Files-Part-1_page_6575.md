@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6575.png
-
-Convert to Markdown21 June 1957
+21 June 1957
 
 FOR : Chief, Contact Division
        Alien Branch (Stetson)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3953.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. R. J. Leonard
 

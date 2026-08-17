@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8654.png
-
-Convert to MarkdownSeptember 4, 1969
+September 4, 1969
 
 Contact Report
 Subject: LJOVAN-1 (F-8903)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17606.png
-
-Convert to Markdown21 July 1958
+21 July 1958
 
 MEMORANDUM FOR THE RECORD
 

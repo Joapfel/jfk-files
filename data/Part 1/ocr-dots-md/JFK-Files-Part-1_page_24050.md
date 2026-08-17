@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24050.png
-
-Convert to Markdown②
+②
 
 HepatitisTEST showed damage of the
 lever parenchyma, if an average nature,

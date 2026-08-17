@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30490.png
-
-Convert to Markdown1-65
+1-65
 
 Mr. Goldsmith. In other words, the point I was making on the October 1st transcript, it refers back to something that happened a day or two earlier, possibly Saturday, and I wondered if Herb Minnell, when they were discussing this, came to you to discuss this matter?
 

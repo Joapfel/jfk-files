@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15312.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 ONI INTERNALIST 05500.4
 (2-7-55)

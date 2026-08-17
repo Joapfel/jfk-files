@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5316.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16 July 1968
 

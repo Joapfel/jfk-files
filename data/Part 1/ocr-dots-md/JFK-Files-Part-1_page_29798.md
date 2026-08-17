@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29798.png
-
-Convert to Markdown12-00000
+12-00000
 
 REPORING FOR: Director of Central Intelligence
 SUBJECT : Appointment of Mr. David E. Murphy as Chief of Station, Paris, France

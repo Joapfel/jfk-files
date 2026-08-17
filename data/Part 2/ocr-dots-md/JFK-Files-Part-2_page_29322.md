@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29322.png
-
-Convert to MarkdownOn or about
+On or about
 
 9/30/63
 

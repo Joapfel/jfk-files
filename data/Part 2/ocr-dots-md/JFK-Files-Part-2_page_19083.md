@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19083.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 DIRECTOR, FBI (105-28333)
 

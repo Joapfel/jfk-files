@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4113.png
-
-Convert to Markdown13-00000
+13-00000
 
 24 April 1970
 

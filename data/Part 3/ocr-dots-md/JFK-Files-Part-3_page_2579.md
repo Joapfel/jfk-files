@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2579.png
-
-Convert to Markdownf. The current office assignment of last known address of the following persons who, in 1969-1970, were employed at FBI headquarters:
+f. The current office assignment of last known address of the following persons who, in 1969-1970, were employed at FBI headquarters:
 
 (1) Joseph A. Sizoo
 

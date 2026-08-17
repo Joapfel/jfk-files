@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14473.png
-
-Convert to MarkdownMemorandum from W. A. Branigan to Mr. E. S. Miller
+Memorandum from W. A. Branigan to Mr. E. S. Miller
 RE: [BUREAU INFORMANT 200]
 
 The [Soviet Union] is currently building up the number of trade representatives who will be assigned in various areas of the United States where we normally would not have coverage. We anticipate that PROJECT HUNTER would be valuable in providing leads for any necessary coverage of these people. (5)

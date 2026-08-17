@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10005.png
-
-Convert to MarkdownThe affirmative quality, and qualifications of the subject are fully reported.
+The affirmative quality, and qualifications of the subject are fully reported.
 
 Over and above the minimum standards, the full field investigation may be tailored to obtain information in depth concerning special attributes and qualifications required for proper performance in the particular kind of position involved.
 

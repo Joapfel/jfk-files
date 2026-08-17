@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12049.png
-
-Convert to Markdown19 February 1966
+19 February 1966
 
 Date
 

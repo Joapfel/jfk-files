@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16777.png
-
-Convert to MarkdownWashington, D. C. 20537
+Washington, D. C. 20537
 
 REPORT
 of the

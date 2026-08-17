@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1964.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td>.. V to V</td><td>V to UV</td></tr><tr><td>UV to V</td><td>UV to UV</td></tr><tr><td colspan="2">REQUEST FOR PERSONNEL ACTION</td></tr><tr><td rowspan="3">1. Serial No.</td><td rowspan="3">2. Name (Last, First, Middle)</td><td rowspan="2">3. Date Of Birth</td><td rowspan="2">4. Vis. Hlsl.</td><td rowspan="2">5. Sex</td><td rowspan="4">6. CS - EOD</td><td rowspan="2">Mo</td><td rowspan="2">Do</td><td rowspan="2">Yr</td></tr><tr><td>Mo Da Yr</td></tr><tr><td>NOBL, James A.</td><td></td><td>Nona-0 5 Pt-1 10 Pt-2</td><td>0 M</td></tr><tr><td>7. SCD</td><td>8. CSC Retrn</td><td>9. CSC Or Other Legal Authority</td><td>10. Acnt. Affld.</td><td>11. FEGLI</td><td>12. LCD</td><td>13. Mlb. Home Cred LGR</td></tr><tr><td>Mo</td><td>Da</td><td>Yr</td><td>Yes - 1 No - 2</td><td>Code</td><td>Mo</td><td>Da</td><td>Yr</td><td>Yes - 1 No - 2</td><td>Code</td></tr></table>

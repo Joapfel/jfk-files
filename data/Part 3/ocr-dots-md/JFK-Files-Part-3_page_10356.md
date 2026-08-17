@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10356.png
-
-Convert to MarkdownMails of the types of material reported under item 1:
+Mails of the types of material reported under item 1:
 
 - K. Studies in Subversion and FBI Jurisdiction which were prepared for Director Gray. See Hearings Before the Committee on the Judiciary, United States Senate, Ninety-Third Congress (First Session) on the Nomination of Louis Patrick Gray III, of Connecticut, to be Director, Federal Funds as Investigated
 

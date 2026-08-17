@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19623.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="10">SECRET<br/>(Whe 1st ind In)</td>

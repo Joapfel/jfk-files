@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3831.png
-
-Convert to MarkdownChicago Field Office
+Chicago Field Office
 18 April 1969
 
 MEMORANDUM FOR: Headquarters

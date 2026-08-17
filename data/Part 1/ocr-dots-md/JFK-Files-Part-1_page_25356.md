@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25356.png
-
-Convert to MarkdownP. 5-6 Nikolai LEONOV, "collaborator", and his wife, Valeria LEKOVA arrived at Veracruz aboard an Italian vessel 11 July 1953. Forwarded with this report are copies of photos of the subjects taken by LIVESTOCK. LECN/O's were met at Veracruz by Alexander BELIAKOV.
+P. 5-6 Nikolai LEONOV, "collaborator", and his wife, Valeria LEKOVA arrived at Veracruz aboard an Italian vessel 11 July 1953. Forwarded with this report are copies of photos of the subjects taken by LIVESTOCK. LECN/O's were met at Veracruz by Alexander BELIAKOV.
 
 P.10' Nikolai Sergeevich LEOMOV and his wife, Valeria Ivanova, LEKOVA arrived at Veracruz by ship 11 July 1953. Forwarded with this report are the following pertinent photographs taken by LIVESTOCK,
 

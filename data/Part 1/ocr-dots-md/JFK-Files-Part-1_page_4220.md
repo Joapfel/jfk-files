@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4220.png
-
-Convert to Markdown18 December 1965
+18 December 1965
 
 MEMORANDUM FOR: Deputy Chief, VHD for Cuba
 SUBJECT: Status of AMCIVIC - AMBIDDY-1

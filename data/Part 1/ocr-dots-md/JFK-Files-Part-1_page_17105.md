@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17105.png
-
-Convert to Markdown14-0000
+14-0000
 
 # MEMORANDUM FOR: Assistant Deputy Director for Plans
 THROUGH: DDP/PG

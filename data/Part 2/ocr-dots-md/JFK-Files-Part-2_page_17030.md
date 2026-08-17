@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17030.png
-
-Convert to MarkdownSUBPOENAS HAVE BEEN ISSUED BY THE WILL OF THE PEOPLE
+SUBPOENAS HAVE BEEN ISSUED BY THE WILL OF THE PEOPLE
 
 Fred Hampton and Mark Clark were murdered by State's Attorney Hanrahan and his cohorts. These two murderous hoodlums used the old Klu Klux Klan tactic of killing a few niggers to keep the rest in line.
 

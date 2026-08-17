@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7887.png
-
-Convert to Markdown13-00000
+13-00000
 
 Memorandum to Mr. DeLoach
 RE: MURKIN

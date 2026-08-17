@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22590.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE</td><td>OCT. 08/DLD.</td></tr><tr><td>TO</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>HAVANA</td></tr><tr><td>ACTION:</td><td>WH 6 (MR. EVANS, MH ISSUED TO COPY 2330, 1 JAN)</td></tr><tr><td>INFO</td><td>S/C 2</td></tr></table>
 

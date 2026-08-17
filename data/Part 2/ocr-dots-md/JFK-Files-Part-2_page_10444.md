@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10444.png
-
-Convert to MarkdownSECRET
+SECRET
 
 agency material for nearly three decades without problems. Recently, however, the Office of General Counsel has ruled that an "Official Use Only" caveat will not bar such material from the general public under the Freedom of Information Law and we are accordingly looking into alternative measures, among which are: (1) the purchase of news services with rights to publish and disseminate; and (2) the classification of those items vital to the government's business which we must continue to monitor and report. An ultimate decision will be weighed against the risk of present procedures.
 

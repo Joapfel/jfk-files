@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19253.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="10">SECTION VIII</th></tr><tr><th rowspan="3"></th><th colspan="9">FOREIGN LANGUAGE ABILITIES</th><th rowspan="2">NOW ACQUIRED</th></tr><tr><th colspan="4">COMPLIANCE - IN ORDER LISTED</th><th rowspan="2">R - READ • W - WRITE S • SPAN</th><th colspan="5"></th></tr><tr><th>LANGUAGE</th><th>EQUIVALENT TO<br>NATIVE FLUENCY</th><th>FLUENT BUT<br>CRITICALLY FOREIGN</th><th>ADEQUATE FOR RESEARCH</th><th>ADEQUATE FOR TRAVEL</th><th>LIMITED KNOWLEDGE</th><th>NATIVE TO COUNTRY</th><th>PROLONGED RESIDENCE</th><th>CONTACT WITH PARENTS ETC.</th><th>ACADEMIC STUDY (ALL LEVELS)</th></tr></thead><tbody><tr><td colspan="11">(List below each language in which you possess any degree of competence. Indicate your proficiency to read, write or speak by placing a check (X) in the appropriate box.)</td></tr><tr><td colspan="11">2. IF YOU HAVE CHECKED "ACADEMIC STUDY" UNDER "NOW ACQUIRED", INDICATE LENGTH AND INTENSIVENESS OF STUDY</td></tr><tr><td colspan="11">3. DESCRIBE YOUR ABILITY TO DO SPECIALIZED LANGUAGE WORK INVOLVING VOCABULARIES AND TERMINOLOGY ON THE SCIENTIFIC, ENGINEERING, TELECOMMUNICATIONS, MILITARY OR ANY OTHER SPECIALIZED FIELD</td></tr></tbody></table>

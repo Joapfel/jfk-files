@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6497.png
-
-Convert to MarkdownXXXX ZEA
+XXXX ZEA
 
 S E C . R . E T
 

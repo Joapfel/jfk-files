@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5218.png
-
-Convert to MarkdownThe San Francisco Division has under development a total of 46 PC targets in San Francisco and RA territories. The TECIP continues to be intensified for development of additional targets and information received regarding subjects of AR, ITAR and gambling investigations, as well as information received by our informants, is carefully evaluated for possible selection of potential targets under this program.
+The San Francisco Division has under development a total of 46 PC targets in San Francisco and RA territories. The TECIP continues to be intensified for development of additional targets and information received regarding subjects of AR, ITAR and gambling investigations, as well as information received by our informants, is carefully evaluated for possible selection of potential targets under this program.
 
 2. Agents
 

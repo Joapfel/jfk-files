@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7354.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CHECK CLASS</td>
     <td>ENTION TOP AND BOTTOM</td>

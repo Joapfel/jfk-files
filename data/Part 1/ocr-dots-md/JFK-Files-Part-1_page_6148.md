@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6148.png
-
-Convert to Markdown12 December 1975
+12 December 1975
 
 MEMORANDUM FOR: Chief, Information and Privacy Staff
 

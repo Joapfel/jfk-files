@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3174.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of urgency at that point about a buildup
 in numbers than I did. I felt that I

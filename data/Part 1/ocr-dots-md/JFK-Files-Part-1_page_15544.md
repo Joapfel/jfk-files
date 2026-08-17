@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15544.png
-
-Convert to MarkdownSubject: Trip to Congo
+Subject: Trip to Congo
 
 Dear Stan,
 

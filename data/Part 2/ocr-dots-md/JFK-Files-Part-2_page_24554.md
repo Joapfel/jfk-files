@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24554.png
-
-Convert to Markdown3. Testimony of Kennedy Administration Officials
+3. Testimony of Kennedy Administration Officials
 
 In addition to examining the actual nature of the Mongoose operation (discussed above at p. __), we took considerable testimony from Kennedy Administration officials on the question of authority for a Castro assassination in the Mongoose period. Set out in the section below is the testimony of the Kennedy Administration officials principally involved in the MOngoose operation and the Special Group Augmented, all of whom testified the assassination plots were not authorized. These were McCone, the Director of CIA and a member of the Special Group Augmented; General Taylor, Chairman of the Special Group Augmented; General Lansdale, Chief of Operations for Mongoose; Special Group Augmented members Bundy and Gilpatric; Secretary of State Rusk; and Secretary of Defense McNamara. Their testimony focused on the principal issues raised by Helms, including: (1) whether any authority for a Castro assassination existed; and (2) whether they had knowledge of any Castro assassination activity.*
 

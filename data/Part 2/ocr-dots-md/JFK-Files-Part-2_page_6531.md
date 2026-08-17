@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6531.png
-
-Convert to Markdown13-00000
+13-00000
 
 (2) Consider, at a time when the criticality of the situation digrates, re-instituting the quarantine of Cuba giving as a reason evidence of the export of agents and materials of subversion by and through Cuba.
 

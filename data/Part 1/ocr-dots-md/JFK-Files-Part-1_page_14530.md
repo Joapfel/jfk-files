@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14530.png
-
-Convert to MarkdownReport No. 203.
+Report No. 203.
 
 31 Jan. 1970
 

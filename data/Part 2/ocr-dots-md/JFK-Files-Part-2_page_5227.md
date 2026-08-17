@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5227.png
-
-Convert to Markdownreleased at that time.
+released at that time.
 
 Although not mentioned as an option in your letter, I would like to be permitted to review the documents containing my name which you are being obliged to release. When I retired, I gave up all links with former sources. One of these popped up in the New York Times last week. Some others may still be alive, and in need of protection, although as I recall, none had any useful data concerning the assassination. If the sources are to be exposed, I feel very strongly that they are entitled to all the protection we can afford them. I will be in the Washington D.C. area in November 1997, and would be willing to review these documents.
 

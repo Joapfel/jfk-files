@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9195.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16 April 1951
 

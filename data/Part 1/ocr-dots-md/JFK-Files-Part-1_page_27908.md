@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27908.png
-
-Convert to MarkdownS-F-C-R-T
+S-F-C-R-T
 
 | | FAIL | POOR | LOW MID HIGH SAT | LOW MID HIGH SAT | EXC | SUP |
 | :--- | :---: | :---: | :---: | :---: | :---: | :---: |

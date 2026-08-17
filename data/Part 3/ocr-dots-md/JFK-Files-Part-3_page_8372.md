@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8372.png
-
-Convert to Markdown<table><tr><td>Assoc. Dir.</td></tr><tr><td>Dep.-A.D.-Adm.</td></tr><tr><td>Dep.-A.D.-Inv.</td></tr><tr><td>Asst. Dir.:</td></tr><tr><td>Admin.</td></tr><tr><td>Comp. Syst.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Files & Com.</td></tr><tr><td>Gen. Inv.</td></tr><tr><td>Ident.</td></tr><tr><td>Inspection</td></tr><tr><td>Industry/Technical</td></tr><tr><td>Laboratory</td></tr><tr><td>Plan. & Eval.</td></tr><tr><td>Spec. Inv.</td></tr><tr><td>Training</td></tr><tr><td>Legal Coun.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director Sec'y</td></tr></table>
+<table><tr><td>Assoc. Dir.</td></tr><tr><td>Dep.-A.D.-Adm.</td></tr><tr><td>Dep.-A.D.-Inv.</td></tr><tr><td>Asst. Dir.:</td></tr><tr><td>Admin.</td></tr><tr><td>Comp. Syst.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Files & Com.</td></tr><tr><td>Gen. Inv.</td></tr><tr><td>Ident.</td></tr><tr><td>Inspection</td></tr><tr><td>Industry/Technical</td></tr><tr><td>Laboratory</td></tr><tr><td>Plan. & Eval.</td></tr><tr><td>Spec. Inv.</td></tr><tr><td>Training</td></tr><tr><td>Legal Coun.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director Sec'y</td></tr></table>
 
 RE: FEDERAL BUREAU OF INVESTIGATION
 COMMUNICATIONS SECTION

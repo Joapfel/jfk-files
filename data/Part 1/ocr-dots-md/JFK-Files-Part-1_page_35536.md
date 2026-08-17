@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35536.png
-
-Convert to MarkdownSECOND REQUEST
+SECOND REQUEST
 
 BERNARD L. KAPPALMAN
 

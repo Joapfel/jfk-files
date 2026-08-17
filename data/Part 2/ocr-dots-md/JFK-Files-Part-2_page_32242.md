@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32242.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9. Producing comprehensive intelligence related to the above objectives.
 

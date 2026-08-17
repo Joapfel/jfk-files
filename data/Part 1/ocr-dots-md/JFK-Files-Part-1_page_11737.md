@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11737.png
-
-Convert to Markdown# Creills LANACION EL MERCURIO
+# Creills LANACION EL MERCURIO
 
 GUILTY CROSS
 

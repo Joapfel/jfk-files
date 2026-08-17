@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26902.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4">Your Current Position / Starting Salary</th>

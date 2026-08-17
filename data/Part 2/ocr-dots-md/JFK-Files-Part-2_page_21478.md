@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21478.png
-
-Convert to MarkdownSECRET
+SECRET
 
 I - Maison
 I - Mr. Krupinsky

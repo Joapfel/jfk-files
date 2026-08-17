@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29774.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">SECTION A. CIRCUMSTANCES OF DEATH</th></tr></thead><tbody><tr><td>1. IF DIED OUTSIDE U.S., DATE OF ENTRY</td><td>13. PLACE OF ENTRY</td></tr><tr><td>Ale</td><td>9. DATE OF DECEASEMENT (if known)</td></tr><tr><td>18. FORMER CITIZENSHIP (Country):</td><td>17. DATE OF U.S. CITIZENSHIP ACQUIRED</td></tr><tr><td>AU</td><td>NY</td></tr><tr><td>19. OCCUPATION</td><td>20. PRESENT EMPLOYER (State) and former employer, if any, and date of separation or last employment (if employed at the time of death)</td></tr><tr><td>Housenle</td><td>AJ</td></tr><tr><td>21. EMPLOYER'S OR BUSINESS ADDRESS (Name, Title, State, Country)</td><td>22. COUNTRY WITH WHICH MILITARY SERVICE AFFILIATED</td></tr><tr><td>AU</td><td>NA</td></tr><tr><td>23. BRANCH OF SERVICE</td><td></td></tr><tr><td>AJ</td><td>NA</td></tr><tr><td>25. DETAILS OF OTHER GOVERNMENT SERVICE (U.S. OR FOREIGN)</td><td></td></tr><tr><td>NA</td><td></td></tr></tbody></table>
 

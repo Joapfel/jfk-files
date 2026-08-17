@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4453.png
-
-Convert to MarkdownMemo Donahoe to Belmont
+Memo Donahoe to Belmont
 RE: UNITED ARAB REPUBLIC REACTION TO
 SPEECH OF SENATOR JOHN KENNEDY
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13013.png
-
-Convert to Markdownbringing its own axe to grind, such organizations
+bringing its own axe to grind, such organizations
 as the anarchist New Left group named Students
 for a Democratic Society; the Trotskyist Socialist
 Workers Party and its youth group, the Young

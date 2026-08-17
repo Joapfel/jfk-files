@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35374.png
-
-Convert to Markdown" GARCIA AND PAULA"
+" GARCIA AND PAULA"
 
 TRUST ACCOUNT
 

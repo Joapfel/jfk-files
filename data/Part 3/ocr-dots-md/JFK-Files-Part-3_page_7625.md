@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7625.png
-
-Convert to MarkdownADDENDUM OF W. M. FELT
+ADDENDUM OF W. M. FELT
 
 12-6-72 WMF:crt
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5480.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Memo to JFK Assassination Records Review Board
 

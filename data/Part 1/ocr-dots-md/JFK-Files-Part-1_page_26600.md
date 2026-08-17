@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26600.png
-
-Convert to Markdown# Victor Rico Gallegos membership in the following organizations
+# Victor Rico Gallegos membership in the following organizations
 
 FII - members subscribe to an active campaign to out U.S. business interests from Mexico and all Latin America, and to fight against U.S. interests and influence in Mexico and throughout Latin America. Members support the Cuban revolution, the Mexican Government's policy of non-intervention and auto-determination and pledge themselves to participate in activities which will bring greater economic, personal and social freedom to the people of Mexico.
 

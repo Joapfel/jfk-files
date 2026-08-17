@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10179.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>TO</td>
     <td>MEXI</td>

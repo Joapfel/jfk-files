@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9297.png
-
-Convert to MarkdownSECRET
+SECRET
 
 While the following is not pertinent to your request, my review
 of this case suggests the advisability of a re-examination of Riha's

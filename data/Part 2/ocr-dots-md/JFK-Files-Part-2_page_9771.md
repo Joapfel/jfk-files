@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9771.png
-
-Convert to MarkdownDate: July 2, 1953
+Date: July 2, 1953
 
 To: Mr. James E. Hatcher
 Chief, Investigations Division

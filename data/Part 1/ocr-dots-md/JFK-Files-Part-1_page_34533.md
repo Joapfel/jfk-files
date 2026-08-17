@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34533.png
-
-Convert to MarkdownAdditional information on Visas
+Additional information on Visas
 
 QUESTION: I could like to see an article about Intourist services, prices, etc. (L. C. Krause, Minneapolis, Minnesota; M. Suparoff, Boston, Massachusetts; and many other readers)
 

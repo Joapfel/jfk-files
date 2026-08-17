@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28620.png
-
-Convert to MarkdownUnited States Marine Corps
+United States Marine Corps
 
 Certificate of
 Honorable and Satisfactory Service

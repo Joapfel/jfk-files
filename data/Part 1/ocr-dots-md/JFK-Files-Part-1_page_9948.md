@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9948.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CITE DIRECTOR 28757
 

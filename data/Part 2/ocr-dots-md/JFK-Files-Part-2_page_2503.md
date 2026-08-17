@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2503.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5 oct
 1979

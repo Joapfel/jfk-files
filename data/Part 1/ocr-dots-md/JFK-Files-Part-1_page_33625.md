@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33625.png
-
-Convert to Markdownof their countries, and therefore the day when they can once
+of their countries, and therefore the day when they can once
 again start legitimate and real party rivalry to appeal to
 a free electorate?
 

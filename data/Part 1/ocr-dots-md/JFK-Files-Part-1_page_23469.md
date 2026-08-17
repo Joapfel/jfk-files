@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23469.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Arthur G. Valvada
 Dear Mr. Valvada:

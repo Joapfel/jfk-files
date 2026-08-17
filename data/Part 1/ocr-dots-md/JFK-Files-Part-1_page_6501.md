@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6501.png
-
-Convert to MarkdownSECRE
+SECRE
 
 # Office Memorandum • UNITED STATES GOVERNMENT
 

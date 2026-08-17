@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_284.png
-
-Convert to Markdown1. AMBLEAK-1
+1. AMBLEAK-1
 2. TYPIC
 3. AMPANIC-2
 4. AMPORT

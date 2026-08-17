@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8881.png
-
-Convert to Markdown<table><tr><td>104-10529-10277</td></tr></table>
+<table><tr><td>104-10529-10277</td></tr></table>
 
 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
 

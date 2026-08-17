@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29195.png
-
-Convert to MarkdownD-1040-ES
+D-1040-ES
 
 CITY OF DETROIT DECLARATION OF ESTIMATED INCOME TAX
 For Calendar Year 1975 or Fiscal Year Ending 1975

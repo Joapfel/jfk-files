@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23352.png
-
-Convert to MarkdownMrs. Argentina C. Crozier
+Mrs. Argentina C. Crozier
 
 A-11 937 507
 

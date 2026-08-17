@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21931.png
-
-Convert to MarkdownB. Entry into the KGB
+B. Entry into the KGB
 
 NOSENKO has provided a wide range of dates for his entry
 on duty with the KGB and has offered disparate descriptions of

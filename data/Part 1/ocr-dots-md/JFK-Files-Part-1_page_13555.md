@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13555.png
-
-Convert to Markdown14:36 Desde Cuba, el nuevo Embajador ROCKLAND manifestó a su espada CLADIS, quien junto con la hija de antos ya se encuentra en México, que para el día 30 estará aquí. CLADIS a su vez le dio queacyj que se recibieron las órdenes de tradición de ROCKLAND Y de LUIS HUMBERTO SANCHEZ, y que ésta última quiera saber a dónde la trasciella, para llevar ropa adicional; quiere saber si la van a mandar u Rúña. ROCKLAND lavyllará de cara que eso no se sabía. (286) Copy 8/7
+14:36 Desde Cuba, el nuevo Embajador ROCKLAND manifestó a su espada CLADIS, quien junto con la hija de antos ya se encuentra en México, que para el día 30 estará aquí. CLADIS a su vez le dio queacyj que se recibieron las órdenes de tradición de ROCKLAND Y de LUIS HUMBERTO SANCHEZ, y que ésta última quiera saber a dónde la trasciella, para llevar ropa adicional; quiere saber si la van a mandar u Rúña. ROCKLAND lavyllará de cara que eso no se sabía. (286) Copy 8/7
 
 lunes, 23 apr. 62
 

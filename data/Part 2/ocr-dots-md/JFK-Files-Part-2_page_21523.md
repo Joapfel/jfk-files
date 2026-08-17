@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21523.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 operation and then move on?
 

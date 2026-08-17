@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18171.png
-
-Convert to Markdownreturned Jaffee's call I listened to him for about five
+returned Jaffee's call I listened to him for about five
 to ten minutes repeatedly telling me how the FBI or CIA
 or some individual had furnished information to ABC-TV
 which cost him his job. Jaffee would not listen to me

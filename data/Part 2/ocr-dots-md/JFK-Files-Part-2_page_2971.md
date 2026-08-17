@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2971.png
-
-Convert to Markdownthe WH Division budget.
+the WH Division budget.
 
 Probably Castro's attempt to export his revo-
 lution reached its peak in 1962. The first Castro-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29521.png
-
-Convert to MarkdownCIA INTERNAL USE ONLY
+CIA INTERNAL USE ONLY
 
 8 May 1962
 

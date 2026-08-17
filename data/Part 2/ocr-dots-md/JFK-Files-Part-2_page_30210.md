@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30210.png
-
-Convert to MarkdownAdmiral Stansfield Turner OCR
+Admiral Stansfield Turner OCR
 
 had reviewed the investigative report provided by Turner.
 

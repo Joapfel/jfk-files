@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_3277.png
-
 to Dr. Fernando Barral in the psychiatric department of a clinic in Havana for personnel of the Ministry of the Interior. He is ignorant and illogical, constantly bragging of revolutionary experiences with Castro in the mountains. Age 35-40, 5' 4", 140 pounds, black hair.</td>
             <td>201-34062</td>
             <td></td>

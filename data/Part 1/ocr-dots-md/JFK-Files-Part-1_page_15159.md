@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15159.png
-
-Convert to MarkdownFrankfurt/Nain
+Frankfurt/Nain
 31. August 1962
 
 An des

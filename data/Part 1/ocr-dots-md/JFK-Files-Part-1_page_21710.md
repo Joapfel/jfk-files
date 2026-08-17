@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21710.png
-
-Convert to Markdownof NOSENKO in Moscow at the time this pitch was made, it would appear that NOSENKO was comparatively free to go to Bulgaria because this phase of the STORSBERG operation had been completed.
+of NOSENKO in Moscow at the time this pitch was made, it would appear that NOSENKO was comparatively free to go to Bulgaria because this phase of the STORSBERG operation had been completed.
 
 As to the KEYSERS case, there is no apparent problem since it is clear that the approach to KEYSERS took place after NOSENKO returned from Bulgaria, and furthermore that the KGB probably did not become aware that KEYSERS was a homosexual, and therefore potentially vulnerable, until just before the pitch was made.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23099.png
-
-Convert to MarkdownEn el mes de marzo de 1964, se gestó otro-plan de atentado contra el Comandante en - Jefe. El principal encartado, Mario Salabarría Aguiar, elemento gansteril, mantenía - contactos con la CIA a través del agente - Dr. Bernardo Milanés López, Jefe de una -- red, quien pasó la información del plan al Centro CIA y gestionó desde España la ayuda de los apátridas Tony Varona y Juan --- Bosch, amigos de Salabarría.
+En el mes de marzo de 1964, se gestó otro-plan de atentado contra el Comandante en - Jefe. El principal encartado, Mario Salabarría Aguiar, elemento gansteril, mantenía - contactos con la CIA a través del agente - Dr. Bernardo Milanés López, Jefe de una -- red, quien pasó la información del plan al Centro CIA y gestionó desde España la ayuda de los apátridas Tony Varona y Juan --- Bosch, amigos de Salabarría.
 
 El plan consistía en instalar una ametralladora calibre 30 ó 50 en un vehículo y - aguardar la posibilidad del paso del Comandante en Jefe, para atentar contra su vida. La CIA entregó a Salabarría las armas y me-dios necesarios, incluyendo grandes sumas-de dinero.
 

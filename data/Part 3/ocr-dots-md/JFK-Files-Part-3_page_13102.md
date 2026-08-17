@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13102.png
-
-Convert to MarkdownHonorable Ronald V. Dellums
+Honorable Ronald V. Dellums
 
 As I have already indicated, the FBI does not conduct "political" investigations, nor do we conduct "political surveillances." We do, of course, have a responsibility for conducting domestic intelligence investigations authorized under legislative enactments, Presidential Directives and instructions of the Attorney General. These matters relate to espionage, sabotage, treason, sedition, and other activities involving the internal security of the United States. The policies relating to such investigations are not made on an ad hoc basis by individual Agents or individual offices, but conform with broad policy applicable to all offices.
 

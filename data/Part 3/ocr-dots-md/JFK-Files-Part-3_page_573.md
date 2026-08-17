@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_573.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 On February 14, 1966, the Richmond Office of the FBI mailed anonymous letters to six individuals who were financial contributors to the American Nazi Party (ANP), telling them to discontinue contributing to the ANP because the Federal Government would probably obtain their names and harass the contributors in the same manner the Government is harassing the ANP.
 

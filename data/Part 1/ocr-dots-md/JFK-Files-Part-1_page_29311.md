@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29311.png
-
-Convert to Markdown12 August 1971
+12 August 1971
 
 Sir:
 

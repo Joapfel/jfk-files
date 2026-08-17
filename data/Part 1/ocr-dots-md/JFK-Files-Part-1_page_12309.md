@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12309.png
-
-Convert to MarkdownSUBJECT: Cuban Exiles Involved with DEA
+SUBJECT: Cuban Exiles Involved with DEA
 
 DDO/OPS/NARCOG/NLDavis/ms
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33915.png
-
-Convert to MarkdownEXCERPTS FROM LETTERS RECEIVED IN RESPONSE TO
+EXCERPTS FROM LETTERS RECEIVED IN RESPONSE TO
 CRUSADE FOR FREEDOM'S SUGGESTION OF A PRAYER MOVEMENT
 
 (Early in March the Crusade sent letters to every house of worship in the United States, Councils of Churches, Ministerial Associations, Councils of Church Women, as well as to a few national secular organizations. Those letters urged people to offer special prayers for those whose religious freedoms have been restricted because of Communist domination. The Crusade undertook to make known to the peoples behind the Iron Curtain this movement on the part of Americans and to request their prayers for us in exchange. The quotations herein which are of a congratulatory nature to the Crusade are included not out of valuinglory, but because they tell part of the story: the acceptance by the First Estate of this proposal from a lay organization. On reflection it may be judged that only a lay organization could successfully make such a proposal.)

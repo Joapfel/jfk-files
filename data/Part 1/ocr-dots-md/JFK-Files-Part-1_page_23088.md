@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23088.png
-
-Convert to Markdowny la aprobación de los profesores, los que han de ser publicados en una revista de la Universidad. Si no se ha obtenido este favor, se Publisher shall have to pay the costs of this publication.
+y la aprobación de los profesores, los que han de ser publicados en una revista de la Universidad. Si no se ha obtenido este favor, se Publisher shall have to pay the costs of this publication.
 
 Yo llame Psicología Médica a mi libro. El primer tomo tiene 306 páginas, y cada uno de los textos va tendrá un número similar de páginas.
 

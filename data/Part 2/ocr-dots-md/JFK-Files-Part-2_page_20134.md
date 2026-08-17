@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20134.png
-
-Convert to MarkdownPAGE THREE
+PAGE THREE
 
 ADMINISTRATIVE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13996.png
-
-Convert to Markdownmember agencies of the Intelligence Community. Of the 170 recommendations, the President approved 125, disapproved 2, and temporarily deferred final action on the remainder. Of the 125 approved recommendations, implementing actions on 85 have been substantially completed. The remaining Presidential-approved recommendations deal with substantive intelligence matters warranting continued Board attention and, possibly, the submission of further Board recommendations to the President.
+member agencies of the Intelligence Community. Of the 170 recommendations, the President approved 125, disapproved 2, and temporarily deferred final action on the remainder. Of the 125 approved recommendations, implementing actions on 85 have been substantially completed. The remaining Presidential-approved recommendations deal with substantive intelligence matters warranting continued Board attention and, possibly, the submission of further Board recommendations to the President.
 
 Next Mr. Clifford cited several examples of intelligence areas of major and continuing concern to the Board. These included the following:
 

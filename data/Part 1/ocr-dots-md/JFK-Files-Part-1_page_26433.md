@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26433.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td style="vertical-align: top;"></td><td style="vertical-align: top;"><table border="1" style="width: 100%; border-collapse: collapse;">
     <tr>

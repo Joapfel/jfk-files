@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33300.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">ALL SEC DOCUMENT BY PER<br>DOCUMENT UNIT NOTIFIED</td><td>TOTAL COPIES</td><td>PURCHASED<br>REPRODUCTION BY OTHER THAN<br>ISSUING OFFICE IS PROHIBITED</td></tr><tr><td colspan="2"></td><td>SECRET</td><td></td></tr><tr><td>ISSUING OFFICE</td><td>BY AT</td><td></td><td>STAFF</td></tr><tr><td rowspan="3">ACTION UNIT<br>INFORMATION</td><td rowspan="3">RF. FILE VR.</td><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
 

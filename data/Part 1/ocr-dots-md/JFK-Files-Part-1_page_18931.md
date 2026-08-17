@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18931.png
-
-Convert to MarkdownVOUCHERED
+VOUCHERED
 
 U.S. CIVIL SERVICE COMMISSION
 

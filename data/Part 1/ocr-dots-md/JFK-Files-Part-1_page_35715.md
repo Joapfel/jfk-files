@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35715.png
-
-Convert to MarkdownSeptember 1964 to April 1965
+September 1964 to April 1965
 
 U.S. Army Element, Composite Operations
 Group Room 1B945

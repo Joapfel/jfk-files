@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15246.png
-
-Convert to MarkdownMemorandum Wannall to Sullivan
+Memorandum Wannall to Sullivan
 
 Re: TECHNICAL SURVEILLANCE COVERAGE
 OF DIPLOMATIC ESTABLISHMENTS

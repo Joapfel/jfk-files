@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20904.png
-
-Convert to Markdown1 - Mr. R.L. Pence
+1 - Mr. R.L. Pence
 
 SAC, Seattle
 

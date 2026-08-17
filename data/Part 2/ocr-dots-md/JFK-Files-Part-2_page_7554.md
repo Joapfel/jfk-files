@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7554.png
-
-Convert to Markdown**NAME:** MOSKALENKO M P
+**NAME:** MOSKALENKO M P
 
 **SPECIALIZATION:** INTERNAL MEDICINE
 

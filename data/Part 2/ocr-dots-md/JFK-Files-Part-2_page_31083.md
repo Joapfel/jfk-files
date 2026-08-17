@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31083.png
-
-Convert to MarkdownNotes sent out for sanitization that are still pending:
+Notes sent out for sanitization that are still pending:
 
 Betsy Palmer's notes on: Mexico City cable traffic, Sergio Arcacha Smith Manuel Ray y Rivero (OLC 78-1065/24, 4 May 78 - DDO)
 

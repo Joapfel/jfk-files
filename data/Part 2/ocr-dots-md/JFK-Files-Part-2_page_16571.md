@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16571.png
-
-Convert to MarkdownELECTRONIC
+ELECTRONIC
 SPECIAL
 
 TU WU

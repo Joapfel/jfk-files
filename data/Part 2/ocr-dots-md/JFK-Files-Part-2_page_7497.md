@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7497.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # MEMORANDUM FOR THE RECORD
 ## SUBJECT: DEBRIEFING OF DAVID M. WILSTED (ps)

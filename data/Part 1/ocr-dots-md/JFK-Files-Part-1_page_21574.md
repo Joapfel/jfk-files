@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21574.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NOSENKO, during his five contacts in Geneva, made many statements which in retrospect were impossible, and the investigation of which could only have raised certain questions concerning NOSENKO. The following is a list of the more obvious areas in which NOSENKO made gross exaggerations or made incorrect or impossible statements.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21806.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Sarno. Domestic Operations.
 

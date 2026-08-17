@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9328.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO. 51-10
 APR '949

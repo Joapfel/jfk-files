@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28227.png
-
-Convert to MarkdownCITY OF NEW ORLEANS
+CITY OF NEW ORLEANS
 DEPARTMENT OF POLICE
 
 P. O. Box 51480

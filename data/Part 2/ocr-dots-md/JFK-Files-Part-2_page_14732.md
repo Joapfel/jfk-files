@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14732.png
-
-Convert to Markdown# MISCELLANEOUS
+# MISCELLANEOUS
 
 ABC-TV Series "The FBI" television series, which is produced by QM Productions, in conjunction with Warner Brothers - Seven Arts, Inc., is shown over the facilities of the American Broadcasting Company Television Network. This program is completing its fourth year on the air and production plans are going forward at the present time for a fifth season. This series, which is based on actual FBI cases, has consistently occupied a strong position in the television ratings, the latest 30 Market Nielson Rating reflecting that it is the second most popular show on the air. It is estimated that the program has 26 million viewers each week.
 

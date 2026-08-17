@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17364.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th></tr></thead><tbody><tr><td>TO<br/>Chief WU Division</td><td></td><td>SECRET</td></tr><tr><td>INFO</td><td></td><td rowspan="2">DESCHRIPTED<br/>per ESM 43-49</td></tr><tr><td>FROM</td><td>Chief of Station, Mexico City</td></tr><tr><td>SUBJECT</td><td colspan="2">Monthly Activities Report for Project LIENVOY</td></tr><tr><td>ACTION REQUIRED REFERENCES</td><td colspan="2"></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16423.png
-
-Convert to MarkdownFormal Education: Not listed, but probably a graduate of the Venezuelan Military Academy.
+Formal Education: Not listed, but probably a graduate of the Venezuelan Military Academy.
 
 Language Ability: Not indicated
 

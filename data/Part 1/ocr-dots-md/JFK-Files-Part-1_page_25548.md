@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25548.png
-
-Convert to Markdown<table><tr><td>ORIG:</td><td>Jack Barry</td></tr><tr><td>JITF:</td><td>WH/1</td></tr><tr><td>DT:</td><td>6754</td></tr><tr><td>DATE:</td><td>4 November (00)</td></tr></table>
+<table><tr><td>ORIG:</td><td>Jack Barry</td></tr><tr><td>JITF:</td><td>WH/1</td></tr><tr><td>DT:</td><td>6754</td></tr><tr><td>DATE:</td><td>4 November (00)</td></tr></table>
 
 <table><thead><tr><th colspan="2">MESSAGE COPY<br/>TDE COPY: 1-3?</th><th colspan="2" rowspan="2">RATING AND/OR INITIALS - SEEN BY</th></tr><tr><td colspan="2">SECRET TO...</td></tr></thead><tbody><tr><td>1</td><td></td><td>5</td></tr><tr><td>2</td><td></td><td>0</td></tr><tr><td>3</td><td></td><td>7</td></tr><tr><td>4</td><td></td><td>8</td></tr></tbody></table>
 

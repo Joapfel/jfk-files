@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25537.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "abandon" the children. I refused to visit her lawyer with her saying I was not interested in getting divorced, whereas she said that her mind was made up and that we would have to split up.
 

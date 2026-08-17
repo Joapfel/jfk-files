@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20972.png
-
-Convert to Markdown28 May 1952
+28 May 1952
 
 MEMORANDUM FOR: AC CO
 ATTENTION:

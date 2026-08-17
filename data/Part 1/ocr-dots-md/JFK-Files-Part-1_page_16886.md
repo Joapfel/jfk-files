@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16886.png
-
-Convert to Markdown8 March 1970
+8 March 1970
 
 The following proposals were made to GERENDE on 4 March 1970 (Monday) by LIEMPTY-19's lawyer, Bernabe Jurado, through a mutual friend, Licenciado Carlos Heyu, to wit:
 

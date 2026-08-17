@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31130.png
-
-Convert to MarkdownSECRET
+SECRET
 
 working inside the Embassy and approximately four outside. Inside, with deep cover, were George P. Winters (Econ. Officer), FNIU Mahoney, FNIU Venables, and Steve Washenko (Econ. or Agric. Officer). Outside were Jean Leberman (teacher at the American B school) and three or four students, who handled orientation projects rather than operations projects.
 

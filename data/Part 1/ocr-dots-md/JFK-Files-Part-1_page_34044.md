@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34044.png
-
-Convert to MarkdownThe Miami Herald
+The Miami Herald
 
 22-A Sunday, April 23, 1967
 

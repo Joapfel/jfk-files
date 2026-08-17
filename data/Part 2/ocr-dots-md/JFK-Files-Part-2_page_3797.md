@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3797.png
-
-Convert to Markdownmet Novel again at his Plaza Tower office on Feb. 11 and the two "discussed the firebombing," five buildings within the downtown area."
+met Novel again at his Plaza Tower office on Feb. 11 and the two "discussed the firebombing," five buildings within the downtown area."
 
 At that time, according to the documents, Novel allegedly showed Grafton the equipment as well as what Novel supposedly described as "illegal wire-tapping equipment."
 

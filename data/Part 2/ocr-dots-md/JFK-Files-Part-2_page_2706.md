@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2706.png
-
-Convert to Markdown4. While consideration has been given Mr. Kent with regard to an Honor and Merit Award, it appears more appropriate that he be granted a Quality Step Increase.
+4. While consideration has been given Mr. Kent with regard to an Honor and Merit Award, it appears more appropriate that he be granted a Quality Step Increase.
 
 William V. Broe
 Chief,

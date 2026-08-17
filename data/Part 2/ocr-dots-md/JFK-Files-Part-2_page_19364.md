@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19364.png
-
-Convert to Markdown1 - R. H. Horner
+1 - R. H. Horner
 1 - M. J. Bozamus
 
 CODE

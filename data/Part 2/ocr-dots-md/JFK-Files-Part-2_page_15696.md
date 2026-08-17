@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15696.png
-
-Convert to MarkdownIV. DOCUMENTS URGING THE REVOLUTIONARY PROGRAM
+IV. DOCUMENTS URGING THE REVOLUTIONARY PROGRAM
 
 On December 19, 1969, made available a copy of the following documents distributed by the Chicago Chapter of the BPP:
 

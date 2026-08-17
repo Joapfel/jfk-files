@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13786.png
-
-Convert to Markdown14-00000
+14-00000
 
 DATE: 21 NOV, 97
 

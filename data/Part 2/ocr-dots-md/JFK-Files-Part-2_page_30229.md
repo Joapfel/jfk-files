@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30229.png
-
-Convert to MarkdownAlfred
+Alfred
 
 Blahut - not less great inside writer edge role door
 

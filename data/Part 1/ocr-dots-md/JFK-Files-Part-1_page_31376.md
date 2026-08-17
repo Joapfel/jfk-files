@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31376.png
-
-Convert to Markdown"An S". CHEN approached the Head of t
+"An S". CHEN approached the Head of t
 Dame versity Security Section, and I .met
 a list of all Chinese nationals attending the
 University. Chen represented himself as a member

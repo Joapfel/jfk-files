@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26789.png
-
-Convert to MarkdownSECRET
+SECRET
 
 400 First Street, S.E., Washington, D.C. 20004
 

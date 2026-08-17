@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31105.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ③ Palmer 8/17/78
 Dieeny Perez

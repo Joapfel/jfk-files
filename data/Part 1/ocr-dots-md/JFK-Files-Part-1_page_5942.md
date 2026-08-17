@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5942.png
-
-Convert to Markdown2
+2
 
 4. Having heard nothing from either [Stockholm] or Headquarters by 0945 hours OPIM traffic was sent in both directions telling them Germany was prepared to receive and effect immediate black evacuation of the family to the United States. In the meantime, it had been determined that IDENTITY A would be used as the security escort and Russell K. MUEHANK (AD/PI Staff) would be on standby to serve as a KIDOVE escort. This was a contingency arrangement because we lacked knowledge whether or not a KIDOVE officer from either Helsinki or Stockholm was prepared to travel with subject all the way to Washington.
 

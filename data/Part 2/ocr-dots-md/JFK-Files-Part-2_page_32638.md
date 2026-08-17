@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32638.png
-
-Convert to Markdownsouthwest of Havana. At present, no more than four shortwave transmitters are being used, but in the past as many as five have been observed on the air at the same time. These transmitters range in power from 10 to 100 kilowatts, enabling Radio Havana to be heard all over the world. Programs are being sent from studios to the transmitter site by means of microwave relays.
+southwest of Havana. At present, no more than four shortwave transmitters are being used, but in the past as many as five have been observed on the air at the same time. These transmitters range in power from 10 to 100 kilowatts, enabling Radio Havana to be heard all over the world. Programs are being sent from studios to the transmitter site by means of microwave relays.
 
 VII. Rival Forces in Latin American Subversion
 

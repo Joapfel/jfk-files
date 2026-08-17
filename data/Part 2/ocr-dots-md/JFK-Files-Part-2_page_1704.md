@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1704.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 MRT: 8 DEC 66

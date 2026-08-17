@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1796.png
-
-Convert to Markdowna. Residual TSD activities not transferred to DD/R.
+a. Residual TSD activities not transferred to DD/R.
 
 b. Preparation of "operational characteristics" for new or improved equipment desired to be developed by DD/R.
 

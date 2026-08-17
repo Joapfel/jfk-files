@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3331.png
-
-Convert to Markdown29 JUNI 1964
+29 JUNI 1964
 
 AMORLOW MEETING IN NEW ORLEANS, 24 June 1964
 SUBJECT: Adelaide PADRON y Cruz - Decision to move her to Nicaragua

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6492.png
-
-Convert to Markdown# SECTION 122. RACIAL MATTERS
+# SECTION 122. RACIAL MATTERS
 
 ## April 1 and October 1
 Memphis

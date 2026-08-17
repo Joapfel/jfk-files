@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24171.png
-
-Convert to Markdown(2) How many proprietaries have been sold, or their assets sold, to persons, or a group including persons, who had previously served as directors, officers or employees of the proprietaries?
+(2) How many proprietaries have been sold, or their assets sold, to persons, or a group including persons, who had previously served as directors, officers or employees of the proprietaries?
 
 (3) In how many instances were proprietaries sold pursuant to a written agreement, or an unwritten agreement or understanding, that the purchased proprietary, any successor entity or the parties purchasing the proprietary's assets would provide the Agency with goods, services or other assistance? In each case, indicate the nature of the business involved, whether the agreement was written or, if unwritten, the way it is reflected in Agency files, and the amounts of any specific business volume, retainers or financial support agreed to in connection with the proprietary's transfer. This request covers both firm contracts for the provision of goods and services and general agreements that the parties acquiring the proprietary or its assets would provide them, at the Agency's option, if requested to do so.
 

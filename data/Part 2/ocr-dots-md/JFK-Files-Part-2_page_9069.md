@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9069.png
-
-Convert to Markdownto cooperate on a most important subject of interest
+to cooperate on a most important subject of interest
 to both agencies. (Memorandum Sullivan to Belmont,
 October 1, 1958, re: "Request for Lecture on Communism
 by CIA,")

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11574.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 ## KLAN AND WHITE HATE GROUPS UNIT
 
 4-E

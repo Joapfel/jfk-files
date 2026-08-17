@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14614.png
-
-Convert to Markdown# SSC - REQUEST August 20, 1975
+# SSC - REQUEST August 20, 1975
 
 ## PART II #2
 

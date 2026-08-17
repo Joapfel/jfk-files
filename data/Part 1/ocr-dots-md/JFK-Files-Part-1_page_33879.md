@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33879.png
-
-Convert to Markdown10. A provision that the DIA will have veto authority over activities to be undertaken by H-5 which are contrary to other GIA or national policies. (Handwritten: as if this had been discussed at a meeting, and signed by someone else)
+10. A provision that the DIA will have veto authority over activities to be undertaken by H-5 which are contrary to other GIA or national policies. (Handwritten: as if this had been discussed at a meeting, and signed by someone else)
 
 11. A provision with respect to the termination of operations under this agreement.
 

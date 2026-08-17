@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23072.png
-
-Convert to MarkdownDr. H. Colomb
+Dr. H. Colomb
 Psychopathologie Africaine
 Centre Hospitalier de Punn
 DUGAR (Senegal)

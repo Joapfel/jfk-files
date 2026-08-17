@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_687.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 3 MEXI 7234 SECRET
 

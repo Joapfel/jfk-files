@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4805.png
-
-Convert to MarkdownNY 92-5000
+NY 92-5000
 
 3
 

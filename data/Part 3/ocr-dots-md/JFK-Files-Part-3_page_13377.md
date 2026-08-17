@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13377.png
-
-Convert to MarkdownSTURGIS: Yes, sir. Mr. Sam Jenis and myself discussed an operation that I participated in, in 1968.
+STURGIS: Yes, sir. Mr. Sam Jenis and myself discussed an operation that I participated in, in 1968.
 
 OLSEN: And when did you discuss this with Mr. Jenis?
 

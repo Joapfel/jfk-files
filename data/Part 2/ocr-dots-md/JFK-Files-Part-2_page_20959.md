@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20959.png
-
-Convert to MarkdownHO 100-12843
+HO 100-12843
 
 she wanted to come home but could not inasmuch as she
 could not get along with her parents.

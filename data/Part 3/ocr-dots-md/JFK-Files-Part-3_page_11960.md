@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11960.png
-
-Convert to MarkdownTHUMBNAIL SKETCH PROGRAM
+THUMBNAIL SKETCH PROGRAM
 
 4-H
 

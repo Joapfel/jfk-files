@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1015.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 On May 21, 1966, Jim Felder, UPI reporter at Montgomery, Alabama, was confidentially contacted and furnished information about the resignation, for financial reasons, of United Klans of America (UKA) Grand Dragon William Brassell. Prior to that date, there had been no local publicity in Montgomery papers and Bureau efforts were directed toward discrediting Brassell.
 

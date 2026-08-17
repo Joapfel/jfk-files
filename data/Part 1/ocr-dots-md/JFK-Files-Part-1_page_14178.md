@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14178.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>RC: CARL LINSFORD:cs<br/>INN: WH/COG/OPS<br/>AT: 1819<br/>DATE: 23 SEPTEMBER 1969</td><td><table><tr><th colspan="2">ROUTING AND/OR INITIALS - SEEN BY:</th></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table></td></tr><tr><td>FILE: SECRETARIAT DISSEMINATION</td><td><input type="checkbox"></td><td><input type="checkbox"></td><td><input type="checkbox"></td><td><input type="text" placeholder="RETURN TO"></td><td><input type="text" placeholder="BRANCH"></td><td><input type="text" placeholder="FILE BIO"></td></tr><tr><td>N: 20 MIA #:</td><td><input type="checkbox"></td><td colspan="4"></td><td></td></tr><tr><td>TO: WH8 [REDACTED]</td><td>PILC: VR. RIAN EUR6 DAP AOCI CSDC 52 CI CLOPS</td></tr><tr><td>(classification)</td><td>cylc2</td></tr><tr><td>(date and time filed)</td><td>24-19.05z Sef.09</td></tr><tr><td>(reference number)</td><td>40647</td></tr><tr><td>CITE DIRECTOR</td><td>Jula</td></tr></table>
 

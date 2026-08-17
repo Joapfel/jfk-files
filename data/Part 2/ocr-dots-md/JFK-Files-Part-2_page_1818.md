@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1818.png
-
-Convert to MarkdownORIGINAL COPY—Retain in Official Personnel Folder
+ORIGINAL COPY—Retain in Official Personnel Folder
 
 SECRET,
 

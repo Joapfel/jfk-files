@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6442.png
-
-Convert to MarkdownDirector, Central Intelligence
+Director, Central Intelligence
 
 Assistant Director for Operations
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21823.png
-
-Convert to Markdown14-0000
+14-0000
 
 b. NOSENKO'S Targets 99
 * (i) MICKELSON 100

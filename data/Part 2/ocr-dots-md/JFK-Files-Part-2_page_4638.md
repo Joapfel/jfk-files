@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4638.png
-
-Convert to MarkdownSECRET
+SECRET
 
 office on the telephone, that whole story - makes no
 sense, makes no sense at all without an assassination

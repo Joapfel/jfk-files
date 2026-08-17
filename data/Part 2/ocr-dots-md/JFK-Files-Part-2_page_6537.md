@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6537.png
-
-Convert to Markdown(3) Continue the improvement of US communications in Latin America, at high priority, to contribute to the effectiveness of the alerting system.
+(3) Continue the improvement of US communications in Latin America, at high priority, to contribute to the effectiveness of the alerting system.
 
 b. Multinational Counterinsurgency Force.
 

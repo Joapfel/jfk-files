@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31708.png
-
-Convert to MarkdownFEB 12 1953
+FEB 12 1953
 
 MEMORANDUM FOR: IO DIVISION
 SUBJECT: Attempts of Virgil POFA to Secure Employment with RFS Munich

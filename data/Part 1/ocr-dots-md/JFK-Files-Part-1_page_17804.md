@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17804.png
-
-Convert to Markdowncont.
+cont.
 
 **JUDY:** Si, ya se, aunque para uno es mejor.
 

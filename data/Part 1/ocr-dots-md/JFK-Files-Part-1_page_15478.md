@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15478.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td>DATE : 20 NOV 61</td><td><table><tbody><tr><td>SECRET</td><td>ROUTING</td></tr><tr><td>1</td><td>6/15</td><td>4</td></tr><tr><td>2</td><td>7/15</td><td>5</td></tr><tr><td>3</td><td>Feb 15</td><td>6</td></tr></tbody></table></td></tr><tr><td>TO : DIRECTOR</td><td>NOV 21 0036Z 61</td></tr><tr><td>FROM : LECPOLOVILLE</td><td>PRIORITY</td></tr><tr><td>ACTION : C/AF 3 (AF COPY SLOTTED AT 2110 20 NOV 61)</td><td>IN 25284</td></tr><tr><td>INFO : COP, C/DPD 4, C/CA, C/C1, C/FI 2, C/EE 3, C/SR 4, S/C 2</td><td>PRITY DIR GITE LEOP 2467</td></tr><tr><td>RYBAT WIROGUE</td><td>per OSU 43-43</td></tr><tr><td>REF LEOP 2443 (01/24/45) K</td><td></td></tr></tbody></table>
 

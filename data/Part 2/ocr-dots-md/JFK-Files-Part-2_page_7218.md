@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7218.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>UNCLASSIFIED</td>
     <td>CONFIDENTIAL</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23505.png
-
-Convert to Markdown(1)
+(1)
 
 Abertado 779
 San Jose, Costa Rica

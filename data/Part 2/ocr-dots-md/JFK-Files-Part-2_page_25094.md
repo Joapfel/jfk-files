@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25094.png
-
-Convert to MarkdownTOP SECRET - SENSITIVE
+TOP SECRET - SENSITIVE
 
 3. There are disadvantages to the program proposed by the study. The approval for implementation of such a concept would introduce a new dimension into cold war methods and would require a major change in national policy. There is the possibility of retaliation in the event of discovery. There is also an obvious political risk associated with this proposal. Should any credible evidence of US involvement ever be obtained, the political loss to the United States would be great. Quite apart from the propaganda impact of such discovery, the influence of the United States in international organizations such as the United Nations and the Organization of American States would be impaired seriously.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25289.png
-
-Convert to MarkdownU.S. S. Pueblo, its captain and crew, who were still in confinement at this time
+U.S. S. Pueblo, its captain and crew, who were still in confinement at this time
 
 > "We were going to threaten to sink the Communist ship and kill all the hosts. It was any ship of any country came close. It was supposed to look like a private operation, organized by American missionaries and Catholic Catholics."
 

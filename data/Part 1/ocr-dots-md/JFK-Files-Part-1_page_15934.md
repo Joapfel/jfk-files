@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15934.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>DATE : 18 MAR 63</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : FRANKFURT</td></tr><tr><td>ACTION: AF 7</td></tr><tr><td>INFO : EE 4, S/C 2</td></tr></table>
 

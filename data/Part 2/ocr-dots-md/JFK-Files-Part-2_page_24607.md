@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24607.png
-
-Convert to Markdownd. The Question of Authorization in the Johnson Administration
+d. The Question of Authorization in the Johnson Administration
 
 1. Summary of the Assassination Activity. As discussed above (see pp. ), the Agency delivered arms to AM/LASH in Cuba in March and June 1964. In early 1965 after AM/LASH became more insistent that a Castro assassination was neces- sary and had asked for a silenced weapon, the Agency put AM/LASH in contact with the leader of an anti-Castro group, B-1, with the intention that AM/LASH obtain such a weapon. Thereafter, the Agency learned that AM/LASH had received a silencer and other special equipment from B-1 and was preparing to assassinate Castro.
 

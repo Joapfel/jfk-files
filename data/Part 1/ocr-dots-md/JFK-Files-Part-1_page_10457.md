@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10457.png
-
-Convert to Markdown# D-O-M-I-D-B-H-L-A
+# D-O-M-I-D-B-H-L-A
 
 -3-
 

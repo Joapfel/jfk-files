@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11801.png
-
-Convert to Markdown# Memorandum C.D. Brenna to W. C. Sullivan
+# Memorandum C.D. Brenna to W. C. Sullivan
 Re: ABSTRACT OF PERSONNEL DOMESTIC INTELLIGENCE DIVISION (DID)
 
 may feel the facts presented by Wannall are such to outweigh all other considerations. I feel it would be well for Mr. Felt to consider this request in conjunction with the manpower adjustment survey he is to initiate and I will be guided accordingly.

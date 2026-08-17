@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28775.png
-
-Convert to Markdown<html><body><table><thead><tr><td>1. NAME (CAPTIONED ON THE Left)</td><td>2. POSITION</td></tr></thead><tbody><tr><td>SHAW, ROBERT T.</td><td>MJR. SHAW</td></tr><tr><td>FAR LEFT IS WIDELY IDENTIFIED AS PERSON</td><td>POSITION IS NOT SPECIFIED IN THE EXTRACTED RECORD</td></tr></tbody></table></body></html>
+<html><body><table><thead><tr><td>1. NAME (CAPTIONED ON THE Left)</td><td>2. POSITION</td></tr></thead><tbody><tr><td>SHAW, ROBERT T.</td><td>MJR. SHAW</td></tr><tr><td>FAR LEFT IS WIDELY IDENTIFIED AS PERSON</td><td>POSITION IS NOT SPECIFIED IN THE EXTRACTED RECORD</td></tr></tbody></table></body></html>
 
 <table>
    <tr>

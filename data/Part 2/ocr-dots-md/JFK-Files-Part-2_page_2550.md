@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2550.png
-
-Convert to MarkdownMr. Bruce A. BERTOTALLY
+Mr. Bruce A. BERTOTALLY
 
 Dear Mr. Bertotally:
 

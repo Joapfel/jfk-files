@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25967.png
-
-Convert to MarkdownSECRET - EYES ONL
+SECRET - EYES ONL
 
 retention. Mr. Gilpatrick noted the very close relationship between his office and the Agency and felt that he could obtain all the information he needed without receiving a copy of the minutes. Mr. Dullen suggested that because of the sensitivity of these records and because some of the references contained therein involved the use of pseudonyms, the need of the Group might be satisfied by having copies of the minutes of each meeting used as available at the subsequent meeting for approval. Messrs. Bundy and Dungan agreed to the submission of the minutes for approval at a subsequent meeting but stated that they might have a need for a complete record immediately at hand to answer any questions put to them by higher authority.
 

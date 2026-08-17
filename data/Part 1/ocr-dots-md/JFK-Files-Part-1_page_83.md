@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_83.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHFNO: 93-4732005 SENSIND:
 

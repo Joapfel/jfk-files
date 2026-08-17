@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18446.png
-
-Convert to MarkdownThe Committee's inquiry focuses on the following specific areas:
+The Committee's inquiry focuses on the following specific areas:
 
 1. FBI Internal Security Intelligence Operations
 

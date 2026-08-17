@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7209.png
-
-Convert to MarkdownThe analytical process is the smallest of our categories of expenditure, but upon the integrity, the objectivity, and the expertise of this body of men and women rests the real fruit of the whole process--reasoned assessments of developments abroad today and in the future.
+The analytical process is the smallest of our categories of expenditure, but upon the integrity, the objectivity, and the expertise of this body of men and women rests the real fruit of the whole process--reasoned assessments of developments abroad today and in the future.
 
 An essential element of the process is the presentation of intelligence to those who make the decisions for our nation. In our society this is not restricted to the Executive but also includes the Congress and the public. As a consequence, intelligence has endeavored to bring its product to the Congress and even to the public through unclassified publications where possible, through classified testimony in executive session that is later reviewed so we can release all information that does not reveal our sources and methods, and through informal discussion with journalists and the academic community where conclusions can be debated but sources omitted.
 

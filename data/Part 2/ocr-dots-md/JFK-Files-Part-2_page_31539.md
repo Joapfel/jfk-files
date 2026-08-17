@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31539.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mfm
 
 III. MEMBERS OF THE STEERING COMMITTEE

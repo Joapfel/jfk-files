@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17934.png
-
-Convert to MarkdownMAR 26 1975
+MAR 26 1975
 
 TELETYPE
 

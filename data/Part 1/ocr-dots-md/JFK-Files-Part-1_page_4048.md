@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4048.png
-
-Convert to Markdown<u>Production Potential - Shipyard</u>
+<u>Production Potential - Shipyard</u>
 
 Number of
 Shrimpboats

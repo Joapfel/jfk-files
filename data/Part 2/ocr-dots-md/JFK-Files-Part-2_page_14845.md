@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14845.png
-
-Convert to MarkdownFebruary 5, 1960
+February 5, 1960
 
 LOCAL 638
 INTERNATIONAL BROTHERHOOD OF TEAMSTERS,

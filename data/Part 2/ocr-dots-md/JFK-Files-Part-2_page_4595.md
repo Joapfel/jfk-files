@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4595.png
-
-Convert to Markdownthree categories of sensitivity for use by the Agency, by designated members of the United States intelligence community, and by authorized components of the Cuban Government-in-Exile.
+three categories of sensitivity for use by the Agency, by designated members of the United States intelligence community, and by authorized components of the Cuban Government-in-Exile.
 
 (OPS/WH)
 

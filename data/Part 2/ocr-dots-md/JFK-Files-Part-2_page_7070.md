@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7070.png
-
-Convert to Markdownk. CIA official cover.
+k. CIA official cover.
 
 i. Review Board guidelines. CIA "official cover" is a means by which a CIA officer can operate overseas in the guise of an employee of another government agency. In congressional documents, the Review Board released general information about official cover but protected specific details. With regard to executive branch documents, the CIA convinced the Review Board that, while Congress might reveal information about official cover, the executive branch does not generally reveal information about official cover because to do so would damage the national security. Thus, the Review Board sustained CIA's postponements regarding official cover in executive branch documents unless the U.S. government had previously officially disclosed the information at issue.
 

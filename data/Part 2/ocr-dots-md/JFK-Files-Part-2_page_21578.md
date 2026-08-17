@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21578.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Osborn. We had totally cooperative arrangement with the Bureau of Customs.
 

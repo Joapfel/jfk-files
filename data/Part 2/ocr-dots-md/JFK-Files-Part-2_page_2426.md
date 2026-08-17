@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2426.png
-
-Convert to Markdown14-0000
+14-0000
 
 DFN-263-75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16716.png
-
-Convert to MarkdownB/10 Parts:
+B/10 Parts:
 
 12 each SH-1 Dian & Supply Silicon rectifiers, for electric
 A 1N 1695

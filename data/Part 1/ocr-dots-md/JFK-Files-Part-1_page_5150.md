@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5150.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>DATE</td><td>TOG</td></tr></table>
 

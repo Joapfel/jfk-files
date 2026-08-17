@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32715.png
-
-Convert to Markdownthese arrangements with you." Premier Khrushchev's reply welcomed U. Thant's initiative and characterized the situation "as highly dangerous and calling for the immediate intervention by the United Nations."
+these arrangements with you." Premier Khrushchev's reply welcomed U. Thant's initiative and characterized the situation "as highly dangerous and calling for the immediate intervention by the United Nations."
 
 When the Security Council reconvened Thursday afternoon for what proved
 to be the last formal meeting on the Cuban crisis, Ambassador Stevenson

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24597.png
-
-Convert to MarkdownBundy testified, however, that one reason for getting an
+Bundy testified, however, that one reason for getting an
 estimate of this kind was to get it on record that we should
 not be "fussing" with questions of assassination and that it
 was not a sound policy. (Bundy, 7/11/75, p. 142.)

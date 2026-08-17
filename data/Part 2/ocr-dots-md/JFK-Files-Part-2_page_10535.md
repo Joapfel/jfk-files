@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10535.png
-
-Convert to MarkdownMEMORANDUM FOR: Deputy Director for Operations
+MEMORANDUM FOR: Deputy Director for Operations
 
 SUBJECT : Counter Intelligence Staff, Police Group Activities
 

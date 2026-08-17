@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6859.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CONTINUED CONTROL
 

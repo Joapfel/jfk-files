@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15912.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 The above source indicated that following the speeches, there was a presentation of "black music and black dances." There were no incidents whatsoever in connection with this program, and the Beloit College paid the BPP for appearing on this occasion.
 

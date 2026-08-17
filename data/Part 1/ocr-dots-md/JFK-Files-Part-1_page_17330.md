@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17330.png
-
-Convert to MarkdownREMOVAL SL:O
+REMOVAL SL:O
 
 DOC. SYMBOL & MENTION: HAMW-1/811
 DOC. DATE 5 Aug 63

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3183.png
-
-Convert to Markdown instances overall where that was done.
+instances overall where that was done.
 
 Senator Huddleston. Do you know of any instances or
 how many actual journalists or practitioners or regular

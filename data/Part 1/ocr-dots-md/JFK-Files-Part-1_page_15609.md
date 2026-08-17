@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15609.png
-
-Convert to Markdown earned first half of baccalaureate in electrotechnology, then expelled.
+earned first half of baccalaureate in electrotechnology, then expelled.
 
 1938-9 Paris School of Photo- Trained as cine camera operator and Movie technician. Left after 1-3/4 of 2 yr course due to outbreak of WWII in Nov. of 1939.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_994.png
-
-Convert to Markdown14-00000 DAVISON, Alexei
+14-00000 DAVISON, Alexei
 
 1. MEMO FOR THE RECORD (6 Sept 77, Russ Holmes)
 

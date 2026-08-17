@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33245.png
-
-Convert to MarkdownChief, SB Division
+Chief, SB Division
 Chief, VU Division
 
 Chief of Station, Panama City

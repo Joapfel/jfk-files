@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23238.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of Sui Generis but in that early time I suspect it
 fell down in Southern Africa but I am not absolutely sure.

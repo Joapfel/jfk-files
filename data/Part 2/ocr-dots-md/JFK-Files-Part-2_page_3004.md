@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3004.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Foreword
 

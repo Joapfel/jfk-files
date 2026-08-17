@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13966.png
-
-Convert to MarkdownSECET
+SECET
 
 23JAN M.015755
 

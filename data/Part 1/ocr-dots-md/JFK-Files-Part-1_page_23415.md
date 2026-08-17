@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23415.png
-
-Convert to MarkdownTR3-A-506
+TR3-A-506
 
 # OPERATIONAL REVIEW
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8143.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 
 Re: Senate Select Committee on Intelligence Activities
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16482.png
-
-Convert to Markdownoppressed people, then they will feel no need for revolu-
+oppressed people, then they will feel no need for revolu-
 tion or resistance. The complaint of the hypocrites that
 the Black Panther Part for Self Defense is exposing the
 people to deeper suffering is an incorrect observation.

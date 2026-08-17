@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21345.png
-
-Convert to Markdown- 22 -
+- 22 -
 
 g/4612
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3180.png
-
-Convert to Markdownaddress on Viamonte 1360, 6th Floor, Federal Capital.
+address on Viamonte 1360, 6th Floor, Federal Capital.
 
 Beginning October 22nd of this year a surveillance and shadowing service was established to determine his activities and possible contacts with ALFERIEV.
 

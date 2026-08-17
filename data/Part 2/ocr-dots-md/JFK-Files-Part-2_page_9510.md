@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9510.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 KENNY HORSTON, San Francisco EPP member, presently operating the Detroit NCCF, reported to National Headquarters, Oakland, California, that VIRON REDWINE is presently in Flint, Michigan, due to a shortage in personnel as some members operating at Flint, Michigan, had been sent to Chicago to assist.
 

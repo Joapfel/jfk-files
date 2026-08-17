@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20484.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="5">SECTION VIII GEOGRAPHIC AREA KNOWLEDGE</th></tr><tr><td rowspan="2">NAME OF REGION OR COUNTRY</td><td rowspan="2">TYPE OF SPECIALIZED KNOWLEDGE</td><td rowspan="2">DATES OF RESIDENCE, TRAVEL, ETC.</td><th colspan="4">KNOWLEDGE ACQUIRED BY</th></tr><tr><th>RESIDENCE</th><th>TRAVEL</th><th>STUDY</th><th>WORK ASSIGNMENT</th></tr></thead><tbody><tr><td>Brazil</td><td>political</td><td>1930-1948-49</td><td></td><td></td><td>X</td><td>X</td></tr><tr><td>Spain</td><td>political, costs</td><td>May 1960</td><td></td><td>X</td><td></td><td></td></tr><tr><td>Mexico</td><td>political, terrain</td><td>Dec.-June 1946</td><td>X</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

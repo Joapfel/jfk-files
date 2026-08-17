@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26679.png
-
-Convert to Markdownreal tumble and all of a sudden then Cuba started exporting.
+real tumble and all of a sudden then Cuba started exporting.
 
 It was this type of thing that obviously he was trying to build up the world price because he didn't have any money, he was so short on his exchange, and obviously we didn't want him to get the exchange. So it was those types of activities.
 

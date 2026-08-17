@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15734.png
-
-Convert to Markdown# RECTIFY THE PARTY'S STYLE OF WORK
+# RECTIFY THE PARTY'S STYLE OF WORK
 
 kind of theorists do we want? We want theorists who can, in accordance with the Marxist-Leninist stand, viewpoint and method, correctly interpret the practical problems arising in the course of history and revolution and give scientific explanations and theoretical elucidations of China's economic, political, military, cultural and other problems. Such are the theorists we want. To be a theorist of this kind, a person must have a true grasp of the essence of Marxism-Leninism, of the Marxist-Leninist stand, viewpoint and method and of the theories of Lenin and Stalin on the colonial revolution and the Chinese revolution, and he must be able to apply them in a penetrating and scientific analysis of China's practical problems and discover the laws of development of these problems. Such are the theorists we really need.
 

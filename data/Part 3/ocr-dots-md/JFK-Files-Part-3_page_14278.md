@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14278.png
-
-Convert to Markdown# Minutes of the October 9, 1962 Meeting
+# Minutes of the October 9, 1962 Meeting
 of the Special Group (Augmented)
 
 Present for this meeting were the Attorney General,

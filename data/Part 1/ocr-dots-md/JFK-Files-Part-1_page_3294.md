@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3294.png
-
-Convert to MarkdownEB-2753, Case No. 23 - 23 resp 65 (cont.)
+EB-2753, Case No. 23 - 23 resp 65 (cont.)
 
 20. If you have ever had any citizenship other than Cuban, so indicate, giving dates and other pertinent details.
 No.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22527.png
-
-Convert to MarkdownSOUTH AMERICAN TRIP - SUMMER 1965
+SOUTH AMERICAN TRIP - SUMMER 1965
 
 Notes in early July 1965 indicate Wiley was planning a trip also to South America. There is indication he was to be in Washington, D.C., for SRS consultation on 12, 13 and 14 July 1965.
 

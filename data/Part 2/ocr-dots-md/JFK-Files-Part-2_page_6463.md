@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6463.png
-
-Convert to Markdownperpetrated by the Castro regime to serve as the cause of
+perpetrated by the Castro regime to serve as the cause of
 Invasion or (b) foment a revolt within Cuba which would
 call for US military intervention.
 

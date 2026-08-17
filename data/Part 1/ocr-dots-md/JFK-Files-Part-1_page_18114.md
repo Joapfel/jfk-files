@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18114.png
-
-Convert to MarkdownNovember 1963, and we recommended that the matter be favorable
+November 1963, and we recommended that the matter be favorable
 sented. The current status disclosed little or no action has
 been taken on this matter.
 

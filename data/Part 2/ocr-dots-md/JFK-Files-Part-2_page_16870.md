@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16870.png
-
-Convert to MarkdownThe following description was obtained by
+The following description was obtained by
 observation and interrogation:
 
 Name : Lockett Phillip Bibbs

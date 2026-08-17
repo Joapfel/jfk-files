@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9583.png
-
-Convert to MarkdownSTANDARD FORM NO. 1169A
+STANDARD FORM NO. 1169A
 
 Form prescribed by Comptroller General U.S.
 Revisions and Additions No. 123.

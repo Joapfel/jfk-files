@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22545.png
-
-Convert to MarkdownSECRET-RES ONLY
+SECRET-RES ONLY
 
 please continue try get authorization for air drop of . . . arms
 . . . or import arms by [other] means. Completely negative plea

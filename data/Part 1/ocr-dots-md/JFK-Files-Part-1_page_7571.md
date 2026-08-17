@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7571.png
-
-Convert to MarkdownISAACS
+ISAACS
 
 COUNTRIES
 

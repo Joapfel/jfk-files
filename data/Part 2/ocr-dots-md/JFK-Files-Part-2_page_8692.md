@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8692.png
-
-Convert to MarkdownAMCOBRA (later AMBANTY) Operation 19-132-11
+AMCOBRA (later AMBANTY) Operation 19-132-11
 
 **WAVE 7250 (IN 57364) dated 12 November 1963**
 

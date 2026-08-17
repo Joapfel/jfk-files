@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23148.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. are you involved in?
 2. Papich probably have a feel for the scope of our activity, but whether he would have an appreciation of the kinds of specific sources, I doubt it.

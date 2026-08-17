@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14026.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>FORA<br>B-64 (43)</td>
     <td>53a</td>

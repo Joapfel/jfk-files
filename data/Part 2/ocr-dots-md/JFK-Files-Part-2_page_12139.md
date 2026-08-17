@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12139.png
-
-Convert to Markdown4. Contact potential informants personally at least once every two weeks.
+4. Contact potential informants personally at least once every two weeks.
 
 5. Advise Bureau of progress being made at least every six months. Submit letters (FD-401)concerning potential informants who are not being paid on Bureau authorization on UACB basis; include summary of information furnished during past six months and certifications regarding stability and indoctrination against disclosure. Follow form indicated under § 107L, item 3b, below, except those items concerning payments.
 

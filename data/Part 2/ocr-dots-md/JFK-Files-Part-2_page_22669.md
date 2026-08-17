@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22669.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 I was sitting in the position as to where that information
 would go, I was opposed to it. And my official position was

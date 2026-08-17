@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7751.png
-
-Convert to Markdown10.04.26 What books, if any, have you heard him mention as having read and enjoyed?
+10.04.26 What books, if any, have you heard him mention as having read and enjoyed?
 
 10.04.27 What movies, if any, have you heard him mention as having seen and enjoyed?
 

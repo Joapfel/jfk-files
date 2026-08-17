@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2988.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 ILYIN, Sergey Aleksandrovich 25
 ISAKOV, Viktor Fedorovich 366

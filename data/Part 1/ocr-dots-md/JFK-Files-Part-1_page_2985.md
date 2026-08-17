@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2985.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 BARTHELEMY, Thomas Franklin 402, 403
 BEGGS, Frank 193, 195, 197, 198

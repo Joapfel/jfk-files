@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20368.png
-
-Convert to Markdown# Women to take first step to End The War
+# Women to take first step to End The War
 
 * are you TIRED... of paying all your taxes for bullets and bombs??
 * FED UP... with fighting senseless wars??

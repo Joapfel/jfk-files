@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17447.png
-
-Convert to MarkdownRE: RACIAL TENSIONS, NORTHWESTERN
+RE: RACIAL TENSIONS, NORTHWESTERN
 UNIVERSITY, ETC.
 
 Source further advised that SDS will conduct a

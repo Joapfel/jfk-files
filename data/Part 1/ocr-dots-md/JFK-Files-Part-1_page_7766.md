@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7766.png
-
-Convert to Markdown16.07 In appearance, he looks Robust and healthy X Essentially like most people his age ______ Unhealthy ______
+16.07 In appearance, he looks Robust and healthy X Essentially like most people his age ______ Unhealthy ______
 
 16.08 Does he have A flushed face A pot belly A tendency to breathe hard with exertion Cold clammy hands A tendency to sweat to any unusual degree Foul breath ______
 

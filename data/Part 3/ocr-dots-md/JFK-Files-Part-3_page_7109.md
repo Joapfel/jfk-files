@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7109.png
-
-Convert to Markdown4. All Bureau of the Budget and OMB examiners' reports on the Agency, and all memoranda and reports provided by the Intelligence Community Staff to OMB
+4. All Bureau of the Budget and OMB examiners' reports on the Agency, and all memoranda and reports provided by the Intelligence Community Staff to OMB
 
 D. All Annual Reports of the Inspector General and all Inspector General reports for the past five years on all components of the Agency.
 

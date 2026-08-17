@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21192.png
-
-Convert to MarkdownSECRET
+SECRET
 (Non-Filled In)
 
 <table><thead><tr><th colspan="2">PERSON. SERIAL NO.</th></tr></thead><tbody><tr><td>25798</td><td>BIOGRAPHIC PROFILE (PART 2)</td></tr><tr><td colspan="2">NAME (Last, First, Middle)</td></tr><tr><td colspan="2">WILCOTT, James Earnard, Jr.</td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15279.png
-
-Convert to MarkdownSEC.
+SEC.
 
 4. Did you help JOCY? Yes.
 

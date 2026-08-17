@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1962.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 PROJECT NORFOLK
 

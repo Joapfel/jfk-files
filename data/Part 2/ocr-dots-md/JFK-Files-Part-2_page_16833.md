@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16833.png
-
-Convert to Markdown1148 PMURGENT 12-13-69.
+1148 PMURGENT 12-13-69.
 
 TO DIRECTOR
 

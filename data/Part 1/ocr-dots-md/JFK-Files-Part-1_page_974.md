@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_974.png
-
-Convert to MarkdownHSCA Chron, page 7
+HSCA Chron, page 7
 
 9 Mar 78 Blakey Request: List of Documents prior to opening LHO 201
 Statement, CIA Criteria on relationships

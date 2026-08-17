@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7476.png
-
-Convert to MarkdownSECRET
+SECRET
 NO FOREIGN DISSEH
 
 3. According to predecessor organization information, Subject was also employed as a staff writer for the Hova News Agency in Shanghai during the period 1930-1935 and was a member of the Society of Friends of the USSR and of the China League for Civil Rights.

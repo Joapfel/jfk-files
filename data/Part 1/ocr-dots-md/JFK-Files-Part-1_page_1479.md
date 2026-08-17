@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1479.png
-
-Convert to Markdown14-00000
+14-00000
 
 RETURN TO
 BACKGROUND USE ONLY

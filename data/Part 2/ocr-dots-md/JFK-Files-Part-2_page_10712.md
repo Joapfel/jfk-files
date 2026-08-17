@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10712.png
-
-Convert to Markdown14. One Sears Credit Card Number: 150057-01207-9.
+14. One Sears Credit Card Number: 150057-01207-9.
 
 15. One telephone from John 3, DAKAR for automobile insurance in the name of $278 called March 6, 1971.
 

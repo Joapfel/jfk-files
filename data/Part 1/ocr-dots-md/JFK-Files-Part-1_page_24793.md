@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24793.png
-
-Convert to MarkdownWH/6-586
+WH/6-586
 
 6 June 1967
 

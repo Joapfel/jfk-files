@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33623.png
-
-Convert to Markdowncontributed more to "inter committee controversies" than Mr. Nagy himself. Furthermore, an analysis of Mr. Nagy's definition of "occidents and reactionaries" would be extremely interesting. It might have been more accurate had he said "people who supported my government in '77 and everybody else".
+contributed more to "inter committee controversies" than Mr. Nagy himself. Furthermore, an analysis of Mr. Nagy's definition of "occidents and reactionaries" would be extremely interesting. It might have been more accurate had he said "people who supported my government in '77 and everybody else".
 
 As to the matter of his article committee, whether the Hungarian National Council of Mr. Nagy's Central Eastern European Committee, delicately said to "guarantee" to the people behind the Iron Curtain that FREDE would be carried out, Mr. Nagy's statement is at least obvious or preposterous.
 

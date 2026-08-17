@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3796.png
-
-Convert to Markdown13-00000
+13-00000
 
 # Gordon Novel Seized
 

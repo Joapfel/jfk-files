@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_163.png
-
-Convert to MarkdownAPERTURE CAMP REPRODUCTIONS
+APERTURE CAMP REPRODUCTIONS
 
 <table>
    <tr>

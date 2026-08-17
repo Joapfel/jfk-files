@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14215.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The President then referred to the fact that Dr. Killian was retiring as Chairman of the Board in May. The President expressed deep appreciation for the work which Dr. Killian has done and the valuable contribution which Dr. Killian has made to the country. The President recalled that the Board has conducted three post-mortems on intelligence situations, and that these efforts of the Board have been most useful, particularly in the case of Cuba. The President added that he wished to express his appreciation for the effective manner in which the Board has carried out its duties in the past. He stated that the Board's contribution has been most valuable. In addition to its being valuable to the President, the Board has also contributed in an important way through the awareness which it has created in the intelligence community of its continuing operations and continuing review of intelligence activities. The President said that he was very much indebted to all of the Board members and is hopeful that the Board will continue its present operations for he considered them to be invaluable.
 

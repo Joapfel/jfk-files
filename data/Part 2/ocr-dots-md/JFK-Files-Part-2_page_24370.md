@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24370.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 SUBJECT: Project MHMUTUAL
 

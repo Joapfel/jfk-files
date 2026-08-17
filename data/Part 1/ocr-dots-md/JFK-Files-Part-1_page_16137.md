@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16137.png
-
-Convert to MarkdownSECRET TELEPHONE
+SECRET TELEPHONE
 
 TELEFONCH
 

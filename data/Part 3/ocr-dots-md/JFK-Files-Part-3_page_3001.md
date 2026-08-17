@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3001.png
-
-Convert to Markdown1939
+1939
 
 Phone (Area 202) 544-6000
 

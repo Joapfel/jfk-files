@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1357.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="5">121-250-103</td>
         <td colspan="4">PARTMENT OF STATE</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5984.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 Board regarding documents which could be considered relevant.
 

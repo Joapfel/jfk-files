@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7468.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Priority Urgent.
 

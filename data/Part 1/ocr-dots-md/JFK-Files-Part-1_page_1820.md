@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1820.png
-
-Convert to MarkdownState's Operational Center
+State's Operational Center
 
 We reviewed with some interest the embryonic operational
 center which the Department of State is developing. We found that

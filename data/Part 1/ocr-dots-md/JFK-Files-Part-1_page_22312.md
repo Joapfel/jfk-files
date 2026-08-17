@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22312.png
-
-Convert to Markdownher money for an abortion. TAYLOR left Moscow in February
+her money for an abortion. TAYLOR left Moscow in February
 1961, whereas the approach to STORSBERG was reported by
 NOSENKO and STORSBERG to have occurred four to eight months
 afterward.

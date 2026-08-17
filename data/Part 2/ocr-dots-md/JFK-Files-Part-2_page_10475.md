@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10475.png
-
-Convert to MarkdownAddendum
+Addendum
 
 1. The Foreign Resources Division asset/was Identity 77
    who owned the Identity 78

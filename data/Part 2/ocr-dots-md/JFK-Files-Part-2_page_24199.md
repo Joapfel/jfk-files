@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24199.png
-
-Convert to MarkdownSECRET
+SECRET
 
 QKOPERA/DTGODOWN
 (Cont'd)

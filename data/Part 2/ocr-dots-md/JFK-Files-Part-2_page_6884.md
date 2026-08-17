@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6884.png
-
-Convert to Markdown13-00000
+13-00000
 
 So Congress need not and should not consider classification policy in a vacuum. It must start with the reality of classification policy as it is today and "first, do no harm." Legislative changes to the classification system should begin by affirming what is positive in current policy-- and then building on it.
 

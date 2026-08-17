@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6357.png
-
-Convert to Markdown1 March 1995
+1 March 1995
 
 MEMORANDUM FOR: Mr. Periera
 FROM: Gary Breneman

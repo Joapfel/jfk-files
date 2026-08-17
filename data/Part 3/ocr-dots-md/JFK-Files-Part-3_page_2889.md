@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2889.png
-
-Convert to Markdown2475
+2475
 
 1 danger if any agency is left to simply react to whatever the
 2 attitudes may be at a specific time in this country because --

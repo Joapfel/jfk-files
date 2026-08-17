@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21665.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the meeting place for the foreign official and the actress. Later the same day, by pre-arrangement, two Department of State Security Agents, a New York City police lieutenant and a hiredchauffeur arrived which the foreign official. The actress remained at the site through 18 April 1959, and the foreign official and his party visited each evening and remained for above four to five hours.
 

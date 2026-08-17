@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7608.png
-
-Convert to Markdownto make a friend of any U.S. girls. He did pay one girl to give him lessons, but he felt she lacked background in grammar. I joked him and implied that he was looking for something more than English lessons and that Mexican girls struck no as being far sexier. He accepted the innuendo that his interests in girls was more broad than just language training, but he insisted on U.S. girls.
+to make a friend of any U.S. girls. He did pay one girl to give him lessons, but he felt she lacked background in grammar. I joked him and implied that he was looking for something more than English lessons and that Mexican girls struck no as being far sexier. He accepted the innuendo that his interests in girls was more broad than just language training, but he insisted on U.S. girls.
 
 E. Svetlana dofacton. Val said that the Svetlana dofacton bothoral him. He feels the U.S. bought Svetlana, that she is crazy and that her dofacton will hurt U.S.-USCR relations. I offered to be bought by the USCR to balance the dofactons. He said I wasn't worth anything to the USCR.
 

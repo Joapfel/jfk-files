@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25850.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 we referred to our talk in '59. and he said another talk might
 be possible and useful at this time, and that was the first real

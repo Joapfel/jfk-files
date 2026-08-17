@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30373.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <!-- RECOMMENDATION FOR HONOR AWARD -->
     <tr>

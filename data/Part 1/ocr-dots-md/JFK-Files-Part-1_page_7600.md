@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7600.png
-
-Convert to MarkdownRussians in return, as he initially told Subject he was expecting an official Soviet invitation to visit the USSR. As it turned out, however, he had a hard time even getting a Soviet visa. Subject finally called LOGINOV herself to try to push things along, but LOGINOV showed no willingness to facilitate things.
+Russians in return, as he initially told Subject he was expecting an official Soviet invitation to visit the USSR. As it turned out, however, he had a hard time even getting a Soviet visa. Subject finally called LOGINOV herself to try to push things along, but LOGINOV showed no willingness to facilitate things.
 
 (LIENVOY has Subject on the phone to LOGINOV on 5 April.
 

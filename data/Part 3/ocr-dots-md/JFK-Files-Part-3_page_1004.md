@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1004.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 Fanny Hechtman of the New York Communist Party, in 1965, was a hard and successful worker for the cause of "The Worker," a national publication of the Communist Party, USA. Hechtman was reported to be extremely neurotic. The New York Office made a pretext telephone call to Hechtman on May 7, 1965, wherein the caller advised Hechtman she was a friend of hers and wanted to warn Hechtman that the national Communist Party leadership was contemplating removing Hechtman from the national office and transferring her to Philadelphia because of her neurotic tendencies.
 

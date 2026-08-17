@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13583.png
-
-Convert to MarkdownNR 10 PH PLAIN
+NR 10 PH PLAIN
 610 PM 6-5-75 NITEL MCA
 
 TO DIRECTOR (62-116395)

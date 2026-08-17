@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29347.png
-
-Convert to Markdown000045
+000045
 
 PAGE TWO.
 

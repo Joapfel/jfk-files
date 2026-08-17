@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4027.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 facilities and yachts in the entire Caribbean area.
 

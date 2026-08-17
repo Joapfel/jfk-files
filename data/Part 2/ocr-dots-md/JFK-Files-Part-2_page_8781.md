@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8781.png
-
-Convert to Markdownof the nation" again, and the nation was in a
+of the nation" again, and the nation was in a
 state of hysteria behind him.
 
 **GNVA 4376 (OUT 53800) 27 Oct 1962 filed 201-9239**

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6330.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>DISPATCH</td></tr><tr><td>TO Chief, Task Force W</td></tr><tr><td>INQ.</td></tr><tr><td>FRCE Chief of Station, JNAWAVE</td></tr></table>
 

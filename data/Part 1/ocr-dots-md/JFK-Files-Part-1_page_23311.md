@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23311.png
-
-Convert to Markdown18 April 1957
+18 April 1957
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 

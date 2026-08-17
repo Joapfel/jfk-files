@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26713.png
-
-Convert to MarkdownFrom 1310 to 2140, 29 April (Thursday) 1965
+From 1310 to 2140, 29 April (Thursday) 1965
 
 MI
 2.0 ....conv in progress when recording begins....XXXXXXXXXXX

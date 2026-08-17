@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6774.png
-
-Convert to Markdownplace them in some context. CIA's collection of documents
+place them in some context. CIA's collection of documents
 related to the assassination of President Kennedy consists of
 approximately 250,000-300,000 pages of material. This includes
 64 boxes of copies and originals of information provided to the

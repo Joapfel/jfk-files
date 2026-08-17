@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17670.png
-
 base house operator. She received an Operational Approval on 13 September 1956.
 
 (22) LIQUATION has been a base house operator and may retire during the coming project year. He received an Operational Approval on 16 December 1953 and is under an oral contract effective 1 January 1954.

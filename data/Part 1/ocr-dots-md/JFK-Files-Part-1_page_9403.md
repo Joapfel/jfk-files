@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9403.png
-
-Convert to MarkdownJune 21, 1950
+June 21, 1950
 
 Dear Mr. Glaser:
 

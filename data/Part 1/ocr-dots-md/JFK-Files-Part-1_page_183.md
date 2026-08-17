@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_183.png
-
-Convert to Markdown4. Magowan Family Foundation - Manhattan, New York (108)
+4. Magowan Family Foundation - Manhattan, New York (108)
 CCS-recruited legitimate foundation (LPCORSET/84). Used in 1965 for covert grants to the exposed RFEF (TPTONIC) and the unexposed SEI (132) (HTNAMABLE).
 
 5. Mee k Foundation - Greenwich, Connecticut (110)

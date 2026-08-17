@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6200.png
-
-Convert to Markdown14-00300
+14-00300
 
 | HOMBRE | DE FREGION | NUSA | AÑOS | PROVINCIA |
 |---|---|---|---|---|

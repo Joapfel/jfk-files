@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15818.png
-
-Convert to MarkdownDEADLY LIVED THE SPIRIT OF JAKE WINTERS
+DEADLY LIVED THE SPIRIT OF JAKE WINTERS
 
 Deputy Chairman, Fred Hampton, Illinois Chapter of the Black Panther Party with headline readers at 2350 W. Madison was murdered, shot to death Dec. 4, Thursday morning at approximately 4:45am, in his home at 2337 W. Monroe. There is valid evidence that Chairman Fred along with Mark Clark, Defense Captain Peoria Branch of the Illinois Chapter of the Black Panther Party, were murdered. Mark Clark, 22, was a profound revolutionary brother. He is responsible for the Peoria Branch being at the level it is at now. He started the Breakfast for Children Program in Peoria and before his death, started moving on a Free Health Clinic.
 

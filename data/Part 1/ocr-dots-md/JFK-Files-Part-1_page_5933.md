@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5933.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>SPATIAL SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>S E C R E T</td><td>UPG-6130</td></tr></tbody></table>
 

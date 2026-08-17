@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18267.png
-
-Convert to Markdown<table><tr><td>DATE : 24 OCT 61</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : LONDON</td></tr><tr><td>ACTION : IV 2</td></tr><tr><td>INFO : DCI, D/DCI, DOP, COP, ADOP/A, CA, CA/PMO, CA/PRG, CA/PROP, CI, CI/OPS, FI, FI/NT G, FI/D, BELL 5, VN 16, VC 7, SS/I(A), DD/I(L), AD/CI, OS, S/C 2.</td></tr></table>
+<table><tr><td>DATE : 24 OCT 61</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : LONDON</td></tr><tr><td>ACTION : IV 2</td></tr><tr><td>INFO : DCI, D/DCI, DOP, COP, ADOP/A, CA, CA/PMO, CA/PRG, CA/PROP, CI, CI/OPS, FI, FI/NT G, FI/D, BELL 5, VN 16, VC 7, SS/I(A), DD/I(L), AD/CI, OS, S/C 2.</td></tr></table>
 
 CLASSIFIED MESSAGE
 

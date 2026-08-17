@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17871.png
-
-Convert to MarkdownNR 007 DN PLAIN
+NR 007 DN PLAIN
 
 535 PM NITEL MARCH 26, 1975 JSG
 

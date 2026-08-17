@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3936.png
-
-Convert to MarkdownAtt. 62 to UFGA-21693 dated
+Att. 62 to UFGA-21693 dated
 
 SUBJECT: *SALINAS (mat. unk.), Pablo
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29631.png
-
-Convert to Markdown# MEMORANDUM FOR THE RECORD
+# MEMORANDUM FOR THE RECORD
 
 SUBJECT: Mr. Myroslaw Maksymiec - Retired Employee
 

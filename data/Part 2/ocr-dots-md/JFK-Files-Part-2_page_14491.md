@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14491.png
-
-Convert to Markdown10/30/62
+10/30/62
 
 RE: BUREAU INFORMANT 200
 

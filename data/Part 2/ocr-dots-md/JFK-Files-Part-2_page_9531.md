@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9531.png
-
-Convert to MarkdownDE-157-3075
+DE-157-3075
 
 The Association of Black Students, Oakland University, Rochester, Michigan, sponsored a rally in support of the Detroit 16 on November 16, 1970, featuring HUEY P. NEWTON.
 

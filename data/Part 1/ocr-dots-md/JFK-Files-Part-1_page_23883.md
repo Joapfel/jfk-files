@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23883.png
-
-Convert to MarkdownI would like to follow up. For instance, I would like to go to Algiers.
+I would like to follow up. For instance, I would like to go to Algiers.
 
 appraisingly
 

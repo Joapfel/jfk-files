@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11604.png
-
-Convert to Markdownarrested were Bureau fugitives. We had previously identified
+arrested were Bureau fugitives. We had previously identified
 the two Bureau fugitives from fingerprints from material
 submitted by them to news media in May claiming credit for the
 murders. The two Bureau fugitives, Richard Moore and

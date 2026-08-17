@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22576.png
-
-Convert to Markdown19 June 1963
+19 June 1963
 
 MEMORANDUM FOR: Chief, Central Cover Staff
 Room 1-B-24 Headquarters Building

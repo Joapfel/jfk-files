@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17049.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 ... advised that BPP leaders have indicated
 that Winston Moore, Warden of the Cook County Jail has

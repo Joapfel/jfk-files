@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16485.png
-
-Convert to Markdowncountry are intensifying the terror, brutality, murder and repression of Black people.
+country are intensifying the terror, brutality, murder and repression of Black people.
 
 At the same time that the American government is waging a racist war of genocide in Vietnam, the concentration camps* in which Japanese Americans were interned during World War II are being renovated and expanded. Since America has historically reserved the most barbaric treatment for non-white people, we are forced to conclude that these concentration camps are being prepared for Black people who are determined to gain their freedom by any means necessary. The enslavement of Black people from the very beginning of this country, the genocide practiced on the American Indians and the confining of the survivors on reservations, the savage lynching of thousands of Black men and women, the dropping of atomic bombs on Hiroshima and Nagasaki, and now the cowardly massacre in Vietnam, all testify to the fact that towards people of color the racist power structure of America has but one policy: repression, genocide, terror, and the big stick.
 

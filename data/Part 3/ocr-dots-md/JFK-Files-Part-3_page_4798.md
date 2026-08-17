@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4798.png
-
-Convert to MarkdownLV 92-2163
+LV 92-2163
 
 735-0830
 EVERETT J. BLEDSOE, 2645

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21305.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OFFICE OF ORIGIN
 REPORT MADE AT

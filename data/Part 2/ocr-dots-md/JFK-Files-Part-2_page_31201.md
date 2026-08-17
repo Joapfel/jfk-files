@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31201.png
-
-Convert to MarkdownSECRET
+SECRET
 
 He had met the Britishégard for Bany
 and they were kind to his proposition.

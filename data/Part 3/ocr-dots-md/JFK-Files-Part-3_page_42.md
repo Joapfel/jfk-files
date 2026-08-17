@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_42.png
-
-Convert to MarkdownAnd, in addition to this,
+And, in addition to this,
 spelling both (B. L.) and
 will do so, the hernia
 deals with the added

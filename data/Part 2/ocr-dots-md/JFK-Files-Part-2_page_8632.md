@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8632.png
-
-Convert to Markdownre: HCSA Request of 9 March, 1978, item #2:
+re: HCSA Request of 9 March, 1978, item #2:
 
 "A statement, including any written regulations,
 which establishes the criteria utilized by the

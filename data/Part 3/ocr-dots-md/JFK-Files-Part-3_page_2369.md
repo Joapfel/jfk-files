@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2369.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of the RNA returned to New Orleans, Louisiana, on March 1969, from New York City. advised a source of this Bureau that she had traveled to Cuba through Mexico City this Spring with the flight to Cuba being paid for by the Cuban Government.
 

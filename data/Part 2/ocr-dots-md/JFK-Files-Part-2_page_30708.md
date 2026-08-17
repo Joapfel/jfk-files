@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30708.png
-
-Convert to MarkdownReview of Manuel Ray files
+Review of Manuel Ray files
 Volume IV of xviii
 
 Page 2

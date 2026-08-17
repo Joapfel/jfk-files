@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5110.png
-
-Convert to MarkdownMemorandum Burns to Walsh
+Memorandum Burns to Walsh
 
 Re: Senate Select Committee
 

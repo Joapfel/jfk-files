@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1285.png
-
-Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
+SEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
 
 1. NAME Ruthven Smith RELATIONSHIP daughter AGE 8
 

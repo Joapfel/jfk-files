@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10664.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 Memorandum from M. V. Hale to Mr. S. M. McWeeney
 

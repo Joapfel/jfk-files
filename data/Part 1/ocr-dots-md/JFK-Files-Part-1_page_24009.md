@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24009.png
-
-Convert to Markdown59. BABU
+59. BABU
 
 81. Andries CABEZAR
 

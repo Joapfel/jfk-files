@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2265.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DEC 5 1956
 (Late)

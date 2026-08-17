@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23875.png
-
-Convert to MarkdownSECRET! NO FOREIGN DISSEMINATION
+SECRET! NO FOREIGN DISSEMINATION
 
 # Plans for the Sale of "Afro-Asian Journalist" in Europe
 

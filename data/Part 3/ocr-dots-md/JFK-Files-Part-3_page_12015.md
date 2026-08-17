@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12015.png
-
-Convert to Markdownand the steps being taken by each office to develop full financial data. This summary enables the Bureau to keep abreast of all financial developments regarding the BPP on a national and international basis.
+and the steps being taken by each office to develop full financial data. This summary enables the Bureau to keep abreast of all financial developments regarding the BPP on a national and international basis.
 
 By airtel to all continental offices 11/6/70 all field offices conducting an active BPP investigation were instructed to submit a biweekly airtel containing specific comments regarding underground BPP operations within the area of each field office. This includes progress in the identity and interviewing of expelled BPP members who, it has been determined, are the logical candidates for membership in the BPP underground. The underground operation of the BPP has an ultimate goal of terroristic guerrilla warfare. It is a recent development in the operation of the BPP which is the subject of an intensive investigation. The biweekly summary enables the Bureau to keep abreast of all developments in the underground and to intelligently coordinate the investigation thereof.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3000.png
-
-Convert to Markdown1938
+1938
 
 in this area. But I won't agree with you, Senator, that we
 have bungled the intelligence operations in the United States.

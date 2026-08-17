@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10913.png
-
-Convert to MarkdownThe Dulles Commission recommended that the FBI should be made a member of the Intelligence Advisory Committee to improve coordination of domestic intelligence and counter-intelligence insofar as these matters related to the national security.
+The Dulles Commission recommended that the FBI should be made a member of the Intelligence Advisory Committee to improve coordination of domestic intelligence and counter-intelligence insofar as these matters related to the national security.
 
 While discussing the production of National Intelligence Estimates by CIA, the report noted, "There is no systematic way of tapping that domestic intelligence information, which should be chiefly in the hands of the FBI, having a bearing on broader intelligence issues and there is no regular and agreed arrangement for participation by the FBI and for the use of intelligence from domestic sources in a national estimate."
 

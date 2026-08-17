@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30667.png
-
-Convert to Markdown5 of 9 pages
+5 of 9 pages
 
 **Classification: SECRET**
 

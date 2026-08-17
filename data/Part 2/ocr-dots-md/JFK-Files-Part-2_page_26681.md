@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26681.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of years ago.
 

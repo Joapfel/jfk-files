@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3173.png
-
-Convert to Markdown1785
+1785
 
 1 any. You touched on it a moment ago. The President asked for
 2 something. I don't know in this case whether the President

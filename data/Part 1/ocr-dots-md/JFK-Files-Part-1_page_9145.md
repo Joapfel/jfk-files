@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9145.png
-
-Convert to MarkdownJuly 3, 1967
+July 3, 1967
 
 Breakfast 1.80
 Cat fures 1.50

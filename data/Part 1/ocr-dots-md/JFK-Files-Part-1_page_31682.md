@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31682.png
-
-Convert to Markdown9 June 1953
+9 June 1953
 
 MEMORANDUM FOR: DIRECTOR OF CENTRAL INTELLIGENCE
 SUBJECT: Bradshaw Project

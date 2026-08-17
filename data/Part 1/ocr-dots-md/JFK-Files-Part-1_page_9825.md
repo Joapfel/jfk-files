@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9825.png
-
-Convert to Markdown20 February, 1968
+20 February, 1968
 
 Subject: Carmen Lozada Statements to LIRING/3 re trip.
 

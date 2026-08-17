@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9632.png
-
-Convert to Markdown**WICHTRICH, Alfonso Rudolph**
+**WICHTRICH, Alfonso Rudolph**
 
 4 December 1947
 

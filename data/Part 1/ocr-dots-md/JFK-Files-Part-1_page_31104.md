@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31104.png
-
-Convert to Markdown31 March 1951
+31 March 1951
 
 The Honorable Richard E. Wiggleworth
 U. S. House of Representatives

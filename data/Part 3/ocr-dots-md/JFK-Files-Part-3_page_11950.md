@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11950.png
-
-Convert to MarkdownSPECIAL COORDINATION UNIT
+SPECIAL COORDINATION UNIT
 
 During December, 1970, six new foreign offices were established. As a result of personnel moves, 19 Special Agents and 16 clerks were transferred to foreign offices each requiring passport, visa, and Department of State and Embassy notification. The numerous contacts with State and the outgoing letters (two for each person transferred) were handled in this Unit, together with the memoranda and notification to the White House regarding various phases of the operation. A special one-week indoctrination session was arranged and attended by most of the new Special Agent personnel. The Director's instructions that the expansion take place were issued 11-20-70. Each of the new offices was open and operating during December, 1970.
 

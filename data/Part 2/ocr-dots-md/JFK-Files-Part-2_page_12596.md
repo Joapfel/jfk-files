@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12596.png
-
-Convert to Markdown(c) Statement as to subject's availability as potential witness and evaluation of subject's potential as informant or confidential source and whether further contacts contemplated
+(c) Statement as to subject's availability as potential witness and evaluation of subject's potential as informant or confidential source and whether further contacts contemplated
 
 (d) [Recommendation that ADEX card be canceled when interview, considered with other available information, indicates subject is no longer dangerous to internal security.]
 

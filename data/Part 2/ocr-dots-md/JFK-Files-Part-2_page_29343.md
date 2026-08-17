@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29343.png
-
-Convert to MarkdownCOMMITTEE SENSITIVE
+COMMITTEE SENSITIVE
 
 Phillips, page 20.
 

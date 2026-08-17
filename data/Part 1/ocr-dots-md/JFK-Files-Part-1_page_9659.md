@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9659.png
-
-Convert to MarkdownI know of no affiliations of STUART with foreign
+I know of no affiliations of STUART with foreign
 political parties of government. His attempts to get close
 to Fidel CASTRO in 1960 were motivated by a desire to exploit
 the journalistic advantages of an interview. His original

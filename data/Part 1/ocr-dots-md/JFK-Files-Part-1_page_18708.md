@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18708.png
-
-Convert to Markdown4 September 1973
+4 September 1973
 
 Miss Ann L. Goodpasture
 4200 Cathedral Avenue, N. W.

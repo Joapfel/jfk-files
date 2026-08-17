@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18784.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Subject's only reply to informant was that Pasternak's book, "Doctor Zhivago," was "political treason." Subject also said that this was "their system," with an air of finality.
 

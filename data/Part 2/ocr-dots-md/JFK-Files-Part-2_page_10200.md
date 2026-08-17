@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10200.png
-
-Convert to MarkdownSENSITIVE
+SENSITIVE
 
 SUBJECT: The MHCHAOS Program
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13541.png
-
-Convert to Markdowncb 28
+cb 28
 
 1 position to pouch the weapons that were actually shipped in
 2 the spring of 1961?

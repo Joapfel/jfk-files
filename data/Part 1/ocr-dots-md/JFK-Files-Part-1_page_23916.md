@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23916.png
-
-Convert to Markdownbecause he want s to make sure that they have grows larger. It mainly fictitious names, many of them.
+because he want s to make sure that they have grows larger. It mainly fictitious names, many of them.
 
 He's got Carlos . He's supposed to be from Spain. This was a name made up by Chen-Valdes. Valdes was actually a person, who is a Spanish scientist, chemist, who works for the CNRS, The Centre Nationale de Research Scientifique, in Paris. He did write the articles on Spain under Chen's supervision with strong rewriting. And his real name is Lopez, not I saw him. His first initial is S. Martin Valdes is not his real name. His address is
 

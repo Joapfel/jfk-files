@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22422.png
-
-Convert to MarkdownSECRET
+SECRET
 
 activities in that area was primarily a function of the over-
 whelming number of these people and the Bureau's inability

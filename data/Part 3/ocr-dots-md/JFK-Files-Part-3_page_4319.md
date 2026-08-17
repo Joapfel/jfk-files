@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4319.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Memorandum for the Acting Director, FBI
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9802.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 Supplement Number 4 (revised) of Departmental Order 3464, signed by the Attorney General on January 13, 1953, provides that all files, documents, records and reports in the Department of Justice shall be regarded as of a confidential nature.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15644.png
-
-Convert to MarkdownBrenda Harris, Negro female, age 18, residing at 1848 South Hamlin. Harris received a gunshot wound in the hand and right leg.
+Brenda Harris, Negro female, age 18, residing at 1848 South Hamlin. Harris received a gunshot wound in the hand and right leg.
 
 Verlina Brewer, Negro female, age 17, residing at 125 West 107th Street. Brewer was wounded in the legs.
 

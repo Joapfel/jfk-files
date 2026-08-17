@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18321.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 
 <table>
   <tbody>

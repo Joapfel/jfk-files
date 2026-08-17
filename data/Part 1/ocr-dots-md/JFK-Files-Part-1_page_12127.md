@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12127.png
-
-Convert to Markdown15-60-55 Dec. 18, 64 L34-M8-T597 #51 to 490
+15-60-55 Dec. 18, 64 L34-M8-T597 #51 to 490
 In. 1532 hrs. IRA VISKO &ANDREY SOKOLOV talk to OBYEDKOV in Russian.
 
 15-60-55 Dec. 18, 64 L34-M8-T597 #9143

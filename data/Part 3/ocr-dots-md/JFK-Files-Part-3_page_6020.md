@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6020.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 There is no evidence that any of the following top leaders of CORE are or have been Communist Party members: James L. Farmer, National Director; James T. McGaig, Field Director; and Gordon H. Carey, Director, Program and Training Department. Carey was one of the founders of the Conference of Young Socialists (CYS) in 1937 and was a member at large of the Executive Committee of CYS. The CYS was controlled by the Trotzkyite Socialist Workers Party, which has been designated as subversive pursuant to Executive Order 10480.
 

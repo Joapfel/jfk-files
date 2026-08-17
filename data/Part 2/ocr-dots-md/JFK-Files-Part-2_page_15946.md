@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15946.png
-
-Convert to Markdown## DETAILS:
+## DETAILS:
 
 Characterizations of the following organizations which are referred to below are contained in the appendix section of this report:
 

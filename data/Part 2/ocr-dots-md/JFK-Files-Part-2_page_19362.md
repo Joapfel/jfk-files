@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19362.png
-
-Convert to MarkdownA CALAM TO AMERICAN WOMEN
+A CALAM TO AMERICAN WOMEN
 
 who are outraged by the ruthless slaughter in Vietnam
 and the persistent neglect of human needs at home

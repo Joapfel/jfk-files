@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7207.png
-
-Convert to Markdown25 July 1966
+25 July 1966
 
 Dillon
 W33n

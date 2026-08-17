@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7231.png
-
-Convert to MarkdownREPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
 
 <table><tr><td>DISCLAIMER PER TOTAL COPIES RLY</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td colspan="2">SECRET</td></tr><tr><td colspan="4">ADVANCE COPY ISSUED/SLOTTED BY AT Z</td></tr><tr><th>ACTION UNIT</th><th>I N F O</th><th>RF. FILE . VR .</th><th colspan="2">STAFF</th></tr><tr><td rowspan="3"></td><td rowspan="3"></td><td rowspan="3"></td><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr><tr><th>ACTION #</th><td></td><td></td><td colspan="2"></td></tr></table>
 

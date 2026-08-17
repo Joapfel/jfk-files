@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31683.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 2 June 1953

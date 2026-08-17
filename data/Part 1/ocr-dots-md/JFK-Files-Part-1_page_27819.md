@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27819.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Continuation of Fitness Report - Section C......
 

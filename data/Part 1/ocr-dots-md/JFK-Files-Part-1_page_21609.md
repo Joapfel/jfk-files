@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21609.png
-
-Convert to Markdownenjoyed considerable authority and trust despite personal short-
+enjoyed considerable authority and trust despite personal short-
 comings, and whose defection, 'the greatest loss ever suffered
 by Soviet Intelligence', paralyzed the work of KGB Legal Residency, and justified the formulation of plans to assassinate him."
 

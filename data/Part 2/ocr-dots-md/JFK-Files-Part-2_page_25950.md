@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25950.png
-
-Convert to MarkdownSECRET
+SECRET
 
 delivered 4,000 doz.
 O'C - Fla

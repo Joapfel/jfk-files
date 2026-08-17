@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8794.png
-
-Convert to MarkdownS31
+S31
 
 <table><thead><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIES</td><td>ROUTING AND/OR INITIAL SEEN BY</td></tr></thead><tbody><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td colspan="2"><strong>SECRET</strong><br>(When Filled In)<br>GROUF<sup>1</sup><br>EXCLUDE. IF NEEDED<br>DROP OFFICE<br>RECEIVED<br>REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td>ADVANCE COPY <input type="checkbox"/> ISSUED <input type="checkbox"/> SLOTTED</td><td colspan="3"><table><tbody><tr><td><input type="text" id="row1" placeholder="INDIAL</td><td><input type="text" id="row2" placeholder="YES</td><td><input type="text" id="row3" placeholder="NO</td></tr><tr><td colspan="3"><strong>CLASS TO FILE NO.</strong></td></tr><tr><td colspan="3"><strong>X-REF TO FILE NO.</strong></td></tr><tr><td><input type="text" id="field1" placeholder="FILE NO"></td><td><input type="text" id="field2" placeholder="RET TO</td><td><input type="text" id="field3" placeholder="BRANCH ☐ DESTROY ☐ SIQ.</td></tr></tbody></table></td></tr><tr><td>DISSENT BY __________ PER __________ <input type="checkbox"/></td><td>ACTION __________</td><td colspan="2"><input type="checkbox"/> RID COPY<br>(INFO:<br>FILE.VR)</td></tr></tbody></table>
 

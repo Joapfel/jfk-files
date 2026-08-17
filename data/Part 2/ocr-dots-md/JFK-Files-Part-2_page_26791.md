@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26791.png
-
-Convert to MarkdownSECRET
+SECRET
 
 our activities but I just can't think -- I remember this was
 on one of our activities but I just can't remember what the

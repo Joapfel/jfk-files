@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23395.png
-
-Convert to Markdown52. What are subject's personal habits? Liquor, drugs, gambling, mistresses or lovers?
+52. What are subject's personal habits? Liquor, drugs, gambling, mistresses or lovers?
 
 Social drinker, very moderately. No gambling or mistresses.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3104.png
-
-Convert to Markdown30 March 1976
+30 March 1976
 
 SUBJECT: Ivan Gavrilovich ALFERYEV
 201-0236701

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18996.png
-
-Convert to Markdown# NPD SCORE CARD
+# NPD SCORE CARD
 
 1. Bundestag Elections 1965 -- NPD's first Effort 664,187 votes = 2%
 

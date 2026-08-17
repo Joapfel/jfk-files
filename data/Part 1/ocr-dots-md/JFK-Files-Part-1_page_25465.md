@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25465.png
-
-Convert to Markdown08/29/
+08/29/
 
 STAFF
 

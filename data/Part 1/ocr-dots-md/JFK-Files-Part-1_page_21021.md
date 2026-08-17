@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21021.png
-
-Convert to MarkdownMEMORANDUM FOR: Official Personnel File
+MEMORANDUM FOR: Official Personnel File
 
 SUBJECT : Richardson, Jacques F.
 CASASIN, T. R.

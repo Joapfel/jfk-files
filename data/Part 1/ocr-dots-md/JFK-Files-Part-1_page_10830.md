@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10830.png
-
-Convert to Markdown3
+3
 OS
 
 Fidel Castro ordena una dis-

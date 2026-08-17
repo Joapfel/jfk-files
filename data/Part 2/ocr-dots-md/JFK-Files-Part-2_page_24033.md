@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24033.png
-
-Convert to Markdownwith the columnist, Margurite Higgins, in which Diem asserted that his policy toward the Buddhists had always been conciliatory and asked for harmony and support of the government.
+with the columnist, Margurite Higgins, in which Diem asserted that his policy toward the Buddhists had always been conciliatory and asked for harmony and support of the government.
 
 Shortly after midnight on August 21, 1963, Nhu ordered forces loyal to him to attack pagodas throughout Vietnam, arresting monks and sacking the sacred buildings. Over thirty monks were injured and 1,400 arrested. The American Embassy was taken by surprise and viewed the attacks as a shattering repudiation of Diem's promises to Nolting. (Pentagon Papers, p.21U)
 

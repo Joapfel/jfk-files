@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23300.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 we must not run the risk of U.S. association with political assassination, since the U.S. as a matter of general policy cannot condone assassination. This last principle is overriding and must prevail in doubtful situations."
 

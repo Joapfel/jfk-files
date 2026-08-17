@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27486.png
-
-Convert to MarkdownNEW QUARTERS
+NEW QUARTERS
 FIRST AIR FORCE
 
 Mitchell Air Force Base, New York

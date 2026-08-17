@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1925.png
-
-Convert to MarkdownChief, New York Office
+Chief, New York Office
 
 30 November 1959
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29928.png
-
-Convert to MarkdownROGER CHANNEL
+ROGER CHANNEL
 CHIEF OF MISSION'S EVALUATION OF PERFORMANCE
 
 (Mission submits original and one copy directly to appropriate agency, retains one copy.)

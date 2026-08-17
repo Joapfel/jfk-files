@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17441.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE</td><td></td></tr><tr><td>TO</td><td>*</td></tr><tr><td>FROM</td><td>*</td></tr><tr><td>ACTION</td><td></td></tr><tr><td>INFO</td><td>*</td></tr><tr><td></td><td>IN 28751 MEXI 0125</td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE</td><td></td></tr><tr><td>TO</td><td>*</td></tr><tr><td>FROM</td><td>*</td></tr><tr><td>ACTION</td><td></td></tr><tr><td>INFO</td><td>*</td></tr><tr><td></td><td>IN 28751 MEXI 0125</td></tr></table>
 
 GOVERNMENT JOB IN TREASURY.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10500.png
-
-Convert to Markdown<table><tr><td>CLASSIFICATION</td></tr><tr><td>S-U-0-2-07-T</td></tr></table>
+<table><tr><td>CLASSIFICATION</td></tr><tr><td>S-U-0-2-07-T</td></tr></table>
 
 REPORT NO. OD-A(5)-392/13864-73
 

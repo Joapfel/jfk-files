@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3807.png
-
-Convert to MarkdownIntelligence Division
+Intelligence Division
 
 <table>
   <tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8733.png
-
-Convert to Markdown# AMLACE Operation
+# AMLACE Operation
 
 19-6-62/2,3,4
 

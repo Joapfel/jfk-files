@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12629.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>THURSDAY</td>
     <td>1000-1130</td>

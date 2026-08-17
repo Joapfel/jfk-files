@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25110.png
-
-Convert to MarkdownINTERVIEW AND MEETING SUMMARY
+INTERVIEW AND MEETING SUMMARY
 
 to the Assembly and harangued them and got the vote and also got
 the vote in the Senate by bringing troops out and surrounding

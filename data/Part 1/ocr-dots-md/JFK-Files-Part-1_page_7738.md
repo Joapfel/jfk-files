@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7738.png
-
-Convert to Markdown9.03.04 A sensual eater who tends to eat by himself when possible. He seems to eat all types of food and has something of the air of a glutton about him. He eats with obvious pleasure, savors his smokes and afterwards will linger alone at a table with self-satisfaction. It is easy to imagine him hovering alone over the buffet at a cocktail party savoring the tidbits.
+9.03.04 A sensual eater who tends to eat by himself when possible. He seems to eat all types of food and has something of the air of a glutton about him. He eats with obvious pleasure, savors his smokes and afterwards will linger alone at a table with self-satisfaction. It is easy to imagine him hovering alone over the buffet at a cocktail party savoring the tidbits.
 
 9.03.05 A conventional eater who usually goes along with the crowd. He probably has food allergies that prevent him from eating certain foods. He gives the impression of enjoying smoking more than eating but his table manners are adapted to whatever situation he is in. It is easy to imagine him taking an indigestion pill in the privacy of his room.
 

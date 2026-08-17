@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16869.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM 532 USE PREVIOUS EDITIONS
 

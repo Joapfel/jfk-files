@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4181.png
-
-Convert to Markdown<table>
+<table>
   <caption>FILIACION:</caption>
   <tbody>
     <tr>

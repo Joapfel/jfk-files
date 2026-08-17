@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_345.png
-
-Convert to Markdown14-00000
+14-00000
 
 SMITH, Joseph Burkholder
 1301 South First Street Ocean 14

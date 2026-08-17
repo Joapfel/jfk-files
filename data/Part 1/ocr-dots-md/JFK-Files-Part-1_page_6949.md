@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6949.png
-
-Convert to MarkdownDame Fortune keeps popping up
+Dame Fortune keeps popping up
 in life of SFU's oldest professor
 and has taken him to Mexico, Cuba,
 Moscow — and to 'best place of all'

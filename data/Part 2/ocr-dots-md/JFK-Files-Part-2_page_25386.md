@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25386.png
-
-Convert to Markdown# ROSSELLI CHRONOLOGY OF EVENTS
+# ROSSELLI CHRONOLOGY OF EVENTS
 
 1955 Meets Maheu at insurance friend's home.
 

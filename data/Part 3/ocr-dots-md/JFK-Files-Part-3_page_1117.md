@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1117.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 The Boston FBI Office, on a confidential basis,
 furnished information to Robert Tonis, Security Officer and

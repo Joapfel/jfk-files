@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17527.png
-
-Convert to MarkdownSUBJECT: Request for Approval of Project LIPEAT
+SUBJECT: Request for Approval of Project LIPEAT
 
 1. It is requested that the LIPEAT project be renewed for the period 1 July 1961 through 30 June 1962 for a total of $98,974. This project has been programmed for $99,000 and funds are available in WH Division for FY 1962. During the last fiscal year approximately $81,000 was obligated.
 

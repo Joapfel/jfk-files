@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3157.png
-
-Convert to Markdown1769
+1769
 
 King from his pedestal and replacing him by someone else, dated January 8th, 1964, which memo was written a week following the time that King was named man of the year by Time magazine.
 

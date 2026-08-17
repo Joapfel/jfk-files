@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12772.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO : Chief, Western Hemisphere Division
 ATTEN : Bob Weatherwax, WH/3/V

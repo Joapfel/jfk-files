@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5394.png
-
-Convert to MarkdownSUBJECT: Pending ARRB (JFK Board) Issues
+SUBJECT: Pending ARRB (JFK Board) Issues
 
 22 November 1963; many others are dated 23 November 1963 through
 December 1963.⁵

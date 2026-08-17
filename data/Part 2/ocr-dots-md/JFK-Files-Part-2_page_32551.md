@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32551.png
-
-Convert to MarkdownSECRET
+SECRET
 
 R. Informed the Mexican Government that Americans were not permitted to travel to Cuba without authorization and requested their assistance in preventing U.S. citizens from transiting Mexico en route to Cuba.
 

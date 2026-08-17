@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21383.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 26 August 1964 (Detroit)
 RE: Helen Mary Winter

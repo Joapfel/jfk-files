@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15131.png
-
-Convert to Markdown# IV. AUXILIARY MATTERS
+# IV. AUXILIARY MATTERS
 
 | | Page |
 | :--- | :--- |

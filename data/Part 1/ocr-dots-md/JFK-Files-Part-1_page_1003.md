@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1003.png
-
-Convert to MarkdownHALL, LORAN
+HALL, LORAN
 AKA LORENZO HALL, SKIP HALL
 AKA LORENZO PASCILLO
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15586.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 United States Attorney
 Chicago, Illinois

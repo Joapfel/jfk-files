@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16392.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Guatemala's Leads Not to be Disseminated
 

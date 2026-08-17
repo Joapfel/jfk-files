@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17358.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>SECRET,<br/><u>(~~S~~)</u></td><td>HIMMA-20737</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>SECRET,<br/><u>(~~S~~)</u></td><td>HIMMA-20737</td></tr></table>
 
 15-61-07 Soviet Embassy (Commercial Office)
 15-12-64 Soviet Embassy (Film Representative) (out)

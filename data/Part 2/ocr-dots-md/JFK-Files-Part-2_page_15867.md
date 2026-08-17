@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15867.png
-
-Convert to MarkdownMEEK stated that everyone should be armed and that when their door is broken down, people can and should defend themselves. He concluded saying that the "pigs" are out to get everyone.
+MEEK stated that everyone should be armed and that when their door is broken down, people can and should defend themselves. He concluded saying that the "pigs" are out to get everyone.
 
 BOBBY RUSH, according to the source, stated he was not the chairman of the BPP, but was the minister of defense of the Illinois BPP, and had no intention of becoming the chairman. RUSH spoke concerning the aims of the BPP and what the organization was attempting to do. He also spoke concerning how the Panthers were being pushed around and killed.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16895.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6 March 1970
 

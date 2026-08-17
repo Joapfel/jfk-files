@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8573.png
-
-Convert to Markdown13-00000
+13-00000
 
 restore the Shah to power. Over the years, the Shah had shown his gratitude by allowing the Agency to use Iran as a base for electronic and radar surveillance of the Soviet Union. The CIA station chief in Iran usually maintained much closer contact with the Shah than the American ambassador. (With the 1973 appointment of former CIA Director Helms to the past of American ambassador in Iran, any Agency-State conflicts then presumably disappeared.)
 

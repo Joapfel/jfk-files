@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6638.png
-
-Convert to MarkdownCLARENCE JONES
+CLARENCE JONES
 
 CLARENCE JONES is the General Counsel for the Gandhi Society for Human Rights, 15 East 40th Street, New York City.
 

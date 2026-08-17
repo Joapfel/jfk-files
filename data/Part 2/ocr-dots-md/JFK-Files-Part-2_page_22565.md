@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22565.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 "4. Could Source obtain employment on a Congressional Committee on either side of the Hill which would give him access to the areas of interest?
 

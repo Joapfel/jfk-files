@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22536.png
-
-Convert to MarkdownSECRET-ETS ONLY
+SECRET-ETS ONLY
 
 obtained for action in support of the Dominican internal opposition.
 

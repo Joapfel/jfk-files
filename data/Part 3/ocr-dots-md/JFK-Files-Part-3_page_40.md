@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_40.png
-
-Convert to Markdown"He ran to me and put his arms around me and said, 'What did you do?' I didn't do it, I couldn't. She said, 'Why? He was a child.' Then Beatrice Antelo, who had an agoraphobic mother, went with an agoraphobic sister to the hospital for an evaluation, where she was found to be agorafobic. But when she went back to the hospital, which is no better, no worse than before, the other diathoretic woman shows up in the ER. She tells me that this is the first time her family has ever known. I held her head down on her lap and sobbed in helpless, hopeless despair.
+"He ran to me and put his arms around me and said, 'What did you do?' I didn't do it, I couldn't. She said, 'Why? He was a child.' Then Beatrice Antelo, who had an agoraphobic mother, went with an agoraphobic sister to the hospital for an evaluation, where she was found to be agorafobic. But when she went back to the hospital, which is no better, no worse than before, the other diathoretic woman shows up in the ER. She tells me that this is the first time her family has ever known. I held her head down on her lap and sobbed in helpless, hopeless despair.
 
 Helen Hernandez, 10, and her husband Antonio, sat side by side on their couch in a sodden living room, overflowing with clustering photos and photographs of their five sons, ages 2 to 13. They looked stunned, like two people who have tried, yet failed to comprehend fully what has happened to them: this summer.
 

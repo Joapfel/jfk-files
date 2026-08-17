@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27224.png
-
-Convert to MarkdownA - 1 COMINT Memo Pulled out and stored separately.
+A - 1 COMINT Memo Pulled out and stored separately.
 
 B - Ltr from Knoche to Belin with attachments - 21 May 75 (Attachments -SECRET)
 

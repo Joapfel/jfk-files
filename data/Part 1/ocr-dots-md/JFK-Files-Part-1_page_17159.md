@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17159.png
-
-Convert to MarkdownSECRET
+SECRET
 
 During the Project year Project LIEpty provided all of the fixed operational photographs and physical surveillance reports used in Mexico City Station's operations targeted against the FJSTEAL installation and personnel. Specific examples of the LIEMPTY Project's progress and contributions will be found in Section 3 below (EFFECTIVENESS).
 

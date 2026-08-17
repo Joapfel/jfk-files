@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6882.png
-
-Convert to MarkdownThere is no question that Congress has the right and, I would say, the obligation to legislate in this area, particularly since the executive branch has failed to manage the secrecy system in a way that best serves the national interest. As Harold Relyea of the Congressional Research Service has pointed out:
+There is no question that Congress has the right and, I would say, the obligation to legislate in this area, particularly since the executive branch has failed to manage the secrecy system in a way that best serves the national interest. As Harold Relyea of the Congressional Research Service has pointed out:
 
 > Pursuant to its constitutional authority "To make Rules for the Government and Regulation of the land and naval forces" (Article I, Section 8, clause 14), as well as the "necessary and proper" clause (Article I, Section 8, clause 18), Congress has long established rules, regulations, and procedures of general effect for the government and the armed services.... These clauses would appear to empower Congress with authority to legislate policy and procedure comparable to that prescribed by presidential executive order to effect security classification.⁵
 

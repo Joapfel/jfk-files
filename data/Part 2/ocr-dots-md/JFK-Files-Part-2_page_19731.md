@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19731.png
-
-Convert to MarkdownNOV 20 1971
+NOV 20 1971
 
 NR 204 WF CODE
 

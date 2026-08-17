@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19861.png
-
-Convert to MarkdownSources are:
+Sources are:
 
 1. ~~BS 208-3~~
 

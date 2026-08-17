@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21203.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 took the "akt" from him and then brought him to NOSENKO who obtained the agreement not to criticize the Soviet Union.
 

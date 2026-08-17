@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_423.png
-
-Convert to Markdown9. PORSCH, Dr. Gus
+9. PORSCH, Dr. Gus
 10. POSADA, Louis
 11. POTTS, Walter Eugene
 12. PRIMACK, Oliver N.

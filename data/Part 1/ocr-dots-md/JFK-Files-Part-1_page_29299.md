@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29299.png
-
-Convert to MarkdownOFFICIAL RECORD
+OFFICIAL RECORD
 
 UNITED STATES GOVERNMENT
 Memorandum

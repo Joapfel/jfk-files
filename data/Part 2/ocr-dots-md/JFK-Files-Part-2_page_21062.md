@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21062.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EX-106 REC-35
 (RI) 163-1504

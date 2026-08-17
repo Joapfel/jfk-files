@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32509.png
-
-Convert to Markdown-continued-
+-continued-
 
 It is believed for certain good reasons why he can know so well the government interest, with which a properly sensitive and significant intelligence officer should be. 
 

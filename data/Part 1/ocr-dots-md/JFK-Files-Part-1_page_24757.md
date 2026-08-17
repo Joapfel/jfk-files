@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24757.png
-
-Convert to Markdownintellectual inferiors, treating them quite rudely when
+intellectual inferiors, treating them quite rudely when
 7, 8, 9, 10
 he is in a bad mood.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13139.png
-
-Convert to MarkdownSECRET
+SECRET
 
 As of 3/10/64, the MRR (97-4133) in the San Francisco, Calif. area, was conducting a recruitment program for a group to start military training within the next 2 months at an unknown location under the leadership of Manuel Artime. (Carolina Salazar - protect identity - MRR official and PSI under development)
 

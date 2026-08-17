@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13359.png
-
-Convert to MarkdownNR 002 BA CODED
+NR 002 BA CODED
 
 7:49 PM NITEL 5/30/75 JAN
 

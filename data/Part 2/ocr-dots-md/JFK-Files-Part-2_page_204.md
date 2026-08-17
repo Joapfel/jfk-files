@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_204.png
-
-Convert to MarkdownSECRET
+SECRET
 
 23APR2502733
 

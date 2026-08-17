@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30551.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET OS - HUNT 1
 

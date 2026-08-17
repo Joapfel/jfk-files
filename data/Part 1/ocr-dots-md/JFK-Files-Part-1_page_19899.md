@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19899.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # FIELD TRANSMITTAL - FITNESS REPORT
 

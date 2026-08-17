@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28320.png
-
-Convert to Markdown<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Clarence J. Day</td><td>7/16/78</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>229-26-8374</td><td>☐ Appointment<br/>☐ Salary Adjustment<br/>☐ Title Change</td></tr><tr><td rowspan="2">Employing Office or Committee/Subcommittee</td><td>☐ Termination (At close of business on effective date)<br/>☐ Leave without pay (Beginning with effective date above and ending close of business ____________)</td></tr><tr><td>Specify Date</td></tr><tr><td>Assassinations</td><td></td></tr></table>
+<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Clarence J. Day</td><td>7/16/78</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>229-26-8374</td><td>☐ Appointment<br/>☐ Salary Adjustment<br/>☐ Title Change</td></tr><tr><td rowspan="2">Employing Office or Committee/Subcommittee</td><td>☐ Termination (At close of business on effective date)<br/>☐ Leave without pay (Beginning with effective date above and ending close of business ____________)</td></tr><tr><td>Specify Date</td></tr><tr><td>Assassinations</td><td></td></tr></table>
 
 (If type of action is an Appointment, Salary Adjustment, or Title Change, complete appropriate information below.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7470.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td colspan="3">UNCLASSIFIED</td><td>INTERNAL</td></tr></thead><tbody><tr><td colspan="2"></td><td>OFFICE USE ONLY</td><td></td></tr><tr><td colspan="4">SECRET</td></tr></tbody></table>
 

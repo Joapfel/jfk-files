@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12066.png
-
-Convert to Markdown# SPECIFIC COMMENTS
+# SPECIFIC COMMENTS
 
 1. In Protest and Trotskyist Groups Unit, one Special Agent Supervisor (McGuire) and one clerk (Hanning), temporarily assigned New Left Section. Supervisor in Charge of same Unit (Griffith) also spending majority of his time in New Left Section assisting on special. An additional Supervisor from International New Left Unit (Benedict) and one clerk from Klan and White Hate Groups Unit (Dean) are also working majority of their time on New Left Section special.
 

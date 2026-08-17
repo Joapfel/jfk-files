@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2975.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 blocs in the country: Barrientos, supported by the campesinos; General Alfredo Ovando Candia, supported by the army; and the Communists and leftists, sup- ported by tough mine and factory workers. To have Barrientos elected, CIA first had to promote a credible election by underwriting the campaigns of both the selected winner and his token opposition at the polls.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14370.png
-
-Convert to MarkdownThe cooperative spirit of our relationship with the Committee and its Staff must at the same time take account of the rights of Agency employees. The Committee Staff has agreed to advise employees of their Constitutional rights at the beginning of any interview or other appearance.
+The cooperative spirit of our relationship with the Committee and its Staff must at the same time take account of the rights of Agency employees. The Committee Staff has agreed to advise employees of their Constitutional rights at the beginning of any interview or other appearance.
 
 When a current Agency employee is selected to be interviewed by the Select Committee Staff, the Staff Director or Chief Counsel will normally notify Mr. John M. Clarke, who is my principal liaison with the Committee and its Staff. Mr. Clarke, in turn, will notify the employee. The purpose of this is in no way to inhibit the work of the Committee. It is intended to allow time for the employee to gain general legal guidance if he wants it, and to obtain security guidance from an appropriate senior officer.
 

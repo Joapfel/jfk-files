@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9318.png
-
-Convert to Markdown28 Aug. 1950
+28 Aug. 1950
 
 BORIS
 

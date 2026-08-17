@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27343.png
-
-Convert to MarkdownA - Office of Technical Service - SECRET
+A - Office of Technical Service - SECRET
 
 B - Office of Deputy Dir for Science & Technology - SECRET
 

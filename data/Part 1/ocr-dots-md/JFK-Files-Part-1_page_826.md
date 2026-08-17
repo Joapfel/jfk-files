@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_826.png
-
-Convert to Markdown14-00000
+14-00000
 
 (b) AMCUTLER-2 had received a letter from AMFAUNA-1 dated 18 October saying that she would receive a visit from a person known to her who would introduce himself as "Edgardo", and asking her to introduce "Edgardo" to AMFAUNA-14. This person has not yet arrived, and AMCUTLER-2 does not know who he is.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6143.png
-
-Convert to MarkdownSECRET
+SECRET
 
 30 May 1975
 

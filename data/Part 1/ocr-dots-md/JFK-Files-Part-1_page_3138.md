@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3138.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIES,</td><td>ROUTING AND/OR INITIALS SEEN BY</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td colspan="3"></td></tr><tr><td colspan="2">ADVANCE COPY ☐ ISSUED ☑ GLOTTED</td><td colspan="3"><table><tbody><tr><td rowspan="5" style="vertical-align: top;"><b>SECRET</b><br>(When Filled In)<br><br>GROUP I.<br>INCLUDED FROM AUTOMATIC<br>DETERMINE DECLASSIFICATION</td><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table></td></tr><tr><td colspan="2">BY:<br>AT: 2</td><td colspan="3">INDEX: ☐ YES ☐ NO<br>CLASSIFY TO CS FILE NO.</td></tr><tr><td colspan="2">DISSEM BY: 35 PER:</td><td colspan="3">X-REP TO CS FILE NO.</td></tr><tr><td>ACTION UNIT<br>FILE, VR SB8</td><td>IN FO</td><td>☐ FILE RID</td><td>☐ RETURN TO</td><td>BRANCH</td></tr><tr><td colspan="2">ACTION NO. 808</td><td colspan="3"></td></tr></table>
 

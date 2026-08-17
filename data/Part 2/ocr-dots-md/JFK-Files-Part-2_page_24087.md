@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24087.png
-
-Convert to MarkdownMongoose that "you're in a combat situation where we have been given full command". Secretary of Defense McNamara confirmed that "we were hysterical about Castro at the time of the Bay of Pigs and thereafter".
+Mongoose that "you're in a combat situation where we have been given full command". Secretary of Defense McNamara confirmed that "we were hysterical about Castro at the time of the Bay of Pigs and thereafter".
 
 Many of the plans that were discussed and often approved contemplated violent action against Cuba. The operation which resulted in the Bay of Pigs was a major paramilitary onslaught that had the approval of the highest government officials, including the two Presidents. Thereafter, Attorney General Kennedy vehemently exhorted the Special Group Augmented that "a solution to the Cuban problem today carried top priority . . . no time, money, effort--or manpower is to be spared."* Subsequently, Operation Mongoose involved propaganda and sabotage operations aimed toward spurring a revolt of the Cuban people against Castro. Measures that were considered by the top policymakers included incapacitating sugar workers during harvest season by the use of chemicals; blowing up bridges and production plants; sabotaging merchandise in third countries--even those allied with the United States--prior to its delivery to Cuba; and arming insurgents on the island. Programs undertaken at the urging
 

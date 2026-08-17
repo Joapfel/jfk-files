@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25804.png
-
-Convert to MarkdownSECRET
+SECRET
 
 team members and with more practice will probably develop into a capable and dependable driver. LIJERSEY-8 has recently shown a commendable amount of initiative where his cover situation is concerned. He has obtained a job as a commission salesman for UNDERWOOD typewriters and, according to GERENDE, is making a substantial amount of "pin" money. However, as in the case of LIJERSEY-4, LIJERSEY-8 is at best an asset of only limited value. LIJERSEY-8 also receives a salary of $1,000.00 (MN) per month.
 

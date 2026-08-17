@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10337.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (EL) Identity 64 - This is an operation with additional participation by National Security Agency. It is designed in anticipation of the Identity 64 in Washington. The listening post was obtained by using the Agency cover mechanisms for procuring the property. New systems are being designed and produced by using TSD's covert contractor mechanisms and TSD engineers.
 

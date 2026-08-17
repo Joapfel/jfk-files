@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_313.png
-
-Convert to MarkdownCynthia Cooper
+Cynthia Cooper
 
 LIE TEMPO -1
 ER THYROID -3

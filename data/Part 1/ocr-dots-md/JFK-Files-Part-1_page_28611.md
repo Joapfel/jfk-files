@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28611.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><caption>SECTION V</caption><tbody><tr><td colspan="14">A. WHAT ARE HIS OUTSTANDING STRENGTHS? Basic brain power, ambition, determination, organisational ability, education, area knowledge, language ability, social skills, experience, aggressiveness. Bites extra hard, effectively presenting complicated material. Deeper than interested in his work, anxious to learn more about it. Has unusually thorough grounding in tradecraft. Understands "policy" aspect of operations—relationships with other agencies, etc—to much greater degree than others his grade and experience.</td></tr><tr><td colspan="14">B. WHAT ARE HIS OUTSTANDING WEAKNESSES? Subj accepts responsibility, but sometimes fails to care on with it; he has great charm when interested in using it, but has had increasing difficulties in relationships with office staff because of impression he gives of own importance. Tends to blank circumstance for personal failure to follow through on assignments effected by personal relations. Wants to be in "inner circle" and tends to suit when he feels he is not, or when things do not go entirely to his satisfaction.</td></tr></tbody></table>
 

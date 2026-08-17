@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3392.png
-
-Convert to MarkdownParlamento
+Parlamento
 
 AMWORLD Meeting in San Juan, 7-8 June 1964
 SUBJECT: AMWORLD Venezuela - Radio Facility

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25596.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">Chief of Station, Mexico City</td>

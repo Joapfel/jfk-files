@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17576.png
-
-Convert to MarkdownNR 002 BA PLAIN
+NR 002 BA PLAIN
 
 1220PM URGENT MAY 3, 1975 BJD
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23846.png
-
-Convert to Markdown1. to do that, they cannot use the general monies that they
+1. to do that, they cannot use the general monies that they
 2. generate from that to conduct. They will have to fund that
 3. insurance program in the contingency reserve.
 4. Mr. diGenova. No, not at all, because it is not a covert

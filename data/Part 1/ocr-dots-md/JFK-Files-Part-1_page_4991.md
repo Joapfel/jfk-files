@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4991.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>ADVANCE COPY</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12074.png
-
-Convert to Markdown# ADEQUACY OF PERSONNEL
+# ADEQUACY OF PERSONNEL
 
 these cases include the bulk of our double agent operations. As of December 1, 1970, there were 74 active double agents in the Soviet field. This is the largest number of double agents we have ever achieved. At the time of the last inspection as of April 1, 1970, there were 67 active double agents. The current number of 74 is compared most favorably with the number of actual double agents three years ago (12/1/67), when there were 47 active double agents. At that time there were 18 case Agents handling Soviet matters. At the time of the last inspection, there were 16 case Agents in the Soviet field, and the current load is being carried by less than 14 case Agents. Three of the 14 are assigned part time to the handling of Soviet-bloc matters.
 

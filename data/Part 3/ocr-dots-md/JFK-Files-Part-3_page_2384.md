@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2384.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 G. Contact Between Leaders of United States
 Protest Groups and Representatives of

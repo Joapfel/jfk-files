@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12058.png
-
-Convert to MarkdownName- Gordon Barton McLendon
+Name- Gordon Barton McLendon
 
 Address-9300 Douglas, Dallas Texas
 Place of Birth-Atlanta Texas (dabe) Oklahoma age 30

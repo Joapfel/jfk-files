@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27415.png
-
-Convert to MarkdownA. Ltr to Mr. Weidner from Mr. Knoche - 6 May 75
+A. Ltr to Mr. Weidner from Mr. Knoche - 6 May 75
 
 B. Ltr from Weidner to Knoche - 23 Apr 75 SECRET - SENSITIVE
 

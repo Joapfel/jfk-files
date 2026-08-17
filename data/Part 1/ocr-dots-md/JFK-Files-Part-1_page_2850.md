@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2850.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 CHAPTER VIII
 SEVENTH DEPARTMENT (January 1962 to January 1964)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5359.png
-
-Convert to Markdown14-00000
+14-00000
 
 Les espoirs de régalité eclusi que ceux de tous les émigrés contestables se sont heurté aux effets négatifs invictables provenant tant de la nouvelle arrestation de Clément que des censeurs évaluations actuelles en Haiti depuis le 20 mai 1968. Je t'envoie, pour prouve, copie d'une lettre d'un des grands emis, Mr. Edmond Durris de Washington, D.C. Je te demande de garder cette lettre strictement confidentielle car je ne currais pas ait que le nom de Mr. Durris soit mentionné à quiconque en Haïti. Si cela arrivait, nous pourriens perdre un très bon ami.
 

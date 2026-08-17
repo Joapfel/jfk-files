@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15766.png
-
-Convert to MarkdownGARRY:
+GARRY:
 FAYE:
 
 we have both ends of the spectrum saying

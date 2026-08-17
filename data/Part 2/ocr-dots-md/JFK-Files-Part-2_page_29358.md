@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29358.png
-
-Convert to Markdown**Classification:**
+**Classification:**
 
 (IJY) SECRET
 

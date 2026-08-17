@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11785.png
-
-Convert to MarkdownSection Chief William A. Branigan
+Section Chief William A. Branigan
 (CGS:EWL:pdr 8/30/71)
 
 The comments of the Inspector regarding the marked improvement in supervision of our work is most gratifying. As was noted during the last inspection, evidence of supervision appearing in the PDA informant file is not always a completely accurate gauge of the supervisory attention being given each case. The informant file is designed, by provisions of the Manual of Instructions, to be a repository for information regarding the background and administrative handling of the source. Information reflecting operational activities and instructions more often appears in the active investigative file of the Soviet-bloc principal with whom the PDA is in contact.

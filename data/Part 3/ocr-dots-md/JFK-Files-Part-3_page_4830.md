@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4830.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. Determine subscriber to telephone number 735-1855.
 Conduct credit, criminal and indices checks.

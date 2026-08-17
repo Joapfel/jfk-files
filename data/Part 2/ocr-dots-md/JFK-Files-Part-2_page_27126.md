@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27126.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 - The conduct of liaison abroad with foreign counterintelligence and security services and with foreign services generally about counterintelligence matters.
 

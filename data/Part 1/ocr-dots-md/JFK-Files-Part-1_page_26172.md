@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26172.png
-
-Convert to Markdown# SECRET/NO FOREIGN DISSEM
+# SECRET/NO FOREIGN DISSEM
 INTERNAL USE ONLY
 
 ## Instructions for SWL Form Part V: Investigative Action Record

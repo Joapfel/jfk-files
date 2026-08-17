@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15040.png
-
-Convert to Markdownexhaustive FBI investigation. Bureau maintaining "hands off" policy regarding Garrison investigation. Garrison mental stability is questionable. He received medical discharge from U. S. Army in 1951 for an emotional problem. Admitted to Army authorities that he had received psychiatric treatment.
+exhaustive FBI investigation. Bureau maintaining "hands off" policy regarding Garrison investigation. Garrison mental stability is questionable. He received medical discharge from U. S. Army in 1951 for an emotional problem. Admitted to Army authorities that he had received psychiatric treatment.
 
 Martin Luther King, Jr.
 

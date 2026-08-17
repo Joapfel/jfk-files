@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13322.png
-
-Convert to MarkdownOUTING AND RECORD SHEET
+OUTING AND RECORD SHEET
 
 SUBJECT: (Optional)
 

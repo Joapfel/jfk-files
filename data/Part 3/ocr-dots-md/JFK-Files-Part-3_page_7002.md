@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7002.png
-
-Convert to MarkdownAT-T-1, 7/65
+AT-T-1, 7/65
 
 Rev. KING called a conference on February 12, 1966 of SCLC officers and other individuals for the purpose of examining the immediate financial condition of SCLC and endeavoring to determine methods of increasing the organization's income. ABERNATHY attended this conference as did RANDOLPH T. BLACKWELL, HOSEA WILLIAMS, Director of Voter Registration and Political Education, SCLC, JUNIUS GRIFFIN, Director of Public Relations, SCLC, CLARENCE JONES and STANLEY LEVISION. LEVISION took an active part throughout this meeting.
 

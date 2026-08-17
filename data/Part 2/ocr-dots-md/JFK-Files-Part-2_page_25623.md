@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25623.png
-
-Convert to Markdownp. 68-70 FBI agents Hill and Dodge met with Rosselli and his lawyer, Cantillon. At this time Dodge informed Rosselli that the FBI was aware that he was not a U.S. citizen. Dodge indicated something about Nevada and some other secret organizations.
+p. 68-70 FBI agents Hill and Dodge met with Rosselli and his lawyer, Cantillon. At this time Dodge informed Rosselli that the FBI was aware that he was not a U.S. citizen. Dodge indicated something about Nevada and some other secret organizations.
 
 p. 71-75 Rosselli met with Sheffield Edwards in 1966 for some drinks and discussed his problems with the FBI.
 

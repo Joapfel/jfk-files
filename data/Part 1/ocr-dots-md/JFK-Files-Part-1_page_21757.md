@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21757.png
-
-Convert to MarkdownSERGEYEV (SERGEEV), FNU - IV, E, 32, 33
+SERGEYEV (SERGEEV), FNU - IV, E, 32, 33
 
 (Very possibly Igor Alekseyevich ZENKIN, but is now considered also identical to Igor Alekseyevich SERGEYEV, Igor Alekseyevich SUKHOV and very possibly Igor A. SMIRNOV.)
 

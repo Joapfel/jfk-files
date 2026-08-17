@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25726.png
-
-Convert to MarkdownCIA Plots Against Castro Recounted
+CIA Plots Against Castro Recounted
 
 By Jack Anderson
 and Les Whitten

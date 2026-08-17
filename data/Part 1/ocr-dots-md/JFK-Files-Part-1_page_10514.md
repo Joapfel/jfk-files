@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10514.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1954:
 

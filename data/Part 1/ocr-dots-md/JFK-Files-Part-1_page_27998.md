@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27998.png
-
-Convert to Markdown**SEEK** (When filled in)
+**SEEK** (When filled in)
 
 DD/P
 

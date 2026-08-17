@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19516.png
-
-Convert to MarkdownSOUTHERN CONFERENCE EDUCATIONAL FUND, INC. (SCEF)
+SOUTHERN CONFERENCE EDUCATIONAL FUND, INC. (SCEF)
 
 The Southern Conference for Human Welfare (SCHW) was cited as a Communist front by the House Committee on Un-American Activities, House Report 592, June 12, 1947. In the same house report, "The Southern Patriot" was cited as an "organ" of the SCHW.
 

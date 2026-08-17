@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12521.png
-
-Convert to Markdownthere is doubt as to which office should be origin, request FBIHQ to designate office of origin.
+there is doubt as to which office should be origin, request FBIHQ to designate office of origin.
 
 e. Title of communications
 

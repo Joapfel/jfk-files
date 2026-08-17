@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31366.png
-
-Convert to Markdown07D18-1
+07D18-1
 
 DETAILS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27788.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CO. NO.</td>
     <td>NAME</td>

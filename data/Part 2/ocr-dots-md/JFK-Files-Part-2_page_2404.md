@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2404.png
-
-Convert to MarkdownSEC. 21 CHRONOLOGICAL HISTORIC (Cont'd)
+SEC. 21 CHRONOLOGICAL HISTORIC (Cont'd)
 
 Accrued as a result of the above mentioned employment contract expired Oct. 16, 1946
 

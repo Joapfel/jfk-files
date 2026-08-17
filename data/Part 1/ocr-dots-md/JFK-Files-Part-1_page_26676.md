@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26676.png
-
-Convert to MarkdownRACURA A GENERAL
+RACURA A GENERAL
 LA REPUBLICA
 
 53032

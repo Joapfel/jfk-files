@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11488.png
-
-Convert to MarkdownIII. Revolutionary statements made by subject showing advocacy of overthrow of Government by force or violence
+III. Revolutionary statements made by subject showing advocacy of overthrow of Government by force or violence
 
 (A) [Determine]each statement and[ascertain]full details surrounding each.
 

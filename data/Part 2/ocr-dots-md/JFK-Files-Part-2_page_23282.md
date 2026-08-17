@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23282.png
-
-Convert to Markdown1. tried and most of them, they were all dead. It was a very risky business. It's not the kind of thing they would want to try with a .38.
+1. tried and most of them, they were all dead. It was a very risky business. It's not the kind of thing they would want to try with a .38.
 
 2
 

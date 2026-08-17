@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3545.png
-
-Convert to Markdown13-00000
+13-00000
 
 # DAILY
 ## SUMMARY

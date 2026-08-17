@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24507.png
-
-Convert to Markdown(iii) <u>Kennedy Administration -- The Question of Authorization Outside the Agency During the Post Bay of Pigs, Mongoose, and 1963 Periods</u>
+(iii) <u>Kennedy Administration -- The Question of Authorization Outside the Agency During the Post Bay of Pigs, Mongoose, and 1963 Periods</u>
 
 This section discusses the question of authorization outside the Agency for the assassination plots during 1962 and 1963 -- the period of Operation Mongoose (the 1962 Kennedy Administration program aimed at overthrowing Castro by an internal revolt), the Missile Crisis in the fall of 1962, and the subsequent program in 1963 which saw a more limited covert action program directed against Cuba.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_898.png
-
-Convert to Markdown<table><tr><td></td><td>SECRET</td></tr></table>
+<table><tr><td></td><td>SECRET</td></tr></table>
 
 <table><tr><td colspan="2">ROUTING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></table>
 

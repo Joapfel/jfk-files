@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10833.png
-
-Convert to Markdown# LIBERTAD, Febrero 21, 1969 Página 5
+# LIBERTAD, Febrero 21, 1969 Página 5
 
 <table><tr><td>ORBITO</td></tr><tr><td>GNOTUS</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9743.png
-
-Convert to Markdown(i) The Board may further determine, after consideration of the evidence, that an organization has ceased to exist. Upon petition of the Attorney General or upon petition of any organization which has been designated pursuant to this section the Board after appropriate hearings may determine that such organization does not currently meet the standards for designation. The Attorney General shall appropriately revise or modify the information furnished to departments and agencies consistent with the determinations of the Board.
+(i) The Board may further determine, after consideration of the evidence, that an organization has ceased to exist. Upon petition of the Attorney General or upon petition of any organization which has been designated pursuant to this section the Board after appropriate hearings may determine that such organization does not currently meet the standards for designation. The Attorney General shall appropriately revise or modify the information furnished to departments and agencies consistent with the determinations of the Board.
 
 (j) The Board shall issue appropriate regulations for the implementation of this section.⁵
 

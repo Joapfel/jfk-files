@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11.png
-
-Convert to Markdownlook as though Moyers and Velenti were automatically taking the documents to the President.
+look as though Moyers and Velenti were automatically taking the documents to the President.
 
 plans to spend a weekend
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_378.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 Office of Legislative Affairs
 
 COMMENTS ON PROPOSED PROCEDURES

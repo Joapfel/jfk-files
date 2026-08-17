@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22294.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 National Security Council --
 Senator Huddleston. Of the United States?

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_18.png
-
-Convert to MarkdownOn 24 April 1965 events took place that resulted in an improvement in the standing of OCI publications in the White House.
+On 24 April 1965 events took place that resulted in an improvement in the standing of OCI publications in the White House.
 
 On that day an uprising began against the provisional government of the Dominican Republic. The US fear that Communists might seize control of the country led to the prompt dispatch of Marines to Santo Domingo. President
 

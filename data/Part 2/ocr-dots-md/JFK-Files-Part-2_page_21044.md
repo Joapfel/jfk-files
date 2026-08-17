@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21044.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IV. THE VENEZUELAN SECURITY SERVICES
 

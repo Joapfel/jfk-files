@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34156.png
-
-Convert to MarkdownCOMITE PRO BOICOT EMPRESARIAL
+COMITE PRO BOICOT EMPRESARIAL
 Management- Boycott Committee
 
 P. O. BOX 3900

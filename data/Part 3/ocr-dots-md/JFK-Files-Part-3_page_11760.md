@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11760.png
-
-Convert to MarkdownCoordination Unit. Other miscellaneous investigative matters involving extremist groups with foreign nationality ties such as Mexican-Americans, Spanish-Americans, and Puerto Ricans will continue to be assigned to the Nationalities Intelligence Section.
+Coordination Unit. Other miscellaneous investigative matters involving extremist groups with foreign nationality ties such as Mexican-Americans, Spanish-Americans, and Puerto Ricans will continue to be assigned to the Nationalities Intelligence Section.
 
 The Research Section has been placed in the Counterespionage - Foreign Intelligence Division in order to balance the workload as well as to provide for expansion for research-type work in espionage and foreign intelligence areas or for the manpower therein to be used as the Assistant Director sees most advantageous to carry out his responsibilities. It is recognized that this will cut DID short but it is felt DID will be able to handle any needed research at a Section level.
 

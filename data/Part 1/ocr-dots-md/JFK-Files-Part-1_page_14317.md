@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14317.png
-
-Convert to Markdownbut, only to help my country." (With "Patriots" like Sam, how can we lose.)
+but, only to help my country." (With "Patriots" like Sam, how can we lose.)
 
 7. Sam is most anxious to start some correspondence to "William." He says "William" asked him to send him some photos of Cape Kennedy and some smoked shrimp. Sam wants to know if we want to supply him with photos of the Cape that he can send. Sam states he will write anything we wish. I promised to check out the status of the case with my office and Madrid to see what course of action they deem should be initiated.
 

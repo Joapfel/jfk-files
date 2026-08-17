@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1395.png
-
-Convert to Markdown<table><tr><td>17 October 1966</td></tr></table>
+<table><tr><td>17 October 1966</td></tr></table>
 
 <table><thead><tr><th colspan="2">NOTIFICATION OF ESTABLISHMENT<br/>OF OFFICIAL COVER BACKSTOP</th><th>DATE:</th></tr></thead><tbody><tr><td rowspan="3">TO:<br/>(Chief)</td><td>X CHIEF, PERSONNEL OPERATIONS DIVISION</td><td>ESTABLISHED FOR</td></tr><tr><td>CHIEF, CONTRACT PERSONNEL DIVISION</td><td>WHEeler, Robert P.</td></tr><tr><td>X CHIEF, OPERATING COMPONENT (For action) DCI/OPFB</td><td></td></tr><tr><td>ATTN:</td><td colspan="2">FILE NO.<br/>4908</td></tr><tr><td>Chief Personnel</td><td>ID CARD NO.</td><td></td></tr><tr><td>REF:</td><td colspan="2"></td></tr><tr><td>Verbal Request</td><td>EMPLOYEE NO.</td><td></td></tr><tr><td>OFFICIAL COVER BACKSTOP ESTABLISHED</td><td colspan="2"></td></tr><tr><td>Office, Secretary of Defense (Admin)</td><td colspan="2"></td></tr></tbody></table>
 

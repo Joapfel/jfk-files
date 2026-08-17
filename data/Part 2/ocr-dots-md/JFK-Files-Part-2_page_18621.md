@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18621.png
-
-Convert to MarkdownSeptember 10, 1965
+September 10, 1965
 
 Memorandum for Messrs. Tolson, Edmont, DeLoach, Sullivan
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10855.png
-
-Convert to Markdownintelligence officers assigned to these matters. It is anticipated that DOD's efforts will become more extensive.
+intelligence officers assigned to these matters. It is anticipated that DOD's efforts will become more extensive.
 
 CIA estimates there are approximately 10,000 employees and dependents assigned to the diplomatic establishments and international organizations represented in this country by approximately 120 foreign nations. It can readily be seen that we would have to establish priorities and well-defined objectives in order to cope effectively with the problem presented by the vast number of persons and establishments which could be considered for clandestine coverage.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6957.png
-
-Convert to MarkdownCopyright 1997 Federal Information Systems Corporation
+Copyright 1997 Federal Information Systems Corporation
 Federal News Service
 
 JUNE 4, 1997, WEDNESDAY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7863.png
-
-Convert to Markdown1 - Mr. Wannall - Enc.
+1 - Mr. Wannall - Enc.
     ~~Acton(C)~~ Mr. Cregar
 1 - Mr. Bassett - Enc.
 1 - Mr. Mintz - Enc.

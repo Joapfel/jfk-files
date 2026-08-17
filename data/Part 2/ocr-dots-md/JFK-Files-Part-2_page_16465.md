@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16465.png
-
-Convert to Markdownpeople saw it and responded to it. They were very enthusiastic about the示范-straits because they too suffer from being treated unfairly by the parole authorities and by the police here in the jail.
+people saw it and responded to it. They were very enthusiastic about the示范-straits because they too suffer from being treated unfairly by the parole authorities and by the police here in the jail.
 
 ## Open or Underground
 

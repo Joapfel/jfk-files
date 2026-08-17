@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15775.png
-
-Convert to Markdownthis afternoon, that we intended to cooperate with them in any way they wanted to. We've also indicated that we intend to cooperate with the committee that was formed recently, the Commission, they call themselves, where former Justice GOLDBERG is at the head of it. With all of these committees, we intend to cooperate one hundred percent, but we also intend to have a caveat. We intend to have a caveat to this extent so that there will not be a whitewash of what we know to be the facts. And no one is going to change those facts.
+this afternoon, that we intended to cooperate with them in any way they wanted to. We've also indicated that we intend to cooperate with the committee that was formed recently, the Commission, they call themselves, where former Justice GOLDBERG is at the head of it. With all of these committees, we intend to cooperate one hundred percent, but we also intend to have a caveat. We intend to have a caveat to this extent so that there will not be a whitewash of what we know to be the facts. And no one is going to change those facts.
 
 MARTY FAYE
 

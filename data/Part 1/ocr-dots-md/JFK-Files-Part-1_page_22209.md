@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22209.png
-
-Convert to Markdown617.
+617.
 
 c. It was physically impossible at the time for NOSENKO to be recommended for and accepted into State Security, as he has told us, all in one month, March 1953. (If one accepts his earlier version that he had his talk with KOBULOV in January or February, his account is similarly impossible because KOBULOV was not then in State Security.) It would normally have taken a much longer time, but in addition to this it was a period of reorganization and the personnel staff was not actively conducting their work at that time, and permanent staff officers were not sure that they would retain their positions.
 

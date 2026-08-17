@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14225.png
-
-Convert to Markdownmore, but less than 10.
+more, but less than 10.
 
 An informed current estimate is that the Soviet Union employs worldwide under official cover more than 1300 operations officers (known or suspect KGB, 652; known or suspect GRU, 328; known or suspect RIS (Service unidentified), 312). There are about 370 Soviet permanent officials serving in New York City and Washington, D. C. Of these 370 permanent Soviet "officials", there are 140 positively identified intelligence officers and 33 who are suspects. In addition, there are hundreds of Soviets who visit the United States with the U. S. General Assembly or with other Soviet delegations and groups. Almost without exception, these groups contain Soviet intelligence officers under official cover. While the Soviet official representation in the U.S. has included 140 individuals known to be engaged in intelligence activities the CIA has never had more than four on duty in the U.S. Embassy in Moscow.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33819.png
-
-Convert to Markdown# III
+# III
 
 ## RFE POLICY GUIDANCE FOR PERSONNEL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12852.png
-
-Convert to MarkdownState Department Cable
+State Department Cable
 
 Date: 22 January 1977
 Classification: CONFIDENTIAL

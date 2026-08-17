@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23120.png
-
-Convert to MarkdownStanley Lesse, M.D.
+Stanley Lesse, M.D.
 
 We would appreciate an early answer from you about this so we can begin the necessary arrangements.
 

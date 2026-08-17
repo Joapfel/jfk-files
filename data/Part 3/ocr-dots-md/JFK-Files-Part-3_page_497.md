@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_497.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 In October, 1961, Communist Party literature was anonymously mailed to the residences of a cross section of employees of the Olson Publishing Company, Milwaukee, Wisconsin, creating an indignant reaction by the recipients. Mr. Peter Olson, an executive of the company, felt one of his employees, Mary Blair, was responsible for the mailings as she was the only known communist in the company.
 

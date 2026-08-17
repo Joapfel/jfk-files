@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12024.png
-
-Convert to Markdown- E l -
+- E l -
 
 C H I L E
 

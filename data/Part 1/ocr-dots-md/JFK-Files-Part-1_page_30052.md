@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30052.png
-
-Convert to MarkdownG-3467
+G-3467
 
 10 January 1956
 

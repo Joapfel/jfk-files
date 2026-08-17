@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25349.png
-
-Convert to MarkdownSECRET
+SECRET
 
 APERTURE CARD REPRODUCED APRIL 19, 1945
 

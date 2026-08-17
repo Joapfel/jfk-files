@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15409.png
-
-Convert to MarkdownA. H. Belmont
+A. H. Belmont
 
 S. B. Donahoe
 

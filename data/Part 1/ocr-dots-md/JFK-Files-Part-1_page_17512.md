@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17512.png
-
-Convert to MarkdownWith the LIENVOY's assumption of coverage of the Soviet and Czechoslovakian official installations in July 1960, LIFEAT assets were released from continuous coverage of these two targets. These assets were then employed in direct support of Station operations--a role ideally suited for a unilateral operation such as LIFEAT, and extremely important to the security and success of Station operations. LIFEAT, after spending much of Project Year 1961 - 1962 programing to this new role and redirecting its assets, has now adjusted to this role and is fully employed in this vital assignment.
+With the LIENVOY's assumption of coverage of the Soviet and Czechoslovakian official installations in July 1960, LIFEAT assets were released from continuous coverage of these two targets. These assets were then employed in direct support of Station operations--a role ideally suited for a unilateral operation such as LIFEAT, and extremely important to the security and success of Station operations. LIFEAT, after spending much of Project Year 1961 - 1962 programing to this new role and redirecting its assets, has now adjusted to this role and is fully employed in this vital assignment.
 
 4. References
 

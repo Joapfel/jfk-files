@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12617.png
-
-Convert to Markdown14-09-68
+14-09-68
 
 CABLE SECRETARY DISSEMINATION
 PERSONAL NOTIFIED:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3169.png
-
-Convert to Markdown16 March 1970
+16 March 1970
 
 # AEBOOR TARGETING EXERCISE - 201-236701
 

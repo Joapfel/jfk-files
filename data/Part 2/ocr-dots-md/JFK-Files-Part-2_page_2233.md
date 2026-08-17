@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2233.png
-
-Convert to Markdown10 September 1951.
+10 September 1951.
 
 SUBJECT: Request for Appointment, Birch D. O'NEAL
 

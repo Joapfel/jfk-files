@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16558.png
-
-Convert to Markdown1
+1
 
 JESSE WARD, 721 North Troy, Chicago, Illinois, was interviewed by Special Agents EUGENE J. CONNOLLY and CHARLES E. BRUNNER who identified themselves to him as Special Agents of the FBI. Prior to commencement of the interview, WARD was furnished form FD-395, "Interrogation; Advice of Rights" which he read and refused to sign. He stated that he understood his rights as they were written on the form and as he read them, but he would not sign anything because he does not know or understand what he is doing and because it is against the rules of the Black Panther Party. WARD furnished the following information:
 

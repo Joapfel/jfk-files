@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16261.png
-
-Convert to MarkdownCaptain WILBERT SAMUELS, Maywood Police Department, advised on July 26, 1969, approximately 13 persons (10 Negros who identified themselves as BPP members) appeared at Third Avenue and Oak Street, Maywood, for the purpose of holding a press conference. BOB RUSH announced plans of the BPP to have petitions signed by Maywood citizens in an effort to have the park and swimming pool at that location renamed in honor of FRED HAMPTON, Deputy Chairman, Illinois BPP, currently incarcerated.
+Captain WILBERT SAMUELS, Maywood Police Department, advised on July 26, 1969, approximately 13 persons (10 Negros who identified themselves as BPP members) appeared at Third Avenue and Oak Street, Maywood, for the purpose of holding a press conference. BOB RUSH announced plans of the BPP to have petitions signed by Maywood citizens in an effort to have the park and swimming pool at that location renamed in honor of FRED HAMPTON, Deputy Chairman, Illinois BPP, currently incarcerated.
 
 On July 28, 1969, source advised six Chicago BPP members travelled to East Moline, Illinois, allegedly to meet with 100 to 150 members of a local Negro youth group to discuss possibly forming a BPP Branch there.
 

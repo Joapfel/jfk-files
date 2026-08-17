@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5614.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">RECEIVED<br/>TOTAL COPIES: 1</td>
    </tr>

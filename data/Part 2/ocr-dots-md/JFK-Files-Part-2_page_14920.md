@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14920.png
-
-Convert to MarkdownMay 27, 1960
+May 27, 1960
 
 UNKNOWN SUBJECTS
 ADOLPH COORS, III - VICTIM

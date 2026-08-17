@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30661.png
-
-Convert to Markdownt. Participate in, and prepare memoranda, notices, and regulatory issuances about, DD/O and other Agency responsibilities, operations, operating procedures, etc., when these involve CI operational security and/or procedural problems.
+t. Participate in, and prepare memoranda, notices, and regulatory issuances about, DD/O and other Agency responsibilities, operations, operating procedures, etc., when these involve CI operational security and/or procedural problems.
 
 u. Coordinate and arrange for dissemination of sensitive information from counterintelligence sources.
 

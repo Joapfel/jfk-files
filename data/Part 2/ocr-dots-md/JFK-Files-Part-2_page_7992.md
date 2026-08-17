@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7992.png
-
-Convert to MarkdownLet's look at just one major concern: about 1.3 million new American families are formed every year. Approximately eight million people change their jobs every year. About 3.7 million people join the labor force and 2.1 million leave it. By 1980 full employment in the United States will require jobs for 100 million people, 18 million more than were employed at the end of 1972. These, quite clearly, are the priority considerations in the minds of millions who do not clearly understand how the enterprise system meets their needs.
+Let's look at just one major concern: about 1.3 million new American families are formed every year. Approximately eight million people change their jobs every year. About 3.7 million people join the labor force and 2.1 million leave it. By 1980 full employment in the United States will require jobs for 100 million people, 18 million more than were employed at the end of 1972. These, quite clearly, are the priority considerations in the minds of millions who do not clearly understand how the enterprise system meets their needs.
 
 If they and the representatives of large numbers of voters do not understand, how can we expect their support?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28582.png
-
-Convert to MarkdownFR - Tennent II. Bagley
+FR - Tennent II. Bagley
 SECTION D - 3 (cont)
 
 lines and will align himself accordingly as his branch shakes down and he becomes a little more experienced in headquarters operation at the branch chief level.

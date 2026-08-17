@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4663.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: I don't know if they were Vietnam veterans as such. I think
 they did not like what was going on in Southeast Asia. And the so-called

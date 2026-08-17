@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9442.png
-
-Convert to MarkdownN.C.C.F. DETROIT
+N.C.C.F. DETROIT
 12845 14th ST.
 
 FREE BUSING TO PRISON PROGRAM

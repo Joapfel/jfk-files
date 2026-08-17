@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25229.png
-
-Convert to MarkdownMINH
+MINH
 AMBASSADOR LODGE
 
 | PERSONS/ENTITIES: | DATES: | CATEGORIES: |

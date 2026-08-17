@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12441.png
-
-Convert to Markdown# "SECRET - NO FOREIGN DISSEMINATION"
+# "SECRET - NO FOREIGN DISSEMINATION"
 
 (5) Submit FD-165 for search of FBIHQ identification records; make no reference to individual as OA on FD-165; and also utilize FD-165 to place stop.
 

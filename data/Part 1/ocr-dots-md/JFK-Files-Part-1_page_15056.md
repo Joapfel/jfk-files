@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15056.png
-
-Convert to Markdown52 Elbe Strasse
+52 Elbe Strasse
 Frankfurt a. Main
 
 3 January 1963

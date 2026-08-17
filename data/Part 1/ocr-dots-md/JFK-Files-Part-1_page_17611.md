@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17611.png
-
 . His motivation at this time is believed to be financial. A POA was granted LINEWATER-6 on 14 May 1958. An Operational Approval has been requested. (C-70322)
 
 d. LICATION-1, wife of LICATION-1, occupies a basehouse with her husband. She received an OA on 2 October 1957. She will receive no compensation.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4424.png
-
-Convert to MarkdownFig. 2.
+Fig. 2.
 
 8- ó través de una tía política del líder estudiantil preso Pedro Luis Eoytell (la tía se llama Esperanza Valaén) que he enterado por cartas de La ecuiper de Pedro Luis, que se encuentra en estuco de cama en el hospital del Presidio de Isla de Pinos. La madre dice que la única forma de salvarlo es sacandolo de Cuba por canje con otros Gobiernos Latin-americanos. Es decir: cambiándolo por otros presos comunistas. Yo le pido a la tía que hará gestiones con Somya pero que dudaba que él tuviera presos comunistas para canjear. La madre de Pedro Luis cometió el error de hablar por teléfono con la tía y mencionó mi nombre como individuo que quizás pudiera hacer algo por él. (La madre habló desde Cuba)
 

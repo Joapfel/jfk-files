@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18732.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 On 11/6/58, informant advised that during lunch which he had with VLADIMIR B. BARKOVSKY, BARKOVSKY asked informant to consider writing his analysis of the American political situation for BARKOVSKY, and BARKOVSKY told him that he would be paid for doing this.
 

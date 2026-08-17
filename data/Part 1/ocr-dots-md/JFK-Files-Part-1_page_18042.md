@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18042.png
-
-Convert to MarkdownLIONION - Mexico City, Mexico - FI/CI Support Project
+LIONION - Mexico City, Mexico - FI/CI Support Project
 Targetted Against the Cuban Embassy in Mexico
 City. FY 1971 Cost $11,094.
 

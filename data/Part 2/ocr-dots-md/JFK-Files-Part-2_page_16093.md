@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16093.png
-
-Convert to MarkdownUNITED STATES GERNMENT
+UNITED STATES GERNMENT
 
 Memorandum
 

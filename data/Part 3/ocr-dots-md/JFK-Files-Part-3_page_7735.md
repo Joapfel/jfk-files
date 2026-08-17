@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7735.png
-
-Convert to Markdown"no investigations should be conducted by any investigative agency of the Government into matters involving actually or potentially any espionage, counterespionage, or sabotage, except by the three agencies mentioned above."
+"no investigations should be conducted by any investigative agency of the Government into matters involving actually or potentially any espionage, counterespionage, or sabotage, except by the three agencies mentioned above."
 
 "I shall be glad if you will instruct the heads of all other investigative agencies than the three named, to refer immediately to the nearest office of the Federal Bureau of Investigation any data, information or material that may come to their notice bearing directly or indirectly on espionage, counterespionage, or sabotage."
 

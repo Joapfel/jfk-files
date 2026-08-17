@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26593.png
-
-Convert to Markdownd. As is usual in these cases, the villagers began to trickle back once the Viet Cong left.
+d. As is usual in these cases, the villagers began to trickle back once the Viet Cong left.
 
 e. This episode aside, we see a number of indications that the Communists will try to sustain the higher level of military activity they have kept up since the coup.
 

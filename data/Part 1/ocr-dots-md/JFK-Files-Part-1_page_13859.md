@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13859.png
-
-Convert to Markdown375.
+375.
 
 Salida al 45-61-80.-1100.- RODRIGUEZ preguna a OLDRICH
 ...... de la Embajada de Croatolia, si puede irlo a --

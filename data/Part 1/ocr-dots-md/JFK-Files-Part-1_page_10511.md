@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10511.png
-
-Convert to MarkdownSUBJECT Summary of information on
+SUBJECT Summary of information on
 George PLEISTEROPOULOS
 on George Farris, aka George D.
 PLEISTEROPOULOU, aka George

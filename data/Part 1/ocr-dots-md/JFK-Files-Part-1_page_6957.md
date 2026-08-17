@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6957.png
-
-Convert to Markdown16 JUL 1971
+16 JUL 1971
 
 SECRET
 

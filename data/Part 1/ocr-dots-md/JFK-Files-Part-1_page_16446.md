@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16446.png
-
-Convert to MarkdownIN THE HOUSE OF REPRESENTATIVES
+IN THE HOUSE OF REPRESENTATIVES
 
 May 20, 1970
 

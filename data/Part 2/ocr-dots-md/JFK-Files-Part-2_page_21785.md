@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21785.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1
 Mr. Wides. Any telephone taps?

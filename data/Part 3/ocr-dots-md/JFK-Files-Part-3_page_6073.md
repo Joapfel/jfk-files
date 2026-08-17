@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6073.png
-
-Convert to MarkdownRECEIVED LIKE FOR
+RECEIVED LIKE FOR
 F: I
 
 RECEIVED

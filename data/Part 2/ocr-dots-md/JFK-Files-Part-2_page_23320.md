@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23320.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. instruction by saying, get these men out now?
 2. Mr. Goodwin. Well I think obviously these people had

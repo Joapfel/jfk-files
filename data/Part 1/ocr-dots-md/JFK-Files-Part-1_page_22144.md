@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22144.png
-
-Convert to MarkdownNo sooner had BARGHOORN stepped out of the car than the agent approached. "You are an American?" the agent asked. "Yes." "Please take it," the agent said. The agent put the packet containing the materials on rocketry in BARGHOORN's inside coat pocket and then ran off.
+No sooner had BARGHOORN stepped out of the car than the agent approached. "You are an American?" the agent asked. "Yes." "Please take it," the agent said. The agent put the packet containing the materials on rocketry in BARGHOORN's inside coat pocket and then ran off.
 
 BARGHOORN had taken only one or two steps when he was seized by NOSKOV and Petr POPTSOV, another case officer of the American Tourist Section, and told he was under arrest. A surveillance car pulled up. BARGHOORN was placed in the car, handcuffed (on GRIBANOV'S orders, because the Soviets arrested in the United States had received similar treatment) and driven to the 50th Section of the Militia, where a room had been prepared.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7633.png
-
-Convert to MarkdownFrom Citizenship Office - 15 March 1967
+From Citizenship Office - 15 March 1967
 
 **Ramon PATUEL**
 

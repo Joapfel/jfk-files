@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2620.png
-
-Convert to MarkdownNWW 88608 DocId:32989820 Page 25
+NWW 88608 DocId:32989820 Page 25
 
 410 First Street, S.E., Washington, D.C. 20003
 

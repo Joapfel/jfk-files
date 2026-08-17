@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6718.png
-
-Convert to MarkdownAssassination Records Review Board
+Assassination Records Review Board
 
 600 E Street NW • 2nd Floor • Washington, DC 20530
 (202) 724-0088 • Fax: (202) 724-0457

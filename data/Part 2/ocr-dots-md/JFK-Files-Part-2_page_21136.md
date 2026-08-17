@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21136.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 their duties and in addition noted that there were
 2 FCD officers who were assigned to the Section

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24852.png
-
-Convert to MarkdownSimilarly, Kissinger did not remember having been informed that the CIA had called off a coup it regarded as premature. He stated:
+Similarly, Kissinger did not remember having been informed that the CIA had called off a coup it regarded as premature. He stated:
 
 > My perception at that period was that if they had a coup they would come...back to us before triggering it...at no time during the period did they, in fact, tell us...that they had a coup that might be ready to go. And, indeed, they generally told us the opposite.
 

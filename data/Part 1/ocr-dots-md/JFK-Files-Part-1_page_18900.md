@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18900.png
-
-Convert to MarkdownForm OMB 61A
+Form OMB 61A
 
 OFFICE OF STRATEGIC SERVICES
 WASHINGTON, D. C.

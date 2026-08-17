@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13331.png
-
-Convert to Markdown14-00000
+14-00000
 
 Question: What is the main objective of the counterrevolutionary groups?
 

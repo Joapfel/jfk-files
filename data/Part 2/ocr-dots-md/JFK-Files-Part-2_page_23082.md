@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23082.png
-
-Convert to MarkdownDuring the last month, the American press has published an increasing and extensive information about the accomplishment of these activities, offering details about the participation of the Central Intelligence Agency in - the elaboration and execution of the criminal plans.
+During the last month, the American press has published an increasing and extensive information about the accomplishment of these activities, offering details about the participation of the Central Intelligence Agency in - the elaboration and execution of the criminal plans.
 
 In the reports of the so-called Rockefeller-Commission, as well as the one headed by Senator Frank Church, for the researches on - the illegal activities of the Central Intelligence Agenci (CIA), all that we have stated-above, has been undoubtedly demonstrated.
 

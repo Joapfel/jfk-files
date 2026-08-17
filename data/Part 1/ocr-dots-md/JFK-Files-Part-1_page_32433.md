@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32433.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Not Approved by
 CS Career Service

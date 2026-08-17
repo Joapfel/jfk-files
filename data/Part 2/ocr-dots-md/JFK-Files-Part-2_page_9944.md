@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9944.png
-
-Convert to MarkdownAnother was a conscientious objector to military service. A third had contributed $5,000 to the National Committee to Abolish the House Committee on Un-American Activities. A speaker representing the W.E.B. DuBois Club was identified as a Communist. The FBI covered the meeting with an informant who reported practically verbatim the remarks of all the speakers, including the following:
+Another was a conscientious objector to military service. A third had contributed $5,000 to the National Committee to Abolish the House Committee on Un-American Activities. A speaker representing the W.E.B. DuBois Club was identified as a Communist. The FBI covered the meeting with an informant who reported practically verbatim the remarks of all the speakers, including the following:
 
 * The Chairman of the Philadelphia Ethical Society
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8720.png
-
-Convert to MarkdownITEM 594 Page 9
+ITEM 594 Page 9
 
 Hour not given - Call to Embassy.
 

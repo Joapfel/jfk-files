@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2403.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Vietnamese" theme, wanted to assist North Vietnam and the Viet Cong and wanted to denounce American imperialism. A participant at the conference described the BPP members as "black storm troopers" and said that no decision was made at the conference without consideration of the Panthers' reactions.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35292.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>EXPENSES OUT OF THE<br/>$81,500.00 Budget</td>
    </tr>

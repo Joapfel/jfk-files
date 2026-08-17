@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29298.png
-
-Convert to Markdowno Mr. William Abbott
+o Mr. William Abbott
 Last known Address (1970): 2737 Devonshire Road, NW
 Washington, D.C.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5691.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 CL BY: 705641
 CL REASON: Section 1.5 C

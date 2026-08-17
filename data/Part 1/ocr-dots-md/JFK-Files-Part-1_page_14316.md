@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14316.png
-
-Convert to Markdown29 July 1970
+29 July 1970
 
 Contact Report on Alexander SAMKO, on 28 July 1970.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23011.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 the people who were manning these vessels so they could do
 themselves in if they were to be captured, things like that,

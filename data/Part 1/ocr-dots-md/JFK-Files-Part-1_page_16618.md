@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16618.png
-
-Convert to Markdown3 July 1962
+3 July 1962
 
 TO: WKH
 

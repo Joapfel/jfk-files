@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4108.png
-
-Convert to Markdown13-00000
+13-00000
 
 24 Jan 1963: Asked FBI in Miami if his Cuban or Russian sources gave him a pistol with silencer and microfilm if he would be permitted to return same to his contact so he could be of further use to U.S. Government. He stated that in August or September 1962 he met a man from Maryland in Mexico City who introduced him to individuals whom he believed may have been Soviet Agent.
 

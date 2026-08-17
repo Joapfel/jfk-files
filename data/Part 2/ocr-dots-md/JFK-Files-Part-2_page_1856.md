@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1856.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Request for Quality Step Increase
 for Mr. James S. Woods, GS-09

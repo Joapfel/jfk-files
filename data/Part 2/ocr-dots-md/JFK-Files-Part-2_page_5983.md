@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5983.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 13 August 1998
 

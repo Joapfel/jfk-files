@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21120.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 E. Nosenko's Assignment to 1st Section, 1st Department, January, 1960 - January, 1962.... 93
 

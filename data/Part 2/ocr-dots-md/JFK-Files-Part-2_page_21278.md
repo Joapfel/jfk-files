@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21278.png
-
-Convert to Markdownactivities as a result of his working in the
+activities as a result of his working in the
 Brazilian Embassy in Havana. Source also
 reported that ABELEND has a past history of
 assisting personnel to escape prosecution by the

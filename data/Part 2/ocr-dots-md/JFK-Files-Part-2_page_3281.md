@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3281.png
-
-Convert to Markdown organization in the United States, that the time had come for Diggs and Pulley to be asked "to forego their efforts on behalf of Mario Garcia Kohly Antiga."
+organization in the United States, that the time had come for Diggs and Pulley to be asked "to forego their efforts on behalf of Mario Garcia Kohly Antiga."
 
 This recommendation was approved by General C. P.
 

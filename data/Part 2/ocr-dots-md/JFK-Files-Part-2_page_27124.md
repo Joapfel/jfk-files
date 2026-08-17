@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27124.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 those responsibilities assigned directly to CIA (and thus chiefly from paragraphs lb, 3b, 3c, 3d and 9 of NSCID/5, the chief provisos of which have been noted above).
 

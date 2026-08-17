@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23290.png
-
-Convert to Markdown intelligence about dissident groups.
+intelligence about dissident groups.
 
 Mr. Schwarz. Was it your impression that Dearborn was in charge of the Dominican Republic, or the Agency personnel was in charge of the Dominican Republic?
 

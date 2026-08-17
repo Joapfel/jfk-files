@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22230.png
-
-Convert to Markdown638.
+638.
 
 ## 2. Test in October 1965 on Lee Harvey OSWALD
 

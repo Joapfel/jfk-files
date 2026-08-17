@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23924.png
-
-Convert to MarkdownDocuments indicate that consideration was given within
+Documents indicate that consideration was given within
 the CIA to airdropping rifles into the Dominican Republic.
 At a June 21, 1960, meeting with Ned Holman of the CIA
 Western Hemisphere Division, Ambassador Farland reportedly

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15879.png
-
-Convert to Markdown**Rollins, Randall Vincent**
+**Rollins, Randall Vincent**
 
 * Arrested: 5/3/69
 * Charge: Disorderly Conduct

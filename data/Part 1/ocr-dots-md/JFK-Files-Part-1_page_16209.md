@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16209.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Intelligence Agency, in this instance)" who was there
 to attest to the fact that neither the CIA nor the U.S.

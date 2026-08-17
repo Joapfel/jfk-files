@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15399.png
-
-Convert to Markdown4. Thank you for your continued cooperation.
+4. Thank you for your continued cooperation.
 
 Robert W. Castino
 Security Officer

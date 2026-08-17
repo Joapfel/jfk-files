@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7722.png
-
-Convert to Markdown4.09.16 When talking, does he tend to Close his eyes
+4.09.16 When talking, does he tend to Close his eyes
 Put his hand over his eyes
 Often ______ Sometimes ______
 Rarely ______ Never __X__

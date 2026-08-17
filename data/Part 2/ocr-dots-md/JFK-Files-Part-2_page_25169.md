@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25169.png
-
-Convert to MarkdownGEN. Dinh
+GEN. Dinh
 COUNSELLER NHU
 
 DATES:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7859.png
-
-Convert to MarkdownA: No.
+A: No.
 
 Q: When you monitored in other matters, was it not customary to know the agent to whom a case was assigned? If so, would you not then relate a conversation overheard to that agent?
 

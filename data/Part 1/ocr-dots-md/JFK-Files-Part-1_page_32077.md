@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32077.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="12">REPORT OF SERVICE ABROAD</th>

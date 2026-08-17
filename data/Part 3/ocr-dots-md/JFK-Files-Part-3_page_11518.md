@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11518.png
-
-Convert to MarkdownRobert Morgan
+Robert Morgan
 North Carolina
 
 UNITED STATES SENATE

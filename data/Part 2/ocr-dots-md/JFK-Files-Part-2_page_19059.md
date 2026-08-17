@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19059.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 is not candid, consideration will be given as to whether
 additional investigation is necessary to determine if,

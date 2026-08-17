@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22325.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 Safe Houses for use by defectors and the wiring of operations assets' apartments or other premises where conversations with assets would be forthcoming. For instance, in 1962 the apartment of a defector (Golitzen) was wired. It was believed that Golitzen had become unhappy with CIA treatment and was considering leaving the country. A telephone tap was placed on his phone to attempt to verify this. Brewer believes that these cases involved positive foreign intelligence gathering as opposed to being security cases. From the names of the individuals whose conversations were to be recorded, Brewer presumes that most of these technical operations were directed against foreigners.
 

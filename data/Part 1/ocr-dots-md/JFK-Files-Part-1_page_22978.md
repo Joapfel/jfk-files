@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22978.png
-
-Convert to MarkdownSECRET
+SECRET
 
 15 OCT 1954
 

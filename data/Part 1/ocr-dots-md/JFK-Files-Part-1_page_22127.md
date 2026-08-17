@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22127.png
-
-Convert to Markdown236.
+236.
 
 whether, in his first several months in the Tourist Department,
 he had originated any new methods for operations against Am-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24546.png
-
-Convert to Markdownfrom the Special Group or Special Group Augmented, Helms stated: "...
+from the Special Group or Special Group Augmented, Helms stated: "...
 
 I didn't see how one would have expected that a thing like killing or
 murdering or assassination would become a part of a large group of people

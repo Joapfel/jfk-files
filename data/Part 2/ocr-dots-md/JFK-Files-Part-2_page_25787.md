@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25787.png
-
-Convert to Markdowneducate our young compañeros. This doesn't mean we
+educate our young compañeros. This doesn't mean we
 do not feel solidarity toward nations that are struggling
 and suffering, like the Venezuelan people. But it is up
 to those nations to decide what they want, and if they

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18939.png
-
-Convert to Markdown**REPORT OF
+**REPORT OF
 EFFICIENCY RATING**
 
 **ADMINISTRATIVE-UNOFFICIAL**

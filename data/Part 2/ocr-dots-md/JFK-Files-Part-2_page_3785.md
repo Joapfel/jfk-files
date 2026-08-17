@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3785.png
-
-Convert to Markdown# Administrative - Internal Use Only
+# Administrative - Internal Use Only
 
 1 September 1976
 

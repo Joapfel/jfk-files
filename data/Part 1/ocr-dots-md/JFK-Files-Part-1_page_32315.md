@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32315.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Continuation of Section D of Fitness Report on Daniel Flores, GS-12, for period 22 June - 19 November 1976
 

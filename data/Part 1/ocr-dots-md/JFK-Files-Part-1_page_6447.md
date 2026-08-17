@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6447.png
-
-Convert to MarkdownHowever, EPO Germany has advised OFC that a form has been devised to determine this information and that this form was presented to the agencies for their use. On December 7. They have been asked to report on all persons associated.
+However, EPO Germany has advised OFC that a form has been devised to determine this information and that this form was presented to the agencies for their use. On December 7. They have been asked to report on all persons associated.
 
 (b) Question: What, if any, project exists to relieve TB incidence among this group?
 

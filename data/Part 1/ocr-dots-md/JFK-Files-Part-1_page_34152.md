@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34152.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CLASS OF SERVICE</th></tr></thead><tbody><tr><td>This is a fast message unless it defers channel later to indicate by the proper symbol.</td></tr></tbody></table>
 

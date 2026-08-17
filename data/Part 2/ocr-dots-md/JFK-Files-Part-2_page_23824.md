@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23824.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. diGenova. In fact, the station chief's name and address in Athens had been presented, so when he was in there the address had already been printed previously.
 

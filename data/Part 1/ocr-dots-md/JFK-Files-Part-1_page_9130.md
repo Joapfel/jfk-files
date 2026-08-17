@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9130.png
-
-Convert to MarkdownDuring our last session in Madrid, our bank expressed its
+During our last session in Madrid, our bank expressed its
 appreciation of the efficiency of our办事員 and willingness to do
 whatever Robert Attaway as a bank officer can. In his absence,
 Bob has a public relations office which specializes in public-

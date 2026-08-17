@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2600.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>Routino Slip<br>0-7 ('12-17-73)</td>
         <td>(Copies to Offices Checked)<br>[RE: as Directors appearance before house subcommittee on appropriations fiscal year 1977. 66-3346 3/75]</td>

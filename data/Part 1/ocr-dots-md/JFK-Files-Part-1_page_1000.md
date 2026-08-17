@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1000.png
-
-Convert to Markdown14-00000 GIBSON, Richard Thomas
+14-00000 GIBSON, Richard Thomas
 
 1. HSCA Request, 1 December 1977 (OLC #77-5333) for 16 Warren Commission Documents, by number (these documents in possession of National Archives and withheld from release by CIA).
 

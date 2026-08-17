@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_18518.png
-
-Convert to Markdown(4) Those materials to which the staff has access may be reviewed and studied in Room 4171 of the Hoover Building and such notes may be taken as deemed appropriate by the Staff.
+(4) Those materials to which the staff has access may be reviewed and studied in Room 4171 of the Hoover Building and such notes may be taken as deemed appropriate by the Staff.
 
 (5) The Committee staff shall select from these materials to which access is herein provided, those materials which it deems pertinent to the Committee's inquiries and necessary for delivery to the Committee's offices.

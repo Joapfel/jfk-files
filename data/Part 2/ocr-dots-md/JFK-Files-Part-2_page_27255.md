@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27255.png
-
-Convert to MarkdownLtr from Mr. Manfredi to Mr. Knoche - 17 Mar 75
+Ltr from Mr. Manfredi to Mr. Knoche - 17 Mar 75
 
 TAB S-
 

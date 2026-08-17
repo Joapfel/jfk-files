@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32547.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Future Subcommittee Progress Reports will be prepared on a monthly basis for the previous month's activities and will follow the format utilized in the attached draft. It is requested that appropriate points of contact provide this office (Room 28-614) by 10:00 hours on 1 August 1963 and each subsequent, a report, to duplicate, on the status of those actions approved by the President and assigned to their respective organizations. Additionally, this report should include any other action taken to counteract countermeasures.
 

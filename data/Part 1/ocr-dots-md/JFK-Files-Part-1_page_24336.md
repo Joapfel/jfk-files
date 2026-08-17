@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24336.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **WIFE'S ATTITUDE TOWARD JKLANCE:** Q/1's wife is not witting of his JKLANCE affiliation. She was allowed to believe that he was working indirectly for the Chinese. She certainly is aware of the past JKLANCE accusations which have been leveled at Q/1, but as far as Q/1 can determine (and this is not a subject on which he can come right out and ask a direct question) she continues to accept the Chinese story. It should be added that Mrs. Q/1 is British and is the holder of some rather typical "left" anti-JKLANCE attitudes. It should also be noted that the relationship between the two is fraught with a variety of problems thereby adding to the complexity of the situation. Certainly the whole subject of Q/1's activities is one which Mrs. Q/1 views with misgivings and which is simply not discussed -- lest it lead to acrimony. Mention should also be made that Mrs. Q/1 seems to accept as legitimate the small amount of money received from Q/1's cover and to regard this as a genuine stringer relationship.
 

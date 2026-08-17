@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18610.png
-
-Convert to MarkdownMemorandum W. R. Wannall to W. C. Sullivan
+Memorandum W. R. Wannall to W. C. Sullivan
 
 Re: OPERATIONS
 LEGAL ATTACHE, SANTO DOMINGO OFFICE

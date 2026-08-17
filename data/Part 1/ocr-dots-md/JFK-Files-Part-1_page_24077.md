@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24077.png
-
-Convert to MarkdownMy brother-in-law asked me to send him from abroad the following letter, which I mailed on 16 April 68 from Rotterdam.
+My brother-in-law asked me to send him from abroad the following letter, which I mailed on 16 April 68 from Rotterdam.
 
 Jeffreys, Henry Ram Rudolph & Marks
 Lee House

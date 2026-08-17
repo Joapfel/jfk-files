@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15845.png
-
-Convert to MarkdownI propose that we should reform the method and the system of study throughout the Party. The reasons are as follows?
+I propose that we should reform the method and the system of study throughout the Party. The reasons are as follows?
 
 # I.
 

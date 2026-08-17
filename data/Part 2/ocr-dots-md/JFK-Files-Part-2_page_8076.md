@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8076.png
-
-Convert to MarkdownAPPEALS REVIEW FORM
+APPEALS REVIEW FORM
 
 Tab-52 contains Dispatch UFGA-29877 dated 11 Apr. 1968.
 

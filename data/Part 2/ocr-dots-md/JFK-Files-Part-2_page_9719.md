@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9719.png
-
-Convert to MarkdownCan we change all this? Yes and the N.R.A. will.
+Can we change all this? Yes and the N.R.A. will.
 
 We will bring their tot sitarian Economic dictated to its knees and replace it with a healthy system as prescribed by our founding Fathers and return to the Constitutional free Republic that this was meant to be.
 

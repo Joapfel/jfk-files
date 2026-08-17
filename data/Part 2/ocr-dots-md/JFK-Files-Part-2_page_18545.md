@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18545.png
-
-Convert to MarkdownThe Attorney General may exempt specific topical areas of inquiry from the scope of these procedures. Such topical areas shall be identified by the Attorney General to the Chairman and Vice Chairman by letter upon consideration of the lists submitted pursuant to this provision. As to any such exemption, the procedure to be followed shall be proposed, defined, adopted, and followed after consideration by the SSC of the specific exemption, and pertinent inquiry and discussion at the staff level.
+The Attorney General may exempt specific topical areas of inquiry from the scope of these procedures. Such topical areas shall be identified by the Attorney General to the Chairman and Vice Chairman by letter upon consideration of the lists submitted pursuant to this provision. As to any such exemption, the procedure to be followed shall be proposed, defined, adopted, and followed after consideration by the SSC of the specific exemption, and pertinent inquiry and discussion at the staff level.
 
 (2) The following procedures shall apply (a) where delivery of materials requested might jeopardize FBI sensitive sources or ongoing operations, or (b) where the Domestic Task Force Leader requests access to materials, rather than delivery to the SSC.
 

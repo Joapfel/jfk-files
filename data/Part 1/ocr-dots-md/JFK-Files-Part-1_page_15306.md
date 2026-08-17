@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15306.png
-
-Convert to Markdown-8-
+-8-
 
 C. Period of w' II:
 

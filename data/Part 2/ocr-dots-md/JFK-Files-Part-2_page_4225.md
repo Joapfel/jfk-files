@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4225.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA created a South Viet Chinese intelligence organization, established a civilian intelligence system and trained the personnel. In addition the Agency assisted in the development of intelligence apparatus within the SVN military.
 

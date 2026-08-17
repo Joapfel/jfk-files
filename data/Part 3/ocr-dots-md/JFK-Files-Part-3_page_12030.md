@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12030.png
-
-Convert to MarkdownCounterintelligence operations and techniques were thoroughly discussed with field representatives attending the October 22 and 23, 1970, conference at the Bureau concerning the Black Panther Party (BPP). The conference concluded counterintelligence was an effective tool and there was a definite need for counterintelligence operations to neutralize black extremist activities.
+Counterintelligence operations and techniques were thoroughly discussed with field representatives attending the October 22 and 23, 1970, conference at the Bureau concerning the Black Panther Party (BPP). The conference concluded counterintelligence was an effective tool and there was a definite need for counterintelligence operations to neutralize black extremist activities.
 
 The effect on black extremists of some authorized counterintelligence operations are difficult to assess, but a substantial number effected since last inspection have had measurable consequences and some of these included the following:
 

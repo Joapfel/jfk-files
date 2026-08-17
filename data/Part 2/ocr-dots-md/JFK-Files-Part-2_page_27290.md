@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27290.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A. Memo for Insp. General - 11 Apr 75 SECRET
 

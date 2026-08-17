@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23541.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (e) Copy of the accounting by Individual for Advance, dated 11 December 1953 in the amount of $468.00. (The signed original, signed on 11 December 1953 in the writer's presence, has been forwarded to Mr. Wolcott, Finance Division.
 

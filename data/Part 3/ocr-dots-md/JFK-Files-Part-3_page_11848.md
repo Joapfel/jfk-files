@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11848.png
-
-Convert to MarkdownResearch Branch are accepted to meet an emergency situation (McLek case) but these reductions are not considered consistent with adequate supervision nor offer necessary flexibility within Sections to meet emergencies and specials as they arise when viewed in terms of an extended period of time. It is expected the McLek case, as with all specials, will ultimately wind down. At that time and as personnel are available for reallocation, appropriate recommendations will be made and considered within the Division as to their commitment based on work loads at the time consistent with the overall needs of the Division.
+Research Branch are accepted to meet an emergency situation (McLek case) but these reductions are not considered consistent with adequate supervision nor offer necessary flexibility within Sections to meet emergencies and specials as they arise when viewed in terms of an extended period of time. It is expected the McLek case, as with all specials, will ultimately wind down. At that time and as personnel are available for reallocation, appropriate recommendations will be made and considered within the Division as to their commitment based on work loads at the time consistent with the overall needs of the Division.
 
 ## Supervisory Case Load Averages
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17016.png
-
-Convert to Markdown<table><thead><tr><td colspan="2">MESSAGE FORM</td></tr></thead><tbody><tr><td>SECRET</td><td></td></tr></tbody></table>
+<table><thead><tr><td colspan="2">MESSAGE FORM</td></tr></thead><tbody><tr><td>SECRET</td><td></td></tr></tbody></table>
 
 <table><tbody><tr><td>BILLING</td><td>56997</td></tr></tbody></table>
 

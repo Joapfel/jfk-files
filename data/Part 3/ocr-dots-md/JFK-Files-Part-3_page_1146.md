@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1146.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 On June 6, 1968, FBI Headquarters reminded the Detroit FBI Office to be alert to take advantage of all possible disruptive activities during the forthcoming National Convention of Students for a Democratic Society (SDS), which was to be held at Michigan State University, East Lansing, Michigan.
 

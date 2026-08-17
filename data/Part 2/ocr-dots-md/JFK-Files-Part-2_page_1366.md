@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1366.png
-
-Convert to Markdown5 APR 1957
+5 APR 1957
 
 MEMORANDUM FOR: Acting Chairman, FI Career Service
 

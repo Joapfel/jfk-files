@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13869.png
-
-Convert to MarkdownBrief history of his meeting.
+Brief history of his meeting.
 
 Text: The attached list of comments should primarily be operational in nature. All cableHQs see if they can identify any CIO.
 

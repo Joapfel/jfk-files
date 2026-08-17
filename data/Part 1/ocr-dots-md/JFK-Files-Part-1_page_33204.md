@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33204.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>TO:</td><td>Phil Koblenz</td></tr><tr><td>FROM:</td><td>F1/D</td></tr><tr><td colspan="2">A. ☐ SEE DOSSIER ON SUBJECT IN F1/D BIOGRAPHIC FILES.</td></tr><tr><td colspan="2">B. ☐ A MEMORANDUM IS ATTACHED HERE TO.</td></tr><tr><td colspan="2">C. ☐ WITH THE LIMITED IDENTIFICATION PROVIDED IN THE REQUEST, F1/D IS UNABLE TO DETERMINE WHETHER THERE IS INFORMATION ABOUT THE SUBJECT OR NOT.</td></tr><tr><td>D. ☑ F1/D HAS NO PERSONAL INFORMATION ON SUBJECT, IF INFORMATION ABOUT THE SUBJECT APPEARS AT A LATER DATE, IT WILL BE REPORTED TO YOU AS IT BECOMES AVAILABLE.</td><td>Except</td></tr><tr><td colspan="2">E. ☐ THE SUBJECT OF THIS REQUEST IS APPARENTLY THE SUBJECT OF THE FOLLOWING:<br/>*Previous green list request from WJ/4/PA-Prop, 27 Sept.61, op, JL/116726.<br/>NOTE: Army, Cuban Intell. Service, Source: LA-II-3-2207, 4 May 1961,</td></tr><tr><td>-</td><td>TB</td></tr><tr><td>-</td><td>(APR 9)</td></tr></table>
 

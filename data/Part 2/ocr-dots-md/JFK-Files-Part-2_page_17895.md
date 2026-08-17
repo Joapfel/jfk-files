@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17895.png
-
-Convert to MarkdownNR 004 LR PLAIN
+NR 004 LR PLAIN
 
 3:09 PM URGENT MARCH 26, 1975 GM
 

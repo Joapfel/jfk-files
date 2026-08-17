@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6743.png
-
-Convert to Markdown4. Did any of these records originate with any other Federal, foreign, state, or local agency? If so, please describe which agencies and the approximate numbers.
+4. Did any of these records originate with any other Federal, foreign, state, or local agency? If so, please describe which agencies and the approximate numbers.
 
 A small number of CIA's JFK assassination records, probably less than 5%, originated with the State Department and the Immigration and Naturalization Service. Another small number of records, also less than 5%, are original HSCA records stating Committee requests to CIA.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11519.png
-
-Convert to Markdownof the source, date of activity, date received, and name of the Agent receiving the information are known, it is not necessary to request the office originally obtaining the information to document it further by furnishing information showing the location of the original in the office files. If all documentation, except the latter item, is not in the possession of the office preparing the report, it should be obtained.
+of the source, date of activity, date received, and name of the Agent receiving the information are known, it is not necessary to request the office originally obtaining the information to document it further by furnishing information showing the location of the original in the office files. If all documentation, except the latter item, is not in the possession of the office preparing the report, it should be obtained.
 
 V. If it is found desirable to include in a report the identities of individuals who are known communists and have been associates of the subject to lend weight to evidence of the subject's potential dangerousness, only the source of the information showing the associate to be a communist need be identified.
 

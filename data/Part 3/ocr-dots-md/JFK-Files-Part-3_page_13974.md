@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13974.png
-
-Convert to Markdownin order to postpone Soviet development of countermeasures against OXCART; and (3) instead of an OXCART cover story to the effect that a new U. S. interceptor aircraft is being produced, the cover story should be that a variety of U. S. military aircraft are being developed. (In making these recommendations the Board confined itself to the intelligence-related aspects of the subject, noting the Board's awareness that the problem involved military and Congressional considerations (the B-70 issue, for example) apart from intelligence concerns.)
+in order to postpone Soviet development of countermeasures against OXCART; and (3) instead of an OXCART cover story to the effect that a new U. S. interceptor aircraft is being produced, the cover story should be that a variety of U. S. military aircraft are being developed. (In making these recommendations the Board confined itself to the intelligence-related aspects of the subject, noting the Board's awareness that the problem involved military and Congressional considerations (the B-70 issue, for example) apart from intelligence concerns.)
 
 ## Board Report of February 4, 1963
 

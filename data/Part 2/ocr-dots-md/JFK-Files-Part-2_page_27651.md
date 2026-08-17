@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27651.png
-
-Convert to MarkdownEDUCATION:
+EDUCATION:
 
 Fordham University, Economics, B.S. 1955.
 

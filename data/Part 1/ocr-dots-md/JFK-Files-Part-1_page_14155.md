@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14155.png
-
-Convert to Markdownand strengthen his operational capabilities in terms of
+and strengthen his operational capabilities in terms of
 being able to spot and assess Latin American political
 leaders. Hunkeler got himself appointed to a policy
 making position in the Identity B, he was elected to

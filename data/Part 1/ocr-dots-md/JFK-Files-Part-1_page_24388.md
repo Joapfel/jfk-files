@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24388.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>NEGRO PRESS INTERNATIONAL INC.<br/>5708 N. STATE 324-6320<br/>CHICAGO, IL 60621</td><td></td><td></td><td>PAYMENT<br/>APR 25 1959<br/>4-11 1969 2.77/710<br/>$200.00</td></tr></thead><tbody><tr><td>DAY<br/>TO THE<br/>ORDER OF</td><td>Richard Gibson</td><td>APR 25 1959</td><td></td></tr><tr><td colspan="2">Two Hundred and 77</td><td>DOLLARS</td><td>CHICAGO<br/>ILLINOIS 2.77</td></tr><tr><td colspan="2">American National Bank<br/>and Trust Company of Chicago</td><td></td><td>Richard E. Savers, Jr.</td></tr><tr><td>#001514# 01:0710#0077# 289086#</td><td></td><td></td><td>#00000 20000#</td></tr></tbody></table>
 

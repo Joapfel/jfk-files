@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16302.png
-
-Convert to MarkdownA New York chapter has started and has become active and militant. This chapter is headed by ARTHUR TURKO who has made such statements as once the YP in New York obtains an office, the YP would have to "blow away" any pigs who try to force their way in.
+A New York chapter has started and has become active and militant. This chapter is headed by ARTHUR TURKO who has made such statements as once the YP in New York obtains an office, the YP would have to "blow away" any pigs who try to force their way in.
 
 10/6/69)
 

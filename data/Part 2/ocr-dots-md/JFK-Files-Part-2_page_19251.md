@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19251.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 # The Jeanette Rankin Brigade
 Mass woman's peace action

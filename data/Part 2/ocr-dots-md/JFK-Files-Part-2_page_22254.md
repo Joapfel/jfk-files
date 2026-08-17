@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22254.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>WAJNWRIGHT, William<br>LASH, A. M.<br>TEREDINO, Carlos<br>McCONE</td><td>McNAMARA ✓<br>SPECIAL GRP.<br>(AUGMENTED)<br><br>August 10-11<br>1962<br><br>CASTRO</td><td></td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>WAJNWRIGHT, William<br>LASH, A. M.<br>TEREDINO, Carlos<br>McCONE</td><td>McNAMARA ✓<br>SPECIAL GRP.<br>(AUGMENTED)<br><br>August 10-11<br>1962<br><br>CASTRO</td><td></td></tr></table>
 
 ### OCCURRENCE:
 

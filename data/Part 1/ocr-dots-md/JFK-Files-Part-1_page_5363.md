@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5363.png
-
-Convert to Markdown19 June 1968
+19 June 1968
 
 DCB Case: 47,560
 Supplement to:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19853.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>57-63</td><td>C.S. Deductions including a Steaffer</td><td>$1,781.83</td></tr><tr><td>67-70</td><td>"<br/>Contract</td><td>961.24</td></tr><tr><td colspan="2"></td><td style="border-top: 1px solid black;">$2,743.07</td></tr></table>
 

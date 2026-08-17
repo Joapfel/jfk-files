@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3846.png
-
-Convert to Markdown14 August 1968
+14 August 1968
 
 SUBJECT: GUGAS, Chris
 

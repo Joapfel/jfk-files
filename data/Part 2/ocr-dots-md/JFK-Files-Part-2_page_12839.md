@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12839.png
-
-Convert to Markdownto the US, where he is subject to immediate imprisonment for
+to the US, where he is subject to immediate imprisonment for
 parole violation (spelling out)
 
 Frank Castro

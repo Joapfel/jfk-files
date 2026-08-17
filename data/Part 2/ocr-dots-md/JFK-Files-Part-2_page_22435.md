@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22435.png
-
-Convert to MarkdownSECRET
+SECRET
 
 information on the cards?
 

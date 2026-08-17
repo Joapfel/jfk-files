@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1855.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "C. In addition to his normal duties, Mr. Woods is constantly thinking of ways to increase the efficiency of the Station Registry, and to be of greater assistance to the Station as a whole. Several of his ideas have been adopted by the Station with a resulting increase in effectiveness. His positive approach to all problems and his cheerfulness and willingness to perform any task have benefited both the Station and the Agency.
 

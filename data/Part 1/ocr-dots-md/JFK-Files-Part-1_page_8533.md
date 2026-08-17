@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8533.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 IICM, GUJ. W.Jim
 

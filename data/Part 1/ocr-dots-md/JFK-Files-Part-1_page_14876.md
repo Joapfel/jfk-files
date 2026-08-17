@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14876.png
-
-Convert to Markdownto the Subject's handlers because he indicates that he will abide by firm authoritative decisions even though he objects to them.
+to the Subject's handlers because he indicates that he will abide by firm authoritative decisions even though he objects to them.
 
 Whereas the Subject was attached to his mother, his sister was identified with his father. The sister followed her father to Georgia out of a spirit of affection and sacrifice because she felt that her father needed her. The Subject regards his sister as a tributary of his father's mistakes. The sister taught languages in school and at the time of Stalin the children would say: "We have done this and that thanks to Stalin!" She would reply: "You are individuals and you have done this or that without Stalin!" As a result she was arrested and sent to a concentration camp but with the change of regimes she obtained her freedom and returned to her job. It would appear that the sister is an individualist like the Subject.
 

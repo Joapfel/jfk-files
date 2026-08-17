@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20100.png
-
-Convert to Markdown# I. ORGANIZATION OF BOSTON WOMEN'S ABORTION ACTION COALITION (BOWAAC)
+# I. ORGANIZATION OF BOSTON WOMEN'S ABORTION ACTION COALITION (BOWAAC)
 
 BOWAAC, the local affiliate of the Women's National Abortion Action Coalition (WONAAC), was formed out of the local Female Liberation group; and while BOWAAC is not exclusively made up of Socialist Workers Party (SWP), Boston, and Young Socialist Alliance of Boston (YSA-B) female members, it is controlled by members of those groups.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11858.png
-
-Convert to MarkdownAssistant Director C. D. Brennan
+Assistant Director C. D. Brennan
 (JAS:ebc 9/8/71)
 
 Security and extremist informants are essential to the Bureau's investigative responsibilities. They operate largely in controversial areas of old line and new left revolutionary organizations and individuals as well as in the volatile fields of black and white extremism and racial dissension. They are fraught with controversy and potential for embarrassment to the Bureau. Extended experience has taught us the absolute necessity for tight, effective, centralized control of these informants by SOG.

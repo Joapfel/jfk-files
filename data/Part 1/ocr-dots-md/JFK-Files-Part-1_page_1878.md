@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1878.png
-
-Convert to MarkdownSTANDARD FORM NO. 84
+STANDARD FORM NO. 84
 
 SECRET
 

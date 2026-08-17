@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9355.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Nikolaevski is extremely anxious to gain the blessing of the United States Government for his Paris venture. I told him frankly that while I was in no position to express an official opinion and could not venture a guess as to Washington's reaction, it seemed unlikely to me that the American Government could afford to take sides in the internal political struggle within the Russian emigration, and that until the emigre groups succeeded in reconciling their own differences and were prepared to concentrate their efforts against the Soviet regime rather than against each other, the American Government would hardly be in a position to associate itself in any way with them. Nikolaevski replied that the anti-Communist struggle itself was an inadequate program and that something positive must be offered to the Russian people. I agreed to this position but suggested that a united program on which emigration could agree would probably have much greater impact than a variety of programs offered by competing groups. Nikolaevski, however, stuck to his ideological guns.
 

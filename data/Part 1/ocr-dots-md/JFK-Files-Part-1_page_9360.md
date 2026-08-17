@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9360.png
-
-Convert to MarkdownI told him that feeling coincided entirely with our own views and
+I told him that feeling coincided entirely with our own views and
 that we would expect him to conduct himself in that fashion.
 It was agreed that he should continue as a member of the Inter-
 national Committee of Twenty-five but should take no active overt

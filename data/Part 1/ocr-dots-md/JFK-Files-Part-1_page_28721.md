@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28721.png
-
-Convert to Markdown6 September 1966
+6 September 1966
 
 SUBJECT: Memorandum in Lieu of Final Fitness Report on
 Robert T. Shaw

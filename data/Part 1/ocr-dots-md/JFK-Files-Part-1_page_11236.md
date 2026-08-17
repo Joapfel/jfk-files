@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11236.png
-
-Convert to MarkdownG: VINCE DAILY
+G: VINCE DAILY
 T: WH/C/FI/TO
 F: R. 1271
 TE: 18 MARCH 1960

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7864.png
-
-Convert to Markdown247. Cable, dated 29 April 1968. (b) (3), (b) (6)
+247. Cable, dated 29 April 1968. (b) (3), (b) (6)
 
 248. Memorandum, dated 1 May 1968. (b) (1), (b) (5)
 

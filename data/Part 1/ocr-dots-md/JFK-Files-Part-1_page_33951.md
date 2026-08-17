@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33951.png
-
-Convert to Markdownvery well offer to give us something we had not asked for,
+very well offer to give us something we had not asked for,
 and we, the New York State Corporation, could hardly demand
 certain rights from the German Government.
 

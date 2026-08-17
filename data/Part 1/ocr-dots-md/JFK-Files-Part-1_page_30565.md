@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30565.png
-
-Convert to MarkdownChief of Station, Shanghai
+Chief of Station, Shanghai
 
 26 November 1947
 

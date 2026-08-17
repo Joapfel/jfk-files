@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6675.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (U) The index reference to the Defectors File identifies a list dated 13 September 1966 which was known as the Defector Machine Listing. This listing was a computer printout of defectors which reflected limited biographic data on each name. This listing was maintained separately from the actual Defectors File; notations within the Defectors File show the Defector Machine Listing as permanently charged to the Security Analysis Group of OS. Efforts to locate this listing or determine the disposition have been unsuccessful.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22286.png
-
-Convert to Markdown693.
+693.
 
 personally spoke to him. NOSENKO explained his (unconfirmed) participation in this case, which was not among the responsibilities of his section, by saying there was no KGB officer available who spoke German but ~~was~~ had known to speak "a little English," a language in which NOSENKO had fair fluency. In 1957 NOSENKO was also involved in the sexual and blackmarket entrapment of ~~~Norwegian journalist (again, not a target of NOSENKO's section, being neither American, British or Canadian);~~ NOSENKO has not explained how he came to be involved in this operation, but he said his role was that of involving ~~~with women and blackmer~ ~~~steers so that another officer, ARKHIPOV, could recruit him. ~~~has not identified NOSENKO, but reported on an individual whose role corresponds to the one NOSENKO claimed as his own (Pages 121-122). NOSENKO'S third operation in 1957 was really not an operation at all. He was assigned to accompany the British ~~~and the latter's interpreter ~~~on a tour of Soviet publishing houses (Page 121). NOSENKO said his purpose was only to watch ~~~a suspected intelligence agent or officer. His presence was confirmed by ~~which~~ who recognized NOSENKO's photograph.
 

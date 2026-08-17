@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6863.png
-
-Convert to MarkdownT. Jeremy Gunn
+T. Jeremy Gunn
 Executive Director and General Counsel
 Assassination Records Review Board
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13569.png
-
-Convert to Markdown13:20
+13:20
 
 La señora HÁNTEL, con acento argentino, indicó al cubano ROGELIO RODRÍGUEZ que salió mañana y que por favor le mande "esa persona las cosas que lo faltan". FONTE: el diario El Comercio. Página 47.
 

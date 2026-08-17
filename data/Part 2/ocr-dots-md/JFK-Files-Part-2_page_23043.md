@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23043.png
-
-Convert to Markdown10 First Street, S.E., Washington, D.C. 20003
+10 First Street, S.E., Washington, D.C. 20003
 
 Phone (Area 202) 544-6000
 

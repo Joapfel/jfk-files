@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_929.png
-
-Convert to MarkdownThe Acting Attorney General
+The Acting Attorney General
 
 ST-114 REC-38
 Director, FBI 62-24172-356

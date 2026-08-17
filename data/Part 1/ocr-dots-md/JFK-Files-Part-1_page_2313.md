@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2313.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ANALYTICAL COMMENTS CONCERNING THE BONA FIDES OF
 ---

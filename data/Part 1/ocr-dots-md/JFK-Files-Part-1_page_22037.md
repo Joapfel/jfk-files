@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22037.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Finnish Travel Manifest for 16 November 1960
 (See Part V.E.3.c.iii)

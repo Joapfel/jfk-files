@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28619.png
-
-Convert to Markdown3. (A) DO YOU HAVE ANY REASON TO QUESTION THIS PERSON'S LOYALTY TO THE UNITED STATES? ☐ YES ☒ NO
+3. (A) DO YOU HAVE ANY REASON TO QUESTION THIS PERSON'S LOYALTY TO THE UNITED STATES? ☐ YES ☒ NO
 
 If your answer is "YES," please give full details under ITEM 6.
 

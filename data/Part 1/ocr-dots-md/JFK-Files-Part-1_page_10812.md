@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10812.png
-
-Convert to Markdown, Inglaterra, Fran-
+, Inglaterra, Fran-
 lapon.
 Jal se traduce en:
 eces para Cuba en

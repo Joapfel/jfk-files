@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7869.png
-
-Convert to MarkdownCaption on Folder or File: (Print)
+Caption on Folder or File: (Print)
 
 TECHNICAL SUMMARIES, SENT TO WHITE HOUSE
 VOLs. I - VII

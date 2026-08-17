@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15085.png
-
-Convert to Markdowndied, she went back to work. She changed her place of employment several times and the only job I can remember was her last employment as a cashier with the shoe-repair shop (artel) on Sovetskaya Ulitsa in Tbilisi. She died in 1934 of a heart attack.
+died, she went back to work. She changed her place of employment several times and the only job I can remember was her last employment as a cashier with the shoe-repair shop (artel) on Sovetskaya Ulitsa in Tbilisi. She died in 1934 of a heart attack.
 
 10. **BROTHERS AND SISTERS:** None at present. I had a brother Leon born 1923 who died some six months after his birth.
 

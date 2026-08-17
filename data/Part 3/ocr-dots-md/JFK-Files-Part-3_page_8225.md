@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8225.png
-
-Convert to Markdown517
+517
 
 We look forward to hearing from you and to making the necessary arrangements for your appearance.
 

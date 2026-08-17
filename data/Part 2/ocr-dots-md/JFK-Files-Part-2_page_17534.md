@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17534.png
-
-Convert to Markdown7/13/69 MICHAEL MC CARTHY, EUGENE CHARLES
+7/13/69 MICHAEL MC CARTHY, EUGENE CHARLES
 
 These two individuals allegedly attended an underground newspaper convention in Ann Arbor, Michigan. The exact dates of this attendance is unknown, however, they returned to Chicago on 7/12/69.
 

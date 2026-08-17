@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31776.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH/dp
 
 The "Seattle Post-Intelligencer" newspaper, Seattle, Washington, in its issue of November 22, 1967, reported that ROBERT SCHEER spoke to an overflow audience at the University of Washington, Hub Auditorium, November 21, 1967. The article stated that SCHEER said it was arrogant for Americans to decide what is best for the Vietnam people. SCHEER said it was an "obscene argument that withdrawal of American forces from Vietnam would result in a blood bath. He

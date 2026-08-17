@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2193.png
-
-Convert to Markdown12 February 1970
+12 February 1970
 
 MEMORANDUM FOR: Chief, CI Support
 SUBJECT: Resume of Employment - Birch D. O'Neal

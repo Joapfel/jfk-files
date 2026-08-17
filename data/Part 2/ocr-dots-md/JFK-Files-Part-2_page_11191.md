@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11191.png
-
-Convert to MarkdownII. Race
+II. Race
 
 White and Caucasian
 Negro

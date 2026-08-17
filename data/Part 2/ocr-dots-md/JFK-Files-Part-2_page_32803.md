@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32803.png
-
-Convert to Markdown# CONFIDENTIAL
+# CONFIDENTIAL
 
 The area may take immediate protective measures.
 

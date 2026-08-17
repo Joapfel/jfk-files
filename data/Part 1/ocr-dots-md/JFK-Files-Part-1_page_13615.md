@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13615.png
-
-Convert to Markdownwith plates no. 10-13-58.
+with plates no. 10-13-58.
 
 1928- SUBJECT and other man arrived at Cuban embassy and drove inside.
 

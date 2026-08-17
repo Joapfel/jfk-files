@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15205.png
-
-Convert to MarkdownSao Paulo le 29 Octobre 1959
+Sao Paulo le 29 Octobre 1959
 
 Chers Nathelia et Loule
 

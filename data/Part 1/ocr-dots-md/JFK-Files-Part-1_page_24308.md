@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24308.png
-
-Convert to Markdown1958
+1958
 
 Q/1 worked for Agence France Presse - Paris. He was discharged by AFP when Ollie Harrington (American negro) brought forgery charges against him.
 

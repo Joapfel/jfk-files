@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11765.png
-
-Convert to Markdownprovisional upon the satisfactory clearance of your name by
+provisional upon the satisfactory clearance of your name by
 the appropriate officials.
 
 11) The effective date of this contract is the date on which your satisfactory clearance is received and the term shall be indefinite.

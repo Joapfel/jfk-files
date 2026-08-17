@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13664.png
-
-Convert to MarkdownEMBAJADA DE LA REPUBLICA DE CUBA
+EMBAJADA DE LA REPUBLICA DE CUBA
 MÉXICO D.F.
 
 28 de julio de 1961

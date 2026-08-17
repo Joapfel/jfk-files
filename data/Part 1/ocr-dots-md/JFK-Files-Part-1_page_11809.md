@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11809.png
-
-Convert to MarkdownProject Outling Clearance Sheet
+Project Outling Clearance Sheet
 
 Project Title FURIOSC C (PROGVE) Amendment No. 2 Project No. 
 Developed by John H. Herbert III Organization Date

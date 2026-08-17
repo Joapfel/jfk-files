@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9522.png
-
-Convert to MarkdownDE T-1
+DE T-1
 December 30, 1970
 
 ## IV. DOCUMENTS URGING THE REVOLUTIONARY PROGRAM

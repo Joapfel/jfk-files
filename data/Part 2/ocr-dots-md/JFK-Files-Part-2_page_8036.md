@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8036.png
-
-Convert to Markdown's look at the testimony that is called into question by the PSE:
+'s look at the testimony that is called into question by the PSE:
 
 1. The claim that Oswald's rifle was found in the Texas School Book Depository.
 

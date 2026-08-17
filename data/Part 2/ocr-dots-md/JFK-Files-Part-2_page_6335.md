@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6335.png
-
-Convert to MarkdownNew Note
+New Note
 
 NOTE FOR: Edward P. Mitten @ DCI
 FROM: John N. Greer

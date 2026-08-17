@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5897.png
-
-Convert to Markdown# Organization of Records Management in the Agency
+# Organization of Records Management in the Agency
 
 This slide is Administrative Internal Use Only
 

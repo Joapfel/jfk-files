@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2544.png
-
-Convert to MarkdownG. NOSENKO has no valid claim to certainty that the KGB
+G. NOSENKO has no valid claim to certainty that the KGB
 recruited no American Embassy personnel between 1953 and his
 defection in 1964. (Previous conclusion)
 

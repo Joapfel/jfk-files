@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27956.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 8 August 1975
 

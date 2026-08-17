@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28057.png
-
-Convert to MarkdownSECRET
+SECRET
 (Very密. 尽知)
 
 <table><thead><tr><th colspan="9">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td colspan="4">MCM 29 SEPT 58</td><td colspan="3"></td><td rowspan="2"><table border="1" style="border-collapse: collapse; text-align:center;"><tbody><tr><td>3. Date Of Birth</td><td>4. Vol. Pref.</td><td>5. Sex</td><td>6. CS-EOB</td></tr><tr><td>Mo. 10 Dq. 28 Yr. 26</td><td>Nino-D 5 Pt. 1 10 M-2 Code 1 M 1</td><td>Mo. 09 Dq. 10 Yr. 51</td><td>Yes 1 No 2 Code 09 10 51 Yes 1 No 2 Code 2</td></tr></tbody></table></td><td rowspan="2"><table border="1" style="border-collapse: collapse; text-align:center;"><tbody><tr><td>7. SCD</td><td>8. CSC Rotmt.</td><td>9. CSC Or Other Legal Authority</td></tr><tr><td>Mo. 12</td><td>Ds. 27</td><td>Yr. 50</td><td>Yes 1 No 2</td><td>Code 1</td><td>Yes 1 No 2</td><td>Code 09 10 51</td><td>Yes 1 No 2</td></tr></tbody></table></td></tr><tr><td colspan="4"></td><td colspan="3"></td><td colspan="2"></td></tr><tr><td colspan="4"></td><td colspan="3"></td><td colspan="2"></td></tr><tr><td colspan="4"></td><td colspan="3"></td><td colspan="2"></td></tr><tr><td colspan="4"></td><td colspan="3"></td><td colspan="2"></td></tr><tr><td colspan="4"></td><td colspan="3"></td><td colspan="2"></td></tr></tbody></table>

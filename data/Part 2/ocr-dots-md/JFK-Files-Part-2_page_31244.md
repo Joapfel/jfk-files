@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31244.png
-
-Convert to Markdown002291 the door is SECRET, but I let nor have the courage to tell him (Comment) Trial evidence will end to agree to Europe in late 64 and away as soon as possible. No mention of Maxl at Paris Nov 85 emirate with Agay. No hint of poison pen Nov 63.
+002291 the door is SECRET, but I let nor have the courage to tell him (Comment) Trial evidence will end to agree to Europe in late 64 and away as soon as possible. No mention of Maxl at Paris Nov 85 emirate with Agay. No hint of poison pen Nov 63.
 
 If all details would come out, Castro would sue for peace if Kennedy special investigator & executive same in current state.
 

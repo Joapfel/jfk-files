@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13241.png
-
-Convert to Markdown# NOTES
+# NOTES
 
 1. In a Spanish questionnaire of Personal Information, Subject listed his brother Raul POSADA-Carriles as an adminitrator of the Marignao Electric Company as a relative in some government service. He did not list his brother Roberto in this section, although he did list Roberto in Para 16, Brothers and Sisters.
 

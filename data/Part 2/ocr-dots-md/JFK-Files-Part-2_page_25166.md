@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25166.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 CIA, CIA officer in Saigon
 

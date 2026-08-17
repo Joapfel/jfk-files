@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8717.png
-
-Convert to MarkdownLLAGOSTERA : Said, today a good man died.
+LLAGOSTERA : Said, today a good man died.
 
 CONCEPCION's: Asks who.
 Wife

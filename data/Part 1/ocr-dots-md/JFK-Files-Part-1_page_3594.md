@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3594.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">SECRET FORM<br>TOTAL COPIES:</th></tr></thead><tbody><tr><td>CAE: B.CAREW:mot</td><td><input type="checkbox" /> FILE RID</td></tr><tr><td>UNT: WH/C/CICS</td><td><input type="checkbox" checked /> INDEX</td></tr><tr><td>RAT: 2578</td><td><input type="checkbox" checked /> NO INDEX</td></tr><tr><td>DATE: 26 OCT 66</td><td><input type="checkbox" checked /> FILE IN CS FILE NO.</td></tr><tr><td></td><td>201-300923</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">SECRET FORM<br>TOTAL COPIES:</th></tr></thead><tbody><tr><td>CAE: B.CAREW:mot</td><td><input type="checkbox" /> FILE RID</td></tr><tr><td>UNT: WH/C/CICS</td><td><input type="checkbox" checked /> INDEX</td></tr><tr><td>RAT: 2578</td><td><input type="checkbox" checked /> NO INDEX</td></tr><tr><td>DATE: 26 OCT 66</td><td><input type="checkbox" checked /> FILE IN CS FILE NO.</td></tr><tr><td></td><td>201-300923</td></tr></tbody></table>
 
 <table><tr><td rowspan="4">ROUTING</td><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table>
 

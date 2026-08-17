@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1039.png
-
-Convert to Markdown1. HSCA Request, 3 Nov 77:
+1. HSCA Request, 3 Nov 77:
 
 7. Any and all information concerning the CIA's analysis and/or use of the Zapruder film.
 

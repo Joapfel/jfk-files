@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26668.png
-
-Convert to MarkdownPOR. $ 800.00
+POR. $ 800.00
 
 Recibi de los Sres. Trigueros y Ginard la suma de:—
 $ 500.00 QUINIENTOS PESOS MONEDA NACIONAL, por concepto de co-

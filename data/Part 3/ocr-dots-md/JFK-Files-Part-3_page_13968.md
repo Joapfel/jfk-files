@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13968.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Rec. #36:
 

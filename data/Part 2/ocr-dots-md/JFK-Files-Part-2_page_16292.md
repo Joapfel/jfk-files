@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16292.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 Ronald Stachel, Deputy Minister of Health,
 Illinois BPP, spoke concerning "the pig harassment" of

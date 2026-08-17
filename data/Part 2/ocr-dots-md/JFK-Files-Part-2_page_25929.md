@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25929.png
-
-Convert to Markdown522 ORGANIZED CRIME AND ILLICIT TRAFFIC IN NARCOTICS
+522 ORGANIZED CRIME AND ILLICIT TRAFFIC IN NARCOTICS
 
 operations that they are engaged in, to the detriment of the public at large, and to the detriment of innocent people who can't help themselves. It focuses and emphasizes how serious this menace is.
 

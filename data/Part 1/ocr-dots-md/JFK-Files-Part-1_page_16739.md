@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16739.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">
      S E C R E T 172217Z

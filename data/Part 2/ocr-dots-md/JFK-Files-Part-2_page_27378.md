@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27378.png
-
-Convert to Markdown9. Memorandum dated 30 January 1974 from John D. Morrison, Jr. to Inspector General, re "HN 7-11, Continuing Support to Other Federal Agencies."
+9. Memorandum dated 30 January 1974 from John D. Morrison, Jr. to Inspector General, re "HN 7-11, Continuing Support to Other Federal Agencies."
 
 10. Memorandum dated 14 December 1973 from DDO to Inspector General re "HN 7-11, Continuing Support to Other Federal Agencies."
 

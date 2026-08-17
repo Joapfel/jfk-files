@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32575.png
-
-Convert to Markdown# S-E-C-R-E-T
+# S-E-C-R-E-T
 Security Information
 
 the means of shifting the whole radio propaganda war balance in our favor. They would be indispensable in the event of hot war. We, therefore, are impressed with the necessity of developing our capacities in this direction to the utmost and proceeding immediately with the covert procurement of bases and equipment needed for the task.

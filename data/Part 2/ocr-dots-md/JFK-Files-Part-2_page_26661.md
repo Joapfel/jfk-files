@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26661.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q Was he ever hired to do any piecework for the Agency?
 

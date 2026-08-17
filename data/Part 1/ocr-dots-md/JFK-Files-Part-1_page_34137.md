@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34137.png
-
-Convert to Markdown19-120-26
+19-120-26
 
 <table><tr><td>INDEX</td><td colspan="2">[X] YES [ ] NO</td></tr><tr><td colspan="3">CLASSIFY TO FILE NO.</td></tr><tr><td>X-REF TO F LE NO.</td><td colspan="2"></td></tr><tr><td>FILE RID</td><td>[X]</td><td>RET. TO BRANCH [ ]</td></tr><tr><td>DESTROY</td><td colspan="2">[ ] SIO.</td></tr><tr><td colspan="3"><table><tr><td>A CXP<br/>DISSEW BY 28</td><td>[Signature]<br/>AUG 8</td></tr></table></td></tr><tr><td>ACTION</td><td>[X]</td><td>RID COPY</td></tr><tr><td colspan="3"><table><tr><td>ADVANCE COPY</td><td>[ ] ISSUED</td><td>[ ] SLIPPED</td><td>[ ] FILMED</td></tr></table></td></tr><tr><td>INFO</td><td colspan="3">FILE L.B. ADDP, EUR 8, CA2, CA/PROP. c1/c2, DQ4, DQ/M 3</td></tr></table>
 

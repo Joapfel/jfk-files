@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31085.png
-
-Convert to Markdown announced trade over Cuba which never
+announced trade over Cuba which never
 occurred.
 
 # Volume II

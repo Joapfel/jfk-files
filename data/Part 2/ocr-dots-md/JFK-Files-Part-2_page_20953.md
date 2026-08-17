@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20953.png
-
-Convert to MarkdownCE 100-11664
+CE 100-11664
 
 # NON SYMBOL SOURCE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2178.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>ELECTION, DECLINATION, OR WAIVER<br/>OF LIFE INSURANCE COVERAGE<br/>FEDERAL EMPLOYEES GROUP LIFE INSURANCE PROGRAM</td>
     <td>*<br/>'IMPORTANT<br/>AGENCY INSTRUCTIONS<br/>ON BACK OF ORIGINAL</td>

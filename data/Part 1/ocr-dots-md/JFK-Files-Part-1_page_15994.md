@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15994.png
-
-Convert to Markdownin 22 different countries. If somebody said to us tomorrow, 'We need a complete government, from a minister of health to a minister of welfare to the guy who presses the buttons to make the elevator go,' we could do it."
+in 22 different countries. If somebody said to us tomorrow, 'We need a complete government, from a minister of health to a minister of welfare to the guy who presses the buttons to make the elevator go,' we could do it."
 
 Just how much demand there is for pre-packaged governments — or how much capability Defense Systems International has for providing them — is uncertain. What the firm would appear to have an obvious capacity for, however, is warfare. Its president and chief administrator is WerBell's son-in-law, Paul Routhier, a retired U.S. Air Force lieutenant-colonel who also doubles as the company's air-war expert. On the staff are various other ex-military types, ranging from a Marine sergeant to several retired colonels. Among its activities, says Routhier, is the sale to smaller, U.S.-approved nations of armament packages, including not only hardware but also training.
 

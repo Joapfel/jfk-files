@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30413.png
-
-Convert to Markdownintelligence service, that fact would be noted in the ISR?
+intelligence service, that fact would be noted in the ISR?
 
 Mr. Tovar. Another US intelligence service?
 

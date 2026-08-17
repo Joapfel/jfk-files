@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2647.png
-
-Convert to MarkdownSec. 13. - Obtained diploma from Pittsburg H.S. while in the Army through series of examinations given by the School
+Sec. 13. - Obtained diploma from Pittsburg H.S. while in the Army through series of examinations given by the School
 
 Sec. 14. - Draft Classification: 4A (Draft-exempt at present)
 Duties in 25th Mecz, Cav. Ren. Trp.: Military Policeman

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24273.png
-
-Convert to MarkdownGenerally, the notionals have increased in number by about
+Generally, the notionals have increased in number by about
 30% since the current CCS chief's takeover of Cover operations
 in 1967. This reflects a policy of increasing the number of
 cutout arrangements to increase security -- i.e., reduce likeli-

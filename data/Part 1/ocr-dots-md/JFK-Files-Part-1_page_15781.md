@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15781.png
-
-Convert to Markdown1, SR Division:
+1, SR Division:
 
 R. O. L. SULLY, from 1062 J Stoddart
 Deputy Director of Security (Airborne Forces and Gen.))

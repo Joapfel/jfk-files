@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1229.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>ORIGINAL</td><td>[ ] INDEX</td><td rowspan="3"><table border="1"><tr><td>BOUTING</td></tr><tr><td></td><td>4</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>6</td></tr></table></td></tr><tr><td>DATE</td><td>12 October 1963</td><td>FILE IN GS FILE NO.</td></tr><tr><td>CONF.</td><td colspan="2">DEFERRED</td></tr><tr><td>INFO</td><td colspan="2">ROUTINE</td></tr></tbody></table>
 

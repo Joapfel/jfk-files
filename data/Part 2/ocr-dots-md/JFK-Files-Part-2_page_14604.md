@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14604.png
-
-Convert to MarkdownLetter to SAC, Washington Field
+Letter to SAC, Washington Field
 Re: LAOTIAN ACTIVITIES IN THE U. S.
 
 her should be brought up to date along with reopening your

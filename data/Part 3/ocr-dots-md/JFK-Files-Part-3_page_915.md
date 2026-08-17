@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_915.png
-
-Convert to MarkdownThe Deputy Attorney General
+The Deputy Attorney General
 
 Director, FBI
 

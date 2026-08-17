@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2612.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 FVD: 12 MAY 70

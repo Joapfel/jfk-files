@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27204.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 O. Protective Measures Taken During CIA Facilities Construction (SECRET)
 

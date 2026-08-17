@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2356.png
-
-Convert to MarkdownAn effort has been made to determine if there are any particular
+An effort has been made to determine if there are any particular
 patterns or areas where NOSENKO has indicated he did not recall
 specific matters or certain details, and no pattern or specific areas
 have been noted. NOSENKO, in fact, has an unusually good memory

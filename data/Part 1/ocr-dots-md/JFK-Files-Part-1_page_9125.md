@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9125.png
-
-Convert to MarkdownDav Cleveland Co. (Cleveland)
+Dav Cleveland Co. (Cleveland)
 
 2) De Chemicals, Inc., S.A.
 Address to Acreage 5

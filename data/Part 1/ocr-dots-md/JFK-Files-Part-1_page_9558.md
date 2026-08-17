@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9558.png
-
-Convert to MarkdownSkoggs.
+Skoggs.
 
 Samples of material so far issued.
 

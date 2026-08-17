@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16609.png
-
-Convert to MarkdownThe following are the identities of the
+The following are the identities of the
 States Attorney's Police, who participated in the
 raid as made available on December 27, 1969, by
 Sergeant DANIEL R. GROTH, Cook County States Attorney's

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24208.png
-
-Convert to Markdownclean break-away of SAT from the Agency with the exception of a one
+clean break-away of SAT from the Agency with the exception of a one
 year extension on the lease/purchase agreement for an L 100-30 air-
 craft from SAT. This agreement for sale between Mr. Williams and
 the Agency included a provision that any profit derived from the

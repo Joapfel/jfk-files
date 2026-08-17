@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13719.png
-
-Convert to Markdown100
+100
 
 14
 

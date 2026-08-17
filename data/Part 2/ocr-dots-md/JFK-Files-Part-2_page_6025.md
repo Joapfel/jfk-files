@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6025.png
-
-Convert to MarkdownDr. Kermit L. Hall
+Dr. Kermit L. Hall
 
 Experience
 

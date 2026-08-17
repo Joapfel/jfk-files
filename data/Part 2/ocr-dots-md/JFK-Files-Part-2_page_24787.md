@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24787.png
-
-Convert to Markdownadditional support, coupled with fact ref. C items [the carbines] already made available to them for personal defense; station authorized pass ref. A items [the machine guns] to opposition member for their additional protection on their proposed endeavor." (Draft of HQS to Station cable, 5/2/61).
+additional support, coupled with fact ref. C items [the carbines] already made available to them for personal defense; station authorized pass ref. A items [the machine guns] to opposition member for their additional protection on their proposed endeavor." (Draft of HQS to Station cable, 5/2/61).
 
 The cable was never sent.
 

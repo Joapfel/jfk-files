@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24307.png
-
-Convert to MarkdownPLANS, PROGRAMS, AND PROJECTS
+PLANS, PROGRAMS, AND PROJECTS
 
 HIB 230-1
 4b

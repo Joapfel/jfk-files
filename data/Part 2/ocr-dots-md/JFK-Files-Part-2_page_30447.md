@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30447.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a variety of take, what we call take, from the various tap
 operations. This take sometimes was processed into English.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31883.png
-
-Convert to Markdown16 October 1957
+16 October 1957
 
 C-1681 (Kiladzeu)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14537.png
-
-Convert to Markdown... Only that I have received a message. I
+... Only that I have received a message. I
 received a telephone call... I have just
 arrived in Madrid, I am not familiar with
 Madrid, or know anyone.

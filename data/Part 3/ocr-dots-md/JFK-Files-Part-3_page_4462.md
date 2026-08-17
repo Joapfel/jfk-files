@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4462.png
-
-Convert to MarkdownPH 92-444
+PH 92-444
 
 AT NORTH MIAMI BEACH, FLA.
 

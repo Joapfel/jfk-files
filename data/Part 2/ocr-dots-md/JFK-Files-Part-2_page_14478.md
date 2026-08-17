@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14478.png
-
-Convert to MarkdownORIGINAL FORM NO. 10
+ORIGINAL FORM NO. 10
 
 UNITED STATES GOVERNMENT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23223.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 come up as one means that was being considered and which the Chief of Station should explore?
 

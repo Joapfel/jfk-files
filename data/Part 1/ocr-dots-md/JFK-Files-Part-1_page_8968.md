@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8968.png
-
-Convert to Markdownconsiderable snide criticism by the press; by a lot of the
+considerable snide criticism by the press; by a lot of the
 population that this was a poor example of. Alliance for
 Progress spending. It was a small school; it was within the
 desired $30,000 budget, but I am thinking that most of the

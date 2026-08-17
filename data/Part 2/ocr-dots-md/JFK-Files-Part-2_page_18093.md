@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18093.png
-
-Convert to Markdown# Honorable John A. McCone
+# Honorable John A. McCone
 
 **NOTE:**
 

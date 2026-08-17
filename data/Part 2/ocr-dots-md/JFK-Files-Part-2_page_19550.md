@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19550.png
-
-Convert to MarkdownWelcome to Washington! Each one of us represents the spirit and message of this call to American Women. Together, in wide and wonderful coalition, we are the JEANNETTE RANKIN BRIGADE!
+Welcome to Washington! Each one of us represents the spirit and message of this call to American Women. Together, in wide and wonderful coalition, we are the JEANNETTE RANKIN BRIGADE!
 
 We are walking and assembling off Capitol Grounds because we have been denied our First Amendment right to petition Congress on Capitol Grounds. We are challenging this denial in the Federal Courts, not only for ourselves, but for all Americans! Our aim and tactic today is to carry through a silent procession and a peaceful, disciplined protest.
 

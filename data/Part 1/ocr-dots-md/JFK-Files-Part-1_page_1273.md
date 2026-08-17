@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1273.png
-
-Convert to MarkdownSECRET
+SECRET
 SENSITIVE
 
 -2-

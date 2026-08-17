@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4471.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>LAMAR</td>
     <td>PAD</td>

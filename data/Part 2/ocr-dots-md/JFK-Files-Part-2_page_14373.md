@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14373.png
-
-Convert to MarkdownMr. William Colby
+Mr. William Colby
 
 Page Two
 March 12, 1975

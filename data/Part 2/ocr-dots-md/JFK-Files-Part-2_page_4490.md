@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4490.png
-
-Convert to Markdownc. BELL 0897 (OUT 9804) 6 June 1961:
+c. BELL 0897 (OUT 9804) 6 June 1961:
 
 " MORATORI unknown to us. Do not confide in him.
 

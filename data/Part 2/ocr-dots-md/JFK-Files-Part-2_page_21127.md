@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21127.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 appear reluctant in the past. One was his extra-marital affair with a friend of INGA KARLAMOVA and the other was his arrest in 1954 when he used a KGB cover document to obtain treatment for venereal disease. As a result he was removed as Komsomol Secretary.
 

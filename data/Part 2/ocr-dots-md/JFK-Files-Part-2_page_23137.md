@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23137.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 Customs, Immigration and Naturalization, FBI, CIA, were working together to try to keep these operations from going to Cuba.
 

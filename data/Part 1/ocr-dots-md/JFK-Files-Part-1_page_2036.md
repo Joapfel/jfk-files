@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2036.png
-
-Convert to Markdown25 MAR. 1963
+25 MAR. 1963
 
 CS-2793
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17567.png
-
-Convert to Markdownb. HMMW-7955, 14 August 1959, Approval of Renewal Request for FY 1960
+b. HMMW-7955, 14 August 1959, Approval of Renewal Request for FY 1960
 
 ## 5. Objectives
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4541.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>INDEX: ☐ YES ☑ NO</td>
     <td rowspan="5">CLASSIFIED MESSAGE TOTAL COPIES 24</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8982.png
-
-Convert to Markdown1917
+1917
 
 CLASSIFIED MESSAGE
 

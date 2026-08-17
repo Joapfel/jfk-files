@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15453.png
-
-Convert to MarkdownTE : 23 MAR '62
+TE : 23 MAR '62
 
 <table><tr><td colspan="3">CLASSIFIED MESSAGE</td></tr><tr><td></td><td>STANDARD FORM 1730</td><td>OB</td></tr><tr><td>1</td><td>5</td><td>4</td></tr><tr><td>2</td><td>Copy</td><td>5</td></tr><tr><td>3</td><td>Likely</td><td>6</td></tr></table>
 

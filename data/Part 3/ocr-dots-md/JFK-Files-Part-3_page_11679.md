@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11679.png
-
-Convert to MarkdownNATION OF ISLAM
+NATION OF ISLAM
 Bufile 25-330971
 
 The Nation of Islam (NOI) is an independent semi-religious group consisting of an adult, hard-core, all black membership of 6,000 members. Muhammad's Temple Number 2 of the Holy Temples of Islam, Chicago, Illinois, is the national headquarters of this organization consisting of 108 groups in the U.S. and one in Bermuda. In seven U.S. cities it operates University of Islam schools for 200 to 600 children at each school. Local groups convene weekly, and once each year a national convention is held in Chicago which is attended by 5,000 to 6,000 individuals.

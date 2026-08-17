@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21179.png
-
-Convert to Markdownas an agent against American House. He said this
+as an agent against American House. He said this
 woman had some difficulty at American House regarding
 her passport
 

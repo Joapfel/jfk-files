@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27986.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Frederick C. Randall
 

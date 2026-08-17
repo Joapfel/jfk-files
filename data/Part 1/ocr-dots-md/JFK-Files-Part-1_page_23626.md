@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23626.png
-
-Convert to MarkdownHRS-A-95 - 5 March 1953 -
+HRS-A-95 - 5 March 1953 -
 
 Re: Operational
 

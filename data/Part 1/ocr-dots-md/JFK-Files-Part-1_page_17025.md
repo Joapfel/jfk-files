@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17025.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Associate Deputy Director
 For Operations

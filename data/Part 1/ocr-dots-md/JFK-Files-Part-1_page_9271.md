@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9271.png
-
-Convert to Markdown6 Oct. 1930
+6 Oct. 1930
 
 In re: How many pictures?
 

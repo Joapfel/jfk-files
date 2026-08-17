@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6222.png
-
-Convert to Markdown12 JUL 65 IN:09904
+12 JUL 65 IN:09904
 
 SECRET 122334Z
 SDP INFO DIR CITE WAVE 3888

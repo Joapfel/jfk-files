@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23747.png
-
-Convert to MarkdownJust to be the double advocate, one of the values that
+Just to be the double advocate, one of the values that
 occurs to me is to bring the State Department in touch with
 reality.
 

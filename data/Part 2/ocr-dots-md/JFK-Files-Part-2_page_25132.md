@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25132.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>CONEIN<br>NHU, NGO DINH<br>MADAME NHU<br>CAN, NGO DINH</td><td>"Summer 1963"</td><td>DIEM</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>CONEIN<br>NHU, NGO DINH<br>MADAME NHU<br>CAN, NGO DINH</td><td>"Summer 1963"</td><td>DIEM</td></tr></table>
 
 **OCCURRENCE:** CONEIN stated that the attacks in May in Hue followed up by an attack in August on the pagodas in Saigon consolidated the three or four different sects of the Buddhists by making them become a political entity which they had never been before. CONEIN stated that it had become obvious to people in the State Department, USAID and JASPAU, as well as persons within the CIA and the country team generally, that the true power of the government at that time was not DIEM but rather NHU and CAN, as well as MADAME NHU, the chief of the women's' solidarity movement. DIEM was felt to be out of touch with reality and not getting the true facts as everything was being channeled through his brother, NHU. pp. 44-45
 

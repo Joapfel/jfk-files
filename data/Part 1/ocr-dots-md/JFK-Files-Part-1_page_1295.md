@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1295.png
-
-Convert to Markdown14 February 1977
+14 February 1977
 
 MEMORANDUM
 SUBJECT: Tadeusz (Tad) Witold SZULC (AM[CAPE]-1) (201-50539)

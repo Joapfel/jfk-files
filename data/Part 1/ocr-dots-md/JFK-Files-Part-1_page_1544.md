@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1544.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>STATE OF NEW YORK, COUNTY OF</td>
     <td>NEW YORK</td>

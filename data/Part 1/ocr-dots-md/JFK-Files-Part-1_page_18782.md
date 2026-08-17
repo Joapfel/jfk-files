@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_18782.png
-
 at our installation in Bombay, India. Due to the increased cost of living in Bombay, request is made that she be given a temporary promotion from a CAF-7 to a CAF-9. The increase in salary, plus the additional cost-of-living and quarters allowances, will be sufficient to permit Miss Goodpasture to meet the highly inflated cost of living in Bombay, an impossibility for the past several months.
 
 2. A review of subject's reports on living conditions in Bombay reveals that since her arrival in April, she has had to live in temporary quarters on a day-to-day or week-to-week basis. The rooms occupied by subject have been shared with at least one other girl and sometimes two or three. Bathroom facilities are also shared with the other occupants of the hotel. During a period of several months, subject and her roommate occupied a nine by twelve room on the fifth floor of a "walk-up" and shared a bath with four men. This room cost them $150 a month each. At the present time subject and her roommate are living in a single room, without private bath, and for the privilege are paying $ Rs. 200 a week each (approximately $60.).

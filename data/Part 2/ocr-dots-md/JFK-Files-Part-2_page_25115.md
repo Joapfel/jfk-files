@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25115.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 McCone
 Coloy

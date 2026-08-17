@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19745.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 NAME O'CONNELL, James P. Jr.
 

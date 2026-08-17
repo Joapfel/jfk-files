@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_239.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 Decedent Walter Stochmal died in Ohio during 1964 and bequeathed $1,000 to "Glos Ludowy," and the remainder of his estate, after payment of just debts and other bequests, to "The Worker." "Glos Ludowy" is a pro-Polish Government foreign language newspaper published at Detroit, Michigan. "The Worker" was an east coast communist newspaper, now defunct.
 

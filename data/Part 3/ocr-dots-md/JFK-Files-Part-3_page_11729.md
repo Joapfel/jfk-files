@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11729.png
-
-Convert to Markdown# Recommendation
+# Recommendation
 
 We recommend that the office be continued in its present status for an additional six months at the end of which time consideration should be given as to its personnel complement.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3127.png
-
-Convert to Markdown6. PSICUICAS.
+6. PSICUICAS.
 
 No muestra tensión nerviosa de ninguna índole casi nunca. Sabe dominarse muy bien. Es frío y calculador. Nada de tics. Lejos de ser historioo. Se enoja en muy raras ocasiones. De- muestra su enoje más bien con gestos (puertazo) que palabras. No trata despectivamente a nadie. Mejor de ser sumiso, pero es muy paciente.
 

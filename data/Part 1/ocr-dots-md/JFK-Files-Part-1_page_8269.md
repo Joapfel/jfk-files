@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8269.png
-
-Convert to MarkdownJuly 16, 1969
+July 16, 1969
 
 Contact Report
 Subject: LIOAI-1 (p-8903)

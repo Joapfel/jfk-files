@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17097.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8 JAN 1967
 

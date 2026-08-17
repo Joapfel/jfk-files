@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4466.png
-
-Convert to MarkdownPH 92-444
+PH 92-444
 
 On October 14, 1959, Mrs. ELOISE MANGONE advised that the All-Coin Amusement Company 2820 Northwest 7th Avenue, Miami, Fla., which operates vending machines and juke boxes, is owned by JOSEPH and ELOISE MANGONE. Mrs. MANGONE said that BEN GALLUP was in Miami during the 1957-1958 winter season for approximately six months, that he had rented a house, address unknown, on one of the islands adjacent to Miami Beach. She said that GALLUP had contacted her and her husband with a proposition to buy into their vending machine business but after considerable negotiating the deal was never consummated.
 

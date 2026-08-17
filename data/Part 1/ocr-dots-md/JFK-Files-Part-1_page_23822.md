@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23822.png
-
-Convert to Markdown20
+20
 
 IMPORTANT INFORMATION FOR USU
 

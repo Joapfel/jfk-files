@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8547.png
-
-Convert to Markdown<html><body>3791 (6-24) HEREBIN IS UNCLASSIFIED<br/>DATE 11/6/75 BYSPMIMI<br/>CLASSIFY AS APPROPRIATE</html>
+<html><body>3791 (6-24) HEREBIN IS UNCLASSIFIED<br/>DATE 11/6/75 BYSPMIMI<br/>CLASSIFY AS APPROPRIATE</html>
 
 <table>
    <tr>

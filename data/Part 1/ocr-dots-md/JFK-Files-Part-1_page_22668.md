@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22668.png
-
-Convert to MarkdownDECEMBER 20, 1965
+DECEMBER 20, 1965
 
 SUBJECT: Cover Review for Harold R. NORMAN
 

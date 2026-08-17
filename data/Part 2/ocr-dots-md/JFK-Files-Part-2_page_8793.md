@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8793.png
-
-Convert to MarkdownAMWARM Operation, 19-6-57
+AMWARM Operation, 19-6-57
 
 **SW Message #45 from Agent dated 1 December 1963**
 

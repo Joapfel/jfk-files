@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_15034.png
-
-Convert to Markdown1 March '63
+1 March '63
 
 This date Don Eci. Arndt and Bill L. discussed with Gus S. and Jack R. of APRP the content of our conversation with Earl Blake Cox 27 Feb. Gus agreed with Blake's thinking and suggested that instead of writing for immigration information, either he or Jack would go to ICEM and personally discuss the immigration questions with the proper people.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13560.png
-
-Convert to Markdown13:05
+13:05
 
 JUBITO R. MATA. OJO O realzo a ROGELIO RODRIGUEZ de la
 embajada Cubana que lo tiene dividido, que sete carente

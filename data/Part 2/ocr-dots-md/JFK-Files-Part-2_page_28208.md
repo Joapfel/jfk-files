@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28208.png
-
-Convert to MarkdownLANDLORD-TENANT INVESTIGATOR, City of Alexandria, Alexandria, Virginia. Served as liaison between landlords and tenants in disputes, and as an authority on Virginia housing regulations. Achieved recognition for outstanding negotiations between a tenant and the Virginia Power Co. (VEPCO). Resolved problems dealing with rent increases, utility bills, and the absence of landlord-tenant contract-provided services. (1975)
+LANDLORD-TENANT INVESTIGATOR, City of Alexandria, Alexandria, Virginia. Served as liaison between landlords and tenants in disputes, and as an authority on Virginia housing regulations. Achieved recognition for outstanding negotiations between a tenant and the Virginia Power Co. (VEPCO). Resolved problems dealing with rent increases, utility bills, and the absence of landlord-tenant contract-provided services. (1975)
 
 STAFF ASSISTANT, Senator Herman Talmadge (Ga.), Washington, D.C. Helped to edit the final volume of the Watergate Report, and assisted with bookkeeping concerns on the Watergate Committee. Drafted legislative correspondence for the Senate Agriculture Committee in response to constituent requests. (1974)
 

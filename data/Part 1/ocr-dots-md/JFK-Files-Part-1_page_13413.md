@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13413.png
-
-Convert to MarkdownASSIFIED MESSAGE
+ASSIFIED MESSAGE
 
 TOTAL COPIES:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31785.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 11. 9. 73
 

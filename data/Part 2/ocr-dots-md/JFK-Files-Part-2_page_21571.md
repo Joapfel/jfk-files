@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21571.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 TESTIMONY OF HOWARD J. OSBORN, ACCOMPANIED
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3335.png
-
-Convert to Markdown13-00000
+13-00000
 
 ASSISTANT SECRETARY OF DEFENSE
 WASHINGTON 25. D. C.

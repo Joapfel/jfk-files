@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31483.png
-
-Convert to MarkdownSF 100-338.36
+SF 100-338.36
 
 FTD/maj.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10316.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA INTERNAL USE ONLY
 

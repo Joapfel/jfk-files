@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5572.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Memorandum from Mr. W. R. Wannall to Mr. J. B. Adams
 Re: Senstudy

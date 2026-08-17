@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13797.png
-
-Convert to Markdown...3.-
+...3.-
 
 107- Ent: 26. a la contestacion fuera.- 111-
 

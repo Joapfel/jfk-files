@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18792.png
-
-Convert to Markdown8. JAN. 41
+8. JAN. 41
 (Dato)
 
 Central Intelligence Group

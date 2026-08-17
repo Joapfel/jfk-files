@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27036.png
-
-Convert to Markdown14. Electronic surveillance of Identities 59, 60, 61, 62, 63, 64, and 65 (p.426)
+14. Electronic surveillance of Identities 59, 60, 61, 62, 63, 64, and 65 (p.426)
 
 15. Arrangements between CIA and State Department Passport Office for CIA to obtain alias passports (p. 487-488)
 

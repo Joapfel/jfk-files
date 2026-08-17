@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13897.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 being supplied through Burundi and Brazzaville. The Congo situation could become dangerous to the U.S. position in African public opinion. Chinese Communist influence is persuasive, and several African countries will recognize Communist China and vote for its admission into the U.N. The Chicomms offered a Central African Republic $4 million for diplomatic recognition, and got it.
 

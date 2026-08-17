@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22222.png
-
-Convert to Markdown630.
+630.
 
 file on ABIDIAN. On the first page is written that 'I, NOSENKO,
 Yuriy Ivanovich, opened this file'. On 16 February he said: "Time

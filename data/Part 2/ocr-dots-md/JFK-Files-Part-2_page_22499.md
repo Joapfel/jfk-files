@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22499.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "Because of the obvious value of having access to such an index, the writer (McCord) recommends that we encourage the continuation of Wiley's index project in any way in which we are able to further such work."
 

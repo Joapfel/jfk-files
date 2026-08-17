@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31891.png
-
-Convert to Markdown# STATEMENT (Continued)
+# STATEMENT (Continued)
 
 A. I like serving in Vietnam better than in the States.
 

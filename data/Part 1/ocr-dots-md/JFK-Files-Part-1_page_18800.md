@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18800.png
-
-Convert to MarkdownSS Form 1035
+SS Form 1035
 (Rev. 3/31/86)
 
 No.

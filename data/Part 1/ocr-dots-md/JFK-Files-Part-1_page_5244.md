@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5244.png
-
-Convert to Markdown- 8 -
+- 8 -
 
 shall be necessarily proper communication means to cause the mobility of labor and atten-
 nate to the prior fluctuations. These oscillations make it possible to decide on the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5403.png
-
-Convert to Markdown Smith, Thomas J. Research Section Out of Service 3410 Memphis Lane, Bowie, Maryland
+Smith, Thomas J. Research Section Out of Service 3410 Memphis Lane, Bowie, Maryland
  Smith, Ursula, Miss Director's Office Out of Service 11 North Garfield, Arlington, Virginia
  Soyars, William B. Assistant Director Out of Service 12 Green Winged Teal Road, Amelia Island Plantation, Amelia, Florida
  Stewart, Alfred LaFornia Mechanical Section Out of Service Rt. 2, Box 164, Statesboro, Georgia

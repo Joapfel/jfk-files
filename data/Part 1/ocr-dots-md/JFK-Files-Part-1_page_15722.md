@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15722.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG: D. DIRECTOR
 UNIT: AF/W/2

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9594.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 would continue to adhere to the tenets and principles of the old MM organization.
 

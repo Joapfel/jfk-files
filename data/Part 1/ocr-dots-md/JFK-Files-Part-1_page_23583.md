@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23583.png
-
-Convert to Markdown# SECRET Security Information
+# SECRET Security Information
 
 d. Subject will use a cover story while in Washington that he is studying at George Washington University in the field of Economics.
 

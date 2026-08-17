@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31825.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="10">FROMER DAVID REED</td>
     <td rowspan="2">SEX</td>

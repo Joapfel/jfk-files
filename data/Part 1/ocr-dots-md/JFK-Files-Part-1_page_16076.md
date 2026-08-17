@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16076.png
-
-Convert to Markdown140000
+140000
 
 II. Immediate Development of Special Operations Hunter/Killer Teams Will be made in a manner that will not have any direct effect on the operation and with-
 in the time frame required.

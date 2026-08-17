@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16404.png
-
-Convert to Markdown# VII. Operational Leads and Lines to Subject for Recruitment or Defection
+# VII. Operational Leads and Lines to Subject for Recruitment or Defection
 
 We have several sources reporting on activities of the APCJ, its members etc. within the Dominican Republic and/or in the U.S.A. This could be used to elicit information on PEDUERO through their normal contacts. This is being used at this time to report on other Cuban targets.
 

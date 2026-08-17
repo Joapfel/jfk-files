@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25400.png
-
-Convert to MarkdownHarvey wanted to know all that Rosselli knew about Cuba in an intelligence line- Harv~~ey told him at ~~first~~ this meeting to have no further contact with Maheu and that he should not talk further with Giancana. He also said that he, Harvey, was in charge of the operation and that ~~Maheu should take~~ or that Rosselli should take his orders from Harvey. At this point the original project, using pills, was considered defunct.
+Harvey wanted to know all that Rosselli knew about Cuba in an intelligence line- Harv~~ey told him at ~~first~~ this meeting to have no further contact with Maheu and that he should not talk further with Giancana. He also said that he, Harvey, was in charge of the operation and that ~~Maheu should take~~ or that Rosselli should take his orders from Harvey. At this point the original project, using pills, was considered defunct.
 
 After this first meeting, Rosselli again contacted his Cuban people. He made several trips, that is, Rosselli made several trips with Harvey in Florida, some down in the Keys to see what type of operations were continuing. One of the projects Harvey had Rosselli doing was verifying CIA reports by using Rosselli's own people who were in frequent contact with Cuba. The intelligence reports dealt both with personalities in the Cuban hierarchy, as well as different ongoing operations. Rosselli paid his own billsunk before the Bay of Pigs but after Harvey would usually pick up the tab.
 

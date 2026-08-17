@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2336.png
-
-Convert to Markdown# intelligence Community Staff
+# intelligence Community Staff
 ATTN: Central Index
 
 NOTE: SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.

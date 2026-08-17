@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23740.png
-
-Convert to MarkdownThe question then is how can they be provided with the
+The question then is how can they be provided with the
 information that they need to allow them to make a recruitment
 that the Committee may find is valuable.
 

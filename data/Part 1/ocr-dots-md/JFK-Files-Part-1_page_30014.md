@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30014.png
-
-Convert to MarkdownAGREEMENT
+AGREEMENT
 
 In consideration of the above mentioned consideration to be paid by you in your own discretion and free of any obligation on our part, and further in consideration that after having read the following article fully, you will take the steps necessary to accept the terms offered below and hereby agree:
 

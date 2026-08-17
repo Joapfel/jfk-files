@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3959.png
-
-Convert to MarkdownAttorney General Edward H. Levi
+Attorney General Edward H. Levi
 Page Two
 
 December 18, 1975

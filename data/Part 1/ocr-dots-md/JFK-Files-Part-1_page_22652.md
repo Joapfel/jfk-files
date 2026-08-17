@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22652.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG:</td><td>J. E.E.</td></tr><tr><td>UNIT:</td><td>VI/III/KKICO</td></tr><tr><td>EXT:</td><td>2555</td></tr><tr><td>DATE:</td><td>29 DECEMBER 1969</td></tr></table>
 

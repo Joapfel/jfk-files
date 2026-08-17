@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6292.png
-
-Convert to MarkdownV. Staff Preliminary Suggestions to Board
+V. Staff Preliminary Suggestions to Board
 
 A. Factors suggesting possible relevance to assassination:
 

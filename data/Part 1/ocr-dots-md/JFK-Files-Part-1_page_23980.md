@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23980.png
-
-Convert to Markdowna feeling that if the situation in the Philippines changed both he and his wife would like to go back there. This is what he may be going (working for) through his contacts with the Progressive Review. I don't know how far they have contacts with the people inside the Philippine government but they claim to have.
+a feeling that if the situation in the Philippines changed both he and his wife would like to go back there. This is what he may be going (working for) through his contacts with the Progressive Review. I don't know how far they have contacts with the people inside the Philippine government but they claim to have.
 
 Shashikan R. -8 Mochav Kanji, Dikit Rd, Bombay 57. A Pastel was an Indian from Bombay who wrote several among other things, articles. He is a business man and I imagine a rather successful business man. He is on the fringe of the Indian Communist Party and now involved with the pro-Chinese wing of the party.
 

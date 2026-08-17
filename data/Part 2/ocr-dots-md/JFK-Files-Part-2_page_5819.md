@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5819.png
-
-Convert to Markdownother indexing tools which provide much more expedited and efficient searches. Because the most significant portion of JFK assassination-related material was generated prior to this conversion to electronic databases, searches of the sequestered collection or other contemporaneous CIA records have had to rely primarily upon labor intensive hand searches.
+other indexing tools which provide much more expedited and efficient searches. Because the most significant portion of JFK assassination-related material was generated prior to this conversion to electronic databases, searches of the sequestered collection or other contemporaneous CIA records have had to rely primarily upon labor intensive hand searches.
 
 Since 1992 and the passage of the JFK Act, CIA has, in responding to the requests of the Board, had to devise search methodologies and techniques to address both the hard copy and electronic versions of our databases. With respect to the hard copy material, Agency efforts have concentrated on those component records most likely to yield assassination-related documents. Short of a complete manual review of all documents in the Agency, the techniques used for searching hard copy materials include expert reviews of file series and folder names, including associations with known related topics, retrieving boxes of files from the Agency's Archives and Records Center, and manually reviewing those files identified as likely to contain the sought after materials.
 

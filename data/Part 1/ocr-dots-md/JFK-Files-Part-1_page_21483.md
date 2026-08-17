@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21483.png
-
-Convert to MarkdownMEMORANDUM FOR: CI/0G/SOV/SAT
+MEMORANDUM FOR: CI/0G/SOV/SAT
 
 From: SR/2/CE/Rita L. Perkins
 

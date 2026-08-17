@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23287.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the document which we marked as Exhibit 1, in fact the arms were delivered after January 20th.
 

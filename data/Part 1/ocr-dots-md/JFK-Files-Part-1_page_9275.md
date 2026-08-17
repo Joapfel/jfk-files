@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9275.png
-
-Convert to Markdown25 Sept. 1950
+25 Sept. 1950
 
 As you probably saw in yesterday's "H. Y. Times Book Review", SIMON & SCHUSTER will be the publishers this fall of "The Life of FUR in Photographs and Text" (old) by Stefan Lorant, and of "Life's Picture History of World War II".
 

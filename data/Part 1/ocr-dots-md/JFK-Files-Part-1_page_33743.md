@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33743.png
-
-Convert to Markdown(Mrs. Augustine outlined the history of the Slavik-Major Conference and the conditions which are currently existing there in. A copy of Mrs. Augustine's report will shortly follow this report of the meeting with State.)
+(Mrs. Augustine outlined the history of the Slavik-Major Conference and the conditions which are currently existing there in. A copy of Mrs. Augustine's report will shortly follow this report of the meeting with State.)
 
 In reply to Mrs. Augustine's statement that she understood Mr. Vedeler to believe 14% should give support to the Slavik-Major Conference, Mr. Vedeler advised that he considered this support should take the form of assistance to special projects, but that he did not advocate that assistance should be given to the Conference on an all-out basis.
 

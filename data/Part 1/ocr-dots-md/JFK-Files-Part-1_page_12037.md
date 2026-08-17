@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12037.png
-
-Convert to MarkdownPage No. 38-6
+Page No. 38-6
 (Dec. 1947)
 
 OUTGOING CLASSIFIED MESSAGE

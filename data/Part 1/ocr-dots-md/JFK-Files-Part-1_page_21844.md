@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21844.png
-
-Convert to Markdown- Aleksandr Nikolayevich CHEREPANOV, a KGB officer whose case is reviewed in Part VI.D.7.c.
+- Aleksandr Nikolayevich CHEREPANOV, a KGB officer whose case is reviewed in Part VI.D.7.c.
 
 Source
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3037.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 expected, despite numerous meetings with Department representatives. King also was particularly critical of the fact that Ambassador Bonsal had been called to Washington on two occasions, but in neither instance had he called on the Agency for consultation -- this despite the fact that there had been indications from the Department that such consultations were to be held. 42/
 

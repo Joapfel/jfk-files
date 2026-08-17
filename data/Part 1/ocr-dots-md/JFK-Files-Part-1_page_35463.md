@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35463.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Before such an action is undertaken, the enemy must be softened by propaganda, sabotage, raids, underground action, and the mass of the people of Cuba must be prepared to accept the provisional government through propaganda, increased knowledge of the Council and its unifying efforts.
 

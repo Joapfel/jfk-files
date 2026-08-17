@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21327.png
-
-Convert to Markdown- G -
+- G -
 
 HELP GIVEN BY THE FRANQUIST REGIME AND THE FALANGIST TITLER. — Now and then they send reinforcements to the Division Azul, in groups of a thousand or one thousand five hundred. They say that in order to replace the casualties and those who return crippled. Even the Falangists themselves say - 'the Russian front is a very serious matter'. Those who are recruited to replace losses in Russia are recruited by force, by the process already mentioned. All airmen have to serve some months on the Eastern Front as "training". They say that lately they were training about 130 pilots to send them to Russia. The war factories are working at high pressure. The Germans are directing the erection of an aerodrome in the province of Lugo. In Galicia very few Germans are to be seen. Military instruction is obligatory for boys and youths in the "Frente de la Adventud". They also train youths from 15 onwards to serve in aviation. A friend of the informants told them that there passed daily through a city in the North fifty card loaded with war material in the direction of the French frontier. German submarines refuel at Redendola and Vigo. It says that English aeroplanes often make reconnaissance flights over the harbours of Galicia. They describe Serrano Suner as the most subservient to the Nazis and in general to the Falangists who have crimes behind them or who have become rich through robbing the people.
 

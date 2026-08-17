@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4737.png
-
-Convert to MarkdownLA 92-113C
+LA 92-113C
 
 IRS [JFK Law 11(a)]
 

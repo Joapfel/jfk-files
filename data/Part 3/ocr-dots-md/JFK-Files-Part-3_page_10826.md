@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10826.png
-
-Convert to Markdownor rather their expansion into it on intelligence matters. It ought not occur but this new memo of CIG shows how greedy it is. It is the Donovan plan almost in toto & is being slyly put over. It means we must zealously guard our domestic jurisdiction & not yield an inch & be ever alert to resist any encroachment."
+or rather their expansion into it on intelligence matters. It ought not occur but this new memo of CIG shows how greedy it is. It is the Donovan plan almost in toto & is being slyly put over. It means we must zealously guard our domestic jurisdiction & not yield an inch & be ever alert to resist any encroachment."
 
 On March 27, 1953, the Director testified before the Senate Subcommittee on Appropriations. In response to a question from Senator McCarran concerning liaison between FBI and CIA, the Director stated: "There is close liaison. CIA has exclusive jurisdiction abroad for intelligence. We have exclusive jurisdiction within the United States. We maintain continuous liaison with CIA Headquarters in Washington through a liaison representative of our Bureau in order to facilitate the transmission of material from them to us and from our service to them."
 

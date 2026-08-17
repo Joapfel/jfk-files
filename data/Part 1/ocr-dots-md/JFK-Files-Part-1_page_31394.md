@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31394.png
-
-Convert to MarkdownThe Honorable Joseph C. Grow
+The Honorable Joseph C. Grow
 
 October 31, 1952
 

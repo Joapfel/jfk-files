@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33094.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. PLEASE ADVISE BY IMMEDIATE RETURN CABLE.
 

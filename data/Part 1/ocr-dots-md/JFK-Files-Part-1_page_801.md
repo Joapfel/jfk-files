@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_801.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>8. POSITIVE INTELLIGENCE.</td>
     <td>Attempts have been made to obtain disseminable positive intelligence from AMCARBON-1 during the period covered by this report. This attempt has been generally unsuccessful, in that AMCARBON-1 does not have a great number of contacts in Latin America who would give him access to worthwhile intelligence appreciably in advance of the information appearing in the overt press. As a result, AMCARBON-1 is usually not aware of inside developments in any Latin American country; consequently, he is not a worthwhile source of positive intelligence. As a matter of fact, AMCARBON-1 is less valuable as a source of positive intelligence than most journalists. This is attributable solely to his lack of long-standing contacts in the Latin American political scene. It is believed that AMCARBON-1 will ultimately overcome this shortcoming; thus, we will continue to attempt to harness him for the collection of positive intelligence.</td>

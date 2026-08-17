@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23355.png
-
-Convert to MarkdownBIOGRAPHICAL: Consuelo Felicia CORDERO Calderon
+BIOGRAPHICAL: Consuelo Felicia CORDERO Calderon
 
 | From | To | Place | Employment | Employer | Address |
 |---|---|---|---|---|---|

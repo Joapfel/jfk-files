@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1516.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">CONTRACT INFORMATION AND CHECK LIST</td>
     <td>CASE OFFICER</td>

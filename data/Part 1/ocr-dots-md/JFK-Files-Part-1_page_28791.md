@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28791.png
-
-Convert to MarkdownSHAW ROBERT T
+SHAW ROBERT T
 
 FR
 

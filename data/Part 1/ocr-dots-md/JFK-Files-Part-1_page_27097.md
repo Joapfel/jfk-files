@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27097.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 BELL
 SIGNAL CENTER USE O

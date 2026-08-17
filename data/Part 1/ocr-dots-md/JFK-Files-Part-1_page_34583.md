@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34583.png
-
-Convert to Markdown# ADMINISTRATIVE
+# ADMINISTRATIVE
 
 Headquarters
 

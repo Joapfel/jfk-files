@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32357.png
-
-Convert to MarkdownSerial No.
+Serial No.
 
 FLORES,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5110.png
-
-Convert to Markdown<table><tr><td>SEC DISSE BY</td><td>PED</td><td>TOTA. COPIES</td><td>R.L. 5.</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td colspan="2">SECRET</td><td rowspan="3"><p>REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED</p></td></tr><tr><td colspan="4">ADVANCE COPY ISSUED/SLOTTED BY AT Z</td></tr><tr><th>ACTION UNIT</th><th>I N F O</th><th>RF. FILE . VR .</th><th>STAFF</th></tr><tr><td>ACTION.</td><td></td><td></td><td>1 4</td></tr><tr><td></td><td></td><td></td><td>2 5</td></tr><tr><td></td><td></td><td></td><td>3 6</td></tr></table>
+<table><tr><td>SEC DISSE BY</td><td>PED</td><td>TOTA. COPIES</td><td>R.L. 5.</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td colspan="2">SECRET</td><td rowspan="3"><p>REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED</p></td></tr><tr><td colspan="4">ADVANCE COPY ISSUED/SLOTTED BY AT Z</td></tr><tr><th>ACTION UNIT</th><th>I N F O</th><th>RF. FILE . VR .</th><th>STAFF</th></tr><tr><td>ACTION.</td><td></td><td></td><td>1 4</td></tr><tr><td></td><td></td><td></td><td>2 5</td></tr><tr><td></td><td></td><td></td><td>3 6</td></tr></table>
 
 T 492519
 

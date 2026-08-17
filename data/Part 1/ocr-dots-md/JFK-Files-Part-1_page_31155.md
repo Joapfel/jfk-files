@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31155.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="9">PAYROLL CHANGE DATA</th></tr><tr><th></th><th>BASE PAY</th><th>OVERTIME</th><th>GROSS PAY</th><th>RET.</th><th>FEDERAL TAX</th><th>BOND</th><th>F. I. C. A.</th><th>STATE TAX</th><th>HST PAY</th></tr></thead><tbody><tr><td>1. Prepaid leave:</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>2. Fixed leaves:</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>3. Pay fine period:</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

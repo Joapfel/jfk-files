@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31023.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "Prescribed & Limited" Distribution (P'L) : does not cover files but info, communica-
 tions

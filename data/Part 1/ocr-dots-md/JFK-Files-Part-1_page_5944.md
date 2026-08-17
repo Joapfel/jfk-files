@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5944.png
-
-Convert to Markdowndeparture. He further stated he would not agree to further travel
+departure. He further stated he would not agree to further travel
 to the United States except by commercial jet. He then entered the
 Operations Office of the 7405th Flight Squadron where I was introduced
 to ROODINE, who recited basically the same story as told by TOCHENBAY.

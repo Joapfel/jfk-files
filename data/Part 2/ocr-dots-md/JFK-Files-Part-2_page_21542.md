@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21542.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1) Legal, ethical → morale, operational problems; political: non-attribute-bility,
 

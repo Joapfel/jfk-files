@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23658.png
-
-Convert to Markdownof great interest to the community, and you take him out of the
+of great interest to the community, and you take him out of the
 position of having to judge other people's research and
 development programs and other people's SIGINT programs, and
 other activities when he is the overall director of Central

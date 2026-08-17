@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14064.png
-
-Convert to MarkdownSINCE: Rogelio RODRIGUEZ Lopez
+SINCE: Rogelio RODRIGUEZ Lopez
 
 RESIDENCE ADDRESS:
 

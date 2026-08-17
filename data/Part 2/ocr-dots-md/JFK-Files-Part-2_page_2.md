@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2.png
-
-Convert to MarkdownDistribution
+Distribution
 Orig. & 2 - COS, JENAVE
 
 SECRET

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9862.png
-
-Convert to Markdown2.
+2.
 
 whether he was in a position to obtain a radio transmitter for the 7A8 friends, stating that he was certain that they had the financial means necessary to pay for such equipment. L/3 stated that he felt he had a good source in his brother and various other contacts up north, including Archi who worked for the radio station and had access to technical equipment.
 

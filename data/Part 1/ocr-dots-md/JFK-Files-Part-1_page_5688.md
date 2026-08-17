@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5688.png
-
-Convert to Markdown# DOMESTIC COLLECTION DIVISION
+# DOMESTIC COLLECTION DIVISION
 ## Intelligence Information Report
 
 This material contains information concerning the National Defense of the United States within the meaning of the Espionage Law, Title 18, U.S.C. Sections 793 and 794, the transmission or distribution of which is PROHIBITED by law.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11818.png
-
-Convert to Markdownor contemplated, which groups may all within the province of
+or contemplated, which groups may all within the province of
 other WAD/HUCOM projects in Chile.
 
 E. Personnel Required

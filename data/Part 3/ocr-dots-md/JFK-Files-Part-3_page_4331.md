@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4331.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 The organization has declared war on the police who are looked upon as the tools of oppressive government, and for over a year there has been a series of Black Panther attacks on police, including snipings and gun battles.
 

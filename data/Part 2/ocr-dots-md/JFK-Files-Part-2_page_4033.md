@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4033.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 address as Post Office Box 75801, Sanford Station, Los Angeles.
 He then said he lived at 610 South Oxford Street, Los Angeles 45.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22586.png
-
-Convert to MarkdownTERMINATION
+TERMINATION
 
 During the course of the reorganization of the Office
 of Security, it was decided that the Security Research

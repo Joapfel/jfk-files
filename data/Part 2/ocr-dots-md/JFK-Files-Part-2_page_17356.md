@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17356.png
-
-Convert to MarkdownRe: Fred Allen Hampton
+Re: Fred Allen Hampton
 Black Panther Party (BPP)
 
 Source indicated that Mr. Miller was somewhat disturbed at the Chicago Police Department for effecting this arrest during the process of a live taped debate.

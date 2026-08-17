@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31665.png
-
-Convert to Markdown# CITIZENS COMMITTEE FOR CONSTITUTIONAL LIBERTIES (NEW YORK CITY)
+# CITIZENS COMMITTEE FOR CONSTITUTIONAL LIBERTIES (NEW YORK CITY)
 
 The Guide to Subversive Organizations and Publications, revised and published December 1, 1961, prepared and released by the Committee on Un-American Activities, United States House of Representatives, contains the following on Page 42 concerning "Citizens Committee for Constitutional Liberties (New York City)":
 

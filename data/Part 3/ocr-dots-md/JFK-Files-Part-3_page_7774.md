@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7774.png
-
-Convert to Markdownnot being abrogated in any manner. Language in such an order
+not being abrogated in any manner. Language in such an order
 would ideally follow the basic language and purposes of Executive
 Order 11605, since this deals with virtually every type of
 subversive activity confronting the country today.

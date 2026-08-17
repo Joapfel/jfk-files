@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20782.png
-
-Convert to Markdown# FEDERAL BUREAU OF INVESTIGATION
+# FEDERAL BUREAU OF INVESTIGATION
 
 <table><tr><td>REPORTING OFFICE<br/>NEW YORK</td><td>OFFICE OF ORIGIN<br/>NEW YORK</td><td>DATE<br/>NOV 30 1972</td><td>INVESTIGATIVE PERIOD<br/>11/8/72-11/27/72</td></tr><tr><td colspan="2">TITLE OF CASE<br/>WOMENS NATIONAL ABORTION ACTION COALITION (WONAAC)</td><td>REPORT MADE BY<br/>WILLIAM R. CLOUGH</td><td>TYPED BY<br/>mes</td></tr><tr><td colspan="4">CHARACTER OF CASE<br/>IS-C (TROTSKYIST)</td></tr></table>
 

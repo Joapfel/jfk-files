@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14279.png
-
-Convert to Markdownmemorandum read: "Later was delayed due to disagreement on account of training required."
+memorandum read: "Later was delayed due to disagreement on account of training required."
 
 There was also an October 12, 1962 addendum to the above-mentioned October 11 memorandum from Mr. Parrott to Mr. Bundy, stating: "Later." The memorandum related that, according to Mr. Knocke, Mr. McCone had decided the day before (October 11) that these flights must be either entirely overt or entirely covert, and he didn't particularly care which so long as they were accomplished as soon as possible. In Mr. McCone's absence, General Carter had come to an agreement with General McKee, Vice Chief of Staff of the Air Force, along those lines on October 11; later, however, Mr. Gilpatric said that this was not his understanding of the terms of authorization from higher authority. Mr. Gilpatric felt that the idea was that a uniformed pilot should operate the Agency's vehicle.
 

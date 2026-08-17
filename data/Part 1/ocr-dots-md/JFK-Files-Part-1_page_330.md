@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_330.png
-
-Convert to Markdown14-00000
+14-00000
 
 HIDALGO, BALMES N. (BARNEY) Ret
 403 Silver Rock Rd.

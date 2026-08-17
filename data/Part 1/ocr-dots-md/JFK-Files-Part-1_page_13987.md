@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13987.png
-
-Convert to Markdownthe approval of the DGI Center. He continued the liaison, however, and the DGI Center complained to the Foreign Ministry; ROA baited JIRENEZ out.
+the approval of the DGI Center. He continued the liaison, however, and the DGI Center complained to the Foreign Ministry; ROA baited JIRENEZ out.
 
 6. Serafín GARCIA Rodríguez, Attache. GARCIA (who had arrived here in February 1969) has departed permanently from New York for Cuba.
 

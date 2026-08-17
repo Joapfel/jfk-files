@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31771.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Classification
 
 13 January 1953

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6132.png
-
-Convert to MarkdownChiprop Survey, cont'd
+Chiprop Survey, cont'd
 
 6. Wannall to W.C. Sullivan - 6/28/63
 

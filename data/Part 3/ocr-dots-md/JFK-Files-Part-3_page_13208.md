@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13208.png
-
-Convert to MarkdownADVICE AND WAIVER
+ADVICE AND WAIVER
 
 Place 7/24/69
 Date 1/31/71

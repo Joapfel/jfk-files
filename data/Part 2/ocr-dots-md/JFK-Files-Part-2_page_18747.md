@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18747.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 JAFFE is the recipient of invitations to social functions at the homes of Soviet nationals and at the Soviet UN Delegation. He in turn entertains Soviet nationals at his home.
 

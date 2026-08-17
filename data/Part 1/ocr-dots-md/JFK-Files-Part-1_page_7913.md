@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7913.png
-
-Convert to MarkdownOn 13 December Subject requested the C/O about Logvinov's personal questions asked of Subject the same day (see Paragraph 3 h. above). The C/O asked Subject if he had inquired of Logvinov why his letter was causing such questions. Subject said he had not, and even though he is completely puzzled by this lack on the part of the Soviets, but Subject said he felt perfectly at ease in telling the truth to the Soviets, and had no hesitation in showing them his documentation.
+On 13 December Subject requested the C/O about Logvinov's personal questions asked of Subject the same day (see Paragraph 3 h. above). The C/O asked Subject if he had inquired of Logvinov why his letter was causing such questions. Subject said he had not, and even though he is completely puzzled by this lack on the part of the Soviets, but Subject said he felt perfectly at ease in telling the truth to the Soviets, and had no hesitation in showing them his documentation.
 
 The C/O dropped by Subject's office on 22 December, after having delivered a Christmas gift of liquor to Subject's home the previous day. Subject reported to Subject that he had received a firm invitation from the regime of Presidentvn M. Ivanov.
 

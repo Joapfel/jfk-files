@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26026.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET T 172125Z NOV 69 CITE CARACAS 4018
 

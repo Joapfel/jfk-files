@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29736.png
-
-Convert to MarkdownMYRCSLA/W ANDREW MAKSYMIEC
+MYRCSLA/W ANDREW MAKSYMIEC
 
 APRIL 30, 1947
 FM. 171 - Experience 18-3

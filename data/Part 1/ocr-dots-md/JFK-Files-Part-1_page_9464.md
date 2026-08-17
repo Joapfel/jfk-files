@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9464.png
-
-Convert to MarkdownUSA (Revised Listing)
+USA (Revised Listing)
 
 | | Coming From | Address |
 | :--- | :--- | :--- |

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23139.png
-
-Convert to Markdownnot there had been Cuban involvement in the assassination of President Kennedy in 1963?
+not there had been Cuban involvement in the assassination of President Kennedy in 1963?
 
 Mr. Halley, I don't think there would have been a real world capability. I mean, if you're talking in my terms of conducting an investigation of this type in Cuba, which would have been professionally sound, that people could have put confidence in, I think the answer is that it is probably no. I'm giving you an opinion. That is my opinion.
 

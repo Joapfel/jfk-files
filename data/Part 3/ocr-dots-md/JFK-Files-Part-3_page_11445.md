@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11445.png
-
-Convert to MarkdownRE: U. S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+RE: U. S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
 
 The disclosure of the identity of FBI informants places these informants' lives in serious jeopardy as well as subjecting them and their families to the likelihood of embarrassment and harassment within their communities. Such disclosures have a most serious and detrimental effect on other informants, who have just cause to question the security of their past or present association with the FBI. Persons who might otherwise be inclined to furnish information to the FBI, expecting their cooperation to be kept in confidence, are reluctant to do so when they see such violations of the sanctity of FBI files and information.
 

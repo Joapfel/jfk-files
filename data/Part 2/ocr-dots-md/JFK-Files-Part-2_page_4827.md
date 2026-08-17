@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4827.png
-
-Convert to MarkdownSECRET
+SECRET
 
 overruling Seymour most of the time or some of the time. I don't know. But I can't imagine Bolton, knowing Seymour very well indeed, that Seymour would want to go rushing forward with this thing because if nothing else, Bolton was a political animal. He had the best political sense of many guys there.
 

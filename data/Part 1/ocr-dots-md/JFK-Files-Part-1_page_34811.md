@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34811.png
-
-Convert to MarkdownCase # 20
+Case # 20
 
 Terminate payment to 1st dependent, widow of Paul VIANEZZO Alakan, as sister gave sufficient evidence of widow's remarriage to justify termination. Also terminate 5th dependent, who apparently is mother of the widow and her sister, not the mother of the deceased, and is not entitled to support money. Children will continue to receive support. Widow receives more money than is customary for a widow since her husband was a pilot. In certain cases of this type, payments were established by AMBID, not by WOFACT.
 

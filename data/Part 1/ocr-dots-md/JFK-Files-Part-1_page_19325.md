@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19325.png
-
-Convert to MarkdownForm No. 33-5
+Form No. 33-5
 
 APR 1917
 

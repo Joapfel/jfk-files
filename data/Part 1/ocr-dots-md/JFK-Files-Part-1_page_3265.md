@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3265.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">SECRET</th></tr></thead><tbody><tr><td>FILE NO.</td><td>1046975</td></tr><tr><td>CITE DEPT.</td><td>203775</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">SECRET</th></tr></thead><tbody><tr><td>FILE NO.</td><td>1046975</td></tr><tr><td>CITE DEPT.</td><td>203775</td></tr></tbody></table>
 
 TO
 

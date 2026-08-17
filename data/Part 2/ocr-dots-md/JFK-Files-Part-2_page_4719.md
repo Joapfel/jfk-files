@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4719.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: Straight jacket. He looked at me and he knew me well enough and I knew him and he says, "Okay, Sam, what do you want to send?" "I want to send back we got 18,000. You know, and tell them how we got it. And give them the facts. I'm not trying to make policy. I'm just here to get the information. We're the intelligence officers, that's what our job is." He said he can't send 18,000. I said, "What is this? Some kind of a Persian rug merchant bargaining or something? What do you want to send? We can't go with 10 anymore. That's gone. We've got 18." Well, to make a long story short, we ended up, just like Sam Adams later, many years later, but he was in the hundreds of thousands, I was in the tens of thousands, and so we ended up whereby, I think we said something like -- we compromised, no question about that -- something like 14, 15 effectives, plus support troops, just like Sam, it's exactly the same play as Sam Adams except much smaller figures and much earlier. This was 1961. But the total figure, if you add it all up, you ended up with an 18,000. That much I got through. But again it was a stretched-out thing. So when the message finally went out, it went out in several channels. I mean, to CIA, the military and to State Department.
 

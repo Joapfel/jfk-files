@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18728.png
-
-Convert to MarkdownOffice Menandum • UNITED OVERNMENT
+Office Menandum • UNITED OVERNMENT
 
 TO : DIRECTOR, FBI (105-28333)
 FROM : SAC, NEW YORK (134-3315)

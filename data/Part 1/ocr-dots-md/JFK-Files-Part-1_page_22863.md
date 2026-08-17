@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22863.png
-
-Convert to Markdown6. One Warren McKENNA was on a list of delegates to the Second World Peace Congress that was held in Warsaw from 16 to 23 November 1950. (HDCA-890, 80-54896, 11 Jan. 1951)
+6. One Warren McKENNA was on a list of delegates to the Second World Peace Congress that was held in Warsaw from 16 to 23 November 1950. (HDCA-890, 80-54896, 11 Jan. 1951)
 
 7. A reliable informant in the Boston area furnished a copy of the first issue of a new publication entitled "Our Common Concern," dated October 1950, published by Workers of the Common Life, at Roxbury, Massachusetts. The editors and publishers of this publication are Reverend Warren H. MCKENNA and Reverend Robert MUIR, both associated with the Massachusetts Action Committee for Peace. The instant issue of this publication features the Stockholm Peace Pledge and the address which Reverend Joseph FLEACH of Stockholm, Massachusetts, gave at the Winter Stadium at Ostrava, Czechoslovakia, on 16 August 1950, this speech also favored the Stockholm Peace Pledge. (IFB-6285, 22 Nov. 1950)
 

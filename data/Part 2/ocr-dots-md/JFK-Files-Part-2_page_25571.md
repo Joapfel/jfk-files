@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25571.png
-
-Convert to MarkdownProfessor F. W. Pfeiffer
+Professor F. W. Pfeiffer
 
 December 19, 1975
 Page Two

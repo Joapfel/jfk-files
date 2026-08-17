@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7762.png
-
-Convert to MarkdownCOMMENT - REBUTTAL
+COMMENT - REBUTTAL
 
 It is believed that in at least three of the above-described situations the FBI would have been able to conduct investigators based on statutes relating to advocacy of overthrow of the Government, seditious conspiracy, inciting to insurrection or rebellion, civil disorders, antiriot, neutrality laws (foreign relations) and perhaps sabotage. The questionable case, the Drum and Spear Bookstore, would have probably been brought adequately to our attention from various public sources or through our informant coverage of overall matters affecting the national security.
 

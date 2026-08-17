@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22534.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 Dearborn reported that the dissidents had a capability for picking up arms at sea and for caching/nearby caves. He also described an airdrop site.
 

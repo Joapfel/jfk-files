@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29542.png
-
-Convert to Markdownwriting by the Government from such obligation), with full knowledge that violation of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1948, as amended, and other applicable laws and regulations.
+writing by the Government from such obligation), with full knowledge that violation of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1948, as amended, and other applicable laws and regulations.
 
 14. Term. This contract is effective as of ____________, and shall continue thereafter for an indefinite period unless sooner terminated:
 

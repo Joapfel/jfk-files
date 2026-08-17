@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23917.png
-
-Convert to Markdown(What's relationship of Spanish edition to it has - a few other articles - -- Said to have copies in Brussels. I haven't seen. Brussels is used as a headquarters for Western Europe. People going through either to China or to Marx North Vietnam, coming from Western Europe, can have stuff without any copyright problems ? )) Oh, yes, at first Veras wanted them to be identical same as Revolution in France, but and they would say, well,-- they wanted the editorial work done in Paris, which he would finance, and they would finance all of the production side. But he was unable to pay them for even the editorial thing, so they said they would do all of it in Colombia.
+(What's relationship of Spanish edition to it has - a few other articles - -- Said to have copies in Brussels. I haven't seen. Brussels is used as a headquarters for Western Europe. People going through either to China or to Marx North Vietnam, coming from Western Europe, can have stuff without any copyright problems ? )) Oh, yes, at first Veras wanted them to be identical same as Revolution in France, but and they would say, well,-- they wanted the editorial work done in Paris, which he would finance, and they would finance all of the production side. But he was unable to pay them for even the editorial thing, so they said they would do all of it in Colombia.
 
 He would finance and they would finance all of the production, but they were unable
 

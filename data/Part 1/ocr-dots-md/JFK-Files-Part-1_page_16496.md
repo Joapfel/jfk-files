@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16496.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th>DATE</th><th>CENTER</th><th>TYPE</th><th>AGE</th></tr></thead><tbody><tr><td>10-1</td><td>SIGNALLING CENTER</td><td>ALF/CL</td><td>0</td></tr></tbody></table>
 

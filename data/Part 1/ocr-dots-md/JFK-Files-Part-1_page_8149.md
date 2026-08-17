@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8149.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CLASSIFICATION</th><th colspan="2">PROCESSING</th></tr><tr><td>SECRET</td><th>FROM<br>POSTED</th><th>ACTION<br>RECEIVED</th><th>ACTION<br>PUSHED</th></tr></thead><tbody><tr><td rowspan="3"></td><td>X</td><td>BARBARA FOR INCREASING NO INDEXING REQUIRED<br>CAN JUDGE INDEXING</td><td></td></tr><tr><td></td><td>ONLY QUALIFIED HEADQUARTERS DESK CAN JUDGE INDEXING</td><td></td></tr><tr><td></td><td>ABSTRACT</td><td></td></tr><tr><td></td><td></td><td>DIGITOFILM</td><td></td></tr></tbody></table>
 

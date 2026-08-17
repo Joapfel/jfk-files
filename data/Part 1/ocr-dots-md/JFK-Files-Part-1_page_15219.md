@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15219.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>INFO<br/>Chief, WED<br/>CO<sub>3</sub>, Rio<br/><br/>FROM<br/>CO<sub>3</sub>, Sao Paulo</td>

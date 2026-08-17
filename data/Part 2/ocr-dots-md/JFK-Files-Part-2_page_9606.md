@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9606.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 He further advised that O. A. ALEXANDER of Alex Rapid Print had agreed to do printing for the SAO at cost.
 

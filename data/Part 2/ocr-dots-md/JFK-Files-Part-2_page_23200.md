@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23200.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Baron. And how long did you serve as Chie fof
 the African Division?

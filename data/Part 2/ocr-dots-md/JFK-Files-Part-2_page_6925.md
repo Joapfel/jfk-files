@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6925.png
-
-Convert to MarkdownTESTIMONY OF JAMES H. LESAR
+TESTIMONY OF JAMES H. LESAR
 
 PRESIDENT
 

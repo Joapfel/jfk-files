@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2581.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 The Examination of the Bona Fides
 of a KGB Defector

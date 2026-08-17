@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23180.png
-
-Convert to MarkdownMr. Johnston. Do you recall such a discussion with Mr. Helms?
+Mr. Johnston. Do you recall such a discussion with Mr. Helms?
 
 Mr. Bailey. No, I have to come back to the basic point.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20727.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 maximum number of persons present at any one time dur-
 ing the day would be estimated at between 400 to 500.

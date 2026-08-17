@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16175.png
-
-Convert to MarkdownSubject: Telephone Call from John MULDOON
+Subject: Telephone Call from John MULDOON
 
 4. At AC/WHD's request, WH/Security rechecked the files on the three former Agency employees to determine whether they were Staff Employees. All three were former Staff Employees. MULDOON retired on medical disability; RUSSOS retired and then was rehired on a contract basis in February 1971 and contract terminated in September 1973; and MACKEEM was "separated as excess" in October 1973. This information was passed to AC/WHD to brief ADDO.
 

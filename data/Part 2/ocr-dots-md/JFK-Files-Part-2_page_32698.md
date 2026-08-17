@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32698.png
-
-Convert to Markdownpublicly and privately delivered, that the arms buildup in Cuba would retain
+publicly and privately delivered, that the arms buildup in Cuba would retain
 its original defensive character. Neither the United States nor the world
 community, the President emphasized, could tolerate the deliberate deception
 and offensive threat represented by the clandestine deployment of strategic

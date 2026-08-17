@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22077.png
-
-Convert to Markdown236.
+236.
 
 ## e. Supervisor of Activities Against American Service Attachés
 

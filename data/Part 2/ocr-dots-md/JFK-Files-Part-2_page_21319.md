@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21319.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Hector Peter Ordetx, 1802 Lamar St, Tampa, Fla., furnished on 1/26/62, a quantity of miscellaneous papers, some of which bore the name of Roberto De Los Rios (100-431672) and appeared to be correspondence between him and members of his family in Cuba. One of these papers was a carbon copy of a typewritten letter in Spanish to "Dear Father", dated 4/7/59, at Tampa, with no signature. The writer said that Nelson had written him asking for declarations of the committee in regard to Eloy Gutierrez Menoyo and his insidious declarations. No further information.
 

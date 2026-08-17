@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15718.png
-
-Convert to Markdownwhich cause neonle to release their bowels, or lose their equilibrium,
+which cause neonle to release their bowels, or lose their equilibrium,
 adhesives which cause parts of the body to stick together which if
 moved cause large areas of flesh to be torn away, foam, invisible
 gases, xkx odors detectible by dogs, plastic confetti, traquilizers,

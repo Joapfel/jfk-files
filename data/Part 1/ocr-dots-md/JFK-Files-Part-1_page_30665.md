@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30665.png
-
-Convert to MarkdownSECRET
+SECRET
 
 23 JAN 1973
 

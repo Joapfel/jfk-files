@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_23056.png
-
 s include Dr. Catalina Eibenschutz, who is married to Dr. Mora, head of the CNIC Department of Biochemistry, and was studying endocrinology in France in early '68; Dr. Bartolome Arce, who studied in Rumania and was studying in France in early '68; and a young medical doctor named Oviedo (fnu), who was probably to be sent to Sweden to study.
 
 31. The Endocrinology Institute enjoys a large budget because of Dr. Mateo's scientific eminence and political "virtues". It has excellent equipment for electrophoresis, ultracentrifuges, and photocolorimeters.

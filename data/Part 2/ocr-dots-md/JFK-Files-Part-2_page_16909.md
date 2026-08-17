@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16909.png
-
-Convert to MarkdownV. Sectional Eater's (in detail for each) in detail, Leaders)
+V. Sectional Eater's (in detail for each) in detail, Leaders)
 1. Deployment
    a. position
    b. Advancement

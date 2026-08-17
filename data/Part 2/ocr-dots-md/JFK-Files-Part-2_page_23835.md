@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23835.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Here again you come to the notional.
 

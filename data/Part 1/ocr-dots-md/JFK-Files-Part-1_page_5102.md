@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5102.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (Original/translation)
 

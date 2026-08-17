@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17616.png
-
-Convert to MarkdownAttachment to HHI-A-10198
+Attachment to HHI-A-10198
 KAPOR-KO-1401
 
 ## LAIKCIZ Information:

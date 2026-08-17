@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8569.png
-
-Convert to Markdowndifficult phase of the operation -- installing the machine on the mountain top.
+difficult phase of the operation -- installing the machine on the mountain top.
 
 The first thing that had to be done was to gain the permission of the
 Indian government to implement the scheme, not a large problem in view of the

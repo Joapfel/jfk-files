@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8384.png
-
-Convert to Markdown① What did the German policy on the issue of compensation in 1935? (2 points)
+① What did the German policy on the issue of compensation in 1935? (2 points)
 
 ② What was the reason for KGB's decision to monitor the situation?
 

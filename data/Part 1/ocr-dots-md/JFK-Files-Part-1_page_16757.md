@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16757.png
-
-Convert to MarkdownACTION: C/M 5
+ACTION: C/M 5
 
 INFO : ADCP, C/CI, C/EE 3, C/SE 2, S/C 2
 

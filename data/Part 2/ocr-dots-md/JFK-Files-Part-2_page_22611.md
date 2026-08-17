@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22611.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 put their pen to hand to sign an agreement to some understanding. It is based on a fiduciary relationship and common understanding.
 

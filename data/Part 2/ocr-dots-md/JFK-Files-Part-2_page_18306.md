@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18306.png
-
-Convert to MarkdownMichael E. Shaheen, Jr., Esq.
+Michael E. Shaheen, Jr., Esq.
 
 Page Two
 

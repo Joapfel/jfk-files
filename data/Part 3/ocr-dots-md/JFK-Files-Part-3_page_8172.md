@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8172.png
-
-Convert to Markdown# Issues Identified
+# Issues Identified
 
 1. Economic Intelligence and National Security -- new discussion.
 

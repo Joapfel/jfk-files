@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_8264.png
-
-Convert to Markdown18 April 1951 (date of memorandum)
+18 April 1951 (date of memorandum)
 
 Athens Station describes reasons for distrusting DIMITROV (see document)

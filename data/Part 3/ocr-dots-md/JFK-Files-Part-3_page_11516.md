@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11516.png
-
-Convert to Markdownaccept responsibility for their decision proves to be wrong?
+accept responsibility for their decision proves to be wrong?
 This is a sincere and searching question.
 
 Isn't our main paradox perhaps that of the imperfection of human beings—and, therefore, human institutions which means that we never get the choice between pure virtue and pure vice?

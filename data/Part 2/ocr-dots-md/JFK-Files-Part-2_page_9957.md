@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9957.png
-
-Convert to MarkdownPLAINTEXT
+PLAINTEXT
 
 TO SACS SAN FRANCISCO
 

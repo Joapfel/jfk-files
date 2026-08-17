@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9277.png
-
-Convert to Markdown19 Sept. '50
+19 Sept. '50
 
 **Photo DREYER SIDES PARIS**
 

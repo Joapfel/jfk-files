@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22631.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 Mr Angleton. Yes, either witting or unwitting.
 

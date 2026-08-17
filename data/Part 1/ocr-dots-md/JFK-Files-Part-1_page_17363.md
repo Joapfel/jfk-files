@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17363.png
-
-Convert to Markdown# LIENVOY PRODUCTION - DECEMBER 1962
+# LIENVOY PRODUCTION - DECEMBER 1962
 
 | HMMA's | MEXI's | HMM's |
 |---|---|---|

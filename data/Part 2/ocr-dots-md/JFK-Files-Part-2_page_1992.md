@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1992.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>19. ACTION<br/>CODE</td>
     <td>20. Employ<br/>Code</td>

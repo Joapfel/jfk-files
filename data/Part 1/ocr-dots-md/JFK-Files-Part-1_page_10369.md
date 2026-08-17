@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10369.png
-
-Convert to MarkdownARGUETA, FMU
+ARGUETA, FMU
 DCB ?
 
 CIT GUATEMALA

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4769.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 in the near future to sell in the area. Informant stated he does not know the source of the guns.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11802.png
-
-Convert to MarkdownJune 17, 1953.
+June 17, 1953.
 
 Dear Sirs,
 

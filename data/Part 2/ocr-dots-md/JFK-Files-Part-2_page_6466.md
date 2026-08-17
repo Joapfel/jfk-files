@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6466.png
-
-Convert to Markdown13-00000
+13-00000
 
 27. The UW forces required for CINCLANT OPLAN 380-63 are approximately:
 

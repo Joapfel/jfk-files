@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6877.png
-
-Convert to Markdowninsure that all developments of this type occurring within his
+insure that all developments of this type occurring within his
 territory are promptly reported to his office and upon receipt
 thereof furnished to the Bureau by whatever form of communication
 is warranted under the circumstances.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7698.png
-
-Convert to Markdown46). Fernando SALOMON, José SALOMON Vallecillo, from Nicaragua.
+46). Fernando SALOMON, José SALOMON Vallecillo, from Nicaragua.
 
 On 24 Oct 1966 SALOMON told Subject that he had a letter from the Socialist Party of Nicaragua addressed to the Soviet Consul and that he had come specially from Nicaragua to deliver it. Subject said he would talk to SALOMON the next day at the Soviet Embassy. (1). (SALOMON also made an appointment to see the Cuban Ambassador the same day.)
 

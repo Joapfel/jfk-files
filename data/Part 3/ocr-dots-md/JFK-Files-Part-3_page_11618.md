@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11618.png
-
-Convert to Markdown4 - E
+4 - E
 
 We have on a continuing basis been able to provide the President and other responsible officials with information of the type needed. With increasing frequency our Legal Attaches have been able to provide high level intelligence information which has been given exclusively to the White House and the Attorney General. One such item, for example, provided by the Legal Attache in La Paz on 5/20/71 and disseminated on the same date to the White House and the Attorney General dealt with plans of the Bolivian Government to request the withdrawal of the Peace Corps from that country. Subsequently on 5/22/71, the Bolivian Government did request the withdrawal of this group from the country. A representative of the National Security Council commented favorably concerning this data and the Legal Attache was commended by the Director for developing the source who was able to produce this type of information.
 

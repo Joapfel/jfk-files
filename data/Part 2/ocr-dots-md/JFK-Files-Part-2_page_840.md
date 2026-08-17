@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_840.png
-
-Convert to MarkdownSECRET
+SECRET
 
 28 August 1974
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6546.png
-
-Convert to MarkdownWhite Paper should be promulgated through the OAS. Later a "new condition"
+White Paper should be promulgated through the OAS. Later a "new condition"
 should be found formally to exist, following which the US would state
 that the earlier US-USSR modus vivendi regarding Cuba has come to an end.
 Following the above, an OAS vote should call for the remaining LA nations

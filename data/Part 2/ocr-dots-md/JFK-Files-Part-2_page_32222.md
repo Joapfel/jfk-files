@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32222.png
-
-Convert to MarkdownSECRET
+SECRET
 
 To the extent feasible, U. S. military forces employed against Cuba should be accompanied by U. S. militarily-trained free Cubans and by the armed forces of those Latin American nations desirous of participating in the U. S. effort.
 

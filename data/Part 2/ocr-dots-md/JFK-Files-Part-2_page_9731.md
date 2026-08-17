@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9731.png
-
-Convert to Markdown18. Immediate return to our original form of the Republic as prescribed by our founding Fathers.
+18. Immediate return to our original form of the Republic as prescribed by our founding Fathers.
 
 19. Immediate abolition of all unfair usery practices, i.e./ Unfair mortgage practices, etc.
 

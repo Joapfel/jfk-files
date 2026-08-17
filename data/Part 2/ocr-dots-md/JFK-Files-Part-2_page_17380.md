@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17380.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 and 241 of the Shearton Motel, Champaign - Urbana, under
 the fictitious name of John Anderson, 2605 South Carter,

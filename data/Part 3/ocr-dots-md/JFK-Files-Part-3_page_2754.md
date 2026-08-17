@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2754.png
-
-Convert to Markdown1 if a person wants to tell an informant something that isn't protected by the Supreme Court.
+1 if a person wants to tell an informant something that isn't protected by the Supreme Court.
 
 3 An actual search for legal evidence, that is a protected item, but information and the use of informants have been consistently held as not posing any constitutional problems.
 

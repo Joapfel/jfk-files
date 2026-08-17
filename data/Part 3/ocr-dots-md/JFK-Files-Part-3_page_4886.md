@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4886.png
-
-Convert to MarkdownRE: NORMAN ROTHMAN
+RE: NORMAN ROTHMAN
 
 MM T-8 is an individual who has some knowledge of the people who frequent the gambling casinos in Las Vegas, Nevada.
 

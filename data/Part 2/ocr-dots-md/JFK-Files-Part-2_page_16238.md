@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16238.png
-
-Convert to MarkdownA. Officers of Chicago
+A. Officers of Chicago
 Chapter BPP
 
 As of July, 1969, the following individuals

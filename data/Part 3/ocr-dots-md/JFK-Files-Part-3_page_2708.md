@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2708.png
-
-Convert to Markdown1904
+1904
 
 Mr. Wannall. Well, Mr. Adams can probably best address
 the use of informants on criminal matters since he is over

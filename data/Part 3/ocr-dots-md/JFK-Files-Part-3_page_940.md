@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_940.png
-
-Convert to Markdowne. Senate Foreign Relations Committee
+e. Senate Foreign Relations Committee
 
 2. Supreme Court
 

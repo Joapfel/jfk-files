@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20558.png
-
-Convert to MarkdownNOV 19 1971
+NOV 19 1971
 
 020 CG CODE
 

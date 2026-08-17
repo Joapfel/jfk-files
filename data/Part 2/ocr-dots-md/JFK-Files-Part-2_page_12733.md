@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12733.png
-
-Convert to Markdownclassified contracts with the key facility. Copies of reports for the Marine Corps should be disseminated locally to NISO.
+classified contracts with the key facility. Copies of reports for the Marine Corps should be disseminated locally to NISO.
 
 Dissemination to the Atomic Energy Commission (AEC), Defense
 Atomic Support Agency (DASA) (formerly Armed Forces Special

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12019.png
-
-Convert to MarkdownREPUBLIC OF NEW AFRICA
+REPUBLIC OF NEW AFRICA
 
 4-H
 

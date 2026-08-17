@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12769.png
-
-Convert to Markdown(3) By force of violence, or
+(3) By force of violence, or
 By assassination of any officer of such government
 
 It will be necessary to show:

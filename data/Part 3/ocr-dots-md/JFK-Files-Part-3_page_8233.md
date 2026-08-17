@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8233.png
-
-Convert to MarkdownINTELLIGENCE COMMUNITY STAFF
+INTELLIGENCE COMMUNITY STAFF
 
 30 April 1975
 

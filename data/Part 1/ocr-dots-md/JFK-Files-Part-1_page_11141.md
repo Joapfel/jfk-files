@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11141.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 19
 
 CRIG : MARVYN FRANCIS FILE RND

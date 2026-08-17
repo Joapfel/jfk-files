@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7212.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>ABLE SEC DISSEM BY J PER Eur SO TOTAL COPIES 6 - 5 RUN BY</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td>SECRET</td></tr></table>
 

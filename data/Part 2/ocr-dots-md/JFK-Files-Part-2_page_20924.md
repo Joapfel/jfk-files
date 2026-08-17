@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20924.png
-
-Convert to MarkdownWomen's Bail Fund
+Women's Bail Fund
 
 Constance Trimble was tried and found not guilty on a charge of first degree murder for making a telephone call which lured a St. Paul, Minnesota police officer to an ambush slaying which occurred in 1970.
 

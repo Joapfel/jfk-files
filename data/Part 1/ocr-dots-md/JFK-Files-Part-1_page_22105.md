@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22105.png
-
 ) verbal instructions in my office to immediately prepare the necessary paper work for removing KEYSERS from the station and instructed him to inform ACSI by cable as to the details of the incident.
 
 "I remember...a discussion I held with the U.S. Air Attache in his office [where a KGB microphone was located] concerning homosexual activities on the part of two of the Air Force enlisted personnel on station... The discussion in his office concerned the administra- tive procedures necessary in removing the individuals from Station.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5032.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHFNO: 95-0906823
 

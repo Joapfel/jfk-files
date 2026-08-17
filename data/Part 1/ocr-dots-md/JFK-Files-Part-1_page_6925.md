@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6925.png
-
-Convert to MarkdownCONTINUED CONTROL
+CONTINUED CONTROL
 
 TO: Director
 Federal Bureau of Investigation

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20425.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 SOUTHERN CONFERENCE EDUCATIONAL FUND, INC. (SCEF)
 

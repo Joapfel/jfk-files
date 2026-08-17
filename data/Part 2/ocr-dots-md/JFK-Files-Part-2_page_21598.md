@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21598.png
-
-Convert to MarkdownFILE: SECRET
+FILE: SECRET
 
 Regarding the CIA and domestic dissidents, in
 the 50's the CIA's general attitude was not to

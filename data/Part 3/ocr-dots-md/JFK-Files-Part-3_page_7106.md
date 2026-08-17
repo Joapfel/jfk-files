@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7106.png
-
-Convert to MarkdownMarch 12, 1975
+March 12, 1975
 
 # REQUEST FOR DOCUMENTS AND INFORMATION
 

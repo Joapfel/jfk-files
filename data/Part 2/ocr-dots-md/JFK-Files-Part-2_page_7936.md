@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7936.png
-
-Convert to Markdown13-00000
+13-00000
 
 National Broadcasting Company. There Was A President. New York: Borden Home, 1966.
 "The Nations: New Sorrowful Sad." Times, 29 November 1963, pp. 38-39.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3688.png
-
-Convert to MarkdownB. Option One -- Ratifying Existing Powers
+B. Option One -- Ratifying Existing Powers
 
 The first option for Congress is legislation ratifying
 the existing authority granted to the FBI by current Presiden-

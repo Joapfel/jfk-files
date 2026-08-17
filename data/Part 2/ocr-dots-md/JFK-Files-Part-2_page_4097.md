@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4097.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 States District Court, denied the motion for a new trial and sentenced the subject to serve ten years under the provisions of Section 4208 (a) (II), Title 18, United States Code, which provides that the subject can be released under parole at any time it is deemed advisable. This sentence was for violation of Section 2113, Title 18, United States Code.
 

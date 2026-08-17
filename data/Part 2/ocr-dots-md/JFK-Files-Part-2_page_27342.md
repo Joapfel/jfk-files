@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27342.png
-
-Convert to MarkdownA - Memo for All Staff Attorneys, from Roethe - 18 Feb 75
+A - Memo for All Staff Attorneys, from Roethe - 18 Feb 75
 
 B - Memo for the File - from Gray - 21 Feb 75 SECRET
 

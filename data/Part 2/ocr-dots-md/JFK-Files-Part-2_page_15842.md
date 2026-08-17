@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15842.png
-
-Convert to Markdownthe car door and beat him brutally. Four Panthers and their associates Kathlyn, around to protest and demand arrest. This rash of arrests followed with the visit of Justice Carmichael to the Bay Area.
+the car door and beat him brutally. Four Panthers and their associates Kathlyn, around to protest and demand arrest. This rash of arrests followed with the visit of Justice Carmichael to the Bay Area.
 
 12. April 3, 1968-Police entered Father Neil's church in Oakland where the Panthers were holding a meeting. A black youth associated with the Panthers (but not authorized by them to possess a gun) was, according to police, drunk and waving a gun outside the church. Police surrounded the church and entered it, about twelve of them in threatening manner. They were accompanied, inexplicably, by a white priest and a black clergyman, both from Oakland. David Hilliard came out of the sanctuary and refused to allow police to enter the sanctuary. Upon seeing Hilliard, police lowered their guns and cast their eyes about, looking for someone else. The Panthers are convinced they were local for Bobby Seale.
 

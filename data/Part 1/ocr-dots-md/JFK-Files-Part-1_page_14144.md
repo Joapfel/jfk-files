@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14144.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECTION C - NARRATIVE COMMENTS (cont'd)
 

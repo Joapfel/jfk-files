@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20932.png
-
-Convert to MarkdownWFO 100-55290
+WFO 100-55290
 
 WFO is in receipt of only one copy each of the three issues; however, through established sources, WFO will obtain a copy of the next publication for the Bureau's perusal.
 

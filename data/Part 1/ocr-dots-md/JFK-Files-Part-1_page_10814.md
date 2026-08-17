@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10814.png
-
-Convert to MarkdownLIBERTAD Página 16
+LIBERTAD Página 16
 
 SECRE~
 DEBLREA

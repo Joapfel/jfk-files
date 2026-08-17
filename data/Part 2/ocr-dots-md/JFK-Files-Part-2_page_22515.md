@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_22515.png
-
 s to the ranking police officer and also taken at the same time was the young Cuban whom Wiley had been interviewing. All these police officers were in plain clothes.
 
 Wiley stated that they were placed in a car and taken directly to G-2 Headquarters in the Miromar Section of Havana which is a building between 14th Street and Fifth Avenue and bears the number 1210 (this address known to the United States Embassy). Wiley stated that during the ride in the car to the G-2 Headquarters, he needled the young Cuban who kept insisting that this was not an arrest and seemed shocked by the whole performance. Wiley added that this Cuban, as far as he knows, was dismissed from the prison after a statement had been taken from him by the police the same evening.

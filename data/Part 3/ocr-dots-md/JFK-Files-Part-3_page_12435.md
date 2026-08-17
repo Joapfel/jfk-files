@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12435.png
-
-Convert to MarkdownQ: What atant JUHAN Bond's Campaign? Any aftot to influence stat? / No.
+Q: What atant JUHAN Bond's Campaign? Any aftot to influence stat? / No.
 
 A: As I recall Board was already a member of the Georgia legislature July 1964 or 1965?
 

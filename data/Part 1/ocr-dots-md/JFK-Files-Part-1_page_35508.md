@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35508.png
-
-Convert to MarkdownCOPY
+COPY
 
 17610 65-6-2
 

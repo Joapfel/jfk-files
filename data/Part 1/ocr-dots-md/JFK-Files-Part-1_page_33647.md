@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33647.png
-
-Convert to Markdown# Hungarian Exile Activities
+# Hungarian Exile Activities
 
 ## - 2 -
 

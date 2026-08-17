@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22483.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Soviet defectors and people who claim to be and have subsequently been found to be legitimate defectors.
 

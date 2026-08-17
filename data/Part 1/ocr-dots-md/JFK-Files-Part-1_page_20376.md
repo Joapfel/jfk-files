@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20376.png
-
-Convert to Markdown14-0000
+14-0000
 
 Standard Form No. 61
 Approved January 28, 1943

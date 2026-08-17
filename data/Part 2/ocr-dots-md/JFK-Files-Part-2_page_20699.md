@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20699.png
-
-Convert to MarkdownIt is felt that the activities of these SLP-WONAC members can best be followed through their individual case files rather than under a WONAAC caption. This case is being closed by the NYO.
+It is felt that the activities of these SLP-WONAC members can best be followed through their individual case files rather than under a WONAAC caption. This case is being closed by the NYO.
 
 Coalition (WOMAC)
 

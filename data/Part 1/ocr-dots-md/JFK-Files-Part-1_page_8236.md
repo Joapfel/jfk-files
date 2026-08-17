@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8236.png
-
-Convert to MarkdownPOLITICAL BACKGROUND
+POLITICAL BACKGROUND
 
 Democratic Nominee for Secretary of State of California, 1958
 Received 2,500,000 votes in first try for elective office.

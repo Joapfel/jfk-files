@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4367.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="6">MARCH 1961</th>

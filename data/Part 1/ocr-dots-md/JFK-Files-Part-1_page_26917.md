@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26917.png
-
-Convert to MarkdownDATE 31 July 1967
+DATE 31 July 1967
 
 INSTRUCTION TO : Chief, MIAMI FIELD OFFICE
 MUNICIPAL : Director, Domestic Contact Service (Services Division)

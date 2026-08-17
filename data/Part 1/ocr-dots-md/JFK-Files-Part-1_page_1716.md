@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1716.png
-
-Convert to MarkdownRETYPED FROM UNREADABLE
+RETYPED FROM UNREADABLE
 COPY.
 
 7 October 1961

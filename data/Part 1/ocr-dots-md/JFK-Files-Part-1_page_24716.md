@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24716.png
-
-Convert to Markdownc. Possibly Significant Contacts. Because of my close friendship with them, their access or their lack of apparent income.
+c. Possibly Significant Contacts. Because of my close friendship with them, their access or their lack of apparent income.
 
 (1) Jacques C. *Derney. Private businessman, "Artistic Counselor," lives outside his apparent income, probably homosexual.
 

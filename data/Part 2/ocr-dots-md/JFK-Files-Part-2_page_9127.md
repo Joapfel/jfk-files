@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9127.png
-
-Convert to Markdown# History of the Secret Army Organization
+# History of the Secret Army Organization
 
 One early morning in February, 1970, a group of six Minutemen leaders from four states met secretly in Northern Arizona to discuss the crisis that the arrest and imprisonment of two top Minutemen leaders and the assassination of a third had brought on the organization. Although some of these men had met before in their roles as Minutemen group leaders, others were meeting for the first time.
 

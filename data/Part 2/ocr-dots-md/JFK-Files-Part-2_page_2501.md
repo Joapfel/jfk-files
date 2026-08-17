@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2501.png
-
-Convert to MarkdownMr. George Martin Rosnek
+Mr. George Martin Rosnek
 
 Dear Mr. Rosnek:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31650.png
-
-Convert to MarkdownJUN 29 1945
+JUN 29 1945
 
 MEMORANDUM FOR: C/PP
 

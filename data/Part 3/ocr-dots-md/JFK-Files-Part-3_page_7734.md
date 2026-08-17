@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7734.png
-
-Convert to MarkdownBased on these developments it became apparent that an in-depth study was in order to clarify any misconceptions which might have grown up concerning the scope of FBI intelligence and investigative authority, particularly where it concerns domestic organizations and/or individuals. A detailed and exhaustive study has now been completed, and the following is the result of that study.
+Based on these developments it became apparent that an in-depth study was in order to clarify any misconceptions which might have grown up concerning the scope of FBI intelligence and investigative authority, particularly where it concerns domestic organizations and/or individuals. A detailed and exhaustive study has now been completed, and the following is the result of that study.
 
 AUTHORITY DERIVED PRESIDENTIAL DIRECTIVES
 

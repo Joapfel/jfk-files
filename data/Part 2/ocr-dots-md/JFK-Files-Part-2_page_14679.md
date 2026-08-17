@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14679.png
-
-Convert to Markdown# ELECTRONIC SURVEILLANCES
+# ELECTRONIC SURVEILLANCES
 
 As of January 12, 1967, the Bureau has 17 domestic intelligence telephone surveillances. These provide coverage of domestic subversive organizations and individuals. Furthermore, we have 59 foreign intelligence telephone surveillances. These provide coverage of diplomatic and official establishments of foreign countries. Also, we have coverage of 40 teletype facilities of diplomatic establishments. We do not have any microphone surveillances in operation.
 

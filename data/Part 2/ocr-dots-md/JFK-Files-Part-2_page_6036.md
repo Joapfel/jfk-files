@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6036.png
-
-Convert to MarkdownWILLIAM L. JOYCE
+WILLIAM L. JOYCE
 
 EXPERIENCE:
 

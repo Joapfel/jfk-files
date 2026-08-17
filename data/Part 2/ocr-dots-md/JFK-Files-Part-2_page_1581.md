@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1581.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DATE 20 May 1959
 PROT 9-258

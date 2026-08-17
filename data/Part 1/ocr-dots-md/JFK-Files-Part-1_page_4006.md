@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4006.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>AC. J. G. BAKE</td></tr><tr><td>NIT. WR/3/BOLIVIA</td></tr><tr><td>CT. 5269</td></tr><tr><td>ATE. 14 JUNE 1965</td></tr></table>
 

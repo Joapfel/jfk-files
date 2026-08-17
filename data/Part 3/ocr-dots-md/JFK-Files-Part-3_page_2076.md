@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2076.png
-
-Convert to MarkdownC. WISTOPHER J. COOD, CONN.
+C. WISTOPHER J. COOD, CONN.
 MIKE OLD E. FORD, TENN.
 FLOYD J. FITHIAN, IND.
 ROBERT W. KEGAR, PA.

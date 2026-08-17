@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10804.png
-
-Convert to MarkdownXXI
+XXI
 
 Un ciudadano negro que ve-
 nía de Santa Clara para Estos

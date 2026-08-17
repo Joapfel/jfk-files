@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12085.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 INSPECTOR E. S. MILLER:
 

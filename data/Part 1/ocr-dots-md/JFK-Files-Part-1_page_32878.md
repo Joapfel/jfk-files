@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32878.png
-
-Convert to MarkdownORIG: C. TRETTIN:jaf
+ORIG: C. TRETTIN:jaf
 UNIT: WH/COG/CICS
 EXT: 5106
 DATE: 14 JUNE 87

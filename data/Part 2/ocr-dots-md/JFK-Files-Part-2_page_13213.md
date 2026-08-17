@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13213.png
-
-Convert to Markdown10 JUN 1975
+10 JUN 1975
 
 Staff Members of the Senate Select Committee on Intelligence Activities who have received a security
 investigation by the Federal Bureau of Investigation within the past five years and are certified as

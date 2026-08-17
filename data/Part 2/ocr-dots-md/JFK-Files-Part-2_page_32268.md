@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32268.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. prohibit any cargo sponsored by a v. a. p. mission or agency of the United States from being shipped on vessels owned or controlled by persons who own or control vessels engaged in the trade between Cuba and the Soviet bloc.
 

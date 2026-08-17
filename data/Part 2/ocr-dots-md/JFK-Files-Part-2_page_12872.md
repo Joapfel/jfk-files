@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12872.png
-
-Convert to MarkdownTransmit the following in
+Transmit the following in
 
 Type in plain text or code
 REGISTERED MAIL

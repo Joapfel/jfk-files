@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4884.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DC DOCUMENT EXTRACT
 

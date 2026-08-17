@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34196.png
-
-Convert to MarkdownTranslation;
+Translation;
 
 NATIONAL ASSOCIATION OF SUGAR GROWERS - CALI, COLOMBIA
 

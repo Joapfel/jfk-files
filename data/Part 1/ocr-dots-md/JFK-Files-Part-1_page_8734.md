@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8734.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 252314Z FEB 70 GITE MEXICO CITY 2565
 DIRECTOR -

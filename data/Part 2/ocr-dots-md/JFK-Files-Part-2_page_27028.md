@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27028.png
-
-Convert to MarkdownFinally, it should be noted that this document re-
+Finally, it should be noted that this document re-
 quest does not supersede any earlier requests for material
 in this area which are still outstanding. If CIA staff
 encounters overlap in responding to this and earlier re-

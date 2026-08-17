@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1812.png
-
-Convert to Markdownhe should be given at least sixty days to explore this proposal and
+he should be given at least sixty days to explore this proposal and
 to prepare his recommendations. We concur.
 
 Mr. Coyne does not agree with the above paragraph and in lieu

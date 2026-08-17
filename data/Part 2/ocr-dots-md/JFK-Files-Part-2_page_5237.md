@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5237.png
-
-Convert to Markdown# Additional Resources Requested.
+# Additional Resources Requested.
 
 3. The following estimate is based on our understanding of the ARRB requirements at this time.
 

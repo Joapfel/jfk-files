@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20004.png
-
-Convert to Markdown6 August 1932
+6 August 1932
 
 Memorandum in Lieu of Fitness Report
 Subject:

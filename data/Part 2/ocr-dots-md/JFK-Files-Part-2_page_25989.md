@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25989.png
-
-Convert to Markdownsort of dealing with them, of categories of
+sort of dealing with them, of categories of
 work, and where the boundary lines of who did
 what on the thing, and this is where their
 jealousies and emotions and everything would

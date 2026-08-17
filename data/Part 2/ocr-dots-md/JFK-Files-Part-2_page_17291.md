@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17291.png
-
-Convert to Markdown# Report of the January 1970 Grand Jury
+# Report of the January 1970 Grand Jury
 
 ## INTRODUCTION
 

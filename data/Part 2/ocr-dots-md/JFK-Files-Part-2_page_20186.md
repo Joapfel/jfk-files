@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20186.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 TO : Acting Director, FBI (100-468406)
 FROM : SAC, Philadelphia (100-53818) (P)

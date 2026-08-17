@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1311.png
-
-Convert to MarkdownSECRET
+SECRET
 
 terminated MORENO's involvement in the sensitive aspects of AMTRUNK in November 1963.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25729.png
-
-Convert to Markdown# Terrorist Activities Charged to Cubans By Police in Miami
+# Terrorist Activities Charged to Cubans By Police in Miami
 
 WASHINGTON, Aug. 22 (UPI) -Militant pro-Castro and anti-Castro groups in the Miami area are engaged in terrorist activities both in and outside the United States, according to testimony given before a Senate subcommittee and released today.
 

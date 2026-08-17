@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7689.png
-
-Convert to Markdownwould call her back. On 10 May 1966 she tried to call Subject, who was out,
+would call her back. On 10 May 1966 she tried to call Subject, who was out,
 saying that she wanted to know about the arrival of a man from Russia. On
 11 May 1966 Subject told her he still had no answer on her papers. She
 said she planned to take a business trip to Brussels and Paris in June and

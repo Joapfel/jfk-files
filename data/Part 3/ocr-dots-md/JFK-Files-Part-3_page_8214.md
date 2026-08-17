@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8214.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. NSAM 5815 - Comparative Evaluation Group -- This 1958 directive established an inter-agency body to prepare comparative evaluations of the US and Soviet weapons systems.
 

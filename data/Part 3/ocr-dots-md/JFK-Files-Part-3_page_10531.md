@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10531.png
-
-Convert to MarkdownTELEYPED UNIT
+TELEYPED UNIT
 
 Mar 25 10:37PM '75
 

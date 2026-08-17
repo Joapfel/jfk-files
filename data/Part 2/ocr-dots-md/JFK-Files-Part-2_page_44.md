@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_44.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">
      PERSONAL RECORD QUESTIONNAIRE

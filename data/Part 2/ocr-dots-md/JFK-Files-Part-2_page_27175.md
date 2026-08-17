@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27175.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Assassination Materials (Cont.)
 

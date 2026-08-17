@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13893.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 national security resulting from the 12-year penetration of the U. S. Embassy in Moscow through the Soviet microphone system which had recently been uncovered there. In this connection, Mr. Pace observed that the September 24, 1964 report which the Board had received from General Carter of CIA (concerning the status of actions taken in response to Board Recommendation No. 35 of June 1962) was not responsive to the Board's recommendation calling for the organization of a major research and development effort in the audiosurveillance field.
 

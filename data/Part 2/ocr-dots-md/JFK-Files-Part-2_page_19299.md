@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19299.png
-
-Convert to MarkdownAT 100-7300
+AT 100-7300
 
 The source utilized in the enclosed LHM to characterize ISOBEL FORBES CERNEY is SF 1917-S.
 

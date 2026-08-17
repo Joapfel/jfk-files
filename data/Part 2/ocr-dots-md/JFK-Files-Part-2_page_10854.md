@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10854.png
-
-Convert to MarkdownNOVEMBER 27, 1970
+NOVEMBER 27, 1970
 REVISION 222
 
 RE: REVISED PAGES

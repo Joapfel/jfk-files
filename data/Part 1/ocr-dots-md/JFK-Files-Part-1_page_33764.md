@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_33764.png
-
-Convert to Markdownoperations of the Committee. The work of the Committee is carried forward under the direction of its President, Rear Admiral Harold B. Miller, U.S.N. Retired, who is on leave of absence from the American Petroleum Institute. On March 1, 1952, he succeeded Mr. C. D. Jackson, who has returned to resume his position with TIME-LIFE, Inc.
+operations of the Committee. The work of the Committee is carried forward under the direction of its President, Rear Admiral Harold B. Miller, U.S.N. Retired, who is on leave of absence from the American Petroleum Institute. On March 1, 1952, he succeeded Mr. C. D. Jackson, who has returned to resume his position with TIME-LIFE, Inc.

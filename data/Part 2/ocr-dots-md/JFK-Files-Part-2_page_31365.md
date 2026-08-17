@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31365.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>UNITED STATES AIR FORCE<br/>THE INSPECTOR GENERAL<br/>OFFICE OF SPECIAL INVESTIGATIONS<br/>REPORT OF INVESTIGATION</td>
         <td></td>

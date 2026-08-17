@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16109.png
-
-Convert to MarkdownArms brokers are a curious blend of past and present. Here WerBell, dashing as a Prussian noble, tests MBA rocket pistol.
+Arms brokers are a curious blend of past and present. Here WerBell, dashing as a Prussian noble, tests MBA rocket pistol.
 
 WerBell, who likes to design arms as well as sell them, examines some of his collection in the "Weapons Room" of his Georgia home.
 

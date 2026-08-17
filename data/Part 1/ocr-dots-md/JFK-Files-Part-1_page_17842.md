@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17842.png
-
-Convert to Markdown<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>INVOICE NUMBER AND BUNDED NO.</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>BET-6929</td></tr></tbody></table>
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>INVOICE NUMBER AND BUNDED NO.</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>BET-6929</td></tr></tbody></table>
 
 **LICOENT:** To support a $40.00 a month payment to LICOENT-1 for the use of his POV.
 

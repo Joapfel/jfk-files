@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1652.png
-
-Convert to Markdown7. HOSTILE INTELLIGENCE CONNECTIONS
+7. HOSTILE INTELLIGENCE CONNECTIONS
 
 Can you provide any information of any kind
 tending to establish that Subject may have been

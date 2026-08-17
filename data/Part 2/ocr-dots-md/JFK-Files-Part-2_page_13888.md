@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13888.png
-
-Convert to MarkdownMemorandum to Mr. Cleveland
+Memorandum to Mr. Cleveland
 Re: Senate and House Select Committees
 on Intelligence Activities
 

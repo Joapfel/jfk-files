@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4376.png
-
-Convert to Markdown# Office of the Attorney General
+# Office of the Attorney General
 Washington, D.C.
 
 MEMORANDUM FOR THE DIRECTOR, FBI

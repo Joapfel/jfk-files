@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12138.png
-
-Convert to MarkdownBokinsky, is now employed by Fenner Pontiac in Rockville, Maryland. It is noted that this information is not in the PSI file, the Baltimore Division was not advised, and no action was taken by the Bureau.
+Bokinsky, is now employed by Fenner Pontiac in Rockville, Maryland. It is noted that this information is not in the PSI file, the Baltimore Division was not advised, and no action was taken by the Bureau.
 
 It is noted that the last Bureau communication to WFO in this matter is dated 9/2/69 granting authority to conduct Fisurs as may be necessary to determine if subject is engaged in intelligence activities.
 

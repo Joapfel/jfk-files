@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30525.png
-
-Convert to Markdown19 Aug. 51
+19 Aug. 51
 
 L.G. 201 - AGM
 

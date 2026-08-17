@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9671.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>10</td><td>: DIRECTOR</td></tr><tr><td>FROM</td><td>: MEXICO CITY</td></tr><tr><td>ACTION</td><td>: C/AR 5</td></tr><tr><td>INFO</td><td>: ODA, ACO, E/C1, DC/MK/SN 5, YR</td></tr></table>
 

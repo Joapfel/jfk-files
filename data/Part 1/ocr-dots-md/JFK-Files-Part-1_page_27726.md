@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27726.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>DCF</td></tr><tr><td>SERIAL NUMBER</td><td colspan="2">NAME (LAST, FIRST, MIDDLE)</td></tr><tr><td>026090</td><td colspan="2">KEENAN THOMAS J.</td></tr><tr><td>3. NATURE OF PERSONNEL ACTION</td><td colspan="2"></td></tr><tr><td>REASSIGNMENT AND DELEGATION OF NSCA</td><td></td><td>8. EFFECTIVE DATE<br/>No. DA #<br/>06 | 21 | 76</td></tr><tr><td rowspan="2">PUNEI<br/>V.10.V</td><td>V.10.C#</td><td colspan="2">5. CATEGORY OF EMPLOYMENT</td></tr><tr><td>X</td><td>T. PIAN AND NSCA<br/>T135 4528 0001</td><td colspan="2">REGULAR<br/># CEC OF OTHER LEGAL AUTHORITY<br/>50 USC 403 J</td></tr><tr><td>CP.10.V</td><td>C.10.C#</td><td colspan="2">10. LOCATION OF OFFICE STATION<br/>WASH., D.C.</td></tr><tr><td>11. POSITION TITLE</td><td colspan="2">10. POSITION NUMBER</td><td>13. SERVICE DESIGNATION</td></tr><tr><td>OPS OFFICER CH</td><td colspan="2">CP25</td><td>DQB</td></tr><tr><td>14. CLASSIFICATION SCHEDULE (OS, LR, O/M)</td><td>15. OCCUPATIONAL SERIES</td><td>16. GRADE AND STEP</td><td>17. SALARY OR RATE</td></tr><tr><td>GS</td><td>0136.01</td><td>15 4</td><td>34441</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1384.png
-
-Convert to MarkdownSECRET
+SECRET
 08 - 3 -
 
 2. AMTRUNK/3, a [22] year old Cuban, in contrast to A/2, is volatile, immature and impulsive. On the other hand he is quite loyal to A/2 and his quick wit is appealing to his fellow team members. He worked under A/2 in the underground as an action type, principally engaging in sabotage. His underground work began while he was in secondary school when in 1958 he supported the revolution against Batista. In late 1960 he sided with the counter-revolutionaries and began full time anti-Castro activities. After the crack down following the Bay of Pigs invasion he avoided detection and continued to engage in underground activities. Finally when the situation became hopeless he left Cuba by air for Miami in August 1962. While A/3 has performed satisfactorily in his training up to date, his performance falls far short of the other three members. A/3 feels KUBARK should only function as support for this operation and should not interfere in the actual plans of the operation. Fortunately his role in this operation is comparatively minor and he appears willing to comply with whatever A/2 decides. Nevertheless, direct control of A/3 offers problems in the future.

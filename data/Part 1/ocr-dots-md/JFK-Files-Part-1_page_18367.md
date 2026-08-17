@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18367.png
-
-Convert to MarkdownSECURITY OFFICE
+SECURITY OFFICE
 
 CONFIDENTIAL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29634.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">NOTIFICATION OF ESTABLISHMENT<br>OF MILITARY COVER BACKSTOP</td></tr><tr><td>TO:<br>(Check)<br>X</td><td>CHIEF, PERSONNEL OPERATIONS DIVISION<br>X CHIEF, OPERATING COMPONENT (For action) NPIC</td></tr><tr><td colspan="2">ATTN:<br>Mr. Carl Batchelder</td></tr><tr><td colspan="2">REF:<br>Form 1322 16 June 64 Requesting cover</td></tr><tr><td colspan="2">MILITARY COVER BACKSTOP ESTABLISHED<br>Logistical Support Group, Provisional</td></tr><tr><td>DATE<br>11 August 64</td><td>ESTABLISHED FOR<br>MAKSYMIEC, Myroslaw A.</td></tr><tr><td>FILF NO.<br>K-8235</td><td>ID CARD NO.<br>B8995</td></tr><tr><td>EMPLOYEE NO.</td><td></td></tr></table>
 

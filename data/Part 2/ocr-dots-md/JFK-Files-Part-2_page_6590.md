@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6590.png
-
-Convert to MarkdownSECRET Sensitive
+SECRET Sensitive
 
 to determine this name. "The Little Bull," "The Little Worm," "The Friendly Worm," "The Fighting Friend," "The Tough Peasant," or any such name which is acceptable and meaningful in Spanish could suffice. Over a period of several months the name could be "dropped" or leaked through U. S. officialdom, in diplomatic channels, in intelligence channels or within the Cuban exile community. Specific acts against the Regime could be credited to this individual or members of his group. Communications could be arranged between this individual and his subordinates to be picked up either by Castro's censors or by radio intercept in Cuba or in the U. S.
 

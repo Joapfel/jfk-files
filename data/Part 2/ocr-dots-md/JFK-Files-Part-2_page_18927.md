@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18927.png
-
-Convert to MarkdownOPTIONAL FORM NO. 10
+OPTIONAL FORM NO. 10
 MAY 1952 EDITION
 GSA FPMR (41 CFR) 101-11.6
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17846.png
-
-Convert to MarkdownRECD
+RECD
 
 03/25 JCO
 

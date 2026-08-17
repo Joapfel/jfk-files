@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23175.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Case 46,632
 

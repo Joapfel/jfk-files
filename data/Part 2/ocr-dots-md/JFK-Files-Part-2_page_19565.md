@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19565.png
-
-Convert to MarkdownYOUNG POLITICAL EXPLORERS LEAGUE (YPEL)
+YOUNG POLITICAL EXPLORERS LEAGUE (YPEL)
 
 A source stated REE ANN HUBBARD, daughter of OIVA HALONEN, who was then the Chairman of the Communist Party's Industrial Section at Seattle, had said on July 29, 1957, that the youth group in Seattle was considering adoption of the name Young Political Explorers.
 

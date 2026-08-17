@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24210.png
-
-Convert to Markdownb. To sell the firm on a sole-source basis to either
+b. To sell the firm on a sole-source basis to either
 outside buyer without soliciting public bids would be
 contrary to sound business practice and would attract
 even more adverse publicity.

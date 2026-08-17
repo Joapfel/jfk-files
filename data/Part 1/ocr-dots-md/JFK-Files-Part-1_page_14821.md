@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14821.png
-
-Convert to MarkdownThe Washington DAILY NEWS points out that the 'Peace Corps' program, which costs taxpayers $100 million annually, does not work, and recommends that the administration find better ways to use these funds.
+The Washington DAILY NEWS points out that the 'Peace Corps' program, which costs taxpayers $100 million annually, does not work, and recommends that the administration find better ways to use these funds.
 
 Official Washington has in fact acknowledged the failure of the 'Peace Corps' activity. This is evidenced by the White House's decision to merge the Peace Corps with VISTA, so-called corps of teachers.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16472.png
-
-Convert to MarkdownTHIRD AGENCY DOCUMENTS
+THIRD AGENCY DOCUMENTS
 
 FBI, 6 April 1978
 

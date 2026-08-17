@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_896.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFICATION - DAILY DISTRIBUTION CONTROL</td></tr><tr><td>SECRET<br/>(See Fund to)</td><td>FOR RELEASE AFTER COMMAND</td></tr><tr><td>臺8-3/68.079</td><td>in progress</td></tr><tr><td></td><td>page 2</td></tr></table>
+<table><tr><td colspan="2">CLASSIFICATION - DAILY DISTRIBUTION CONTROL</td></tr><tr><td>SECRET<br/>(See Fund to)</td><td>FOR RELEASE AFTER COMMAND</td></tr><tr><td>臺8-3/68.079</td><td>in progress</td></tr><tr><td></td><td>page 2</td></tr></table>
 
 ARTILLERY PIECE.)
 

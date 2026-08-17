@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21572.png
-
-Convert to MarkdownSECRET
+SECRET
 
 F. Is there evidence of KGB deception or "give away" in information furnished by NOSENKO which would warrant a conclusion that NOSENKO was dispatched by the KGB? The conclusion in this summary is that NOSENKO was not dispatched by the KGB. In reaching this conclusion, a full examination of the above conclusion has been both a necessary and integral part.
 

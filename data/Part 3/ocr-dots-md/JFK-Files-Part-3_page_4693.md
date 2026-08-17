@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4693.png
-
-Convert to MarkdownU. S. DEPARTMENT
+U. S. DEPARTMENT
 COMMUNICATIONS SECTION
 
 13 8 1962

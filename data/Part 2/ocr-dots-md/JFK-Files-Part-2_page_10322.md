@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10322.png
-
-Convert to Markdown8 May 1973
+8 May 1973
 
 exchanges of technical information on techniques, technical assistance and training, and the loan of Agency equipment. In the past several years, support has been rendered to sensitive FBI projects MCCHARK, UNION and NUGRAVEL. Support has been and is presently being given to FBI projects ORKID and ROSE. These projects are described in the attached sealed envelope.
 

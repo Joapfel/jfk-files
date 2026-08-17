@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27046.png
-
-Convert to Markdown178-10004-10053
+178-10004-10053
 
 10 December 1962
 

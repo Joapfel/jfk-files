@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31385.png
-
-Convert to MarkdownPlan due to the economic position of the Saar in this matter. Films and publications of the Campaign were used in the discussions. 7000 students participated.
+Plan due to the economic position of the Saar in this matter. Films and publications of the Campaign were used in the discussions. 7000 students participated.
 
 During June 1952, in cooperation with the Campaign, students and professors of the International Institute formed a committee along with youth leaders to discuss the particular problems of the Saar in a United Europe.
 

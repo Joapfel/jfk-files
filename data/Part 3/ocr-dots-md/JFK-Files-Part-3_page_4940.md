@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_4940.png
-
 . LÉVISION stated that in the
 past LEVISION had not considered it wise for O'DELL to
 take on such a position, but he is the only one who could

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16511.png
-
-Convert to Markdown2
+2
 J. Assistants to Communications Secretary
 
 12. Fund Raising

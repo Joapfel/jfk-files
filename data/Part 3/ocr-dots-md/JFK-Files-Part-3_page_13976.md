@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13976.png
-
-Convert to Markdown(8) That (1) U. S. intelligence officials be less reluctant to propose to higher authority the use of extraordinary means (such as the U-2) to acquire vital intelligence not otherwise obtainable; and (2) that there be a mechanism whereby policy officials will be informed of operational delays or other factors which call for top-level authorization of new or revised intelligence missions.
+(8) That (1) U. S. intelligence officials be less reluctant to propose to higher authority the use of extraordinary means (such as the U-2) to acquire vital intelligence not otherwise obtainable; and (2) that there be a mechanism whereby policy officials will be informed of operational delays or other factors which call for top-level authorization of new or revised intelligence missions.
 
 (9) That, in order to meet intelligence needs in simultaneous emergencies, pre-arranged plans be made for: (1) the rapid reassignment of personnel, equipment and other intelligence resources; (2) the designation of various processing centers for the handling of photographic intelligence; (3) the processing and communication of vital intelligence to major users in Government; and (4) planning for such related intelligence activities to meet the extra burden if two or more crises should occur concurrently.
 

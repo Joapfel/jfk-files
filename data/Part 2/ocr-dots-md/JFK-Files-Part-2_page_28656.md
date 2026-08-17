@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28656.png
-
-Convert to Markdown4. State the immediate effects of the injury and what you did immediately thereafter.
+4. State the immediate effects of the injury and what you did immediately thereafter.
 
 5. Was any other injury sustained, either on or off duty, between the date of injury and the date it was first reported to (a) your supervisor and (b) to a doctor? If so, describe:
 

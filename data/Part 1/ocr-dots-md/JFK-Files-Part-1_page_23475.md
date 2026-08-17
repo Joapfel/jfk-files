@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23475.png
-
-Convert to MarkdownSECRET
+SECRET
 
 You will entitled to per diem in lieu of subsistence in the course of such travel. All travel, transportation and per diem provided for under this paragraph must be properly authorized, and expenses incurred hereunder are subject to pay- ment and accounting in compliance with CIA regulations.
 

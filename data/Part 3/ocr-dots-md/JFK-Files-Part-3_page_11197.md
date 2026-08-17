@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11197.png
-
-Convert to MarkdownSupplemental Agreement No. V
+Supplemental Agreement No. V
 to the Delimitations Agreement
 
 Investigation of Reserve and Civilian

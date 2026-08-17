@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8501.png
-
-Convert to MarkdownE.O. 11652
+E.O. 11652
 
 Name/Cite #/Page
 

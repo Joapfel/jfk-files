@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9562.png
-
-Convert to MarkdownAfter leaving Boulder, SMILEY was advised by Dean WILLIAM E. BRIGGS, College of Arts and Sciences, University of Colorado, Boulder, that a letter was received by the University purportedly written by RIJA in which he stated that he would not be returning to the University. BRIGGS advised SMILEY that in his opinion, the letter was a forgery, since the signature did not compare with that of RIJA.
+After leaving Boulder, SMILEY was advised by Dean WILLIAM E. BRIGGS, College of Arts and Sciences, University of Colorado, Boulder, that a letter was received by the University purportedly written by RIJA in which he stated that he would not be returning to the University. BRIGGS advised SMILEY that in his opinion, the letter was a forgery, since the signature did not compare with that of RIJA.
 
 After the disappearance, SMILEY began receiving a great many inquiries from the news media and he was pressed for a statement regarding his knowledge of RIJA and whether or not he was alive.
 

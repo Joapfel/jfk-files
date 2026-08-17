@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2208.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Agency at least would be coordinated with the other respective offices to avoid any confusion and difficulties for me in the course of the investigation which will be made to determine my qualifications for admission to the Bar in the District of Columbia.
 

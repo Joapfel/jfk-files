@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6231.png
-
-Convert to MarkdownFAX TRANSMISSION
+FAX TRANSMISSION
 ARRB
 
 202-724-0088

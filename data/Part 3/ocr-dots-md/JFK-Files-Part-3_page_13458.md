@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13458.png
-
-Convert to Markdown1
+1
 
 Agency, and then tucked something away somewhere that would be as secret as some of those agencies in other governments that operate in this field. But I just don't know whether that would work in our particular, complicated, Constitutional system where the powers of Congress are always involved, and it is difficult for us to hide things away.
 

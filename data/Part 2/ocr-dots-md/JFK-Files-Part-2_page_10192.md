@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10192.png
-
-Convert to Markdown23JUN
+23JUN
 1972
 
 MEMORANDUM FOR: Executive Director/Comptroller

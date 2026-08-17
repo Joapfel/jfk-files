@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2261.png
-
-Convert to MarkdownJohn Carl Bishop
+John Carl Bishop
 03
 08 036385
 

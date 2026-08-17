@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4331.png
-
-Convert to Markdowncon los puficulacíos de su PUEBLO, COSTARITO Y VELASCO, CON LE JUDICIO
+con los puficulacíos de su PUEBLO, COSTARITO Y VELASCO, CON LE JUDICIO
 
 con los siguiendo:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14719.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SX-32554
 26 Sept 77

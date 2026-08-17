@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23757.png
-
-Convert to MarkdownI would like to be a little more literate.
+I would like to be a little more literate.
 
 Mr. Aaron. If there is the will to exercise it.
 

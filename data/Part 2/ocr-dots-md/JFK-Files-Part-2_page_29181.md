@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29181.png
-
-Convert to MarkdownDepartment of Treasury
+Department of Treasury
 
 for 1973, or taxable year beginning .................... , 1973, ending .................... , 19 .................... .
 

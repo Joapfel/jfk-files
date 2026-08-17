@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10831.png
-
-Convert to Markdownof intelligence. The importance of the individual
+of intelligence. The importance of the individual
 is further emphasized when we realize that as each
 sophisticated collection technique is introduced,
 science also introduces newly designed countertechniques

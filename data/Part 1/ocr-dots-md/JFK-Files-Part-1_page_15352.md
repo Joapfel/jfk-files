@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15352.png
-
-Convert to MarkdownA. BERGO REALE - Roma
+A. BERGO REALE - Roma
 VIA XX SETTEMBRE 30
 D. BONETTI Prop
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34244.png
-
-Convert to Markdown**January 17, 1966:**
+**January 17, 1966:**
 
 **NEWSCAST:**
 

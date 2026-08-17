@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15773.png
-
-Convert to MarkdownAdministrative Office
+Administrative Office
 Operations Division, Medical Staff
 27th & Building, E.S. 3507
 

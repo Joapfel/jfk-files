@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8861.png
-
-Convert to Markdown1. Nombre completo: HENRY P. LOPEZ
+1. Nombre completo: HENRY P. LOPEZ
    (Primera nombre) (Apellido paterno) (ızq. Apellido materno)
 
 2. Su firma corriente: J. H. P. Lopez

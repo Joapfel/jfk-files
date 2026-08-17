@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5998.png
-
-Convert to Markdown<table><thead><tr><td>DISPATCH</td><td>CLASSIFICATION</td></tr></thead><tbody><tr><td>10<br/>Chief, Task Force W</td><td>S-E-C-R-E-T</td></tr><tr><td>INFO</td><td rowspan="2">PROCESSING<br/><table><tr><td>PROPOSED</td><td>ACTION</td><td>ACCOUNT PURSUED</td></tr><tr><td>X</td><td>NO INFORMING REQUIRED</td><td></td></tr><tr><td></td><td colspan="2">ONLY QUALIFIED HEADQUARTERS OF A CAN JUDGE INFORMING</td></tr><tr><td>FROM<br/>Chief of Station, JMWAVE LQ</td><td colspan="2">ABSTRACT<br/>MK-89 FILM</td></tr><tr><td>SUBJECT<br/>Operational/GYROSE/KUWOLF AMSPELL Underground Activities - November 1962</td><td colspan="2">ACTION REQUIRING REFERENCES</td></tr></tbody></table>
+<table><thead><tr><td>DISPATCH</td><td>CLASSIFICATION</td></tr></thead><tbody><tr><td>10<br/>Chief, Task Force W</td><td>S-E-C-R-E-T</td></tr><tr><td>INFO</td><td rowspan="2">PROCESSING<br/><table><tr><td>PROPOSED</td><td>ACTION</td><td>ACCOUNT PURSUED</td></tr><tr><td>X</td><td>NO INFORMING REQUIRED</td><td></td></tr><tr><td></td><td colspan="2">ONLY QUALIFIED HEADQUARTERS OF A CAN JUDGE INFORMING</td></tr><tr><td>FROM<br/>Chief of Station, JMWAVE LQ</td><td colspan="2">ABSTRACT<br/>MK-89 FILM</td></tr><tr><td>SUBJECT<br/>Operational/GYROSE/KUWOLF AMSPELL Underground Activities - November 1962</td><td colspan="2">ACTION REQUIRING REFERENCES</td></tr></tbody></table>
 
 **Action:** For your information
 

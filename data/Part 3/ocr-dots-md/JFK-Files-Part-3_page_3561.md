@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3561.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 
 Memorandum
 

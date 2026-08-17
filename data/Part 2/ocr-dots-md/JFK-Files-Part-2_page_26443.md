@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26443.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CLASSIFICATION - DISSEMINATION CONTROLS<br/>C-O-N-F-I-D-E-N-T-I-A-L</td>
     <td>NOFORN/CONTINUED CONTROL<br/>TDCS-3/502,553</td>

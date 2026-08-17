@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9324.png
-
-Convert to Markdown# CONTENTS, suggested by R.S.
+# CONTENTS, suggested by R.S.
 
 (1) Photo of Tsar & Kaiser together. Be-maligned. (Title and text of three "Jewish-Hillary" photos).
 

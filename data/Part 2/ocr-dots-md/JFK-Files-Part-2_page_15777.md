@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15777.png
-
-Convert to MarkdownMARTY FAYE
+MARTY FAYE
 
 Can I ask you sir, how your fees are paid?
 

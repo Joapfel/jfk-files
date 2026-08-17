@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31252.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A. Fall 1965 Cain met with Lohmann in Chicago office to link up with Cuban agents in Chicago area.
 

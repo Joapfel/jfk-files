@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35556.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 March 1, 1965
 

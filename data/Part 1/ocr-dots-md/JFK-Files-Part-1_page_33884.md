@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33884.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Hungarian National Council, being the only National Council which is active in any degree as a unified and effective leadership group, should be given the proposed KFE responsibilities at once and that as soon as the other national groups become effective organizations KFE facilities should be made available to them.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33028.png
-
-Convert to Markdownthe following information:
+the following information:
 
 If, in the opinion of any officer or agent of this Division, it is deemed necessary by reason of public necessity that any report or information which may come into his possession relating to any enemy should be transmitted to him under any circumstances, he will take all reasonable care and attention in doing so.
 

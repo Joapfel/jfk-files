@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3804.png
-
-Convert to MarkdownSECRET
+SECRET
 
 farmers the chance to take their products to big markets,
 through the construction of highways, silos to store grains

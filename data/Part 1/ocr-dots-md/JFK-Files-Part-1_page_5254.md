@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5254.png
-
-Convert to Markdown# BANQUE COMMERCIALE D'HAITI
+# BANQUE COMMERCIALE D'HAITI
 
 ## Bilan arrêté au 21 Janvier 1963
 

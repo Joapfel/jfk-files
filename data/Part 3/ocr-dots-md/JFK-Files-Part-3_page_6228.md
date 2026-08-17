@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6228.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">ATLANTA</td>
     <td>OFFICE OF ORIGIN</td>

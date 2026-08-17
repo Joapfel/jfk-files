@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26260.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 8.- Pedi a NICO GILMÁN no dí game su concepto y unaotal evaluación de FIDEL CASTRO. Dijo,ales que nada, que el Castro es un comandante o qué clase de comunista, ndie lo cunde. Sus es un gran leader revolucionario y un great t'el porq no puede juzgar el papel de Librador de InstruccionesTanque dependiente del Vin y que ein tanecio do control en esteasomando. Llens que NICO undan qulc ced que Castro se tu conversaon en un encierto ente de los soviéticos. Tanbién dijo que Castro "está" vini qualse qutate que Cuauhtzingo las académicas soviéticas, pero que CÁSTRO no es capaz de hacerlo. Con respecto al paradero del Chif, Castro, dijo que tal vez ni el propio NICO CASTRO sabe dónde está.
 

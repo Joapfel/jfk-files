@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9712.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 2
 
 JENKINS advised he also observed a .45 caliber automatic handgun in a holster which was shown to him by DRAGER. DRAGER also indicated he was wanted for a conspiracy to blow up something but DRAGER was not more specific about this charge. DRAGER also mentioned he was wanted for passing bad checks in several states.

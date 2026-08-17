@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1688.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th></th><th>DATE</th></tr></thead><tbody><tr><td colspan="2">NOTIFICATION OF ESTABLISHMENT<br/>OF MILITARY COVER BACKSTOP</td></tr><tr><td colspan="2">ESTABLISHED FOR</td></tr><tr><td>TO:<br/>(Check)<br/><hr/>CHIEF RECORDS AND SERVICES DIVISION<br/>CHIEF OPERATING COMPONENT</td><td>FILE NO:<br/><hr/>A-1234567890<br/>A-1234567890<br/><hr/>A-1234567890</td></tr><tr><td colspan="2">ATTN:<br/></td></tr><tr><td colspan="2">REF:<br/></td></tr><tr><td colspan="2">MILITARY COVER BACKSTOP ESTABLISHED</td></tr></tbody></table>
 

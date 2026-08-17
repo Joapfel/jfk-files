@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19122.png
-
-Convert to MarkdownHonorary Members of the Committee:
+Honorary Members of the Committee:
 
 CALLAS (Ex chief of FTP in the Bouches-du-Rhone)
 CAPORALI (Cmdt)

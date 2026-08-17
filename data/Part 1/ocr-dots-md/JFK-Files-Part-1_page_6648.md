@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6648.png
-
-Convert to Markdown# FIELD INFORMATION REPORT
+# FIELD INFORMATION REPORT
 
 - **EVALUATION OF SOURCE**: A. Currently reliable: 1. Usually reliable: C. Firmly reliable: D. Not usually reliable: E. Not reliable: F. Applied to sources of doubtful reliability or loyalty, regardless of their competence. 1. Dependability cannot be judged (Applied to estimated or implicitly tested sources).
 

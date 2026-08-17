@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12113.png
-
-Convert to Markdown<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td>I Aft H/w</td><td>NITA-21,826</td><td>7 September 1967</td></tr><tr><th colspan="2">CLASSIFICATION</th><th>HQS FILE NUMBER</th></tr><tr><td></td><td>SECRET</td><td>201-</td></tr></tbody></table>SEF. 5/147 COPY
+<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td>I Aft H/w</td><td>NITA-21,826</td><td>7 September 1967</td></tr><tr><th colspan="2">CLASSIFICATION</th><th>HQS FILE NUMBER</th></tr><tr><td></td><td>SECRET</td><td>201-</td></tr></tbody></table>SEF. 5/147 COPY
 
 <table><tbody><tr><td>MICROFILMED<br/>SEP 1 1991<br/>DOC. MICRO. SER.</td></tr><tr><td>Lt. Col. V.S. Dabbs</td></tr><tr><td>A. Irons Trumpon</td></tr></tbody></table>
 

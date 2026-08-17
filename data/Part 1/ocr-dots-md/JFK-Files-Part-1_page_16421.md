@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16421.png
-
-Convert to Markdown-3-
+-3-
 
 inter nal security of SLA] which will enable this organization to more effectively combat the extrovert guerrilla and terrorist activity fostered by the [Communist Party of Venezuela] with aid and encouragement from Castro in his effort to bring about a communist take-over to Latin America. Besides the inherent value of the training itself, the creating of the training will help [institute] improve his daily operational association with SLA and enhance his opportunity of making a successful recruitment in the future.] Orientation in Counter Insurgency is also being included to give SLA officials a greater awareness of the problem and thus to lay the ground work for future work in this field.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14411.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and informer. Source: Jose PAZ Novas, 17 Jan 61.
 

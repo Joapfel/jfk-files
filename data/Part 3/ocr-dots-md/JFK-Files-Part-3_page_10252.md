@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10252.png
-
-Convert to Markdown(2) detect developing conspiracies to violate substantive laws and initiate prosecuting action whenever possible to prevent such conspiracies from being carried out; and
+(2) detect developing conspiracies to violate substantive laws and initiate prosecuting action whenever possible to prevent such conspiracies from being carried out; and
 
 (3) develop evidence necessary for the Attorney General to file petitions before the Subversive Activities Control Board in accordance with provisions of the Internal Security Act of 1950 and Executive Order 11605.
 

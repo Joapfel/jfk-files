@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19561.png
-
-Convert to Markdownlow incomes who cannot afford to pay for a lawyer. A sin
+low incomes who cannot afford to pay for a lawyer. A sin
 vice for low income workers is provided by the Tacoma Legal Assis-
 tance Office, 150 South "M" Street, Tacoma.
 

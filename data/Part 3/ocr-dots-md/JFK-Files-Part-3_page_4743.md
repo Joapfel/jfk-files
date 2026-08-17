@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4743.png
-
-Convert to MarkdownLA 92-1130
+LA 92-1130
 
 <table><tr><td>IRS [JFK Law 11(a)]</td></tr></table>
 

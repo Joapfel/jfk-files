@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29616.png
-
-Convert to MarkdownPlans Branch/P&IS
+Plans Branch/P&IS
 
 11 May 1965
 

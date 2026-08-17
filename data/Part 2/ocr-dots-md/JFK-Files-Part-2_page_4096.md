@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4096.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 as an advisor to the ROK Army in Korea, and as a member of the US Army Counterintelligence Corps in Japan. During the latter tour of duty, the counterintelligence unit was designated the 3rd Operations Group, with Headquarters in Tokyo and Detachment B in Sendai, as referred to in photographic inclosures to your letter.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22460.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CLANDESTINE SERVICES
 HANDBOOK NO. 43-1-1

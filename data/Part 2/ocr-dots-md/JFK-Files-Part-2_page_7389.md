@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7389.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. The entire space has been swept and plans call for additional periodic sweeping. There is a motion detector in the secure area which rings at the guard desk in the staff area and also at the main office of the Capitol Police in the Rayburn Building. Tests have been made of this device and the response by the Capitol Police was immediate. Two doors which normally serve as access to the secure area from space occupied by other House Committees have been secured from the inside and alarms are to be installed on these doors.
 

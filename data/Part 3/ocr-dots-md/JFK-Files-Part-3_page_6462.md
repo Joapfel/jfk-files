@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6462.png
-
-Convert to MarkdownA. Samuel Riley Pierce, Jr.
+A. Samuel Riley Pierce, Jr.
 
 B. Dr. Frank R. Barnett
 

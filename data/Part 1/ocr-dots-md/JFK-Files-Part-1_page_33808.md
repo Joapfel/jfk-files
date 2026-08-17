@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33808.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 to have any other written obligations to them and if so, specifically to include all such in the termination agreement.

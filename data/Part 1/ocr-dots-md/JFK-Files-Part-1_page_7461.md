@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7461.png
-
-Convert to Markdowndirect to Paris for three or four days before proceeding to
+direct to Paris for three or four days before proceeding to
 London. His visit to Paris is, therefore, strictly unofficial.
 
 FRANCE

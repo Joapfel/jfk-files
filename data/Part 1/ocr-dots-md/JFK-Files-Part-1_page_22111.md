@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22111.png
-
-Convert to Markdown270.
+270.
 
 (iv) Monitoring/Jamming Beam
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20340.png
-
-Convert to MarkdownDIRECTOR, FBI (105-133315)
+DIRECTOR, FBI (105-133315)
 
 SAC, HONOLULU (100-6372) (C)
 

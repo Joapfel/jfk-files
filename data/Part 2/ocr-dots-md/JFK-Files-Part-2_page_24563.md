@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24563.png
-
-Convert to MarkdownMcNamara stated that he had no knowledge or information of any proposal for the assassination of Premier Castro coming from President Kennedy or Robert Kennedy. (McNamara, 7/11/75, p. 4.) He did note that "we were hysterical about Castro at the time of the Bay of Pigs and thereafter, and that there was pressure from (President Kennedy and Robert Kennedy) to do something about Castro. But I don't believe we contemplated assassination. We did, however, contemplate overthrow." (McNamara, p. 93.)
+McNamara stated that he had no knowledge or information of any proposal for the assassination of Premier Castro coming from President Kennedy or Robert Kennedy. (McNamara, 7/11/75, p. 4.) He did note that "we were hysterical about Castro at the time of the Bay of Pigs and thereafter, and that there was pressure from (President Kennedy and Robert Kennedy) to do something about Castro. But I don't believe we contemplated assassination. We did, however, contemplate overthrow." (McNamara, p. 93.)
 
 There occurred during McNamara's testimony an exchange which is appropriate
 to set out in full because of the manner in which it captures the dilemma posed

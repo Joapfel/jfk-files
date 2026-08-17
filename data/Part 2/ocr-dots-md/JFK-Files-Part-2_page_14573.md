@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14573.png
-
-Convert to MarkdownMemo Papich to Roach
+Memo Papich to Roach
 
 RE: COVERAGE OF NONCOMMUNIST
 DIPLOMATIC ESTABLISHMENTS

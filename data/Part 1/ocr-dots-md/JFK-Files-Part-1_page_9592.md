@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9592.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 NPL-002-76
 

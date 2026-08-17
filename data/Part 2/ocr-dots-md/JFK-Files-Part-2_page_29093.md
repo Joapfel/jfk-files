@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29093.png
-
-Convert to MarkdownSCHEDULE SE
+SCHEDULE SE
 
 (Form. 1040)
 

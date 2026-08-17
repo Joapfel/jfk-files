@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8219.png
-
-Convert to Markdown(d) Names of particular employees whose physical safety or future careers might be placed in jeopardy by exposure.
+(d) Names of particular employees whose physical safety or future careers might be placed in jeopardy by exposure.
 
 (e) Foreign or US sources, official or otherwise who agreed to cooperate under terms of explicit or implied confidentiality, who would be embarrassed or endangered by disclosure of their role.
 

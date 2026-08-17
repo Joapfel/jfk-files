@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8325.png
-
-Convert to Markdownserious but less specific, that he appears actually to be insane,
+serious but less specific, that he appears actually to be insane,
 to be suffering from delusions of grandeur (megiomania). For
 instance, his many references to his future role as prime minister
 of Bulgaria, and his illustrative anecdotes regarding the purpose

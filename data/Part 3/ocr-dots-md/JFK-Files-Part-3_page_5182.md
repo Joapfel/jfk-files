@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5182.png
-
-Convert to Markdowndesks. In this way they are aware of the productivity of the informant program as it concerns them. Also, if there is any particular problem concerning the handling of a particular informant, a supervisor is expected to assist and give guidance to the agent handling this particular informant. Supervisors are also regularly reminded of the importance of the informant program at supervisors' conferences and follow their individual agents to insure that they are fully participating.
+desks. In this way they are aware of the productivity of the informant program as it concerns them. Also, if there is any particular problem concerning the handling of a particular informant, a supervisor is expected to assist and give guidance to the agent handling this particular informant. Supervisors are also regularly reminded of the importance of the informant program at supervisors' conferences and follow their individual agents to insure that they are fully participating.
 
 Supervisors in this office are not required to approve either closing or opening memoranda on informant files. No record is kept of productivity of informants by desks, however, this information is readily available through the monthly statistical letter submitted on informant production inasmuch as each statistic is reported by classification.
 

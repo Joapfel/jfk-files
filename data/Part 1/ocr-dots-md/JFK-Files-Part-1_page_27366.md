@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27366.png
-
-Convert to MarkdownLtr. 6499th Support Group (CR), 11 June 1965, Letter of Commendation
+Ltr. 6499th Support Group (CR), 11 June 1965, Letter of Commendation
 
 2d Ind (AFNIN)
 

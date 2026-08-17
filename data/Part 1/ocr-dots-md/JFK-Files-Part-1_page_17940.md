@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17940.png
-
-Convert to MarkdownREMOVAL STEP
+REMOVAL STEP
 
 XCC. SYMBOL & Nomenclature: HM08-7370
 DOC. DATE: 12 June 57

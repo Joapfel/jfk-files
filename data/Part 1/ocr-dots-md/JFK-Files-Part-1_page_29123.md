@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29123.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (When filled in)
 
 NOTE TO PCS RETURNERS

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5523.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">SECRET</th></tr></thead><tbody><tr><td>30</td><td></td></tr><tr><td>ACTION</td><td>WH 3 ☑ RID COPY</td></tr><tr><td>Info</td><td></td></tr><tr><td>FILE</td><td>V4 WHK068 DO? R/PHN. F/LIINTZ CI. C1/085, DDP A008</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">SECRET</th></tr></thead><tbody><tr><td>30</td><td></td></tr><tr><td>ACTION</td><td>WH 3 ☑ RID COPY</td></tr><tr><td>Info</td><td></td></tr><tr><td>FILE</td><td>V4 WHK068 DO? R/PHN. F/LIINTZ CI. C1/085, DDP A008</td></tr></tbody></table>
 
 SECRET 052306Z CITIE JMWAVE 7021
 

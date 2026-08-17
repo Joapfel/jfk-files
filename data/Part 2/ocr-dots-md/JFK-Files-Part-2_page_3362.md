@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3362.png
-
-Convert to MarkdownCOPY
+COPY
 
 COPY
 

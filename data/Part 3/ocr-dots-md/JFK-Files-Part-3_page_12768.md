@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12768.png
-
-Convert to MarkdownLEROY ELDRIDGE CLEAVER
+LEROY ELDRIDGE CLEAVER
 
 bringing its own axe to grind, such organizations
 as the anarchist New Left group named Students

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16424.png
-
-Convert to MarkdownArea Knowledge: Subject's only travel outside of Venezuela was to Colombia.
+Area Knowledge: Subject's only travel outside of Venezuela was to Colombia.
 
 Previous Intelligence
 Training: None indicated but probably has had some intelligence training during his military career.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13828.png
-
-Convert to MarkdownSECRET
+SECRET
 
 To White House (Attn: General Clifton), From Ray S. Cline
 

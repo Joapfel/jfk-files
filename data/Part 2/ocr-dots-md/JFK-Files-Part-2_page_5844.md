@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5844.png
-
-Convert to MarkdownBundy; Subjects Covered - Msg concerning Pres. Kennedy's assassination." The second document is described as "Date of Meeting - 19 May '64; Participants - DCI, J.J. McCloy; Dinner at Residence - Re: Oswald. [The latter is annotated: " DESTROYED 1-28-72." ]
+Bundy; Subjects Covered - Msg concerning Pres. Kennedy's assassination." The second document is described as "Date of Meeting - 19 May '64; Participants - DCI, J.J. McCloy; Dinner at Residence - Re: Oswald. [The latter is annotated: " DESTROYED 1-28-72." ]
 
 Both documents were noted as missing when the files
 were reviewed by the CIA History Staff in November 1986.

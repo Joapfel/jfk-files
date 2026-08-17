@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26326.png
-
-Convert to Markdown21 October 1958
+21 October 1958
 
 SUBJECT: Victor RICO Galan
 

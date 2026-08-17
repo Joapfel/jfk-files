@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32555.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td rowspan="2">V or V<sup>1</sup></td><td>V to UV</td><td colspan="3"></td><td rowspan="2">DATE PREPARED<br/>Mo 08 Do 44 Yr 60</td></tr><tr><td>X UV to UV</td><td colspan="3">REQUEST FOR PERSONNEL ACTION</td></tr><tr><td rowspan="2">1. Serial No.</td><td rowspan="2">2. Name (Last-First-Middle)</td><td rowspan="2">3. Date Of Birth<br/>Mo 03 Da 15 Yr 15</td><td rowspan="2">4. Vet. Prof.<br/>None-0 Code 1 M<br/>5. P.I. 10 PI 2</td><td rowspan="2">5. Sex<br/>M</td><td rowspan="2">6. CS - LOD<br/>Mo 44 Do 03 Yr 06</td></tr><tr><td></td></tr><tr><td>7. SCD</td><td>B. CSC Rank</td><td>CSC Rank 9. CSC Or Other Legal Authority</td><td>D. Appmt. Affiliation</td><td>E. FIGL I 11. FIGL I 12. LCD</td><td>F. Allt. Prof. Code LCD<br/>Mo 01 Do 44 Yr 01 Yes. 1 No - 2 Code 01 02</td></tr><tr><td>No</td><td>Do</td><td>Yr</td><td>Yes. 1 No - 2</td><td>Yes. 1 No - 2</td><td>Yes. 1 No - 2</td></tr></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12425.png
-
-Convert to Markdown12.- Especificaciones del Diamante venezoleno
+12.- Especificaciones del Diamante venezoleno
 
 Origen
 

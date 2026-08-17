@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23920.png
-
-Convert to Markdown(Shouldn't be too aggressive too soon, after established in France, that sort of thing;)
+(Shouldn't be too aggressive too soon, after established in France, that sort of thing;)
 
 I don't know. After all, they have reasonably good relations with the French so I think probably the French will be disappointed that they haven't been able to get more concrete things out of this situation, trade and so forth.
 

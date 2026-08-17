@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14608.png
-
-Convert to MarkdownC. 1927.
+C. 1927.
 
 Drip Navarro-Havanna, 10 June 1839; Cuban Diplomatic passport PR-5/36/363. Source: CCN passenger list.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4354.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 The following are the highlights of operational meeting with AMBIDDY-1 on 3-4 May 1966 conducted in Room 1609 in the Hotel Everglades in Miami, Florida.
 

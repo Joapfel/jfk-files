@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2002.png
-
-Convert to MarkdownAES: 6 APRIL 61
+AES: 6 APRIL 61
 
 SECRET
 (When Filed In)

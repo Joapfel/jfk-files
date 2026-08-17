@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31882.png
-
-Convert to MarkdownSECRET
+SECRET
 
 THIS MEMO MUST REMAIN
 ON TOP OF FILE. JG

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22492.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # Penetration of Embassies in the United States
 

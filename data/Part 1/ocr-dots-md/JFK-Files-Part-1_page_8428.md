@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8428.png
-
-Convert to Markdownhim there. Subject said that DAIMA has tried to be friendly
+him there. Subject said that DAIMA has tried to be friendly
 with him for several years and has many times invited Subject and
 his wife to his home. Subject said he has never liked DALMA,
 however, and has always found a way out of the invitations.

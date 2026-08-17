@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7217.png
-
-Convert to Markdownand any limitation on our activities desired by the people of this country. Just tell us in the intelligence business what the nation wants and does not want, and we will do our best to satisfy it. But also give us a way openly to change these rules when the nation expects them to be changed.
+and any limitation on our activities desired by the people of this country. Just tell us in the intelligence business what the nation wants and does not want, and we will do our best to satisfy it. But also give us a way openly to change these rules when the nation expects them to be changed.
 
 With respect to oversight of our activities, Mr. Chairman, I have described the current procedures. I believe they are sufficient on the Executive side, and I reiterate that the organization of the Congress to carry out its responsibilities is not a matter for my determination or recommendation. I do honestly request and trust, however, that the Congress will organize itself to protect the necessary secrecy of our intelligence operations while exercising its responsibilities for oversight.
 

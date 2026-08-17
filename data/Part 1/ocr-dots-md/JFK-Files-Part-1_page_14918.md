@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14918.png
-
-Convert to MarkdownApproximately in 1940, Subject enlisted in the Foreign Legion. He was accepted in Paris and sent via Lyon-Marseille-Port St. Jean to Sidi-bel-Abyes. February-August 1940 he was stationed in Tunisia (Susa).
+Approximately in 1940, Subject enlisted in the Foreign Legion. He was accepted in Paris and sent via Lyon-Marseille-Port St. Jean to Sidi-bel-Abyes. February-August 1940 he was stationed in Tunisia (Susa).
 
 From Subject's narrative it may be assumed that he was not a bad soldier and that he actually liked to serve. He said that he had been suggested for officers' training but that this did not materialize (possibly because France was occupied in the meantime). Subject's highest rank was that of a Pfc (or equivalent thereof). According to him this rank has some prestige in the Legion.
 

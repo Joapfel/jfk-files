@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12934.png
-
-Convert to MarkdownWKSCARLET-3
+WKSCARLET-3
 
 October 1961 Employed at Firestone International Div. in Akron, Ohio.
 1963 U.S. Army Platoon leader (2nd Lt) Fort Benning, Ga.

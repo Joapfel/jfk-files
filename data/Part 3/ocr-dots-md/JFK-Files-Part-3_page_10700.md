@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10700.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 TO : DIRECTOR, FBI
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15183.png
-
-Convert to Markdown18 January 1960
+18 January 1960
 
 MEMORANDUM FOR: S2/DCB Finance Office
 SUBJECT: Request for Operational Advance.

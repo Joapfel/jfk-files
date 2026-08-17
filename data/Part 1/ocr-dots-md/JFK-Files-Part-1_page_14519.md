@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14519.png
-
-Convert to Markdown3
+3
 
 Ch. Dr. Venage, Cuban, gave R ticket
 to return to LIS from DR.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7056.png
-
-Convert to MarkdownValentin Sergeyevich LOGINOV (201-285412)
+Valentin Sergeyevich LOGINOV (201-285412)
 
 23 December 1927 41 Yrs old Born Moscow
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5861.png
-
-Convert to Markdown**Question 2:** For other than the 201-289248 file on Oswald, please explain when each Oswald file was opened, the purpose for the opening of the file, and the documents that were in the file at the time of the assassination.
+**Question 2:** For other than the 201-289248 file on Oswald, please explain when each Oswald file was opened, the purpose for the opening of the file, and the documents that were in the file at the time of the assassination.
 
 **Response:** As noted above, all HTLINGUAL files have been destroyed. Since OS files are usually set up in chronological sequence, a search of files with numbers in close proximity to those recorded for HTLINGUAL was undertaken. This search revealed the approximate opening dates for the four official HTLINGUAL files as:
 

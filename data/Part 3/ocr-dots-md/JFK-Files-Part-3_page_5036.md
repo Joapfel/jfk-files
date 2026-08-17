@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5036.png
-
-Convert to Markdown<table><tr><td>Tolson</td></tr><tr><td>Belmont</td></tr><tr><td>Mohr</td></tr><tr><td>DeLeach</td></tr><tr><td>Casper</td></tr><tr><td>Callohan</td></tr><tr><td>Contad</td></tr><tr><td>Felt</td></tr><tr><td>Gale</td></tr><tr><td>Rosen</td></tr><tr><td>Sullivan</td></tr><tr><td>Tovel</td></tr><tr><td>Trotter</td></tr><tr><td>Tele. Room</td></tr><tr><td>Holmes</td></tr><tr><td>Gandy</td></tr></table>
+<table><tr><td>Tolson</td></tr><tr><td>Belmont</td></tr><tr><td>Mohr</td></tr><tr><td>DeLeach</td></tr><tr><td>Casper</td></tr><tr><td>Callohan</td></tr><tr><td>Contad</td></tr><tr><td>Felt</td></tr><tr><td>Gale</td></tr><tr><td>Rosen</td></tr><tr><td>Sullivan</td></tr><tr><td>Tovel</td></tr><tr><td>Trotter</td></tr><tr><td>Tele. Room</td></tr><tr><td>Holmes</td></tr><tr><td>Gandy</td></tr></table>
 
 DECODED COPY
 

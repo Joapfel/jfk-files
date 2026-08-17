@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22118.png
-
-Convert to Markdown277.
+277.
 
 go to Cuba. GRIBANOV's deputy [S.G.] BANNIKOV, said that a worker [KGB officer] should be sent. But they decided not to send a worker to Cuba. "Why bother?" [they said]. "Is Cuba worth it?" Suddenly there was a phone call from the Central Committee [of the Communist Party]. Someone from the Central Committee said: "No, there is a directive that one of our workers must go nevertheless." And only two days remained before the departure of the delegation. Who could they send?
 

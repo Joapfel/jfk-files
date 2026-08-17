@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14387.png
-
-Convert to MarkdownMay 2, 1975
+May 2, 1975
 
 ORAL INFORMATION PROVIDED TO THE
 SENATE SELECT COMMITTEE (SSC)

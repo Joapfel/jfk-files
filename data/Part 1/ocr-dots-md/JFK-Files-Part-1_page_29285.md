@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29285.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: Grayson Lynch
 

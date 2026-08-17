@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16873.png
-
-Convert to Markdown2
+2
 CG
 
 Scars

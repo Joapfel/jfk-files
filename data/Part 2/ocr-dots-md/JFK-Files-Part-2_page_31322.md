@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31322.png
-
-Convert to MarkdownSTRICKLAND, Ann
+STRICKLAND, Ann
 
 Name of Employee
 

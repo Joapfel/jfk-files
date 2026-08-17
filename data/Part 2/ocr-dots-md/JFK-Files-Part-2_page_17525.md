@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17525.png
-
-Convert to MarkdownThe above information was furnished to the Chicago Police GIU Department.
+The above information was furnished to the Chicago Police GIU Department.
 
 6/13/69
 

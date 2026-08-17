@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11532.png
-
-Convert to MarkdownVIII. Letters requesting Bureau authority for the interview must contain the following information, if available:
+VIII. Letters requesting Bureau authority for the interview must contain the following information, if available:
 
 (A) Residence address, occupation, employment and race of subject, date and place of birth, citizenship, and status of health
 

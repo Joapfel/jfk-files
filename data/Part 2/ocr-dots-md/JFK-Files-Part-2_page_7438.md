@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_7438.png
-
 military attaches.
 
    c. Intelligence officers of the General Intelligence Department (GID).

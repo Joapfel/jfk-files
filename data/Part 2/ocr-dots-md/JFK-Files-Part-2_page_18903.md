@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18903.png
-
-Convert to MarkdownNY 105-75111
+NY 105-75111
 
 he was at one time very friendly with JAFFE and also well-acquainted with SUKHODREV. He advised that he hopes to get together with both of them for a night "on the town". He will advise this office of future developments if any.
 

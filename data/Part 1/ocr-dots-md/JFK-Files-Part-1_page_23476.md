@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23476.png
-
-Convert to Markdownof such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1948, as amended, and other applicable laws and regulations.
+of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1948, as amended, and other applicable laws and regulations.
 
 11. Instructions. Instructions received by you from CIA in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
 

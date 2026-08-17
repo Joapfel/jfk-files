@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25895.png
-
-Convert to Markdown128. Out to 15-12-64 at 0955. OBYEDKOV talks to OBRUBOV.
+128. Out to 15-12-64 at 0955. OBYEDKOV talks to OBRUBOV.
 OBY: VOLODYA, come here as fast as you can.
 OBR: Alright.
 

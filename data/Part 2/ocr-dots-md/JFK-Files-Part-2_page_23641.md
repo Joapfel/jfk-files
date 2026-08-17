@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23641.png
-
-Convert to MarkdownI believe he can reprogram it within about $750 million of his own appropriation.
+I believe he can reprogram it within about $750 million of his own appropriation.
 
 Senator Huddleston. We can't take something out of the MSA now and put it over?
 

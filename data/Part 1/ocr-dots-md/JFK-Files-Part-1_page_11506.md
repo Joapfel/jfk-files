@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11506.png
-
-Convert to Markdown<table><thead><tr><th>DATE</th><th>TO</th><th>FROM</th></tr></thead><tbody><tr><td>10 March 1969</td><td></td><td></td></tr><tr><td>IN →</td><td></td><td>201-845437<br/>201-798301</td></tr></tbody></table>
+<table><thead><tr><th>DATE</th><th>TO</th><th>FROM</th></tr></thead><tbody><tr><td>10 March 1969</td><td></td><td></td></tr><tr><td>IN →</td><td></td><td>201-845437<br/>201-798301</td></tr></tbody></table>
 
 14-00000
 

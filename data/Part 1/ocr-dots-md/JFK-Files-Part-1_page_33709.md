@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33709.png
-
-Convert to Markdownremembered the effect on NCCT of attacks from certain Catholic circles.
+remembered the effect on NCCT of attacks from certain Catholic circles.
 
 NCFT was at one time in bad situation vis-a-vis hierarchy.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19368.png
-
-Convert to MarkdownForm No. 38-6
+Form No. 38-6
 
 April 1947
 

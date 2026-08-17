@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8068.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10 JUL 1978
 

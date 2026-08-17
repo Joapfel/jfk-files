@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24581.png
-
-Convert to Markdown12 April 1957
+12 April 1957
 
 and his family departed Mexico for Veracruz where they were to remain for one day and then go by boat to Tapehala. His wife and son were to travel legally to Guatemala while he planned a clandestine re-entry into Guatemala (7).
 

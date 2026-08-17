@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15176.png
-
-Convert to Markdownwill send you ('(plurals) or rather I will send you (singular) every month enough to help you substantially and perhaps more. What do I ask in exchange is:
+will send you ('(plurals) or rather I will send you (singular) every month enough to help you substantially and perhaps more. What do I ask in exchange is:
 
 1) to send to the people I've mentioned above, just a little note giving my name and my new address exactly like this one. Neither more nor less.
 

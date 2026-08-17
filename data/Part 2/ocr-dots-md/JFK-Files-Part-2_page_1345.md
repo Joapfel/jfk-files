@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1345.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (13 Hs. filed in.)
 

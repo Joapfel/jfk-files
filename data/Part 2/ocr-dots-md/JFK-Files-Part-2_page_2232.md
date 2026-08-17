@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2232.png
-
-Convert to MarkdownCOPY
+COPY
 
 Willis Smith
 Oscar Leach

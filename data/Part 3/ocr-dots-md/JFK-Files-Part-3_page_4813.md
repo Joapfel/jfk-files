@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4813.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 It is noted that MANNARINO was in attendance at the notorious Apalachin Conference in 1957, and there are strong indications that he is a member of LCN.
 

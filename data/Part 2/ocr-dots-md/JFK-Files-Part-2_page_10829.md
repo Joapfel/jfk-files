@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10829.png
-
-Convert to MarkdownNY 52-10018
+NY 52-10018
 
 **ADMINISTRATIVE (cont'd)**
 

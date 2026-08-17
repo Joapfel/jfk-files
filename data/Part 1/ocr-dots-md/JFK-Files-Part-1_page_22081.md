@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22081.png
-
-Convert to Markdownf. <u>Knowledge of the Target</u>
+f. <u>Knowledge of the Target</u>
 
 (1) <u>Introduction</u>
 

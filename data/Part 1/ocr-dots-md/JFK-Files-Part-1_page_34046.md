@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34046.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><thead><tr><th colspan="3">CLASSIFICATION<br>SECRET</th><th colspan="2">PROCESSING</th></tr><tr><th></th><th>PROPOSED</th><th>ACTION</th><th>ALCO.</th><th>PUSHED</th></tr></thead><tbody><tr><td>TO</td><td rowspan="4">XX</td><td>MARRED FOR INDEXING</td><td></td><td></td></tr><tr><td>INFO.</td><td>NO INDEXING REQUIRED</td><td></td><td></td></tr><tr><td>FROM</td><td>CAN JUDGE INDEXING</td><td></td><td></td></tr><tr><td>Chief of Station, JMWAVE</td><td>ABSTRACT</td><td></td><td></td></tr><tr><td>SUBJECT</td><td>TYPIC/AMSCROLL/Operational<br>Letter from Rev. Henry Muir</td><td>MICROFILM</td><td></td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2505.png
-
-Convert to Markdownknew of no black market involvement of MORONE with CECCHI.
+knew of no black market involvement of MORONE with CECCHI.
 
 NOSENKO has also indicated that the KGB sometimes suspected,
 and on occasion actually became aware that various agents did not

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_697.png
-
-Convert to Markdown20 Feb '97
+20 Feb '97
 
 Washington
 

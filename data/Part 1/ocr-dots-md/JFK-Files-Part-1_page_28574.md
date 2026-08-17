@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28574.png
-
-Convert to Markdown8 July 1966
+8 July 1966
 
 MEMORANDUM IN LIEU OF FITNESS REPORT - 1 April 1965 -
 31 March 1966

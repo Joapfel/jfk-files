@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8198.png
-
-Convert to MarkdownSECRET
+SECRET
 
 27 February 1961
 

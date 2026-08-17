@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25285.png
-
-Convert to Markdown(Continued from page 6)
+(Continued from page 6)
 
 to the nearby home of a retired engineer and his wife.
 

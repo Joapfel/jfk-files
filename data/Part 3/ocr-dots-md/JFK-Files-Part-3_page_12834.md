@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12834.png
-
-Convert to MarkdownAll documents constituting or relating to agreements with other agencies regarding participation by the IRS in Organized Crime Strike Forces, including any documents relating to the desirability of participating on such strike forces.
+All documents constituting or relating to agreements with other agencies regarding participation by the IRS in Organized Crime Strike Forces, including any documents relating to the desirability of participating on such strike forces.
 
 ### D. Special Service Staff
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3135.png
-
-Convert to Markdown1 this country, and white people as well, and to substitute in his
+1 this country, and white people as well, and to substitute in his
 2 place someone of the FBI's selection or someone who stood in
 3 the FBI's favor?
 

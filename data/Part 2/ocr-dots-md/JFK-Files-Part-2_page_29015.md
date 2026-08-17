@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29015.png
-
-Convert to Markdown# Computation of Investment Credit
+# Computation of Investment Credit
 
 ## Attach to your tax return.
 

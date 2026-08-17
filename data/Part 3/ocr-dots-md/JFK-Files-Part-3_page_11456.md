@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11456.png
-
-Convert to Markdown1 - Mr. M P. Callahan
+1 - Mr. M P. Callahan
 1 - Mr. J B. Adams
 1 - Mr. D W. Moore, Jr.
 

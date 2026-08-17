@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8421.png
-
-Convert to MarkdownMéxico, D.F.
+México, D.F.
 
 2 July, 1968
 

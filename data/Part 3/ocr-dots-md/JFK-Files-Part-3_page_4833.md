@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4833.png
-
-Convert to MarkdownSECRET
+SECRET
 
 At New Kensington, Pennsylvania:
 

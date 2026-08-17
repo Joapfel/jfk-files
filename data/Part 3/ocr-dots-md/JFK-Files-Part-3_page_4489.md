@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4489.png
-
-Convert to MarkdownNO 87-14835
+NO 87-14835
 
 Credit Bureau records made available by LANCE GARCIA, January 17, 1969, reflect that ANTHONY ROSSI is married to BARBARA and is employed at Rubensteins Clothing Store.
 

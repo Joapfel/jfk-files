@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17139.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of this project, but that seems unlikely from the Headquarters review of terminated agents witting of present KDFACTOR operational activities. A Soviet investigation of property ownership around the Soviet Embassy and their awareness that the Soviet Embassy was under photographic surveillance in the past could result in a Soviet investigation of the activities and contacts of KDABBEY-1, the owner of an apartment building and four houses close to the Soviet Embassy. It is doubtful that KDABBEY-1's activities, which do not inter-relate with the activities of the KDFACTOR agents, would in any way expose the KDFACTOR Project operational activities.
 

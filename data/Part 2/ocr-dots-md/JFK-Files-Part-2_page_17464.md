@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17464.png
-
-Convert to Markdown6/4/69
+6/4/69
 
 SAC, CHICAGO
 

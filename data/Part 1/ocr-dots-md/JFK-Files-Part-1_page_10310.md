@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10310.png
-
-Convert to Markdown# AVENTURA DE JURADO EN GUATEMALA
+# AVENTURA DE JURADO EN GUATEMALA
 
 Sr. José Pájolo Llango
 Director de SIEMPRE!

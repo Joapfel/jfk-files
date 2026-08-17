@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6266.png
-
-Convert to MarkdownSep 23 '94 15:36 P.U
+Sep 23 '94 15:36 P.U
 
 ASSASSINATION RECORDS REVIEW BOARD
 600 E STREET N.W.

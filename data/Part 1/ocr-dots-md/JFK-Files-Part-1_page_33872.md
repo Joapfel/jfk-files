@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33872.png
-
-Convert to MarkdownC O I
+C O I
 
 STRICTLY PRIVATE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1053.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 In May, 1970, the Miami Office furnished information
 to Milt Kelly, Managing Editor, "Fort Lauderdale News," regarding

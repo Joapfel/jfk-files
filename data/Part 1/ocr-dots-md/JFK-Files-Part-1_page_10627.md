@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10627.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 TDCSDB-315/
 00917-64

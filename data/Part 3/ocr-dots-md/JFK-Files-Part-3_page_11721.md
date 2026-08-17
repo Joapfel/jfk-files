@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11721.png
-
-Convert to Markdown# Personnel
+# Personnel
 
 We recently recommended that one agent and one clerk be added to Madrid in the event of a future expansion. While the present complement can handle the normal FBI cases, the emphasis on HILEV items can best be satisfied by an additional agent.
 

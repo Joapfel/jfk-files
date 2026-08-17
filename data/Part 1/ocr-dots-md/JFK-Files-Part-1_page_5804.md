@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5804.png
-
-Convert to MarkdownTHE WASHINGTON POST
+THE WASHINGTON POST
 
 Thursday, June 4, 1953
 

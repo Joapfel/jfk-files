@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5520.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE OF</td>
     <td>Mid-late May 1967</td>

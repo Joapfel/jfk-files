@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33330.png
-
-Convert to Markdown<table>
+<table>
    <caption>
     Table 2: Some Indices of the Chilean Economy, 1970-72
    </caption>

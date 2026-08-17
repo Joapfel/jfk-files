@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34419.png
-
-Convert to MarkdownSECRET
+SECRET
 SENSITIVE
 
 Subject: Apparent RIS Interest in Manfred R. Schroeder, Bell Telephone Labs

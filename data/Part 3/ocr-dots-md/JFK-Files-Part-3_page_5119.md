@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5119.png
-
-Convert to MarkdownNR002 SE CODE
+NR002 SE CODE
 
 4:21 PM MITEL 8/18/75 SLA
 TO DIRECTOR

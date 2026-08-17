@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24350.png
-
-Convert to MarkdownEQUITY SALES TO DATE
+EQUITY SALES TO DATE
 
 | security | No. of Shares | Date of Purchase | Date of Sale | Purchase Price | Sales Price | Gain or (Loss) on Sale |
 |---|---|---|---|---|---|---|

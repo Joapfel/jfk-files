@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21554.png
-
-Convert to Markdowna particular period of time or suggested the possibility that he did not
+a particular period of time or suggested the possibility that he did not
 occupy the position which he claimed to have held.
 
 It is considered that information furnished by NOSENKO supports his claimed positions in the SCD. It has not been possible to substantially confirm through collateral sources that NOSENKO served in his claimed positions. Neither has it been possible to obtain from other sources an applicable description of the duties or responsibilities of an individual holding any of the positions NOSENKO claimed to have held after 1958. It is felt there can be no question that NOSENKO served in the capacities of junior case officer, case officer, and senior case officer during 1953 - 1957.

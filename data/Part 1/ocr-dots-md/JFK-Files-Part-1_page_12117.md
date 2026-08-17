@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12117.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9. PHYSICAL DESCRIPTION AND PHOTOS:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21516.png
-
-Convert to Markdown1. cers whose objective would be to plan for the overthrow of
+1. cers whose objective would be to plan for the overthrow of
 2. the Castro regime.
 
 3. Mr. Smothers. Was it your understanding that these plans were to extend to assassination?

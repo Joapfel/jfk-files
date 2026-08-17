@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31611.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # CZECHOSlovakIA: INFORMATION
 

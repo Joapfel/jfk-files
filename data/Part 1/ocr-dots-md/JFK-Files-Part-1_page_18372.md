@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18372.png
-
-Convert to MarkdownSECRET
+SECRET
 
 that special qualifications do you wish the candidate tested for? —Sence-of-security as he must live a normal life in his own home town while conducting a discreet operation. Ability to discriminate between valuable intelligence information and worthless, Ability to arrange facts cogently on paper. Fact-and-direcetion.
 What period and type of training is considered necessary for the candidate before placement in the field? -About three weeks in Head Office and then Inter-Agency Offices.

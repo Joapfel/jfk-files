@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1233.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CLASSIFIED INFORMATION</td></tr></table>
 

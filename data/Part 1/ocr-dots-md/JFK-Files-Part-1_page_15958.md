@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15958.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE : 232<br/>22 JUN '62</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : FRANKFURT</td></tr><tr><td>ACTION: C/TSD 2</td></tr><tr><td>INFO : ADDP, C/C1, C/F1.2, CDC, CA 3 C/EE 3, S/C 2</td></tr></table>
 

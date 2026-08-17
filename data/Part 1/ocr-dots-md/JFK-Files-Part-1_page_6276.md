@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6276.png
-
-Convert to MarkdownVIVO
+VIVO
 EN CUBA
 
 ALPHA 66 INFORMA:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6003.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 with a copy of DOI 50-46, "The Interagency Source Register," and advised that an unclassified response was not possible.
 

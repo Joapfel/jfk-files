@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8762.png
-
-Convert to MarkdownService investigation would surface him anyway. Asked that the Secret Service protect his identity.
+Service investigation would surface him anyway. Asked that the Secret Service protect his identity.
 
 **WAVE 2266 (IN 33425) dated 11 December 1962**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11605.png
-
-Convert to Markdownand was the planner and "hit man" in armed robberies and acts of violence committed by BPP. La Borde was also indicted on armed robbery charges on 8/16/71 in NYC having been identified as the person who held up a bar during July, 1971.
+and was the planner and "hit man" in armed robberies and acts of violence committed by BPP. La Borde was also indicted on armed robbery charges on 8/16/71 in NYC having been identified as the person who held up a bar during July, 1971.
 
 Hill and La Borde are prime suspects in the killing
 on 5/21/71 and lineup is being arranged for our crime scene

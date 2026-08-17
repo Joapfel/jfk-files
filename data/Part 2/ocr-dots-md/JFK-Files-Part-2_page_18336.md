@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18336.png
-
-Convert to MarkdownBrennan memo to Sullivan, "New Left Movement - Finances,"
+Brennan memo to Sullivan, "New Left Movement - Finances,"
 12 March 1970 (Cited letter to White House dated 2/26/70, requested)
 
 Director, FBI, airtel to SAC Albany, New Left Movement - Finances,"

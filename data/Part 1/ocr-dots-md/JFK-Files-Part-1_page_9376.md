@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9376.png
-
-Convert to Markdown7 April 1950
+7 April 1950
 
 MEMORANDUM FOR MESSRS. FRANK
 LINDSAY

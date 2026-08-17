@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8108.png
-
-Convert to Markdown<table><thead><tr><td>CLASSified MUSICAL CIRCULATION BY</td></tr></thead><tbody><tr><td>CONFIDENTIAL</td></tr><tr><td>SECRET</td></tr><tr><td>ANONYMOUS</td></tr><tr><td>CORRECTLY PRODUCED</td></tr><tr><td>FOR RELEASE TO THE public, media and press when</td></tr><tr><td>the material has been reviewed and approved by the appropriate officials and published in a format that is not易readable without the use of special equipment.</td></tr><tr><td>in which case it will be labeled <u>CONFIDENTIAL</u>.</td></tr></tbody></table>
+<table><thead><tr><td>CLASSified MUSICAL CIRCULATION BY</td></tr></thead><tbody><tr><td>CONFIDENTIAL</td></tr><tr><td>SECRET</td></tr><tr><td>ANONYMOUS</td></tr><tr><td>CORRECTLY PRODUCED</td></tr><tr><td>FOR RELEASE TO THE public, media and press when</td></tr><tr><td>the material has been reviewed and approved by the appropriate officials and published in a format that is not易readable without the use of special equipment.</td></tr><tr><td>in which case it will be labeled <u>CONFIDENTIAL</u>.</td></tr></tbody></table>
 
 CONFIDENTIAL
 

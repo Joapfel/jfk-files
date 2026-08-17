@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2102.png
-
-Convert to Markdown# POSITION CONTROL REGISTER
+# POSITION CONTROL REGISTER
 
 56340030000
 

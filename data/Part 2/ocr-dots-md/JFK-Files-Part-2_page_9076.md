@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9076.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. CASE OF POLISH SEAMEN - DEFECTORS - 1954
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28341.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      INSTRUCTION FOR NEW ENGLAND RESERVES

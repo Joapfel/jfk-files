@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14783.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">CABLE SE: DISSEMS BY PER TOTAL COPIES</td>
     <td rowspan="3" style="vertical-align: top; text-align: center;">SEC R E T</td>

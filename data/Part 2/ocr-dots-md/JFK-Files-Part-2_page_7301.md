@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7301.png
-
-Convert to MarkdownSECRET
+SECRET
 SENSITIVE
 
 7. NICARAGUA: During the period 1962 to 1966, CIA participated in efforts to interdict moves by General Somoza to purchase arms for military actions against his neighbors.

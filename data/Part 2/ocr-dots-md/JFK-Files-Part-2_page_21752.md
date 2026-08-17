@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21752.png
-
-Convert to MarkdownExhibits 3
+Exhibits 3
 
 Handwritten note drawing the organizational structure of a European military unit, likely a division or similar level. The notes show that Baker + Richardson, a known military family, are behind the diagram.
 

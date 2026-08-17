@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5271.png
-
-Convert to MarkdownCURRICULUM VITAE
+CURRICULUM VITAE
 
 Born in Conakry, Haiti, on April 21, 1923, from a peasant family. Had his primary schooling at the 'Ecole des Freres des Conaives,' and his secondary schooling at the 'Lycee Cedardard' in the same town.
 

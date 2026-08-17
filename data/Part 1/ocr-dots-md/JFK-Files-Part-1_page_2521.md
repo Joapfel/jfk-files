@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2521.png
-
-Convert to Markdownof NOSENKO in Moscow at the time this pitch was made, it would appear
+of NOSENKO in Moscow at the time this pitch was made, it would appear
 that NOSENKO was comparatively free to go to Bulgaria because this
 phase of the [STORSBERG] operation had been completed.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13794.png
-
-Convert to Markdownel teléfono es 352110, que si gusta puede pedirlas a nombre-de Silvia. Raúl toma nota y acepta.- 213.-
+el teléfono es 352110, que si gusta puede pedirlas a nombre-de Silvia. Raúl toma nota y acepta.- 213.-
 
 228.
 

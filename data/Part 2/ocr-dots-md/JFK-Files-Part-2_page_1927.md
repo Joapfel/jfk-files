@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1927.png
-
-Convert to Markdown14-00000
+14-00000
 
 (3.8) OFFICE OF A TRANSACTIONS OFFICER BEGINS TO CLOSE ON 1956 & 1956.
 

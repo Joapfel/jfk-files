@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4896.png
-
-Convert to MarkdownThe following FBI record. NUMBER 152 535 B , is furnished FOR OFFICIAL USE ONLY.
+The following FBI record. NUMBER 152 535 B , is furnished FOR OFFICIAL USE ONLY.
 
 <table>
    <thead>

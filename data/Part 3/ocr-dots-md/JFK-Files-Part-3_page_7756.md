@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7756.png
-
-Convert to Markdown# DEVELOPMENT OF INVESTIGATIVE POLICIES
+# DEVELOPMENT OF INVESTIGATIVE POLICIES
 
 By examining our investigative policies and procedures over the years it can readily be seen that procedures adopted out of necessity, such as those developing out of the period preceding World War II, in time come to be accepted as gospel both within and outside the FBI. The intelligence-type investigations originally ordered because of circumstances existing in 1936 and even before, continued after World War II, and in reality became necessary again during the Korean War period. And although the actual basis of authority in 1949 and 1950 was not the same as in 1936, we evidently considered it the same and obviously the Department of Justice and White House did also. Even though the Congress provided legislative authority to investigate subversive acts, it appears that we did not feel that the type of investigations necessary could be conducted except under an authority which did not require collection and preservation of evidence with a view of eventual prosecution, but rather to gather information only for the purpose of determining the nature and extent of subversive activity.
 

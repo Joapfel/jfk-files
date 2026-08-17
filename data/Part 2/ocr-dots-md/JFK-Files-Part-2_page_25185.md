@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25185.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td></tr><tr><td>Halberstan, David, McCone, John, DCIigon Station</td><td>15 Sept. 1963</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td></tr><tr><td>Halberstan, David, McCone, John, DCIigon Station</td><td>15 Sept. 1963</td></tr></table>
 
 CATEGORIES:
 

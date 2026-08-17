@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18135.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG: Damon Watters/sah
 UNIT: WH/Logistics

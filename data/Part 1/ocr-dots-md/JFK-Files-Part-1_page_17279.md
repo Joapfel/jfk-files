@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17279.png
-
-Convert to Markdown3 February 1959
+3 February 1959
 
 MEMORANDUM FOR: Chief, FI/OPS
 FROM : Chief, WFD

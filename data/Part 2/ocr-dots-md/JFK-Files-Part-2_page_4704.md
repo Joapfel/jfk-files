@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4704.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: Oh, it was nonexistent. Nonexistent, less than nonexistent.
 

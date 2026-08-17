@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2540.png
-
-Convert to MarkdownDate
+Date
 
 Classification of Mail:
 

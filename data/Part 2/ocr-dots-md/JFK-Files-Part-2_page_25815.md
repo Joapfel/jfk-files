@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25815.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1) Conscientious resistance could lead to Mafia.
 

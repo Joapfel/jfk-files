@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_24760.png
-
-Convert to MarkdownThe LEONOVS left Mexico permanently on 22 December 1968, and returned to the USSR.
+The LEONOVS left Mexico permanently on 22 December 1968, and returned to the USSR.
 
 LEONOV, during his years in Mexico, showed himself to be a capable, hard-working intelligence officer, who was able to fulfill his cover job with skill and at the same time pursue his clandestine missions. It may be presumed, on the basis of his capacities demonstrated in Mexico, that he will have worked effectively in his apparent task of setting up the Novosti news agency in Peru, and that he will also have begun to develop contacts among the Peruvian Communist Party and other sympathetic elements with an eye to spotting and assessing prospective agents for subsequent exploitation by the KGB reszidentura which will inevitably function as a part of the new Soviet Embassy.

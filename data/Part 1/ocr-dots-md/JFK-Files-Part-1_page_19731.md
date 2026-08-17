@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19731.png
-
-Convert to MarkdownO'CONNELL, James P.
+O'CONNELL, James P.
 
 Comments of Reviewing Official:
 

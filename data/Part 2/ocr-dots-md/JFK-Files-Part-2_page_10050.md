@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10050.png
-
-Convert to Markdown1 - Mr. W. C. Sullivan
+1 - Mr. W. C. Sullivan
 
 1 - Mr. C. D. Brennan
 

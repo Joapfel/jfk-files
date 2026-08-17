@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13819.png
-
-Convert to MarkdownEXCERPT
+EXCERPT
 
 TO: Chief, WH Division
 INFO: Chief, WH/SA

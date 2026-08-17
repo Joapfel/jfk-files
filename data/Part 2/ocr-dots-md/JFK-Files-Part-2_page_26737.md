@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26737.png
-
-Convert to MarkdownA. Yes.
+A. Yes.
 
 Q -- at the moment. Is it possible that he was with
 Domestic Operations Division in the field of proprietaries

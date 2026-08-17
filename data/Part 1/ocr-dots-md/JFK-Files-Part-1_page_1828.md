@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1828.png
-
-Convert to Markdown# CIA Personnel Under State Cover
+# CIA Personnel Under State Cover
 
 We recommend that CIA personnel under the Department of State cover make greater efforts to truly live their cover. We believe in this connection that the DCI should receive assurances from the DD/P, after proper study, that CIA allowances for rents, servants and entertainment are in line with comparable State Department allowances.
 

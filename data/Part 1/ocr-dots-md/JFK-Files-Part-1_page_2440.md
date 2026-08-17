@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2440.png
-
-Convert to Markdownin conflict with the statements of DERYABIN, RASTVOROV and
+in conflict with the statements of DERYABIN, RASTVOROV and
 GOLITSYN, all of whom maintain that BERIYA was responsible for
 the changes. As for the issue of who was responsible for the reversal
 of designations, it would appear that NOSENKO is in error. However,

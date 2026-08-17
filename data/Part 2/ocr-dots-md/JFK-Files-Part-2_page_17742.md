@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17742.png
-
-Convert to Markdowncontent. Use of a substitution device, either pseudonym or ident
+content. Use of a substitution device, either pseudonym or ident
 is an example of sanitization which permits intelligent continuity
 of the material without revealing the true identity. Sanitization
 does not extend to the use of false or misleading substitute material

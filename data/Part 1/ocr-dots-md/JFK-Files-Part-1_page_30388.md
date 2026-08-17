@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30388.png
-
-Convert to MarkdownCERTIFICATION:
+CERTIFICATION:
 
 This is to certify that I personally witnessed James Walter
 McCord, Jr., subscribe his signature to these papers on this date.

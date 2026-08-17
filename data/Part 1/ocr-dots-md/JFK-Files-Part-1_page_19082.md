@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19082.png
-
-Convert to Markdown## 2.1.6.1.1-3
+## 2.1.6.1.1-3
 
 <table>
    <thead>

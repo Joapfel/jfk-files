@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14291.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 program aimed at precluding acquisition of spare parts for industrial machinery, and other products needed by Cuba,
 

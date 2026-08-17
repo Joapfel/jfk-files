@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10755.png
-
-Convert to Markdownfact that only one new member was initiated, ... ; member is a non-organizational information item on the KKK leaflets distributed encouraging people to write for applications they have received only two letters; and neither of the writers have become a member. The leaflet has met with complete failure in its effort to build up its membership.
+fact that only one new member was initiated, ... ; member is a non-organizational information item on the KKK leaflets distributed encouraging people to write for applications they have received only two letters; and neither of the writers have become a member. The leaflet has met with complete failure in its effort to build up its membership.
 
 At this time the following are the only specific counterintelligence action being recommended:
 

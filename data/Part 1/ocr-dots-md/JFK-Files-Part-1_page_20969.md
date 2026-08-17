@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20969.png
-
-Convert to MarkdownMr. Paul D. Langevin
+Mr. Paul D. Langevin
 
 Dear Mr. Langevin:
 

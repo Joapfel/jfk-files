@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27210.png
-
-Convert to MarkdownG-C-H Files
+G-C-H Files
 
 L. Legislative History Memorandum -- 1949 Act
 

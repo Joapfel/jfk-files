@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_19967.png
-
 . The quality of his input has been good and his production has helped considerably in cutting down the size of the input backlog. Mr. Vitale also continues to perform the Records Officers function for the branch with a sound knowledge of general records procedures. His attitude and attendance record continue to reflect a willingness to assist the branch in whatever way necessary. In addition Mr. Vitale's valuable background knowledge on a former vital portion of the branch's effort continues to be utilized to a considerable extent. He gets along well with his colleagues and contributes to the smooth running of the office.
     </td>
     <td colspan="4">

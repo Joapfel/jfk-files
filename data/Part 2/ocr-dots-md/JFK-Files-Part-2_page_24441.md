@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24441.png
-
-Convert to Markdown(iii) Dulles Briefing on Use of Underworld Figures
+(iii) Dulles Briefing on Use of Underworld Figures
 in September 1960.
 
 1. Bissell and Edwards Said Dulles Was Told

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1337.png
-
-Convert to Markdown13 MAR 1970
+13 MAR 1970
 
 MEMORANDUM FOR : Mr. Robert P. Wheeler
 

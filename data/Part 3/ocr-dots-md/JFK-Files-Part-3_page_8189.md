@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8189.png
-
-Convert to Markdown1 - Mr. McNiff
+1 - Mr. McNiff
 
 May 5, 1975
 

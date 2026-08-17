@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22261.png
-
-Convert to MarkdownPEIKOVSKIY that he had visited the site after he chose it in 1960, although it is possible, especially as he had not been informed of ABIDIAN having been sent to check on a possible signal from him about the dead drop.
+PEIKOVSKIY that he had visited the site after he chose it in 1960, although it is possible, especially as he had not been informed of ABIDIAN having been sent to check on a possible signal from him about the dead drop.
 
 sensitive source
 

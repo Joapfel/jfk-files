@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3554.png
-
-Convert to Markdown# STARKE: Confronting Vico Starke
+# STARKE: Confronting Vico Starke
 
 -2-
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10493.png
-
-Convert to Markdown7 July 1973
+7 July 1973
 
 NEWNOTICE OF THIS RE-2040
 SUBJECT: Jimmy G. MacFerrier's Conversation with Nacional MacFerrier, Jr.

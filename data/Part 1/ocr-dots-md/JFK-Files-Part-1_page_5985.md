@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5985.png
-
-Convert to MarkdownChief, F°
+Chief, F°
 
 Chief, WOMUSE/80; Chief, EUR
 Chief of Station, Ottawa

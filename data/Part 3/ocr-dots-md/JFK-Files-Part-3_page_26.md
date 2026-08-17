@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_26.png
-
-Convert to Markdownhave fun tonight. But that's no reason for not writing it, as you see it."
+have fun tonight. But that's no reason for not writing it, as you see it."
 
 Smith had cause for unhappiness again when the PDB had
 

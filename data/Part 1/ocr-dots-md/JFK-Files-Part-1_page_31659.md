@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31659.png
-
-Convert to MarkdownCollège de l'Europe Libre
+Collège de l'Europe Libre
 
 CHATEAU DE FOURTALES - STRASBOURG-ROBERTSAU (Bas-Rhin)
 

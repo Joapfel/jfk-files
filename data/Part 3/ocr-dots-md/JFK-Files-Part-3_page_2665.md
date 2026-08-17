@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2665.png
-
-Convert to Markdown2510
+2510
 
 AWW/smnl
 

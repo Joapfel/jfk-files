@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6679.png
-
-Convert to MarkdownGX 274 AUSTIN RO
+GX 274 AUSTIN RO
 
 S-F-C-R-E-T
 

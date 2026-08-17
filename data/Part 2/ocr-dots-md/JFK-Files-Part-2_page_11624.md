@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11624.png
-
-Convert to MarkdownMarch 29, 1963
+March 29, 1963
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 126

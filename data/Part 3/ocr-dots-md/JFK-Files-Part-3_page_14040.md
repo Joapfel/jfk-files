@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14040.png
-
-Convert to Markdown- 77 -
+- 77 -
 
 base at a location near Banes. But an examination of photography of the
 village in question shows only some fishing shacks and the presence of a shoal

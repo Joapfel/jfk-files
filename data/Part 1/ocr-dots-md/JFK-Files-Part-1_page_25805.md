@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25805.png
-
-Convert to MarkdownSECRET
+SECRET
 
 For this reason, it is not advisable to have GERENDE connected with a surveillance team and also contacting and directing the sensitive photo base houses. Therefore, until such time as a suitable asset can be developed or acquired to take over the LIJERSEY team, their actual surveillance assignments will be kept at the minimum.
 

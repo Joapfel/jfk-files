@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9327.png
-
-Convert to Markdowndraw up a list of persons thus condemned in the order of their relative
+draw up a list of persons thus condemned in the order of their relative
 harmfulness to the success of the cause so that the preceding numbers
 may be removed before the subsequent ones.
 

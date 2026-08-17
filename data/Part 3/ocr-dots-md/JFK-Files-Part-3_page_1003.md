@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1003.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 By letter April 23, 1969, FBI Headquarters authorized Jackson Office to mail anonymous letter to Donald Wilson Jackson, also known as Muhammad Kenyatta. Letter would be ostensibly from a student defense committee and designed to discourage Jackson from returning to Tougaloo College, Tougaloo, Mississippi. Jackson and his associates, all associated with the Black Panther Party and the Student Nonviolent Coordinating Committee, had been involved in incidents of violence on the campus during week of April 10-13, 1969. Letter was mailed to Jackson on April 25, 1969.
 

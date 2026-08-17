@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15966.png
-
-Convert to MarkdownExpenses incurred by Chicago BPP Chapter would appear to be limited at this time to maintain headquarter space, air travel, and bail bonds. Chicago BPP Chapter is not known to have any salaried employees. Financial aspects of Chicago BPP Chapter appears to be handled by several BPP leaders at Chicago, with general Chicago BPP members unaware of financial conditions of Chicago BPP Chapter.
+Expenses incurred by Chicago BPP Chapter would appear to be limited at this time to maintain headquarter space, air travel, and bail bonds. Chicago BPP Chapter is not known to have any salaried employees. Financial aspects of Chicago BPP Chapter appears to be handled by several BPP leaders at Chicago, with general Chicago BPP members unaware of financial conditions of Chicago BPP Chapter.
 
 2/28/69)
 

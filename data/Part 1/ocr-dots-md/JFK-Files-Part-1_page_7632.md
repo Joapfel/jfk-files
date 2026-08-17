@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7632.png
-
-Convert to Markdown14-0000S
+14-0000S
 
 RECORDED
 

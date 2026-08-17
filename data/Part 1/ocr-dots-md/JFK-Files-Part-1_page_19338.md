@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19338.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: CALCUTTA
 FROM: SPECIAL OPERATIONS

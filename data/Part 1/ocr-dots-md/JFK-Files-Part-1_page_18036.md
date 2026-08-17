@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_18036.png
-
 and fill-in whenever he is away from the basehouse.
 
 SECRET

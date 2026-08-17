@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14725.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><tr><td>DOC. MICRO SER.</td></tr><tr><td>SEP 15 1977</td></tr><tr><td>MICROPOLITAN</td></tr></table>
 

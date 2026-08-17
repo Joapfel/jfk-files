@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4238.png
-
-Convert to MarkdownSECRET
+SECRET
 -2-MAY
 
 On Covert Economic Activities, paragraph 3.a. is part of the present program. Paragraphs 3.b. and c. are part of an overall blacklisting problem which remains to be explored.

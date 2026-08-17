@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14935.png
-
-Convert to Markdownnone of the evidence used in Black's trial was obtained as a result of the listening device. The Supreme Court on June 13, 1966, ordered a response by the Department to questions raised by the Court with regard to the initial memorandum filed by the Department which was answered on July 13, 1966, by supplemental memorandum.
+none of the evidence used in Black's trial was obtained as a result of the listening device. The Supreme Court on June 13, 1966, ordered a response by the Department to questions raised by the Court with regard to the initial memorandum filed by the Department which was answered on July 13, 1966, by supplemental memorandum.
 
 This memorandum indicated the listening device, installed with trespass under general Departmental authorization had monitored conversations of Black and his attorney.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9369.png
-
-Convert to MarkdownNews and publicly accomplishments of "N. J."OFFICE
+News and publicly accomplishments of "N. J."OFFICE
 =
 News coverage at of Berlin by U.S.
 Correspondents

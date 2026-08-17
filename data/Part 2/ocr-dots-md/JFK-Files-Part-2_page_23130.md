@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23130.png
-
-Convert to Markdown1. intelligence from refugees, etc., coming to this country,
+1. intelligence from refugees, etc., coming to this country,
 2. that your station did operate agents and did have sources,
 3. whatever terms you want to use, inside Cuba, is that correct?
 4. Mr. Halley, Yes, we did have sources inside Cuba.

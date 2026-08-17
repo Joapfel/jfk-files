@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19049.png
-
-Convert to MarkdownNY 105-2305
+NY 105-2305
 
 SAM JAFFE was directed to source by Dr. CHANG Hsin-hai, with whom source is acquainted. Dr. CHANG knows of source's previous contacts with Professor LIN and, therefore, recommended that JAFFE contact source in order to gain further knowledge of LIN.
 

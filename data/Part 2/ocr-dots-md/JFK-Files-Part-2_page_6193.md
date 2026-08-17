@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6193.png
-
-Convert to Markdown# AGENDA
+# AGENDA
 
 ## Meeting with JFK ARRB Staff
 

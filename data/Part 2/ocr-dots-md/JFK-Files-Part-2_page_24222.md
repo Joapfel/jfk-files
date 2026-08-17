@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24222.png
-
-Convert to Markdowncover viability. Also of particular note, the "home office",
+cover viability. Also of particular note, the "home office",
 with its investigative charter, has been used in the conduct of
 covert investigations.
 

@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_23920.png
-
-Convert to Markdownin the Dominican Republic stating that the United States government, as a matter of general principle, could not condone political assassinations, but at the same time indicating the United States continued to support the dissidents and stood ready to recognize them in the event they were successful in their endeavor to overthrow Trujillo.
+in the Dominican Republic stating that the United States government, as a matter of general principle, could not condone political assassinations, but at the same time indicating the United States continued to support the dissidents and stood ready to recognize them in the event they were successful in their endeavor to overthrow Trujillo.

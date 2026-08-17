@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9449.png
-
-Convert to Markdownpast articles of our news-
+past articles of our news-
 ilt rifles have been lightly used. —
 This article will go into the 2nd assault rifles that are most com-
 at the present time.

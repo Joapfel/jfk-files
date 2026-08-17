@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8565.png
-
-Convert to Markdown-2-
+-2-
 
 ATTACHMENT #1
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11964.png
-
-Convert to MarkdownBureau airtel to Chicago 3/24/70 instructed that office to promptly initiate investigations and interview all individuals who were arrested in Chicago during National Action week 10/8-11/69 if such investigations not already undertaken. Over 280 individuals were arrested, most of which were either members of or closely associated with Weatherman group. Chicago airtel to numerous offices 4/9/70 restated Bureau instructions.
+Bureau airtel to Chicago 3/24/70 instructed that office to promptly initiate investigations and interview all individuals who were arrested in Chicago during National Action week 10/8-11/69 if such investigations not already undertaken. Over 280 individuals were arrested, most of which were either members of or closely associated with Weatherman group. Chicago airtel to numerous offices 4/9/70 restated Bureau instructions.
 
 SAC Letter 70-18 (C) dated 4/7/70 under caption "New Left and Black Extremist Terrorism - Bombing Matters" set forth instructions to be followed in bombing and attempted bombing matters. In those instances of bombing or arson which appear to have New Left or black extremist connotations or motivation and where no Bureau substantive jurisdiction exists or the Department has advised no investigation is warranted, the Bureau is to be immediately advised setting forth pertinent data regarding involvement of subversive groups or individuals suspected in the incident as well as a recommendation for any additional investigation warranted.
 

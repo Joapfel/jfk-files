@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_549.png
-
-Convert to Markdownthey were taken to Beheiren by a student who spoke English (according to
+they were taken to Beheiren by a student who spoke English (according to
 this paper's investigation, this was Mr. S., a Waseda University student).
 After that, they were hidden by Beheiren. I cannot say where they were
 hidden.

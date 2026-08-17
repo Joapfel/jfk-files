@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12291.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of capture. The Sponsor will pay this money either to a
 designated beneficiary or to an escrow account, as directed

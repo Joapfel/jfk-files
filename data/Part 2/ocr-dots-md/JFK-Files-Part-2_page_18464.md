@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18464.png
-
-Convert to Markdown3. What were the purposes of each program?
+3. What were the purposes of each program?
 
 4. In each case, by what means was it intended the purpose would be accomplished?
 

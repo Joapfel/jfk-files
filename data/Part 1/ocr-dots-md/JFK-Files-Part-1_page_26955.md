@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26955.png
-
-Convert to MarkdownDirector, Domestic Contact Service
+Director, Domestic Contact Service
 
 ATTN: John McConnell
 

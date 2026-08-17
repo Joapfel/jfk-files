@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30808.png
-
-Convert to MarkdownSEC. 21. CHRONOLOGICAL (Cont'd)
+SEC. 21. CHRONOLOGICAL (Cont'd)
 
 EMPLOYER
 

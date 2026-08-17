@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23417.png
-
-Convert to MarkdownSECRET
+SECRET
 RESIDENTIFIED
 
 TRB-A-449

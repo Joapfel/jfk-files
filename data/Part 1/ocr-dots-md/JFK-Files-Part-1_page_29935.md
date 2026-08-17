@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29935.png
-
-Convert to MarkdownTO : Chief of Station, Paris
+TO : Chief of Station, Paris
 
 SUBJECT: Annual Fitness Report
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21005.png
-
-Convert to MarkdownThomas B. CASASIN
+Thomas B. CASASIN
 
 6S-15¹⁰
 

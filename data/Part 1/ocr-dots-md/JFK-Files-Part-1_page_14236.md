@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14236.png
-
-Convert to Markdown221-81-67
+221-81-67
 
 4 de octubre 1968
 

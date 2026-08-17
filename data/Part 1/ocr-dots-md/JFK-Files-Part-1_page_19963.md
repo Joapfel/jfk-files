@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19963.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 <table><tr><td>1. EMP. SERIAL NO.</td><td>2.</td><td>NAME</td><td>3. ASSIGNED ORGAN.</td><td>4 FUNDS</td><td>5. ALLOTMENT</td></tr><tr><td>503620</td><td colspan="2">VITALE GUY</td><td>DDP/EF C</td><td>UV</td><td></td></tr></table>

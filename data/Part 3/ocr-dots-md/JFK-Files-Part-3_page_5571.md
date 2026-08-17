@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5571.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 ASSISTANT DIRECTOR
 INTELLIGENCE DIV.
 

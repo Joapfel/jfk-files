@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26648.png
-
-Convert to Markdown# Notes for
+# Notes for
 A Portrait of a Castro-Communist
 
 Agent

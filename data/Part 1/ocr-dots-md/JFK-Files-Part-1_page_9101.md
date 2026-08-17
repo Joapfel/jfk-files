@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9101.png
-
-Convert to Markdown1. A. R. G. - J. G. F. A. (inventor of the radio family)
+1. A. R. G. - J. G. F. A. (inventor of the radio family)
 
 2. Barilla, Elvira (niece of Abella family, which owns large drug and chemical company)
 

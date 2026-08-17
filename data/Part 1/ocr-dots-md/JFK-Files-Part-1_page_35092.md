@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35092.png
-
-Convert to MarkdownGASTOS RELATIVOS AL CHEQUE No. 243
+GASTOS RELATIVOS AL CHEQUE No. 243
 
 P.C.R. $ 600.00 - "PAULA AND SCISA"
 

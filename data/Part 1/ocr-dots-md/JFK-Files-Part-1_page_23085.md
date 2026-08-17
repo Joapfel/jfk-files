@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23085.png
-
-Convert to Markdowna) Estabilización de las bases estrictivas. Influencia de inYECCIONES en la formación del personal de la ENSEÑA.
+a) Estabilización de las bases estrictivas. Influencia de inYECCIONES en la formación del personal de la ENSEÑA.
 
 El Departamento de Psicología está trabajando en cada onegociacíonce:
 

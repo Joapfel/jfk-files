@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30289.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Nosenko. Yes, sir.
 

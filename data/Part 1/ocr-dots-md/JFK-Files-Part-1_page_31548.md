@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31548.png
-
-Convert to Markdown# Statement.
+# Statement.
 
 I send with attention and interest the article "The 'Journalial First' boys in Radio 'Free Europe'" , by Mr. Kurt Glaser.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24266.png
-
-Convert to MarkdownWard is going to France soon for a vacation with a girlfriend he refused to identify because he feels his apartment and phones are bugged "by at least ten intelligence agencies." Before he goes on vacation he intends to stop in Paris and meet with DRV and PRG officials as well as with Wilfred Burchett. (Ward also met with Jane Fonda prior to her recent trip to the DRV). Ward will try to visit QRPHONE in London sometime in September before he returns home. Ward claimed that a "wealthy benefactor" gave him some $1000 to cover the cost of his vacation. Ward himself is broke and makes only about $60 per week salary.
+Ward is going to France soon for a vacation with a girlfriend he refused to identify because he feels his apartment and phones are bugged "by at least ten intelligence agencies." Before he goes on vacation he intends to stop in Paris and meet with DRV and PRG officials as well as with Wilfred Burchett. (Ward also met with Jane Fonda prior to her recent trip to the DRV). Ward will try to visit QRPHONE in London sometime in September before he returns home. Ward claimed that a "wealthy benefactor" gave him some $1000 to cover the cost of his vacation. Ward himself is broke and makes only about $60 per week salary.
 
 DETROIT
 

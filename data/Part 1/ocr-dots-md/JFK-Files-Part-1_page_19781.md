@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19781.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 24 June 1965
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_6088.png
-
 ship, St. John's University, 1966.
 Dissertation research grant, The University of Michigan, 1970
 Fellow, Society of American Archivists, 1981

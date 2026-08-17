@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1699.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO. 33-27, 33-28, 34-4, 34-4A, 34-5, 36-207 AND 37-60 (28-48)
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_6321.png
-
 to TOYO
 Evaristo HERRERA, who also works on a boat transhipping sugar from Cayo Franges to Caibarien, Las Villas
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21007.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to the overall Station effort against the Soviet Bloc and more recently, the PRC target. His current appointment with IDENTITY has recently been extended until 31 May 1977. We would like to continue to utilize CASASIN's professional talents and his natural sustained access to priority targets in IDENTITY. CASASIN will retire at the GS-15 step 10 level. In accordance with Agency regulations CASASIN's proposed gross annual contract salary of $8,000 plus his annuity will not exceed ninety percent of his salary at the time of retirement.
 

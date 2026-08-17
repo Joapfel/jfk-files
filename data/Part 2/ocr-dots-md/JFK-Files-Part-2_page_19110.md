@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19110.png
-
-Convert to MarkdownWFO 105-52614
+WFO 105-52614
 
 "After protests from ABC, Soviet Officials decided that JAFFE had been dismissed because of his failure to rebut the SCALI report. -J-
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23796.png
-
-Convert to Markdown1 agency of certain people unless in some way that use affects
+1 agency of certain people unless in some way that use affects
 2 the rights and/or in some vague way affects the mental processes
 3 to the detriment of the American citizenry, that we don't
 4 concern ourselves with passing laws to protect the person who

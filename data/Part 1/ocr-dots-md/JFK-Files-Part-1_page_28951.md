@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28951.png
-
-Convert to MarkdownTT/B-564/DIR/ C 'ATCH FOLLOWS
+TT/B-564/DIR/ C 'ATCH FOLLOWS
 VIA TELETAPE
 
 <table>

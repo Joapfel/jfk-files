@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30147.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 SEC. IV. AREA KNOWLEDGE

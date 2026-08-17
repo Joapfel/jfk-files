@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30822.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Newton Scott Milner
 

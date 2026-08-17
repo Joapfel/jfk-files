@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18724.png
-
-Convert to Markdown8 MAR 1972
+8 MAR 1972
 
 MEMORANDUM FOR : Miss Ann L. Goodpasture
 THROUGH : Administrative Officer, CI Staff

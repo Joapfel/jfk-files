@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27.png
-
-Convert to MarkdownAttachment to DO/HS Memorandum
+Attachment to DO/HS Memorandum
 
 dated 26 August 1964,
 

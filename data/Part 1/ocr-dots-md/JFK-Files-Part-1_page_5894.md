@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5894.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUPPORT AND PROTECTION FUNCTION
 Operational Clearance Job Sheet

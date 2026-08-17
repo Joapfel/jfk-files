@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30587.png
-
-Convert to MarkdownPrecedence
+Precedence
 
 OUTGOING
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2299.png
-
-Convert to Markdownor any of his duly authorized representatives, shall be given access to and the opportunity to examine all books, accounts, records, reports, files, and all other materials within the possession, custody, or control of any such department or agency.
+or any of his duly authorized representatives, shall be given access to and the opportunity to examine all books, accounts, records, reports, files, and all other materials within the possession, custody, or control of any such department or agency.
 
 SEC. 16. Upon expiration of the Select Committee on Governmental Operations With Respect to Intelligence Activities, established by Senate Resolution 21, 94th Congress, all records, files, documents, and other materials of such committee shall be transferred to the Committee on Intelligence Activities.
 

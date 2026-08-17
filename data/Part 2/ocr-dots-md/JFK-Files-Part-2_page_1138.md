@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1138.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SECRET<br/>(When filled in)</td></tr><tr><td>FITNESS REPORT</td></tr></table>
 

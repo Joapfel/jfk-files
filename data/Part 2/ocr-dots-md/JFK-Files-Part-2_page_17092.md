@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17092.png
-
-Convert to Markdown# STATEMENT BY CHAIRMAN BOBBY SEALE TO JUDGE JULIUS J. HOFFMANN
+# STATEMENT BY CHAIRMAN BOBBY SEALE TO JUDGE JULIUS J. HOFFMANN
 
 I, Bobby G. Seale, submit the following in my handwriting to Judge Julius Hoffman of this Court in the Northern District of Illinois, Eastern Division of the U.S.A., where presently the trial of so-called 'Conspiracy to Riot' is being held, 9-28-89, and I, Bobby G. Seale, being one of the defendants of eight have been, by denied motion, the right to speak out in my behalf where my constitutional right to have 'Legal Counsel of my choice who is effective,' namely Charles R. Garry, who is on record in this court as my defense counsel that I have made agreement with by my choice only that he will assist me in my defense during this trial.
 

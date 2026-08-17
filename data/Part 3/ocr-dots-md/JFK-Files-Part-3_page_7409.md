@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7409.png
-
-Convert to MarkdownNR 025 AT CODED
+NR 025 AT CODED
 
 8:08 PM NITEL JUNE 4, 1975 JWS
 

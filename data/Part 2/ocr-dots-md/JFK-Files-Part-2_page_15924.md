@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15924.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 Date April 14, 1969
 

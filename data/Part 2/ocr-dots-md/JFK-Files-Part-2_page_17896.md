@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17896.png
-
-Convert to Markdown21-0316395-pagelogo.png
+21-0316395-pagelogo.png
 
 C. COF. IMMUTABILITY. VILLAGE.
 

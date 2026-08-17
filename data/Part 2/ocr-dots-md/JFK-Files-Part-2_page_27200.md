@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27200.png
-
-Convert to MarkdownTT. True, Ralph (Interview plus 3 related documents)
+TT. True, Ralph (Interview plus 3 related documents)
 (SECRET/SENSITIVE)
 
 UU. Vasaly, Louis W. (SECRET/SENSITIVE)

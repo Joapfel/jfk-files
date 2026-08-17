@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3245.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">SENT TO BE CHECKED CLASSIFICATION TOP AND</td>

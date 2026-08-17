@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10882.png
-
-Convert to MarkdownA. PURPOSE AND SCOPE
+A. PURPOSE AND SCOPE
 
 The purpose of this study is to define a new role for the Bureau in the field of clandestine collection of foreign intelligence in the U. S. This action is necessary and most timely because of our Government's vital need for increased foreign intelligence and because of CIA's expanding interests in the United States. There is a decided need for a new Bureau concept, the implementation of which could greatly increase our effectiveness and could deter CIA from becoming a threat to our operational interests.
 

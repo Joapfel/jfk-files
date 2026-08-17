@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25887.png
-
-Convert to MarkdownHW 50955 DocId:32423630 Page 620
+HW 50955 DocId:32423630 Page 620
 
 27 septiembre 65.
 

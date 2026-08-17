@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5947.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 From the Desk of W. Curtis Chaloner
 

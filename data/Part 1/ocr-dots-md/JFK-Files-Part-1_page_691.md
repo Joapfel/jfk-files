@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_691.png
-
-Convert to Markdownfor Lee and other.
+for Lee and other.
 
 In the event that this
 Editor knows Lee, and should

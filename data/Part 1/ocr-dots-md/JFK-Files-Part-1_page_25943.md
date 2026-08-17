@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25943.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # Intelligence Information Cable
 

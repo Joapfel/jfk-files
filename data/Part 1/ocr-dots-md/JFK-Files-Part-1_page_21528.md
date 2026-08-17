@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21528.png
-
-Convert to Markdownsecond course in 1947. In 1951 the ministry of navy had given me also
+second course in 1947. In 1951 the ministry of navy had given me also
 the rank of junior lieutenant when I was accepted in the navy intelligence.
 In September-October 1952 I received a rank of lieutenant.
 

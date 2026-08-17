@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15536.png
-
-Convert to MarkdownRush answered this question. 'Yes, we are armed but this is our constitutional right and it is only in self defense. We don't believe in harassing anybody to make them join our party and we urge individuals who are racists and don't want to abide by our program. And if anyone has a complaint about this kind of thing he or she should come to the office and we'll punish the person in front of the complainant,' he said.
+Rush answered this question. 'Yes, we are armed but this is our constitutional right and it is only in self defense. We don't believe in harassing anybody to make them join our party and we urge individuals who are racists and don't want to abide by our program. And if anyone has a complaint about this kind of thing he or she should come to the office and we'll punish the person in front of the complainant,' he said.
 
 When asked about their feelings toward SCLC's Operation Breadbasket, Hampton said that organization should have initiated the free feeding program.
 

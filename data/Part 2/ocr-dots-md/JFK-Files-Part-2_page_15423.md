@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15423.png
-
-Convert to MarkdownUNITED STATES
+UNITED STATES
 Memora.
 TO : Mr. A. H. Belmont
 FROM : Mr. S. B. Donahoe

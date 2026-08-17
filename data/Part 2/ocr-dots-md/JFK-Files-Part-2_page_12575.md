@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12575.png
-
-Convert to MarkdownSECTION
+SECTION
 
 SECURITY INVESTIGATIONS
 

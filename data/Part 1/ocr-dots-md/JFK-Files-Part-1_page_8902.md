@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8902.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr><tr><td>TO Chief of Station, Mexico City</td></tr><tr><td>INFO</td></tr><tr><td>FROM Chief WH Division</td></tr><tr><td>SUBJCT 1963 Cover Income Tax Returns</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td></tr></table>
+<table><tr><td>DISPATCH</td></tr><tr><td>TO Chief of Station, Mexico City</td></tr><tr><td>INFO</td></tr><tr><td>FROM Chief WH Division</td></tr><tr><td>SUBJCT 1963 Cover Income Tax Returns</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td></tr></table>
 
 PRIORITY
 

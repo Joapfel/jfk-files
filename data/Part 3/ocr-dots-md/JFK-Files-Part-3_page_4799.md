@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4799.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 JOE VALEN, who was contacted at Las Vegas,
 telephone number 382-4925, is unknown to the Las Vegas

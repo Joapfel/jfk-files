@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26922.png
-
-Convert to MarkdownDECY, 23 February 1967
+DECY, 23 February 1967
 
 SUBJECT: Mitchell Kerbeil/Col. Gray
 

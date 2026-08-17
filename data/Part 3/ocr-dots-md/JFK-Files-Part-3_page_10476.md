@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10476.png
-
-Convert to Markdown14 MAR 1985
+14 MAR 1985
 
 CI's at the back of the car
 

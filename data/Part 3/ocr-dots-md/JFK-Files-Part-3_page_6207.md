@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6207.png
-
-Convert to MarkdownLA 157-2325
+LA 157-2325
 
 Records of the Los Angeles Traffic Court were reviewed by Special Employee GAREY D. PONELL.
 

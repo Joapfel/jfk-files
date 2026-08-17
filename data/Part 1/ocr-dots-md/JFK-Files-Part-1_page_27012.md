@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27012.png
-
-Convert to MarkdownAPPROVED FOR RELEASE 1994
+APPROVED FOR RELEASE 1994
 CIA HISTORICAL REVIEW PROGRAM
 
 <table><tr><td>pp. 215</td></tr><tr><td>of 2552/35</td></tr><tr><td>ZNY XXXXX</td></tr><tr><td>P042183Z</td></tr><tr><td>ET</td></tr><tr><td>XXXXX</td></tr><tr><td>ZERO ONE SIX VA</td></tr></table>

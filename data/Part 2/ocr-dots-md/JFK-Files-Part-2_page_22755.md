@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22755.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In fact, one of our effort or common efforts was I brought him into counter-intelligence. I brought him in with all these foreign chiefs and whatnot in order to enlarge the scope of NSA, since they can study and frame these patterns, they can get into illegal traffics and get into many facets.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26469.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to land at Recife, Brazil, en route to Havana, and
 may have picked up some passengers

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15833.png
-
-Convert to Markdown<table><tr><td>SECRET</td></tr></table>
+<table><tr><td>SECRET</td></tr></table>
 
 REPORTED VIROGUE HAD OFFERED HIM THREE HUNDRED DOLLARS PER MONTH TO PARTICIPATE IN INTEL NET AND BE MEMBER "EXECUTION SQUAD".
 

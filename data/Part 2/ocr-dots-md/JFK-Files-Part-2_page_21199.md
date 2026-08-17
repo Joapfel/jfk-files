@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21199.png
-
-Convert to Markdownof KOVSHUK's relationship with [MORELL] and of
+of KOVSHUK's relationship with [MORELL] and of
 KOSOLAPOV's trip to Helsinki does not refute his
 contention that he would have known of all important
 developments pertaining to the 1st Section, 1st

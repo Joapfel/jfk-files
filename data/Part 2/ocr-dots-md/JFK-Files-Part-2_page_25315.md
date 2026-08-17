@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25315.png
-
-Convert to MarkdownJim Braden: Possible Link To David Ferrie
+Jim Braden: Possible Link To David Ferrie
 
 Investigator Peter Noyes has turned up several pieces of information which indicate a possible connection between Jim Braden and the mysterious David Ferrie.
 

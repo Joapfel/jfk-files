@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3452.png
-
-Convert to MarkdownAMJAVA-4's plans call for a threat to quit AMWORLD if AMBIDUY-1 makes known his decision to marry Subject. In the same breath, AMJAVA-4 stated that he had not made his views known to AMBIDUY-1. "Because then our position would be the way it is now with AMYUM-19. You cannot put AMBIDUY-1 to the wall. He must be led to believe that it was he who made up his mind."
+AMJAVA-4's plans call for a threat to quit AMWORLD if AMBIDUY-1 makes known his decision to marry Subject. In the same breath, AMJAVA-4 stated that he had not made his views known to AMBIDUY-1. "Because then our position would be the way it is now with AMYUM-19. You cannot put AMBIDUY-1 to the wall. He must be led to believe that it was he who made up his mind."
 
 6. In forecasting his and AMYUM-19's strategy, AMJAVA-4 stated the following:
 

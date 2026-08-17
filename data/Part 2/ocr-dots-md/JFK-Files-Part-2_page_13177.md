@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13177.png
-
-Convert to MarkdownRE - HOUSTUDY
+RE - HOUSTUDY
 OR
 SENSTUDY
 

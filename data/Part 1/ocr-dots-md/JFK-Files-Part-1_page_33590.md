@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33590.png
-
-Convert to MarkdownIn reply refer W-1927 to:
+In reply refer W-1927 to:
 
 20 March 1958
 

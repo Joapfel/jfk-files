@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17111.png
-
-Convert to Markdown25 JAN 1961
+25 JAN 1961
 
 MEMORANDUM FOR: DDP/COPS
 THROUGH: DDP/RG

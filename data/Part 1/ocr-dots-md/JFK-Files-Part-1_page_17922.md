@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17922.png
-
-Convert to Markdown19 November 1957
+19 November 1957
 
 REMC:JUNO FOR: WH/Logistics
 SUBJECT: Purchase of Metal Storage Cans and Deluxe Carrying Cases

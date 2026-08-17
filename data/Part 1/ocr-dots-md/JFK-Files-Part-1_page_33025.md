@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33025.png
-
-Convert to MarkdownA. IN LIGHT PUFFS OF CIGARETTE.
+A. IN LIGHT PUFFS OF CIGARETTE.
 
 B. OTTAWA 6735 (C.D.I.)
 

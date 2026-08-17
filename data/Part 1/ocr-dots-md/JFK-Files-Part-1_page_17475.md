@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17475.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RETURN TO CIA
 Background Use Only

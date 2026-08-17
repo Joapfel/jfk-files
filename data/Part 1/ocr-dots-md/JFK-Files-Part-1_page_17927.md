@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17927.png
-
-Convert to MarkdownREMOVAL SLIP
+REMOVAL SLIP
 
 DOC SYMBOL : HYDROGEN
 DOC DATE : 16 Oct 57

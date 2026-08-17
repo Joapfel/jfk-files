@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23391.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 with him on these matters whenever it seemed necessary by one or the other of us.
 

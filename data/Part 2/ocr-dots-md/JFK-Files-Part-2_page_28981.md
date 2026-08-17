@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28981.png
-
-Convert to Markdown NW 88326 DocId:32245535 Page 27
+NW 88326 DocId:32245535 Page 27
 
 1040
 US Department of the Treasury—Internal Revenue Service

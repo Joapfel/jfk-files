@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1918.png
-
-Convert to MarkdownAaker's School of Business
+Aaker's School of Business
 
 Grand Forks, North Dakota
 

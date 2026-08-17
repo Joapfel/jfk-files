@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20148.png
-
-Convert to MarkdownTHREE
+THREE
 
 OFFICE COGNIZANT.
 

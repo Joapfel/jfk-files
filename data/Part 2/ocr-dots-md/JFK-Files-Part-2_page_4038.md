@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4038.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 that Doctor EDWIN A. WEINSTEIN, a civilian doctor assigned to the Neuropsychiatric Center at Walter Reed Hospital had treated him and had a considerable amount of information as to his mental condition. Continuing, he advised that he did not think that he was crazy, but that he felt that he needed psychiatric attention and advice because of the fact that he was highly emotional and at times he could not remember what he was saying or where he was for short periods. He stated that he had requested admission to the psychiatric ward at the Veterans' Hospital, Brentwood, Los Angeles, California, however, he was not granted admission and he stated that to the best of his recollection he made this request in May or June of 1963. He pointed out that all of his medical records could be obtained at the Veterans Administration Regional Office, 1380 South Sepulveda Boulevard, Los Angeles, California.
 

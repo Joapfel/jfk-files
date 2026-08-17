@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9248.png
-
-Convert to Markdownsimplest to have the actual copyright in your name alone (he could assign his share to you), so that any arrangements for foreign publication could be made with the minimum delay over the legal and security aspects.
+simplest to have the actual copyright in your name alone (he could assign his share to you), so that any arrangements for foreign publication could be made with the minimum delay over the legal and security aspects.
 
 If I got it right, as of July 31 you had about 100 pages in pretty much finished form, about 70-80 pages in rougher draft, plus Chapters IV & V the typescript of which was circulated here (and which I mailed back to you Oct. 5). Anyway, you thought there would have been an absolute minimum of 3 solid months more work full-time, in all for your father. All in all, if you were working on it whole-time and your father part-time, would a minimum of 3 and maximum of 8 be about the right estimate?
 

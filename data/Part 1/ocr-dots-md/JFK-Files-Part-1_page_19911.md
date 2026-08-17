@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19911.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (When Filled In)
 
 <table><tr><td>DATE</td><td>:</td><td>15 July 1964</td></tr><tr><td>YOUR REFERENCE:</td><td colspan="2">Memorandum dated 13 July 1964</td></tr><tr><td>CASE NO.</td><td>:</td><td>131751</td></tr><tr><td>TO</td><td>:</td><td>WH/PERS</td></tr><tr><td>SUBJECT</td><td>:</td><td>TARASOFF, Anna A.</td></tr></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_73.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CUBA (Continued)
 

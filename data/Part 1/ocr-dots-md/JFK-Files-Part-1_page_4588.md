@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4588.png
-
-Convert to MarkdownSEC...1
+SEC...1
 
 Stanley FANLIMER, Counselor at Law, 9 East 40th Street,
 New York 16, Lexington 2-7700. Hunter 7-4093 was written

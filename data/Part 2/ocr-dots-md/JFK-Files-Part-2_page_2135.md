@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2135.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 SUBJECT: Retirement Information
 

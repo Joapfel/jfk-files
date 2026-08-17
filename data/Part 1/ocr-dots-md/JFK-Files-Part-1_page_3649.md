@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3649.png
-
-Convert to Markdown21 November 1972
+21 November 1972
 
 MEMORANDUM FOR: Deputy Chief, Western Hemisphere Division
 SUBJECT : Dr. "Manuel Artine Buesa

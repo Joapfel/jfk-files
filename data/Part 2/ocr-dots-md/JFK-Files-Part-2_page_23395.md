@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23395.png
-
-Convert to Markdown1. Mr. Tweedy. I think that is accurate.
+1. Mr. Tweedy. I think that is accurate.
 
 2. We had come to the end of the road, at least-temporarily on the YQPROP aspect and for the time being we were in no position to approve anything but what was discussed in the
 

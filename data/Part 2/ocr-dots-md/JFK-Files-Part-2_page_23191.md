@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23191.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 that company. As a result, I traveled extensively in the business social community. At that point we had one of the larger covert payrolls in South Miami, and I was a member of a number of clubs; and people like Helowell I would meet at cocktail parties or dinners, you know, or the yacht club that I belonged to or whatever, but officially, in terms of business sense, I only recall talking with Helowell twice. I think.
 

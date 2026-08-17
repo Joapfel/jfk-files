@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32784.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 EYES ONLY
 
 officials have been conducted and a report of developments will be

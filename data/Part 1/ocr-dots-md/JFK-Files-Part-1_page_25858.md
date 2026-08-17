@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25858.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 10. Description of agents duties in the field: Under the direct supervision and guidance of the Case Officer, full operational and administrative responsibility and control of the following:
 

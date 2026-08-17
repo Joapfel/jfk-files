@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1297.png
-
-Convert to MarkdownAddenda
+Addenda
 
 Sec. 11.
 wish to state that the material here furnished is

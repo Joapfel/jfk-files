@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27078.png
-
-Convert to MarkdownI. CIA Reporting during September
+I. CIA Reporting during September
 
 34. The progressive uncovering of the Soviet program in Cuba was reported in detail by CIA current intelligence.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4143.png
-
-Convert to MarkdownAttorney General Levi's draft guidelines provide a basis for the consideration of a domestic intelligence authorization. They do not cover the investigation of foreign-related activities which may be directed by, subsidized by, or otherwise conducted in active collaboration with a foreign government, a foreign organization, or their agents. (See Option Two above.)
+Attorney General Levi's draft guidelines provide a basis for the consideration of a domestic intelligence authorization. They do not cover the investigation of foreign-related activities which may be directed by, subsidized by, or otherwise conducted in active collaboration with a foreign government, a foreign organization, or their agents. (See Option Two above.)
 
 The guidelines deal with five different types of threats of violence which may constitute serious dangers to the country:
 

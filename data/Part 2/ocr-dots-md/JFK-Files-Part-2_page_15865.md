@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15865.png
-
-Convert to MarkdownSource stated that only the following location is being used for the Breakfast for Children program:
+Source stated that only the following location is being used for the Breakfast for Children program:
 
 The St. Andrew's Episcopal Church, 48 North Hoyne Street, which has been in operation since late December, 1969. About 35 children are fed at the church.
 

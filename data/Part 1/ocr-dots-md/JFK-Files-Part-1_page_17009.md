@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17009.png
-
-Convert to MarkdownVIA AIR
+VIA AIR
 (Signature Air or Sea Pouch)
 
 DISPATCH NO. HM-1-A-3992

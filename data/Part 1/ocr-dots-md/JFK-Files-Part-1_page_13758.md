@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13758.png
-
-Convert to MarkdownEXCERPT
+EXCERPT
 
 DST-11954
 

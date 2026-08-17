@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14542.png
-
-Convert to Markdown1 - Sanders
+1 - Sanders
 
 Office Memorandum • UNITED STATE GOVERNMENT
 

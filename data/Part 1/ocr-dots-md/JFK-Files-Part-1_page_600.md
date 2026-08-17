@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_600.png
-
-Convert to Markdown50/42/
+50/42/
 
 SECRET
 PRECEDENCE

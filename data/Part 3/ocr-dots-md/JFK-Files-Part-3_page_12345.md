@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12345.png
-
-Convert to Markdown(a) Politically motivated requests for an audit of any person or entity
+(a) Politically motivated requests for an audit of any person or entity
 
 (b) Requests by any person or state or federal agency whose official duties do not normally require the use of financial information on individual taxpayers for an audit of any person or entity.
 

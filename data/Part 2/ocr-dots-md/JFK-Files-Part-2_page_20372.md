@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20372.png
-
-Convert to MarkdownMM 105-9843
+MM 105-9843
 
 Special Agent DOUGLAS CHALFONTE
 U. S Secret Service

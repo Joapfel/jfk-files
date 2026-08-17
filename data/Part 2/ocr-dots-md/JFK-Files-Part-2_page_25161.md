@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25161.png
-
-Convert to MarkdownMW 50955 DocId:32423615 Page 50
+MW 50955 DocId:32423615 Page 50
 
 <table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td></td><td>21 AUG. thru<br/>16 SEPT.</td><td>DIEM</td></tr><tr><td>OCCURRENCE:</td><td colspan="2">TOP SECRET</td></tr></table>
 

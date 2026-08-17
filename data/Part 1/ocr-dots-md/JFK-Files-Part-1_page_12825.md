@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12825.png
-
-Convert to Markdown<table><tr><td colspan="2">CABLE SEC DISSEEN BY A/JP 5013</td></tr><tr><td>CAPTION UNIT NOTED</td><td>SEC C R-E-T</td></tr></table>
+<table><tr><td colspan="2">CABLE SEC DISSEEN BY A/JP 5013</td></tr><tr><td>CAPTION UNIT NOTED</td><td>SEC C R-E-T</td></tr></table>
 
 REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
 

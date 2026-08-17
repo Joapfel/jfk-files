@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9565.png
-
-Convert to Markdown# Translator's Introduction
+# Translator's Introduction
 
 This dialogue was conducted with "Abu-Amar" by Talal Salman, a Lebanese journalist who visited the fedayeen bases and wrote a series of articles in al-Sayyad, a Lebanese weekly magazine. The first article, "Dialogue with Abu-Amar", appeared in al-Sayyad on January 2, 1969.
 

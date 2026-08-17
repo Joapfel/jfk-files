@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19420.png
-
-Convert to Markdown<table><tr><td>003820</td></tr><tr><td>MOORE J WALTON</td></tr></table>
+<table><tr><td>003820</td></tr><tr><td>MOORE J WALTON</td></tr></table>
 
 <table><thead><tr><th colspan="4">ORGANIZATION FUND SLOP HOURS</th></tr><tr><th>GRADE</th><th>STEP</th><th>SALARY LAST END DATE</th><th>GRADE STEP SALARY EFFECTIVE DATE S ADJ</th></tr></thead><tbody><tr><td>GS 14 6</td><td>5/17,721</td><td>07/04/69</td><td>GS 14 7 318,244 07/02/67</td></tr></tbody></table>
 

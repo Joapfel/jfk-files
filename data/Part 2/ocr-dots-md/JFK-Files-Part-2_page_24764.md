@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24764.png
-
-Convert to Markdown"Plans of the Dominican Internal Opposition and Dominican Desk for Overthrow of the Trujillo Government" set forth plans which "have been developed on a tentative basis which appear feasible and which might be carried out..covertly by CIA with a minimal risk of exposure." These plans provided, in part, for the following:
+"Plans of the Dominican Internal Opposition and Dominican Desk for Overthrow of the Trujillo Government" set forth plans which "have been developed on a tentative basis which appear feasible and which might be carried out..covertly by CIA with a minimal risk of exposure." These plans provided, in part, for the following:
 
 "a. Delivery of approximately 300 rifles and pistols, together with ammunition and a supply of grenades, to secure cache on the South shore of the island, about 14 miles East of Ciudad Trujillo.
 

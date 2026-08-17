@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10549.png
-
-Convert to MarkdownSenator Walter F. Mondale
+Senator Walter F. Mondale
 
 If you wish to have any of the material reconsidered,
 it would be appropriate to discuss this matter with the Attorney

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20723.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 The Student Mobilization Committee to End the War in Vietnam (SMC) is controlled by the Socialist Workers Party (SWP) and its youth affiliate, Young Socialist Alliance. SMC initiates and supports public demonstrations against the war in Southeast Asia.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13785.png
-
-Convert to Markdown<table><tr><td>CLASS: D</td></tr><tr><td>MESSAGE</td></tr></table>
+<table><tr><td>CLASS: D</td></tr><tr><td>MESSAGE</td></tr></table>
 
 COPY 1/6
 

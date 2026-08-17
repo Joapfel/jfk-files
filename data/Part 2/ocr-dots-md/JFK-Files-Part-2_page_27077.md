@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27077.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 Group, adding that "we cannot put a stop to collection in Cuba; otherwise the President would never know when the point of decision was reached." The Special Group at its next meeting approved consideration of the use of FIREFLY and COMOR forwarded to USIB on 27 September a program for its use. (No FIREFLY missions have yet been attempted.)
 

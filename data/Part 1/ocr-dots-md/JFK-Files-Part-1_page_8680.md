@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8680.png
-
-Convert to Markdown4.09.16 Mientras habla, tiene a Cerrar los ojos ___
+4.09.16 Mientras habla, tiene a Cerrar los ojos ___
 Ponarse la tano sobre los ojos ___
 A menudo ___ A veces ___ Raramente ___ Nunca ___
 

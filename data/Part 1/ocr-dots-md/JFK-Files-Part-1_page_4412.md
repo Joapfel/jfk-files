@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4412.png
-
-Convert to MarkdownSECRET 212330Z
+SECRET 212330Z
 
 DIR WAVE CITE LIMA 8360
 

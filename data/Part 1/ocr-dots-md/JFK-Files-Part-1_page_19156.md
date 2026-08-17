@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19156.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><thead><tr><td>Language</td><td>Native fluency</td><td>Fluent but foreign</td><td>Adequate for translator</td><td>Adequate for research</td><td>Adequate for travel</td><td>Sets/it</td><td>Acquired S.</td></tr></thead><tbody><tr><td>Russian</td><td>-</td><td>r,s,w,u</td><td>-</td><td>-</td><td>-</td><td>-</td><td>Study and home</td></tr><tr><td>German</td><td>-</td><td>-</td><td>-</td><td>-</td><td>r,s,w,u</td><td>-</td><td>Residence</td></tr><tr><td>French</td><td>-</td><td>-</td><td>-</td><td>-</td><td>r,s,w,u</td><td>-</td><td>Study</td></tr></tbody></table>
 

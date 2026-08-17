@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33314.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 November 1972 truck drivers strike (See Note No. 18). Another regulation decrees that stations must interrupt their transmissions whenever the Interior Minister judges it to be necessary in the interest of the internal security of the State. Still another regulation authorizes the Central Bank to control the importation of equipment and spare parts for radio, television, and the press.
 

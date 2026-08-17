@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27824.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Annex to Fitness Report
 

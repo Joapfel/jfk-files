@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9023.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SA BY SEC
+RE: INTERVIEW OF RETIRED FBI SA BY SEC
 
 "Q. What about prior to 1965?
 

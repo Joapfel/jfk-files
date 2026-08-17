@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11056.png
-
-Convert to Markdownbeen made to define or limit the areas encompassed by
+been made to define or limit the areas encompassed by
 intelligence and particularly the techniques of collection.
 
 It is also recognized that some intelligence gathering activities may have an incidental "chilling" effect on individual citizens. The spectre of the Government's investigatory presence may cause a reaction in citizens, inhibiting the exercise of their full constitutional rights. Therefore, a balance between the requirements of the Government and the constitutional rights of citizens must be maintained.

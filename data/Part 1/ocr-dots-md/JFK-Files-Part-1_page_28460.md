@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28460.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EAVA-7068
 page 2

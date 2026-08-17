@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8132.png
-
-Convert to Markdown3. Further description, identification, comments, and/or referrals, etc.
+3. Further description, identification, comments, and/or referrals, etc.
 
 4. I RECOMMEND:
 

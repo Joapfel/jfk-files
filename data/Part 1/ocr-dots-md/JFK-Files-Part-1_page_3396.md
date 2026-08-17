@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3396.png
-
-Convert to Markdownassigned at that time to rebellion in the local forces.
+assigned at that time to rebellion in the local forces.
 
 Remember that before theriged camps were set up
 there were infiltration camps provided especially to assist

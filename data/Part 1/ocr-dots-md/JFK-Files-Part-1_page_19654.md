@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19654.png
-
-Convert to Markdown24 April 1972
+24 April 1972
 
 MEMORANDUM FOR: Director of Personnel
 

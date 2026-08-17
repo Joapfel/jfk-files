@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23107.png
-
-Convert to MarkdownDirigidos por la CIA, las organizaciones "Comando L" y "Movimiento 30 de Noviembre", con representación en territorio norteamericano, se dan a la tarea de preparar dos embarcaciones artilladas para infiltrarse en nuestro país y realizar actividades subversivas, a mediados de 1965.
+Dirigidos por la CIA, las organizaciones "Comando L" y "Movimiento 30 de Noviembre", con representación en territorio norteamericano, se dan a la tarea de preparar dos embarcaciones artilladas para infiltrarse en nuestro país y realizar actividades subversivas, a mediados de 1965.
 
 Desisten de la infiltración y deciden rotear la zona de becados de Miramar y el hotel Riviera, dirigiendo sus ataques fundamentalmente contra la residencia del Presidente de la República. Después de esta acción regresan a Estados Unidos.
 

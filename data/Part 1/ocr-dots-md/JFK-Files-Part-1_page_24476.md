@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24476.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 The French Media
 

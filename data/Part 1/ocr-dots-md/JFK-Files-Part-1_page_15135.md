@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15135.png
-
-Convert to Markdown-17-
+-17-
 
 B. TECHNISCHE EINZELHEITEN DER PLUCHT:
 

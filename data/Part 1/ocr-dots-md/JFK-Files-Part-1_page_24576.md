@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24576.png
-
-Convert to Markdown3. For his 1967 travel to Havana, he used Passport 203339 issued in the name of Roberto AGOSTA Rodriguez, born 13 May 1924, Guatemala and a commercial agent (17). (COMMENT: The application for the above described passport did not bear a signature of any issuing immigration official. The photograph on the application without any doubt was that of CARDOZA).
+3. For his 1967 travel to Havana, he used Passport 203339 issued in the name of Roberto AGOSTA Rodriguez, born 13 May 1924, Guatemala and a commercial agent (17). (COMMENT: The application for the above described passport did not bear a signature of any issuing immigration official. The photograph on the application without any doubt was that of CARDOZA).
 
 4. With reference to the fraudulent Cedula A-19334 which he used for the 1967 travel to Havana, this number was issued to a woman named Maclovia KOMERO Lopez (17). (COMMENT: No traces as of 30 October 1967).
 

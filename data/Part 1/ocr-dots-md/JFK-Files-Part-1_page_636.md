@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_636.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONTINUATION OF<br/>DISPATCH</td>
     <td>CLASSIFICATION<br/>S E C R E T</td>

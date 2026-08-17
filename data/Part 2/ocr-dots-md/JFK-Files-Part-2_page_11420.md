@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11420.png
-
-Convert to Markdownaims or purposes of a revolutionary organization or a form of organization, the positive statement at which should be considered an overt act on the part of subject in establishing continued adherence,
+aims or purposes of a revolutionary organization or a form of organization, the positive statement at which should be considered an overt act on the part of subject in establishing continued adherence,
 
 (b) Once then as indicated above, interviews with security index subjects or potential security index subjects are not to be considered as factors requiring the placing or retaining of names of persons on the security index; for example, lack of cooperation or partial cooperation are not to be regarded as such factors.
 

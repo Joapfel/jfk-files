@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2887.png
-
-Convert to Markdown2473
+2473
 
 gsB4-6000 Phone (Area 202) 91
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24397.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 (a) Plots: Early 1960
 

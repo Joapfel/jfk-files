@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30005.png
-
-Convert to MarkdownUS Forces/New York, NY
+US Forces/New York, NY
 
 14 December 1959
 

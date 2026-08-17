@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_686.png
-
-Convert to Markdown15 Feb 36
+15 Feb 36
 
 Washington
 

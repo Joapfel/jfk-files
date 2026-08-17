@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12840.png
-
-Convert to Markdowncrash Garcia may have made an effort to get Bosch out of
+crash Garcia may have made an effort to get Bosch out of
 Venezuela. It is possible, therefore that Garcia and/or
 Morales may have known in advance about the operation which
 led to the bombing of the plane.

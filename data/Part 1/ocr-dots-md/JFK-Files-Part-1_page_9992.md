@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9992.png
-
-Convert to Markdown9 August,1957
+9 August,1957
 
 Subject: MIAMI/3 Report of Enclosure of Rowton Alias.
 

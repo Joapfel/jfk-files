@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23088.png
-
-Convert to Markdownde la Revolución, para lo cual fue a coor-
+de la Revolución, para lo cual fue a coor-
 dinar en territorio de Estados Unidos el-
 contrarrevolucionario José Pujals Mederos,
 quien salió clandestinamente hacia ese --

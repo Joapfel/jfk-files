@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3005.png
-
-Convert to Markdown1943
+1943
 
 SMN 4
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_969.png
-
-Convert to MarkdownHSCA Chrono, page 2
+HSCA Chrono, page 2
 
 12 Sep 77 Blakey REQUEST (confirming 1 September oral request)
 

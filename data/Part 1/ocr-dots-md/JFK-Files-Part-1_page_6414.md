@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6414.png
-
-Convert to Markdown12. January 1957
+12. January 1957
 
 From: France, Paris
 No. of Pages: one

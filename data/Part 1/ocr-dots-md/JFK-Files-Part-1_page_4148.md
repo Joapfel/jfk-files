@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4148.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AFTERSCHOOL Meeting in Panama, 10 July 1964
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23485.png
-
-Convert to MarkdownSTC/SPB
+STC/SPB
 
 19 July 1954
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13429.png
-
-Convert to MarkdownBuenos Aires, 10 de Diciembre de 1966
+Buenos Aires, 10 de Diciembre de 1966
 
 Companero
 Reinaldo Pico Ramon

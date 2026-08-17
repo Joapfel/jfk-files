@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14694.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO Mr. Bishop
 FROM M. A. Jones

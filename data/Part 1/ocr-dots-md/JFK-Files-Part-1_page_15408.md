@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15408.png
-
-Convert to MarkdownMESSAGE FORM 25
+MESSAGE FORM 25
 
 ORIG: D. Lamouroux: jjf
 UNIT : AB/OPS/3/SOD

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_25.png
-
-Convert to MarkdownIt was clear at various times that there was no
+It was clear at various times that there was no
 
 quite clearly, the White House staff cringed at bad news
 

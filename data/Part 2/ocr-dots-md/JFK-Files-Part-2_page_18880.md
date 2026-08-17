@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18880.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 - Mr. Devitz
 

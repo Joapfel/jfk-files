@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12209.png
-
-Convert to MarkdownT 315150 EIA74:
+T 315150 EIA74:
 
 IN 074149
 

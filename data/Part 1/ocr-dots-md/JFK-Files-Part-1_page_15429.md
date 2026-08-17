@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15429.png
-
-Convert to Markdown14-00000
+14-00000
 
 ORIG: E.N. KORN PATTERSON/je
 UNIT: GUF/S

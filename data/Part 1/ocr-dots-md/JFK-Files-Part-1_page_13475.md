@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13475.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">U.S. DEPARTMENT FORM<br>TOTAL CIRCLES:</th><th>Routing and/or Initials - See below</th></tr></thead><tbody><tr><td rowspan="4">ORIG: Barbara Rowen<br>UNIT: C/34<br>LKT: 6728<br>DATE: 30 September 1969</td><td rowspan="4"></td><td>SECRET</td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION</td></tr><tr><td>BY [index] PER [index]</td></tr><tr><td>FILE IN CS FILE NO.</td></tr><tr><td>CISK</td><td>[index]</td><td>FILE V<sup>B</sup></td></tr></tbody></table>
 

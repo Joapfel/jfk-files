@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9151.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 RE: INTERSTATE KLAN,
 KNIGHTS OF THE KU KLUX KLAN

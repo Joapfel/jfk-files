@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30507.png
-
-Convert to MarkdownIndex - Star - ref. #s -> documents or files
+Index - Star - ref. #s -> documents or files
 1/3M -> 201 or operational activities file
 
 name grouping used for storage &

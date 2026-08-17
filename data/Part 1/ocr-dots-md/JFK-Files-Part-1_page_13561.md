@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13561.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE: 01 APR 62
 CITE: PACY 7711

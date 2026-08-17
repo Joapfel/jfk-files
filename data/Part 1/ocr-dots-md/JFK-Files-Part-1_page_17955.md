@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17955.png
-
-Convert to MarkdownSSCHT
+SSCHT
 
 6 June 1960
 

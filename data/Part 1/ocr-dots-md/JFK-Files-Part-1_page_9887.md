@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9887.png
-
-Convert to Markdown2.
+2.
 
 appeared to be in reasonably good spirits after the test, although
 he was obviously emotionally strained by the experience. Rowton made

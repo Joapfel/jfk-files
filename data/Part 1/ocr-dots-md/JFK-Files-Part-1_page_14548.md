@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14548.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 Guillermo RUIZ Pérez
 

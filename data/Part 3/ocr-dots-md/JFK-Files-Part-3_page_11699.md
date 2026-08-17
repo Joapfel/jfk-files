@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11699.png
-
-Convert to MarkdownSECURITY INDEX - CUBA
+SECURITY INDEX - CUBA
 
 ## Background and Date of Inception
 

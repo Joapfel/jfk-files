@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31478.png
-
-Convert to Markdown-4-
+-4-
 
 In the case of the Poles, because of the failure of the Polish emigration to produce a united national council which could be recognized by NCFE, no financial support whatever has been given by NCFE to Polish refugee activities, although the Poles have one of the most sizable organizations of all the nationality groups with which NCFE cooperates, and although the Poles have an organization, American Polish: for Relief, a voluntary agency, which seems to be at least as effective, if not more so than the American Fund for Czechoslovak Refugees or Humanitarian Welfare, Inc., organizations with which it is roughly comparable.
 

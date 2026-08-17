@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6563.png
-
-Convert to MarkdownMYNYT TEA
+MYNYT TEA
 
 CONFIDENTIAL
 

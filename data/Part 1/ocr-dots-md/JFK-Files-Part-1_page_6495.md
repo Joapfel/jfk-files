@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6495.png
-
-Convert to MarkdownXXXX 7EA
+XXXX 7EA
 
 696 NYOR
 SECRET

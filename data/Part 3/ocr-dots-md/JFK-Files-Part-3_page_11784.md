@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11784.png
-
-Convert to Markdownsince last inspection. At the time of last inspection of 237 files reviewed, less than 10, or 4%, contained such outgoing communications.
+since last inspection. At the time of last inspection of 237 files reviewed, less than 10, or 4%, contained such outgoing communications.
 
 Also during this inspection 62 closed files on PDAs were reviewed at random. Of these, 12 or 19%, contained outgoing communications of the type described above since last inspection. It was observed that since last inspection a majority of the closed files contained only the six-month justification letter and were closed in accordance with Division instructions described above.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8307.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 On October 28, 1944, he allegedly was accused by the government of sabotage because he had agitated against the Russian occupation troops. During the ensuing months he was arrested several times in Ferdinand, Vratsa and Lomé. When released from prison, he continued his illegal activities, which seem to have consisted in travelling from village to village, organizing loose-knit groups of Agrarians to withstand Communist pressures.
 

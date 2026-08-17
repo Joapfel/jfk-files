@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23162.png
-
-Convert to Markdownen donde desempeñó diversos cargos, pudo conocer ampliamente el desarrollo de la medicina en Cuba hasta el 30 de abril de 1967, es decir ha podido conocer también el desenvolvimiento de la medicina cubana durante el régimen castro-comunista. Siendo lo que a continuación expreso un enjuiciamiento del mismo en su triple aspecto docente, profesional y clasista.
+en donde desempeñó diversos cargos, pudo conocer ampliamente el desarrollo de la medicina en Cuba hasta el 30 de abril de 1967, es decir ha podido conocer también el desenvolvimiento de la medicina cubana durante el régimen castro-comunista. Siendo lo que a continuación expreso un enjuiciamiento del mismo en su triple aspecto docente, profesional y clasista.
 
 ## Aspecto docente.
 

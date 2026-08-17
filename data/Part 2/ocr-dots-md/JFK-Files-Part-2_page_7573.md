@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7573.png
-
-Convert to Markdownreason that the itinerary change was too much trouble for the US
+reason that the itinerary change was too much trouble for the US
 persons and authorities concerned, notwithstanding the fact that all
 change arrangements had already been completed, which facts he well
 knew. From the USSR viewpoint, he stated that no objections would

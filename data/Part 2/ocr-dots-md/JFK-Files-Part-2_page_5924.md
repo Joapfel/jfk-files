@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5924.png
-
-Convert to Markdown13 June 1995
+13 June 1995
 
 MEMORANDUM FOR: Jack Wright @ DA
 

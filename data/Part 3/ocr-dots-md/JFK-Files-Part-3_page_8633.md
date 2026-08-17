@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8633.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 V. FUNDS
 

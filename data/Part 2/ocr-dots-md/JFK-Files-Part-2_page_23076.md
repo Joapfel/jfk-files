@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23076.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. in terms of reporting from Miami?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2784.png
-
-Convert to MarkdownAMERICAN EMBASSY SECTION - January 1960-January 1962)
+AMERICAN EMBASSY SECTION - January 1960-January 1962)
 
 Comment: (Continued)
 

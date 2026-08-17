@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16326.png
-
-Convert to MarkdownWICKES, ALASTAIR
+WICKES, ALASTAIR
 
 201-EC17C2*
 

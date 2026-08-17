@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4410.png
-
-Convert to Markdown**Memorandum for the Attorney General**
+**Memorandum for the Attorney General**
 
 Since the installation of these surveillances, information has been developed, on a daily basis, regarding plans, movements and activities of individuals responsible for the massive demonstration in Washington, D.C., on April 24, 1971, and who plan violence and civil disobedience during May, 1971. For example, information was developed that a group planned to break away from the massive demonstration in Washington, D.C., on April 24, 1971, and attempt to take over the South Vietnamese Embassy by way of Dupont Circle. This information enabled the Metropolitan Police Department to effectively block Dupont Circle well in advance of the approaching demonstrators and thwart this plan. In addition, this coverage developed information regarding a schism which developed between the National Peace Action Coalition (NPAC) and the PCPJ, which cosponsored the demonstration on April 24, 1971, due to NPAC fears that PCPJ was planning violence. These surveillances also enabled this Bureau to follow closely the activities of many of the major suspects in the bombing of the U. S. Capitol on March 1, 1971, and other New Left extremists who might actively engage in violence and terrorism during May, 1971.
 

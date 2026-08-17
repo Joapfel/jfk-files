@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2090.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">⑤<br/>FROM Oct. 1938 TO Aug. 1944</td>
     <td colspan="2">DATE OF EMPLOYMENT (month, year)</td>

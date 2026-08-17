@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8252.png
-
-Convert to Markdown(d) Investigative guidelines with reference to Title 11, Organized Crime Control Act of 1970, Regulation of Explosives, prepared by the Attorney General, submitted by letter to the FBI 1/11/73.
+(d) Investigative guidelines with reference to Title 11, Organized Crime Control Act of 1970, Regulation of Explosives, prepared by the Attorney General, submitted by letter to the FBI 1/11/73.
 
 7. REQUESTER/DATE OF REQUEST: SSC. 3/19/75.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31032.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Sergio Arcaeha Smith
 Page 2

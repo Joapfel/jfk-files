@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34247.png
-
-Convert to Markdown"**HABLA... UNIDAD REVOLUCIONARIA** (W.R.U.L.)
+"**HABLA... UNIDAD REVOLUCIONARIA** (W.R.U.L.)
 
 October 19: "The Indonesian People Against the Communists".- This article breaks Cuban deadly silence concerning Indonesian events, and summarizes and comments such events, emphasizing that the people and the armed forces have performed the miracle of recovering democracy for Indonesia. HISTORIC DETERMINISM turns against Communism, first in the Dominican Republic, next in Algeria, now in Indonesia, and tomorrow in Cuba.
 

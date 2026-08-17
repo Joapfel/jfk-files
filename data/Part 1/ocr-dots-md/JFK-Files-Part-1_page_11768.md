@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11768.png
-
-Convert to Markdown## B. Background
+## B. Background
 
 The American national in question is a former WHD/OSO agent (FULMINATOR-1) of proven ability, courage and discretion.
 

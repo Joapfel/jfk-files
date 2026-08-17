@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14247.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Memorandum to Mr. D. J. Brennan, Jr.
 RE: UNION FOR REVOLUTION

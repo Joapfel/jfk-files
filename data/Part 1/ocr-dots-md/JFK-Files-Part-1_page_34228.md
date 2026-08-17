@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34228.png
-
-Convert to Markdown# EDITORIALS:
+# EDITORIALS:
 
 **"Communist Must Fall In Cuba".-** We echo reports by recent refugee arriving concerning Castro's purchase of defective farming equipment. There purchases indicate why Castro- Communism is failing in Cuba thanks to the attitude of crooked merchants that still trade with Fidel, to the regime's own stupidity and to the resistance of the Cuban people.
 

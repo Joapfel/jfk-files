@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31841.png
-
-Convert to MarkdownSPECIAL
+SPECIAL
 FBI-S-A-B-I
 
 <table><tr><td>US ARMY REQUEST</td></tr><tr><td>(AR 381-30)</td></tr></table>

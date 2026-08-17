@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28516.png
-
-Convert to Markdownthe key officers responsible for the direction and control of some of the most sensitive operations then being conducted by the Clandestine Services. He carried out his responsibilities with skill and discretion, and the ability to stand up under repeated periods of heavy pressure.
+the key officers responsible for the direction and control of some of the most sensitive operations then being conducted by the Clandestine Services. He carried out his responsibilities with skill and discretion, and the ability to stand up under repeated periods of heavy pressure.
 
 In recognition of his excellent service as Deputy Chief SR, Mr. Bagley in March 1967 was assigned as Chief of Station, Brussels, a major target area of Soviet espionage due to the presence of NATO and European Community Headquarters.
 

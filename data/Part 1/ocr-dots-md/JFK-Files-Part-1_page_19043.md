@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19043.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Party leader Von Thadden at Second NPD Congress
 at Karlsruhe, June 1966

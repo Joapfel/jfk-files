@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4805.png
-
-Convert to MarkdownSECRET
+SECRET
 
 they go in. They run around. They have access to
 everything. And I think that's crazy. That is micro

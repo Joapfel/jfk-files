@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8575.png
-
-Convert to Markdowncount on American assistance to return to the mainland, TANG stated that Mac China Government was aware of the fact that the USA cannot help them in that matter without getting involved in war with Mao's forces, which Mac China understands and considers that such a war would serve no purpose.
+count on American assistance to return to the mainland, TANG stated that Mac China Government was aware of the fact that the USA cannot help them in that matter without getting involved in war with Mao's forces, which Mac China understands and considers that such a war would serve no purpose.
 
 3. According to S after 10 - 15 min of talking TANG gave S some material and told him to return the next day to pick up additional material which he could use for his article. Therefore, S went to the Mac China Emb on July 18 at 1400 hrs and got some of their publications in English. To keep the door open for additional visit S requested some material on Chien-kai Shek and TANG told him that it would take some time to get it. TANG also asked did S or La Vision have connections with Sovs here and S stated they did not, but the Sovs were subscribers to the magazine. Reportedly, this visit lasted about 20 minutes.
 

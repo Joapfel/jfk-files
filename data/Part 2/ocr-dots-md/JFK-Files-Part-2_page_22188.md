@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22188.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 <table><tr><td>MCCONE</td><td>FITZGERALD</td></tr><tr><td>BUNDY</td><td>PAPICH</td></tr><tr><td>JESSUP</td><td>RFK</td></tr><tr><td>STEAKLEY</td><td>JMWAVE</td></tr><tr><td>JMWAVE</td><td>VANCE</td></tr></table>
 

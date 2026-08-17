@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28754.png
-
-Convert to MarkdownDate: 1/23/79
+Date: 1/23/79
 
 MEMORANDUM FOR: CHIEF, O/S
 SUBJECT : Request for Estimate of Annuities JS G

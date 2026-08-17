@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27347.png
-
-Convert to MarkdownA - Ink notes - Marked SECRET
+A - Ink notes - Marked SECRET
 
 B - Ink notes - Jack M. Bauman, Chief, SAD of OS CONFIDENTIAL
 

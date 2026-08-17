@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7933.png
-
-Convert to MarkdownI. JOHN F. KENNEDY
+I. JOHN F. KENNEDY
 
 A. GENERAL
 

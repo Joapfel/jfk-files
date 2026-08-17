@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5141.png
-
-Convert to Markdown# Part VII -- materials covered by procedures for the Martin Luther King case
+# Part VII -- materials covered by procedures for the Martin Luther King case
 
 1. Contents of the OC file labeled Martin Luther King, Jr. which was designated as File #100 by the Inspection Division, including note dated December 10, 1965, to Mr. Hoover; routing slip dated July 22, 1969, to Miss Gandy; memorandum dated June 10, 1969, from the Director to the Attorney General; and Serial Removal Charge-Out dated December 13, 1973.
 

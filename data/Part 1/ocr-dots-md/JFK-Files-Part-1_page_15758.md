@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15758.png
-
-Convert to Markdown2.
+2.
 
 It is interesting to note that while in prison, subject invented a machine for making cardboard boxes. This machine was actually built for one of the prison administrations and put into operation at the prison factory. Upon discharge from prison in December of 1955, subject lived, worked and was paroled to his brother in Gap, France. It was while there that subject was contacted by this agency and subsequently brought to this country for use as one of two agents for Project ARBINTTEL.
 

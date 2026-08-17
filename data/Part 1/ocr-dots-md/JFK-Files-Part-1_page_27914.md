@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27914.png
-
-Convert to MarkdownJ-EC-G-H-2-T
+J-EC-G-H-2-T
 
 <table><tr><td>0</td><td>1</td><td>3</td><td>6</td><td>1</td><td>2</td></tr><tr><td>2</td><td>7</td><td>13</td><td>17</td><td>19</td><td>6</td><td>17</td><td>12</td></tr></table>
 

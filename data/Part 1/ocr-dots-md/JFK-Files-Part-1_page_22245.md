@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22245.png
-
-Convert to Markdown653.
+653.
 
 work in the United States was accomplished mostly by other agencies. It would seem, however, that the JOHNSON operation was the only NOSENKO lead to be important or useful.
 

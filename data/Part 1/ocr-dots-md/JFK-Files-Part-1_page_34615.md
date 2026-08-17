@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34615.png
-
-Convert to MarkdownMEMORANDUM FOR: General Counsel
+MEMORANDUM FOR: General Counsel
 
 SUBJECT : Nosenko
 

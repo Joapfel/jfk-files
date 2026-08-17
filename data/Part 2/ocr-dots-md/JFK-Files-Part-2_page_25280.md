@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25280.png
-
-Convert to MarkdownMarie Lorenz says she was told that maps she took from Castro's headquarters were factor in locating and photographing missile sites (above). Under pressure from U.S., Khrushchev ordered missiles removed and shipped back to Soviet Union (right).
+Marie Lorenz says she was told that maps she took from Castro's headquarters were factor in locating and photographing missile sites (above). Under pressure from U.S., Khrushchev ordered missiles removed and shipped back to Soviet Union (right).
 
 Cienaga de Zapata, a vast swamp that he intended to convert to rice fields. As soon as he left Havana with his usual entourage, Marie received orders to return to the Cuban capital immediately. She boarded a regular Cubana Airlines flight, passing as an American tourist and carrying her Castro uniform and a loaded revolver in her overnight bag.
 

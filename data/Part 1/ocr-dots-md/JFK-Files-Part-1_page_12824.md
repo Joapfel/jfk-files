@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12824.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="3">LE REC DISSEM BY J/CO PER S/P 03 TOTAL COPIES: 16-1</th></tr><tr><td colspan="2"></td><td>SECRET</td></tr></thead><tbody><tr><td colspan="2">CORPORATE UNIT NOTIFIED:</td><td></td></tr><tr><td>ADVANCE COPY ISSUED SLIPPED</td><td>BY</td><td>AT X</td></tr><tr><td>ACTION UNIT</td><td>FILE</td><td>.VR. Eilidt Vd 9% Inmcdz</td></tr><tr><td>JWHG</td><td></td><td></td></tr><tr><td>ACTION #</td><td>INFO</td><td>000 A000</td></tr></tbody></table>
 

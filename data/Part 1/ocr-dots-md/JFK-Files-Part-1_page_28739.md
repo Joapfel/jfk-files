@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28739.png
-
-Convert to MarkdownCA-12771
+CA-12771
 
 16. SOLVING PROBLEM CASES. Student pulls together all he has learned in the course and uses it in solving a job problem.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4242.png
-
-Convert to MarkdownAntonio Cruz de Leão 200.00
+Antonio Cruz de Leão 200.00
 Kilo General Pujol 275.00
 Supplemento Claudio 100.00
 TOTAL 85,000.00

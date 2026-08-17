@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16720.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. Alternative B would not require OAS authorization: use force inasmuch as visit-and-search would take place only within territorial waters. It would be a cooperative system of surveillance and interception involving visit-and-search only within the territorial waters of an OAS country, with force to be applied, if necessary, by that country's forces or by forces of another OAS country acting under a bilateral agreement. Control of suspect vessels destined for non-OAS country or territory (e. g. British Guiana) would depend on cooperation that country.
 

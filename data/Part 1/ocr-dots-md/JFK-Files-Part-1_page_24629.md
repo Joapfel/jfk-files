@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24629.png
-
-Convert to MarkdownTO: Mr. Scott
+TO: Mr. Scott
 
 FROM: Deputy Chief of Mission
 

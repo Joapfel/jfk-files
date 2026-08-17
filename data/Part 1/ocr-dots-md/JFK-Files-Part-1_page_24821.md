@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24821.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. The principal questions asked are listed as follows:
 

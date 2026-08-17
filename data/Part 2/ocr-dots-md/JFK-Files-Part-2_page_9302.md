@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9302.png
-
-Convert to MarkdownDE T-2 advised in May, 1971, that during May,
+DE T-2 advised in May, 1971, that during May,
 1971, LONNIE DARDEN was officer of the day at 157 Collingwood
 and that the membership consisted of 38 active members
 including six community workers.

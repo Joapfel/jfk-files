@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27063.png
-
-Convert to Markdownright. Finally, it should be noted that there is a long history of CIA efforts to obtain better photography on deck cargoes and faster service in returning these pictures to Washington.
+right. Finally, it should be noted that there is a long history of CIA efforts to obtain better photography on deck cargoes and faster service in returning these pictures to Washington.
 
 7. The Checklist reported the accumulating information fully to the President. On 4 August, it stated that "Eleven Soviet ships are on their way to Havana and we strongly suspect they are carrying arms. Such a delivery would not be far short of the total amount of arms delivered in the first half of 1962." On 9 August, it said "Soviet shipments to Cuba have been arriving on an unprecedented scale since mid-July. Some 32 vessels are involved; at least half of these we believe to be carrying arms. Five passenger ships with a total capacity of about 3,000 persons have already arrived. Some of the personnel are said to be Soviet technicians, and we have no reason to doubt this. We do not believe there are any combat troops among them."
 

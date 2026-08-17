@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14105.png
-
-Convert to Markdown15 April 1968
+15 April 1968
 
 Mrs. Paula R. Rodriguez
 9351 S. W. 178th Street

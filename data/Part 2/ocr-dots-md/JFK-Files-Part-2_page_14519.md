@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14519.png
-
-Convert to MarkdownThis document consists of
+This document consists of
 No. of pages, Series.
 DEPARTMENT OF STATE
 WASHINGTON

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12561.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">ORIG: M. Bergor<br/>UNIT: W1U3/V<br/>DATE: 23 December 1969</td>
     <td>S.K. R.S.P.</td>

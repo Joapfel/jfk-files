@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9239.png
-
-Convert to Markdown1739 N St NW
+1739 N St NW
 Nov. 13, 1950
 
 C-O-P-Y

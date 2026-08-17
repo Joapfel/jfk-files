@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12644.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td></td><td></td><td></td><td></td></tr><tr><td colspan="11">(CLASSIFICATION)</td></tr><tr><td colspan="11">SECRET</td></tr><tr><td colspan="11">MESSAGE HANDLING INDICATOR</td></tr><tr><td>STAFF</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>CONF:</td><td>LA 5</td><td>INFO:</td><td>FILE (PHN)</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></table>
 

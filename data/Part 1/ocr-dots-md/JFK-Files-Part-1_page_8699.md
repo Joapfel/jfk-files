@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8699.png
-
-Convert to Markdown9.04.18 Si no lo ha visto ebro, ¿cree que en estado de embriaguez se pondrá
+9.04.18 Si no lo ha visto ebro, ¿cree que en estado de embriaguez se pondrá
 
 Muy activo ___ My pasivo ___
 My desagradable ___ Bastante agradable ___

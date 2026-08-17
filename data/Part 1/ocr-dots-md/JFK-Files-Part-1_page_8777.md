@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8777.png
-
-Convert to Markdown<table><tr><td>ДИПЛОМАТИЧЕСКАЯ ЛИТЕРАТУРА</td></tr><tr><td>№</td></tr></table>
+<table><tr><td>ДИПЛОМАТИЧЕСКАЯ ЛИТЕРАТУРА</td></tr><tr><td>№</td></tr></table>
 
 Действительная АДМ-ДНЦ ИЗ СССР
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1695.png
-
-Convert to Markdown24 December 1959
+24 December 1959
 
 MEMORANDUM FOR: Chief, IB/3
 FROM : A/Chief, SB/2

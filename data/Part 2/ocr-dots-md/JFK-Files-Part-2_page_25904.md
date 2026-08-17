@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25904.png
-
-Convert to Markdownwho he thought were Giancana's sons-in-law. The only name
+who he thought were Giancana's sons-in-law. The only name
 I remember is that of Tisci.
 
 In either the second or possibly a third conversation

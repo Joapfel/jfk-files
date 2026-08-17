@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18093.png
-
-Convert to MarkdownWithout the Basehouse and LIONION-1's expert knowledge of the target personnel and activities, such an operation could not have been mounted. The operation itself was an attempt to satisfy the top priority requirement laid on Station Mexico City by Headquarters. It is expected that future similar operations will depend to a large extent on the facilities provided by this Project.
+Without the Basehouse and LIONION-1's expert knowledge of the target personnel and activities, such an operation could not have been mounted. The operation itself was an attempt to satisfy the top priority requirement laid on Station Mexico City by Headquarters. It is expected that future similar operations will depend to a large extent on the facilities provided by this Project.
 
 Another very effective performance by LIONION-1 was his obtaining, by sharp observation and quick, intelligent and secure action, an apartment in a building directly across the street from the target. The Station had been seeking an apartment in this building for many years.
 

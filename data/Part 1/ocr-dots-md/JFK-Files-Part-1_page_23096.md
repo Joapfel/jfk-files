@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23096.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>PRIOR TO DEG</td>

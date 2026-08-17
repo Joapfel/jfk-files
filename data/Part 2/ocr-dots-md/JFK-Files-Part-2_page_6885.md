@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6885.png
-
-Convert to MarkdownTo the contrary, judicial review has been a potent factor in making the FOIA as useful a tool of democracy as it is. Indeed, it has been persuasively argued that the courts are not *sufficiently* diligent in reviewing agency classification decisions.¹³
+To the contrary, judicial review has been a potent factor in making the FOIA as useful a tool of democracy as it is. Indeed, it has been persuasively argued that the courts are not *sufficiently* diligent in reviewing agency classification decisions.¹³
 
 The CIA has warned of “costly legal challenges that risk second-guessing of DCI/CIA judgments.” This is a considerable exaggeration since in practice, no judge would reject a sworn affidavit from the DCI that certain information must be withheld. But at the same time, CIA classification judgments are *in need of* the checks and balances that judicial review would provide, particularly when it comes to the invocation of “sources and methods.” Thus, the Secrecy Commission last year found that:
 

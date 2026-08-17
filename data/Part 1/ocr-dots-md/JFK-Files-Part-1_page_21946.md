@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21946.png
-
-Convert to Markdown(1) MICKELSON
+(1) MICKELSON
 
 NOSENKO has identified Earl L. MICKELSON as a colonel and the Military Attache in Moscow during 1954 and 1955. PANKRATOV was the case officer originally handling NICKEL- SON, and the case was turned over to NOSENKO in 1954. When asked about agents who might have been working against MICKELSON, NOSENKO said that there was one cook, a KGB operational contact whose name he did not recall, and MICKELSON's maid, whose name NOSENKO believed was NOVIKOVA; the cook and NOVIKOVA went to work for MICKELSON after NO- SENKO had left the U.S. Embassy Section. In addition to these two, the only other source reporting on MICKELSON was his chauffeur, whose name NOSENKO also did not remember. NOSENKO said that the KGB learned nothing interesting about MICKELSON from concealed microphones, telephone taps, or surveillance, and that no operational approach or recruit- ment was attempted. There was, in fact, no interesting or derogatory information on MICKELSON from any source.
 

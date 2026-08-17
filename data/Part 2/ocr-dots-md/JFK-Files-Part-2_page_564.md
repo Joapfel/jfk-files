@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_564.png
-
-Convert to MarkdownFORM 303U
+FORM 303U
 9-67
 
 USE PREVIOUS

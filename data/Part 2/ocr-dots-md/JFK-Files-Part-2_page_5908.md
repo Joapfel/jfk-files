@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5908.png
-
-Convert to Markdownand left an office during the same quarter they might not appear
+and left an office during the same quarter they might not appear
 on the staffing complement, 2. If an individual was TDY to an
 office they would not appear on the staffing complement of that
 office. 3) If an individual was being paid by their home office

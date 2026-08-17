@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32790.png
-
-Convert to MarkdownIncident at Guantanamo occurred 26 May when a light Cuban aircraft landed there. Three Cubans had forced the pilot, at pistol point, to land them at our Naval Base. With State's con- currence, Defense acted: the Cuban pilot flew home, the 3 Cuban escapees stayed on the base.
+Incident at Guantanamo occurred 26 May when a light Cuban aircraft landed there. Three Cubans had forced the pilot, at pistol point, to land them at our Naval Base. With State's con- currence, Defense acted: the Cuban pilot flew home, the 3 Cuban escapees stayed on the base.
 
 Fracturing the Perime has been given priority attention by CIA. A senior case officer has been assigned full-time to this specific action, and has preferential use of CIA assets. Of 24 desirable deflection targets, CIA has found several who seem vulnerable (including the Minister of National Economy, Leon Eot)
 

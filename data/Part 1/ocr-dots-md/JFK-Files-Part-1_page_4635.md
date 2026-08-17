@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4635.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">S C R E T : 2222482 NOV 74 STAFF</td>
    </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4476.png
-
-Convert to MarkdownPH 92-444
+PH 92-444
 
 city of Philadelphia to haul trash and garbage from Philadelphia
 via water.

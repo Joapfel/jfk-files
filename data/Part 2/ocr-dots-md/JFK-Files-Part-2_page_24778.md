@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24778.png
-
-Convert to MarkdownThe minutes state that:
+The minutes state that:
 
 "Mr. Dulles, assisted by Mr. Bissell, then summarized for the benefit of the new members of the Special Group the specific actions taken by the predecessor group during the past year, and also a list of significant projects which antedate the beginning of 1960 and which it is planned to continue." (Special Group Minutes of 2/14/61)
 

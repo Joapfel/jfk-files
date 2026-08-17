@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24149.png
-
-Convert to MarkdownRichard Gibson
+Richard Gibson
 
 Finallymente resided in Paris with his espouse,francesa. Era director de la编辑in en Inglés del mensuario "Revolution", publicado en Lausana por Jacques Vergés, antiguo director de "Revolutionn africaine", argelino de madre china y amigo de -enella, con quien disputó el probásele que recitía dinero de China Comunista para expresar los puntos de vista chinos en el periódico argelino. "Revolution# es o es (ignoro si se publica todavía) financiado por China Roja. Gibson salió de su puesto en estas publicaciones, al ser thusado de ser un agente infiltrado de la CIA. En 1964 estuvo en Bruselas, ofreciendo una conferencia en la ULE (Universidad Libre), con motivo de una Exposición Latinoamericana, auspiciada por la Facción pro-China de la Federación Comunista de estudiantes de belgica (Federación de Bruselas) y pagado por el grupo de disidentes del PCB, Gripen, Reino dorf, etc. Esa noche habló sobre la Revolución cubana y su visita a Cuba y en la presidencia del acto estaba el propio Jacques Grippa.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9952.png
-
-Convert to MarkdownLa Habana, 27 de Julio de 1967.
+La Habana, 27 de Julio de 1967.
 
 Estimado Carliche:
 

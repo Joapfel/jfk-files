@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28758.png
-
-Convert to MarkdownMarch 9, 1973
+March 9, 1973
 
 The Honorable William P. Rogers
 The Secretary of State

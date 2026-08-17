@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11801.png
-
-Convert to Markdownutilise for its ends all legal methods of the expression of ideas and principles, it will editor reviews, books, magazines, news bulletins and posters and will serve all kinds of publications, radio broadcasts and projection of films. The society will also give aid to all groups or organisations with similar aims and will utilise all the means of thought necessary by the Board of Directors in order to carry out its ideals*.
+utilise for its ends all legal methods of the expression of ideas and principles, it will editor reviews, books, magazines, news bulletins and posters and will serve all kinds of publications, radio broadcasts and projection of films. The society will also give aid to all groups or organisations with similar aims and will utilise all the means of thought necessary by the Board of Directors in order to carry out its ideals*.
 
 c. **"(theohen elias)....of aid to other worthy civic, social, business or religious organisations.....".** Naturally, our group would be delighted to aid others (see above).
 

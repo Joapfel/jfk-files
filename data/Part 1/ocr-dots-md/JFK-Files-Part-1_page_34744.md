@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34744.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">MESSAGE FORM</td>
         <td rowspan="3">

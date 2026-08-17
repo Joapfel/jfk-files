@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9362.png
-
-Convert to MarkdownDE T-1
+DE T-1
 February 8, 1971
 
 On January 4, 1971, EDGAR ROBINSON, distribution manager for the Detroit NCCF, visited the office at Flint, Michigan, and told a woman from the neighborhood who dropped in that there are eight million Panthers in the country who will take up the gun and take over the country, giving it a blood bath if two BPP members on trial in New Haven, Connecticut are convicted.

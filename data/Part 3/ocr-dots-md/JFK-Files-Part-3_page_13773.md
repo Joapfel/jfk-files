@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13773.png
-
-Convert to Markdown31 January 1963
+31 January 1963
 
 # HAVANA'S INTERNATIONAL BROADCASTING
 ## I. HOURS ON THE AIR

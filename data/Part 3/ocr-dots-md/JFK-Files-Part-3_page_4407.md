@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4407.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Memorandum for the Attorney General
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30956.png
-
-Convert to MarkdownH/W ATT: MENT =1 TO: HAWT-5/2, 1 MAY 1969
+H/W ATT: MENT =1 TO: HAWT-5/2, 1 MAY 1969
 
 7 April 1969
 

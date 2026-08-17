@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8941.png
-
-Convert to Markdown19 March 1963
+19 March 1963
 
 Paul O:
 

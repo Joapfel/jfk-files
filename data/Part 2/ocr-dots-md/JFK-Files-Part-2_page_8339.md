@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8339.png
-
-Convert to Markdownthat he was not aware of anything that had existed between KELLY and General Crane, but for KELLY to telephone him several days later. KELLY stated that he telephoned Mr. Horne a week later but received no satisfactory response from him.
+that he was not aware of anything that had existed between KELLY and General Crane, but for KELLY to telephone him several days later. KELLY stated that he telephoned Mr. Horne a week later but received no satisfactory response from him.
 
 11. KELLY realizing that he was wanted in Bulgaria by the police for his escape from prison proceeded to work his way out of Bulgaria. He was assisted by one Fancha Fernandova near Plovdiv. On crossing the Bulgarian border into Greece KELLY stated that he surrendered to a Greek patrol who immediately channeled him through its interrogation center. During this process KELLY said he was approached by British Intelligence, a Mr. Andros (possibly Andrews) and Mr. Scott, and was told that the British had heard of his organization and wanted him to work for them. KELLY refused the offer and told the British that he preferred to work with the Americans. KELLY also said that the Greek IS had asked him to work for them, and that he refused them also. He was then placed in a refugee camp in Athens with other Bulgarian refugees.
 

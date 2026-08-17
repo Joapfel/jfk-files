@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24926.png
-
-Convert to Markdown6. Practices Current at the Time in Which the Assas-
+6. Practices Current at the Time in Which the Assas-
 sination Plots Occurred Were Revealed by the Record to
 Create the Risk of Confusion, Rashness, and Irresponsibility
 in the Very Areas Where Clarity and Sober Judgment Was

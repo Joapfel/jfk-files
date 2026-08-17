@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28504.png
-
-Convert to MarkdownFERDINAND FARMER RESIDENCE
+FERDINAND FARMER RESIDENCE
 
 4520 Chester Avenue
 Philadelphia, Pa. 19143

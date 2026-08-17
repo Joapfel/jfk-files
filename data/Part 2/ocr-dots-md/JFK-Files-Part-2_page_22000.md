@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22000.png
-
-Convert to Markdown8. Any paper or document used by Mr. Dulles and Mr. Bissell in the briefing they gave to new members of the Special Group at the meeting on 14 February 1961. The Minutes state: "Mr. Dulles, assisted by Mr. Bissell, then summarized for the benefit of the new members of the Special Group the specific actions taken by the predecessor group during the past year, and also a list of significant projects which antedate the beginning of 1960 and which it is planned to continue."
+8. Any paper or document used by Mr. Dulles and Mr. Bissell in the briefing they gave to new members of the Special Group at the meeting on 14 February 1961. The Minutes state: "Mr. Dulles, assisted by Mr. Bissell, then summarized for the benefit of the new members of the Special Group the specific actions taken by the predecessor group during the past year, and also a list of significant projects which antedate the beginning of 1960 and which it is planned to continue."
 
 9. The memorandum which was requested by Mr. Bundy at the Special Group meeting on February 14, 1961. The minutes state: "Mr. Bundy asked that a memorandum be prepared for higher authority on the subject of what plans can be made for a successor government to Trujillo."
 

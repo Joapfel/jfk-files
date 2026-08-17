@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23866.png
-
-Convert to Markdown1. Mr. Maxwell. Bill, would this prohibit the use of any
+1. Mr. Maxwell. Bill, would this prohibit the use of any
 2. individual person who is sponsored by an educational or
 3. cultural program, although not fully funded by the Federal
 4. Government?

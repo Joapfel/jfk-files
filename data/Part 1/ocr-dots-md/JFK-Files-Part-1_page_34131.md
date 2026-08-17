@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34131.png
-
-Convert to Markdown<table><thead><tr><th>DISPATCH</th></tr></thead><tbody><tr><td>CLASSIFICATION<br/>SECRET</td></tr><tr><td>TO<br/>Chief of Station, Ottawa</td></tr><tr><td>INFO<br/>Chief, WH</td></tr><tr><td>FROM<br/>Chief of Station, JMWAVE</td></tr><tr><td>SUBJECT<br/>C TYPIC/WINIPER/AMSCROLL<br/>Cuban Lobster</td></tr><tr><td>ACTION REQUIRED: REFERENCES<br/>ACTION REQUIRED: For COS, Ottawa to determine<br/>REFERENCE: JMWAVE-3309</td></tr></tbody></table>
+<table><thead><tr><th>DISPATCH</th></tr></thead><tbody><tr><td>CLASSIFICATION<br/>SECRET</td></tr><tr><td>TO<br/>Chief of Station, Ottawa</td></tr><tr><td>INFO<br/>Chief, WH</td></tr><tr><td>FROM<br/>Chief of Station, JMWAVE</td></tr><tr><td>SUBJECT<br/>C TYPIC/WINIPER/AMSCROLL<br/>Cuban Lobster</td></tr><tr><td>ACTION REQUIRED: REFERENCES<br/>ACTION REQUIRED: For COS, Ottawa to determine<br/>REFERENCE: JMWAVE-3309</td></tr></tbody></table>
 
 1. We forward by separate cover the AMSCROLL report, page 4 of which contains the study on Cuban-Canadian lobster trade discussed in the reference as well as a clip of the AWTAFFY-1 treatment of this study. It may be of interest to report that the mailing list routinely used for this and similar studies of this nature contains the following Canadian firms: Montreal Star; Canadian Intelligence Publications, P.O. Box 130, Flesherton, Ontario; Financial Times of Montreal; Financial Post, Toronto; Canadian Chamber of Commerce, Montreal; Canadian Press, a news agency located in Toronto; and the Ministry of Trade and Commerce.
 

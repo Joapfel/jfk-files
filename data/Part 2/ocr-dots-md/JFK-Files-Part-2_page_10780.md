@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10780.png
-
-Convert to Markdown3. One "6" card with writing beginning, "I'm going to wash..."
+3. One "6" card with writing beginning, "I'm going to wash..."
 
 4. One 3-7-8" card with writing beginning, "I did a good job."
 

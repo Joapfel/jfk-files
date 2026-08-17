@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14288.png
-
-Convert to Markdowne. Memorandum from J. Patrick Coyne, National Security Council Representative on Internal Security, dated November 6, 1950, concerning necessary intelligence measures relative to violence by Puerto Rican nationalists.
+e. Memorandum from J. Patrick Coyne, National Security Council Representative on Internal Security, dated November 6, 1950, concerning necessary intelligence measures relative to violence by Puerto Rican nationalists.
 
 3. All other FBI documents relating to paragraph I of the Committee's March 19 request. (Note: It is the responsibility of the Bureau to produce all responsive material whether or not the Committee has identified a specific document.)
 

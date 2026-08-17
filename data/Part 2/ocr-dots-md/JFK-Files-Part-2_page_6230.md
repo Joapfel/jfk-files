@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6230.png
-
-Convert to Markdown3/14/97
+3/14/97
 
 Barry
 

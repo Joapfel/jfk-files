@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8401.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## 18. Physical description:
 

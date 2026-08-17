@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11526.png
-
-Convert to MarkdownThis should be done prior to requesting authority to institute the investigation where sufficient identifying information is not otherwise available.
+This should be done prior to requesting authority to institute the investigation where sufficient identifying information is not otherwise available.
 
 (b) Contacts during investigation
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19724.png
-
-Convert to MarkdownSA 107-12995
+SA 107-12995
 
 PAGE TWO
 

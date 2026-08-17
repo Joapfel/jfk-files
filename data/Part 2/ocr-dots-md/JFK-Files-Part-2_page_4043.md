@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4043.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 free and voluntary statement to Edward Joseph Murphy and George E. Aiken, who have identified themselves to me as Special Agents of the Federal Bureau of Investigation. They have advised me that the information furnished herein may be used in court. No threats, promises or force of any kind was used to get me to make this statement.
 

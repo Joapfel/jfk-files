@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18886.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">WAR DEPARTMENT<br/>NOTIFICATION OF PERSONNEL ACTION<br/>(DEPARTMENTAL)</td>
         <td>exp/htw</td>

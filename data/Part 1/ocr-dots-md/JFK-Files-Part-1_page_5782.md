@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5782.png
-
-Convert to MarkdownCuring the 'Incurable'
+Curing the 'Incurable'
 
 Other reports point out that the integration of western medicine and Chinese traditional medicine has resulted in successful treatment of many common and recurrent diseases as well as curing some of the "incurable" diseases such as osteomatosis, epilepsy and chronic laryngitis proliferans.
 

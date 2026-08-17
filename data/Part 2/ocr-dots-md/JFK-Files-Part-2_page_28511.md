@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28511.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Mr. Blakey
 FROM: Edward M. Evans

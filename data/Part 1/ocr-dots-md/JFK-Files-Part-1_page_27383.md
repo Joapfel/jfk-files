@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27383.png
-
-Convert to MarkdownManila, March 25, 1953
+Manila, March 25, 1953
 
 Dear Colonel Gabriele,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7993.png
-
-Convert to MarkdownSOUT
+SOUT
 
 VII-2-3653, Page 8
 

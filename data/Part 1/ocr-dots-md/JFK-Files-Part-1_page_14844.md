@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14844.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>DATE</td><td colspan="3">138 WJ/LEA/W<br/>17 MAR 59</td></tr><tr><td>TO</td><td colspan="3">DIRECTOR</td></tr><tr><td>FROM</td><td colspan="3">PARIS</td></tr><tr><td>ACTION</td><td colspan="3">SR-6</td></tr><tr><td>INFO</td><td colspan="3">C1, C1/OPS, FI, FI/OPS, EE 4, WE 4, OS 2, S/C 2</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30887.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1964-07-30
 

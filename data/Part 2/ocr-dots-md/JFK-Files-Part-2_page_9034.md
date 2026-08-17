@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9034.png
-
-Convert to MarkdownColombia
+Colombia
 
 From Colombia reports have been received of increasing Cuban resistance, primarily in the form of training courses by instructors who have been trained in Cuba, to the Worker-Student-Popular Movement (HORC). A small guerrilla band encountered by the Colombian army in July 1963 was broken up when five members of the band were killed and two others captured. A small quantity of drugs and a considerable amount of books and paraphlets on revolutionary warefare, photographs of Fidel Castro, Camilo Cienfuegos and Mao Tse-tung, and bulletins of the HORC were found at the campsite. Recent reports have indicated an increase in the terrorist efforts of the HORC and increased promise of assistance from Che Guevara with regard to the training of additional HORC members.
 

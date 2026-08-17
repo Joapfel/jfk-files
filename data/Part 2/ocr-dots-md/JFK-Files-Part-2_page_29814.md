@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29814.png
-
-Convert to MarkdownM - Did Jason ever tell you what kind of business he was in?
+M - Did Jason ever tell you what kind of business he was in?
 
 D - no, uh, I questioned Gino one time as to what Jason did and Gino evaded the question and another time I asked Gino how come if they were partners, how come it was Gino's Classic Cars and uh you know Gino just said, not to ask questions and made a joke of it as he usually does
 

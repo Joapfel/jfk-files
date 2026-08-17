@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25967.png
-
-Convert to Markdown<table><tr><td>14-0000</td></tr></table>
+<table><tr><td>14-0000</td></tr></table>
 
 <table><thead><tr><th colspan="2">104-10220-10035</th><th colspan="3">2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992</th></tr></thead><tbody><tr><td>MSGR: JERRY SEIGEL<br/>NTT: E/AS/S<br/>XT: 7063/0108.<br/>DATE: 5 MARCH 1989</td><td rowspan="2" colspan="2"><div style="text-align:center;">MESSAGE FORM<br/>TOTAL COPIES: 29</div><div style="border: 2px solid black; padding: 10px; display: inline-block;"><table><tr><td>B.</td><td>S</td><td>E</td><td>C</td><td>R</td><td>E</td><td>T</td></tr></table></div></td><td rowspan="2"></td><td rowspan="2"></td></tr><tr><td>SECRET</td></tr></tbody></table>
 

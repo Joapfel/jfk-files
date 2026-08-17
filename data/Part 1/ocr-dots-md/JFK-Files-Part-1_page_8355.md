@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8355.png
-
-Convert to Markdown5. January, 1969
+5. January, 1969
 
 PURSUANT TO ORDER OF THE
 COURT IN SOUTHERN DISTRICT

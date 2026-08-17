@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29046.png
-
-Convert to Markdown<table><tr><td>SECRET</td></tr></table>
+<table><tr><td>SECRET</td></tr></table>
 
 <table><tr><td colspan="4">NOTIFICATION OF ESTABLISHMENT OR CANCELLATION<br/>OF OFFICIAL COVER BACKSTOP</td><td>11 Sep 72</td><td>FIL No.</td><td>3190</td></tr><tr><td>X</td><td>CHIEF, CONTROL DIVISION</td><td rowspan="3">EMPLOYEE NUMBER<br/>007667</td><td rowspan="3">TE CARD NUMBER<br/>2040</td><td>SS NUMBER<br/>069-24-3158</td><td></td><td></td></tr><tr><td></td><td>CHIEF, CONTRACT PERSONNEL DIVISION</td><td></td><td></td><td></td><td></td></tr><tr><td>X</td><td>CHIEF, OPERATING COMPONENT (For action)</td><td>NH</td><td></td><td></td><td></td></tr><tr><td>ATTN:</td><td colspan="4">Edmond A. Sullivan</td><td></td><td>ESTABLISHED</td><td></td></tr><tr><td>REF:</td><td colspan="4">Form 1322 dated 5 May 72</td><td></td><td>DISCONTINUED</td><td></td></tr><tr><td>SUBJECT</td><td colspan="4">BUSTOS-VIDELA, Charlotte Z</td><td>UNIT<br/>Joint Operations Group</td><td></td><td></td></tr></table>
 

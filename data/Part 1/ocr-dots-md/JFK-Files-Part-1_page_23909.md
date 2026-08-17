@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23909.png
-
-Convert to MarkdownHe represents nothing. He's a sort of hopeless person. She's a very dynamic woman. Verges claimed that she had become a police informer, for the Algerian police, and that she talked to very opposite groups and to occasionally, Shaxtakka to Mamani of the Salawa party in Algiers. But she no longer has anything to do with Revolution Africaine. I don't know what she is going. She wouldn't have anything to do with Verges after the moment that she refused to go to Lausanne. You see, he was
+He represents nothing. He's a sort of hopeless person. She's a very dynamic woman. Verges claimed that she had become a police informer, for the Algerian police, and that she talked to very opposite groups and to occasionally, Shaxtakka to Mamani of the Salawa party in Algiers. But she no longer has anything to do with Revolution Africaine. I don't know what she is going. She wouldn't have anything to do with Verges after the moment that she refused to go to Lausanne. You see, he was
 
 (Why)
 

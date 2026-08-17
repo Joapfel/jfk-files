@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13859.png
-
-Convert to MarkdownJ. B. ADAMS
+J. B. ADAMS
 DEPUTY ASSOCIATE DIRECTOR
 
 9. Are there any files - per #Corre, in Hoorn's for some time -

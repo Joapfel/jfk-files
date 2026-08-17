@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6229.png
-
-Convert to Markdown13-00000
+13-00000
 
 Mr. Onaxa, No; I think in each case it will depend so much on the situation with the particular person. If a person comes in and he is very agitated or something of that kind, it might dictate a totally different approach than a different kind of thing:
 

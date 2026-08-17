@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24549.png
-
-Convert to Markdown2. <u>Harvey's Testimony Concerning Authority</u>
+2. <u>Harvey's Testimony Concerning Authority</u>
 
 a. <u>Harvey's Perception of Authority</u>
 

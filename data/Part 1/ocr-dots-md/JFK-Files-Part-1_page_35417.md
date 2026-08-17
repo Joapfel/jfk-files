@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35417.png
-
-Convert to Markdown<table><tr><td>ORIG:</td><td></td></tr><tr><td>UNIT :</td><td></td></tr><tr><td>EXT :</td><td></td></tr><tr><td>DATE :</td><td></td></tr></table>
+<table><tr><td>ORIG:</td><td></td></tr><tr><td>UNIT :</td><td></td></tr><tr><td>EXT :</td><td></td></tr><tr><td>DATE :</td><td></td></tr></table>
 
 <table><tr><td colspan="3">☐ INDEX<br>SECRET</td></tr><tr><td colspan="3">☐ NO INDEX<br></td></tr><tr><td colspan="3">☐ FILE IN CS FILE NO.</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7475.png
-
-Convert to MarkdownDOHB 70-1-1
+DOHB 70-1-1
 CHAPTER III, ANNEX B
 
 15 November 1974

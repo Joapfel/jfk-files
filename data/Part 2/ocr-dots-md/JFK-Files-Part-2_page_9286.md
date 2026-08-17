@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9286.png
-
-Convert to MarkdownRICHARD MILLIOUS NIXON
+RICHARD MILLIOUS NIXON
 
 AMES KNOWN BY: Richard M. Nixon, Richard Nixon, "Tricky Dick"
 

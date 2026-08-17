@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23283.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Public Surveys Institute of Dallas, Texas, has placed a US representative in Cuba for the purpose of conducting public surveys, by polling, which will provide the home office with the requisite data for periodic market analyses. These periodic reports will be made available upon subscription to US investment and/or distribution agencies, and will contain comprehensive studies of market potentials and limitations, including the role of government as affected by current political developments.
 

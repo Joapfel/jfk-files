@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32514.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled In)
 
 BS: 20 OCT 71

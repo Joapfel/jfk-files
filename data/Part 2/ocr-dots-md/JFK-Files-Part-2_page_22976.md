@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22976.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 paramilitary group in Cuba whose primary mission was the
 2 collection of intelligence, whose secondary mission might be to

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29317.png
-
-Convert to Markdown# Anthony Atzenoffer
+# Anthony Atzenoffer
 
 never got to know Ferrie very well. He went to one social party that was given at either Ferrie's house or Col. Jim Salmon (James Salmon was killed in a plane accident 10-15-78). The party was all guys and when they started drinking he left. He was about 16 and his father didn't allow him to drink. Salmon and some others were seniors and Atzenhoffer didn't get to know them. He remembers that Ferrie flew at blue Stinson that he kept at MoSSant Airport, (Now New Orleans International and they don't allow private planes there any more).
 

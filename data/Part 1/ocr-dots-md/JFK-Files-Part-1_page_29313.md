@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29313.png
-
-Convert to Markdown10 AUG 1971
+10 AUG 1971
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 

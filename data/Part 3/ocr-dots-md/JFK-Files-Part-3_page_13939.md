@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13939.png
-
-Convert to Markdown8. Intelligence collection activities of Soviet trawlers operating off U. S. coasts.
+8. Intelligence collection activities of Soviet trawlers operating off U. S. coasts.
 
 9. Renewed efforts in the Congress to establish a Joint Watch Dog Committee on Foreign Intelligence.
 

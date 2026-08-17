@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14070.png
-
-Convert to MarkdownDate : March 26, 1965
+Date : March 26, 1965
 
 To :
 

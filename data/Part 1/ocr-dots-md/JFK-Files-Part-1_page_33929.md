@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33929.png
-
-Convert to MarkdownCOLLEGEVILLE, MINNESOTA
+COLLEGEVILLE, MINNESOTA
 
 "I endorse most heartily your Crusade for Freedom ... and hope that it will receive an enthusiastic response throughout America."
 

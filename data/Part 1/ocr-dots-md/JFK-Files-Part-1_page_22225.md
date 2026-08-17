@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22225.png
-
-Convert to Markdown"Although the Subject had used both alcohol and some unknown drug prior to testing, there is no question, based both on analysis of Subject's polygraph charts as well as personal observation during the interview, that Subject has attempted deliberate deception in the specific pertinent areas which are mentioned below in this report.
+"Although the Subject had used both alcohol and some unknown drug prior to testing, there is no question, based both on analysis of Subject's polygraph charts as well as personal observation during the interview, that Subject has attempted deliberate deception in the specific pertinent areas which are mentioned below in this report.
 
 "It is [my] conclusion that Subject is not a bona fide defector, but is a dispatched agent sent by Soviet Intelligence for a specific mission or missions.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16536.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr><tr><td>Chief of Station, Mexico City</td></tr><tr><td>Chief, Western Hemisphere Division</td></tr><tr><td>Chief of Station, WJ/Miami</td></tr><tr><td>PENUEÑ/Nelson Que s a d a Rivero (201-336379)</td></tr><tr><td>ON REQUEST - REFERENCES</td></tr><tr><td>REFERENCES: A. MUNA-11202, 18 November 1971<br>B. MUNA-41414, 16 December 1971<br>C. MUNA-11353, 13 December 1971</td></tr></table>
+<table><tr><td>DISPATCH</td></tr><tr><td>Chief of Station, Mexico City</td></tr><tr><td>Chief, Western Hemisphere Division</td></tr><tr><td>Chief of Station, WJ/Miami</td></tr><tr><td>PENUEÑ/Nelson Que s a d a Rivero (201-336379)</td></tr><tr><td>ON REQUEST - REFERENCES</td></tr><tr><td>REFERENCES: A. MUNA-11202, 18 November 1971<br>B. MUNA-41414, 16 December 1971<br>C. MUNA-11353, 13 December 1971</td></tr></table>
 
 1. The delay in responding to Reference A's request that a picture of Subject be reviewed with the appropriate assets was due to the fact that prior to the receipt of the Reference B photographs, we lacked a good picture of Subject. We felt that the picture of Subject, #143 in Volume II of the Cuban Mugbooks, was something less than satisfactory for the purposes of positive identification.
 

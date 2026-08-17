@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3337.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AMBOLED Meeting in Miami, 23 June 1964
 

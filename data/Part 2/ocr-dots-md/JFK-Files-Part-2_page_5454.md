@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5454.png
-
-Convert to MarkdownAPR 15 '97 04:55PM
+APR 15 '97 04:55PM
 
 SECRET
 Central Intelligence Agency

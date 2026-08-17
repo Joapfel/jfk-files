@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21491.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SJ 109-44
 

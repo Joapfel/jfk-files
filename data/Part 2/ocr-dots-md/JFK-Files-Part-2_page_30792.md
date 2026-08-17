@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30792.png
-
-Convert to Markdown111.1076-1
+111.1076-1
 
 Kostilov came on live radio conference ensuring in familiar form to Kos: Forgive me for arriving late.
 

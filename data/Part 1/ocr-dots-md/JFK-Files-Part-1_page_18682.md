@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18682.png
-
-Convert to Markdown# MEMORANDUM FOR THE RECORD
+# MEMORANDUM FOR THE RECORD
 
 SUBJECT: Request for Disability Retirement Under the Provisions of the CIA Retirement and Disability System - Mr. Calvin W. Hicks
 

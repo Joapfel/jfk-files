@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33750.png
-
-Convert to MarkdownDecember 19, 1951
+December 19, 1951
 
 Dear Tom:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7451.png
-
-Convert to MarkdownMr. Patrick Carpentier
+Mr. Patrick Carpentier
 Page Two
 
 7. Individuals who have been contacted by communist or unfriendly intelligence organizations or instrumentalities thereof;

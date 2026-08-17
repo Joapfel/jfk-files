@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24524.png
-
-Convert to Markdownmovement" and developing an "operational schedule for sabotage actions inside Cuba." (Lansdale Ex. 3, p. 5, 7.)*
+movement" and developing an "operational schedule for sabotage actions inside Cuba." (Lansdale Ex. 3, p. 5, 7.)*
 
 In focusing on intelligence collection, propaganda and various sabotage actions, Lansdale's tasks were consistent with the underlying strategy of Mongoose to build gradually towards an internal revolt of the Cuban people. (See p. above.)
 

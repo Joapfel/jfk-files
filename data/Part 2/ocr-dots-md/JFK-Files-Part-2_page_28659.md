@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28659.png
-
-Convert to Markdown7-19-78
+7-19-78
 
 Tom:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4838.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. On June 24, 1967, SA WARREN R. WELSH met with LUIS POSADA at the Dinner Key area, Coconut Grove, Florida.
 

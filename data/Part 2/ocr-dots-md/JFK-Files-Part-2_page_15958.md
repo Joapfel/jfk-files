@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15958.png
-
-Convert to Markdown7. No party member can have a weapon in his possession while drunk or loaded off narcotics or weed.
+7. No party member can have a weapon in his possession while drunk or loaded off narcotics or weed.
 
 8. No party member will commit any crimes against other party members or BLACK people at all, and cannot steal or take from the people, not even a needle or a piece of thread.
 

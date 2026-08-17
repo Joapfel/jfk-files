@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13207.png
-
-Convert to MarkdownThe allegations made by Dick Gregory and others connecting me to the murder of President John Kennedy are totally without foundation. They constitute a false and vicious libel.
+The allegations made by Dick Gregory and others connecting me to the murder of President John Kennedy are totally without foundation. They constitute a false and vicious libel.
 
 These charges are bizarre products of sick minds. The Political Left has never been able or willing to accept the fact that Kennedy's assassin was a man of the Left; thus the Leftist preoccupation with finding an alternate assassin.
 

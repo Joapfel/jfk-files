@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17886.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><thead><tr><th colspan="4">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>2</td><td>3</td><td>4</td></tr><tr><td>5</td><td>6</td><td></td><td></td></tr></tbody></table>
 

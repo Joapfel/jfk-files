@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30315.png
-
-Convert to Markdown1 passport as a —
+1 passport as a —
 
 2 Mr. Nosenko. Yes, I have a passport, which I once used
 

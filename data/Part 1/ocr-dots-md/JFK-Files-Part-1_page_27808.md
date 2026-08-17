@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27808.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FITNESS REPORT, Reviewing Official's Comments - continued:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4280.png
-
-Convert to Markdownmissions (both contained in papers from the Coordinator of Cuban Affairs dated 7 May).
+missions (both contained in papers from the Coordinator of Cuban Affairs dated 7 May).
 
 There was no objection by the Group to any of the infiltration/exfiltration operations. This approval includes the seven CIA operations, the infiltration of a radio operator in support of the U.S. Army, and approval of rendezvous opportunities which may arise without adequate time to bring them to the Group. The Group also noted Mr. Cheever's description of a proposed exfiltration to be carried out by the MRR, with some support by CIA.
 

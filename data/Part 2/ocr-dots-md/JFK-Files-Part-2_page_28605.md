@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28605.png
-
-Convert to Markdown1968 - 1960 FREE LANCE REPORTER: Reside in Barbados, W.I. with my husband who was working for the United Nations Development Program. While there I was Special Correspondent for the TORONTO TELEGRAM and also wrote for the local Barbados newspaper (ADVOCATE NEWS) and appeared on interview panel shows of the Caribbean Broadcasting Co.
+1968 - 1960 FREE LANCE REPORTER: Reside in Barbados, W.I. with my husband who was working for the United Nations Development Program. While there I was Special Correspondent for the TORONTO TELEGRAM and also wrote for the local Barbados newspaper (ADVOCATE NEWS) and appeared on interview panel shows of the Caribbean Broadcasting Co.
 
 PUBLICITY ORGANIZER: Was invited by Former Project Director of University Research Corp. (see below) to join him as a temporary contractor to establish a program for the SOCIAL DEVELOPMENT CORP. in San Francisco, Calif. where SDC was starting a western office. Coordinated a conference on the New Careers development concept for regional representatives of the Dept. of Labor. June 1968 - August 1968.
 

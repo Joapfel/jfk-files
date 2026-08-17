@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25972.png
-
-Convert to Markdownthe meetings that the President had. When Allen Dulles (Allen-W-Dulles) was first raised the notion to this inner group, I was present at the meeting as an Assistant.
+the meetings that the President had. When Allen Dulles (Allen-W-Dulles) was first raised the notion to this inner group, I was present at the meeting as an Assistant.
 
 O'BRIEN: What is the thinking about it at that time?
 

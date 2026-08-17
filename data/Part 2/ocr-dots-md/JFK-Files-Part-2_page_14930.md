@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14930.png
-
-Convert to MarkdownLouis J. Taglianetti
+Louis J. Taglianetti
 
 The Department on December 27, 1966, filed a motion to remand in the United States Court of Appeals for the First Circuit in the Louis J. Taglianetti appeal from the judgment of the United States District Court for the District of Rhode Island. Taglianetti, a member of the Raymond Patriarca "family" of La Cosa Nostra, was indicted on February 26, 1963, for income tax evasion for the years 1956, 1957, and 1958. He was found guilty on September 16, 1966. Taglianetti appealed but no brief had yet been filed.
 

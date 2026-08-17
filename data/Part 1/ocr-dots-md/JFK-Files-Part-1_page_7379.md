@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7379.png
-
-Convert to MarkdownFor Support authorize the 75/25 percent sharing of the excess allowable costs up to 80 percent above his quarterly allowance.
+For Support authorize the 75/25 percent sharing of the excess allowable costs up to 80 percent above his quarterly allowance.
 
 Edward Ryan
 Acting Chief

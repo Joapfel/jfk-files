@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21480.png
-
-Convert to MarkdownHW 50953 DocId:32340193 Page 2
+HW 50953 DocId:32340193 Page 2
 
 FBI
 

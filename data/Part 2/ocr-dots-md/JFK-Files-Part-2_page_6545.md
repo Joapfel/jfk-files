@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6545.png
-
-Convert to Markdownfor training, and all other feasible developments of regional themes, such as intensive efforts to build up the counterinsurgency capabilities of the region. It is very necessary, in view of the general LA situation to continue all measures necessary to isolate Castro.
+for training, and all other feasible developments of regional themes, such as intensive efforts to build up the counterinsurgency capabilities of the region. It is very necessary, in view of the general LA situation to continue all measures necessary to isolate Castro.
 
 Initial OAS action should be the enlargement of the bases for the invocation of the Rio Treaty. This broadening should be against the continued presence of Soviet troops (unless negotiations with the USSR indicate that this aspect should be deferred) and/or against Castro's continued subversive activity. Concomitantly, the recent study of the Special Consultative Committee on Security should be given wide publicity and the US should press for implementation of its recommendations.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1392.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NOTIFICATION OF ESTABLISHMENT OR CANCELLATION<br>OF OFFICIAL COVER BACKSTOP</td><td>DATE:</td><td>26 Dec 73</td><td>PFILE NO.</td><td>4908</td></tr><tr><td>X CHIEF, CONTROL DIVISION, OP</td><td colspan="4">NO</td></tr><tr><td rowspan="2">TO:<br>(Check)</td><td colspan="2"></td><td>EMPLOYEE NUMBER:</td><td>258-12-0844</td></tr><tr><td colspan="2">CHIEF, CONTRACT PERSONNEL DIVISION, OP</td><td colspan="2">060947</td></tr><tr><td colspan="2">X CHIEF, OPERATING COMPONENT (For action)</td><td colspan="3">ID CARD NUMBER:</td></tr><tr><td colspan="2">NOCAD</td><td colspan="3"></td></tr><tr><td>ATTN:</td><td colspan="4"></td></tr><tr><td>REF:</td><td colspan="4"></td></tr><tr><td>SUBJECT</td><td colspan="4"></td></tr><tr><td>Administrative Officer</td><td>OFFICIAL<br>COVER</td><td colspan="2">ESTABLISHED</td></tr><tr><td>Retirement Debriefing</td><td>UNIT</td><td colspan="2">DISCONTINUED</td></tr><tr><td>WHEELER, Robert P.</td><td></td><td colspan="2"></td></tr></table>
 

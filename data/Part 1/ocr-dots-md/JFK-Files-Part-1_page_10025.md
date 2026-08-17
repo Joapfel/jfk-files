@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10025.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>ING: CHATTISFORD, HUGHESON</td><td>PASSENGER F.</td><td>LADING AND UNLOAD. BY BY<br/>LINES<br/>2</td></tr><tr><td>DATE: 7/8/85</td><td>FROM: 22 WCH</td><td>TO: WHG. 9</td></tr><tr><td>TIME: 5 AUGUST 85P</td><td>NAME SECRETARY TO BE NOTIFIED</td><td>☑ NON <u>VIA</u> ☐ NON <u>VIA</u> ☑ LABORATORY CONFIDENTIAL</td></tr><tr><td>C/NR:</td><td>☑ NON</td><td>☑ FILE IN CO FILE N.E.</td></tr><tr><td>c/WHG</td><td>☐ ID COPY</td><td>☑ NAME DDG 6/61</td></tr></table>
 

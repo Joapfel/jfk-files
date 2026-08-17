@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7345.png
-
-Convert to MarkdownLegal Counsel to J. B. Adams Memorandum
+Legal Counsel to J. B. Adams Memorandum
 Re: Status of Responses to Congressional
 Committee Requests
 

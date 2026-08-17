@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2050.png
-
-Convert to MarkdownHeadquarters
+Headquarters
 
 12 August 1975
 

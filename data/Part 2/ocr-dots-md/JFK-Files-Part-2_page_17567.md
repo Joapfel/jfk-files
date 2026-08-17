@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17567.png
-
-Convert to MarkdownMr. White
+Mr. White
 
 February 27, 1975
 

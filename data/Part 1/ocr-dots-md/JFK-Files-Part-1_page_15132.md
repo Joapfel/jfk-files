@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15132.png
-
-Convert to MarkdownTages teilte sie mir mit, dass sie ein Kind erwarte und dass sie unsere Heirat legalisieren möchte. Da ich mich aber nicht als der Vater des Kindes betrachtete und da ich Erpressung von Ninas Seite fürchtete entschloss ich mich meine Flucht, die ich ohnehin schon geplant hatte, zu beschleunigen.
+Tages teilte sie mir mit, dass sie ein Kind erwarte und dass sie unsere Heirat legalisieren möchte. Da ich mich aber nicht als der Vater des Kindes betrachtete und da ich Erpressung von Ninas Seite fürchtete entschloss ich mich meine Flucht, die ich ohnehin schon geplant hatte, zu beschleunigen.
 
 20. **REISEN:** Keine anderen als schon erwähnt.
 

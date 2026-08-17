@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28077.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 NARRATIVE COMMENTS - continued
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23774.png
-
-Convert to MarkdownSECRET/KARAK
+SECRET/KARAK
 
 GITA 2553
 

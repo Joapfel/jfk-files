@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7272.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th colspan="2">CABLE SEC DISSEMINATED BY</th><td>6 PER LH 8E,0,</td></tr><tr><th>TOTAL COPIES</th><th>FUN BY</th></tr></thead><tbody><tr><td>SECRET</td><td></td></tr></tbody></table>
 

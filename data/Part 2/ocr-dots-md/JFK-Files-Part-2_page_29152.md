@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29152.png
-
-Convert to MarkdownSCHEDULE
+SCHEDULE
 FORM 540
 
 CALIFORNIA

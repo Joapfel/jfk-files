@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22637.png
-
-Convert to Markdown14-00000
+14-00000
 
 ORIG: J. HEIN
 UNIT: WH/3/MEXICO

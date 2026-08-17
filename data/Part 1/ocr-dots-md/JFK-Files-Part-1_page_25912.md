@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25912.png
-
-Convert to Markdown# RANKING OTRO NIVEL
+# RANKING OTRO NIVEL
 
 ## INDUCTIVO OTOPO PERSONAL (BASE TRAX)
 

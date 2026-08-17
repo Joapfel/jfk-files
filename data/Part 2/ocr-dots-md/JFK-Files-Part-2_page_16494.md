@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16494.png
-
-Convert to MarkdownTHE PIG INSTITUTE
+THE PIG INSTITUTE
 
 TITLE: Major City Police Departments Command Officer Conferences
 

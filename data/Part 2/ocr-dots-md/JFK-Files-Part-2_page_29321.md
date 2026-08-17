@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29321.png
-
-Convert to MarkdownSeptember 28, 1963
+September 28, 1963
 
 Saturday
 

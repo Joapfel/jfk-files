@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27656.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT : Appointment of Mr. Thomas J. Keenan as Chief of Station, Kingston, Jamaica
 

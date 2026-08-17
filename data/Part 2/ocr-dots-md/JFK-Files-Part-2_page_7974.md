@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7974.png
-
-Convert to MarkdownANNOUNCEMENT
+ANNOUNCEMENT
 
 Senator John Stennis, Chairman of the Armed
 Services Committee, will begin hearings early in the

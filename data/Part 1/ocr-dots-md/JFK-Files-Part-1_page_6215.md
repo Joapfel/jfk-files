@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6215.png
-
-Convert to Markdown# PRINCIPIOS ESENCIALES DEL GREMIALISMO ESTUDIANTIL
+# PRINCIPIOS ESENCIALES DEL GREMIALISMO ESTUDIANTIL
 
 Un Centro de Estudiantes, para considerarse ORGANISMO GREMIAL, debe distinguirse por su:
 

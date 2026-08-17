@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31513.png
-
-Convert to Markdown# EXHIBIT COVER SHEET
+# EXHIBIT COVER SHEET
 
 Exhibit Number: XI
 

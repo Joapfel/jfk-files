@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18407.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 Part K. Performance ratings (form FD-185) of several named current or former FBI employees. Regarding this request, pursuant to agreement between Mr. Elliff, supra, and Mr. Cregar, supra, the personnel file of former SA George Berley, containing forms FD-185 regarding Mr. Berley, will be available in the possession of a representative of the FBI for discussion and responses to specific questions Mr. Elliff may desire to ask regarding the performance ratings contained therein.
 

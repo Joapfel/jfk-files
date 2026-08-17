@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11912.png
-
-Convert to Markdown# New Left Reporting Unit
+# New Left Reporting Unit
 
 This Unit, which coordinates covering of all New Left, student, and antiwar demonstrations throughout the country, has handled the reporting of the following major disruptions or demonstrations since the last inspection.
 

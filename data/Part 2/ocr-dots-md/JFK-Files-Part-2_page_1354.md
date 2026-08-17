@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1354.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="2">V to V</th><th>V to UV</th><th rowspan="3" style="writing-mode: vertical-rl; text-align:center;">REQUEST FOR PERSONNEL ACTION<br>3. Date Of Birth<br>Mo DA Yr<br>10 04 15<br>None-0 Code<br>5 Pr-1 10 Pr-2 1 M</th></tr><tr><th colspan="2">UV to V</th><td>UV to UV</td></tr><tr><th>1. Serial No.</th><th>2. Name (Last, First, Middle)</th><th>Wheeler, Robert P.</th><th>6. CS - EOD<br>Mo DA Yr</th></tr><tr><th>7. SCD</th><th>8. CSC Retired</th><th>9. CSC Or Other Legal Authority</th><th>10. Apmt. Affidav.<br>Mo DA Yr<br>Yes-1 Code<br>No-2 Yr<br>Yes-1 No-2 Code</th><th>11. FEGLI</th><th>12. LCD</th><th>13. Gt'l. Cty. Loca.<br>Mo Da Yr<br>Yes-1 No-2 Code</th></tr></thead><tbody><tr><td>Mo</td><td>Do</td><td>Yr</td><td></td><td></td><td></td><td></td></tr></tbody></table>

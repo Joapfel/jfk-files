@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24647.png
-
-Convert to MarkdownThis series of cables sent during, and after Gottlieb's visit to the Congo demonstrated a clear intent at CIA headquarters to authorize and support rapid progress on the assassination mission. The cables also show an intent to severely restrict knowledge of the assassination operation among officers in CIA's Africa Division and among United States personnel in the Congo, including those who were aware of and involved in other covert activities.
+This series of cables sent during, and after Gottlieb's visit to the Congo demonstrated a clear intent at CIA headquarters to authorize and support rapid progress on the assassination mission. The cables also show an intent to severely restrict knowledge of the assassination operation among officers in CIA's Africa Division and among United States personnel in the Congo, including those who were aware of and involved in other covert activities.
 
 (e) The Chief of Station Moves Forward With Assassination Plot
 

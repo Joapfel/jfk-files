@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21893.png
-
-Convert to MarkdownJune 1962
+June 1962
 
 "I was born in
 Nikolayev, my father

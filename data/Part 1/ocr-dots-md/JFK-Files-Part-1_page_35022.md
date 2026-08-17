@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35022.png
-
-Convert to MarkdownDELAYS, TACKS
+DELAYS, TACKS
 
 ANEX "I-N"
 Page No. 5

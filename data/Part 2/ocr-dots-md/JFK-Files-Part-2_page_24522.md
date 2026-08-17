@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24522.png
-
-Convert to Markdown4. The January 19, 1962 Meeting at Which the Attorney General Was Quoted As Saying Cuba Should Have the "Top Priority" in the United States Government.
+4. The January 19, 1962 Meeting at Which the Attorney General Was Quoted As Saying Cuba Should Have the "Top Priority" in the United States Government.
 
 On January 19, 1962, a meeting attended by Lansdale, probably Helms, Helms' Executive Assistant George McManus, and other representatives of the agencies involved in Mongoose, took place in Attorney General Kennedy's office.* (McManus, p. 6).
 

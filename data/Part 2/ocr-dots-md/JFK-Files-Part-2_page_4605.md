@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4605.png
-
-Convert to Markdown# 2. Problems and Solutions:
+# 2. Problems and Solutions:
 
 a. AMOT-KUBARK Relationship. The Agency must recognize the possibility of strained feelings because of the failure of the invasion. It is believed that the Agency representative in Miami will be able, because of his excellent personal relationship with the Chief of the AMOT service, to maintain a satisfactory working relationship.
 

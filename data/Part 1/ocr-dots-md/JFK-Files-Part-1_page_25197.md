@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25197.png
-
-Convert to MarkdownSource: AEWIGWAG/2
+Source: AEWIGWAG/2
 Date Acquired: 13 August 1966
 
 Tatyana PHILIPOV or PHILIPOVA

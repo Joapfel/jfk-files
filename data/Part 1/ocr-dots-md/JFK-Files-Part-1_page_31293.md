@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31293.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Mr. Wiggon ranked in the top bracket of a strong class. He contributed effectively in seminar discussions. He appeared to be alert, and to have a good grasp of CE fundamentals.
 

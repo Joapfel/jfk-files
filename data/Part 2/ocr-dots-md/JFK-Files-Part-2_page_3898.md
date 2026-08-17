@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3898.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CNTL NO 1019 REQUESTOR STEVENS OFFICE SRS
 

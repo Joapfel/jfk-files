@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3463.png
-
-Convert to Markdownstreamline our procedures.***
+streamline our procedures.***
 
 By 1976 the office of the Executive Officer of the Staff included a Privacy Act Section with four positions in addition to a three-person Records and Registry Section. (FOIA and Privacy Act requests were handled together.) But this by no means solved the problem. In the fall of 1977, as DO ceiling and personnel reductions were being meted out and the staff was trying to gear itself to getting along with less, the DDO was advised that the staff's Privacy Act Section was so strained and its personnel under so much pressure that henceforth it would not accept deadlines imposed by elements outside the staff. When requirements were received, the section would advise the requester how much time would be required to complete the work.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29416.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">MESSAGE COPY</td>
     <td>RE-OFFICE AND OF INITIALS - SEEN BY</td>

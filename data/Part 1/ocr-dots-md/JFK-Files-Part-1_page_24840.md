@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24840.png
-
-Convert to Markdown# Costs. (1 October 1966 - 30 June 1967)
+# Costs. (1 October 1966 - 30 June 1967)
 
 | | |
 |:---|---:|

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7628.png
-
-Convert to Markdown# TRAINING DIVISION
+# TRAINING DIVISION
 
 To assume operations and maintenance of the FBI Library; preparation and dissemination of pamphlets, reprints and related material of special interest in law enforcement and the crime problem; coordination and compilation of material for presenting FBI operations and jurisdiction to law enforcement and the public through movies, television and other news media; and specialized research and preparation of material in connection with memoranda requested by the Director and other Bureau officials, research for speeches and policy statements of the Director and analysis of articles and statements made concerning the FBI. These functions were formerly handled by the Library Unit, Publications Unit, Special Productions Unit and Research Unit.
 

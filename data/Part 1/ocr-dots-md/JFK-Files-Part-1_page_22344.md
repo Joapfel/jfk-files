@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22344.png
-
-Convert to Markdown4. Operational Circumstances
+4. Operational Circumstances
 ---
 
 a. Presence in Geneva (1962)

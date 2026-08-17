@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5109.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="3">ADVANCE COPY</th></tr><tr><td>ISSUED SLOTTED</td><td>BY</td><td>AT:</td></tr></thead><tbody><tr><td>ACTION UNIT<br/>I<br/>N<br/>F<br/>O</td><td>RF FILE VR</td><td>STAFF<br/><table><tr><td>-</td><td>1</td><td>4</td></tr><tr><td></td><td>2</td><td>3</td></tr><tr><td></td><td>3</td><td>6</td></tr></table></td></tr></tbody></table>
 

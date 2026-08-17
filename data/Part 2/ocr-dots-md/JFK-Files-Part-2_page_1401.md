@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1401.png
-
-Convert to MarkdownRCS: 30 JULY 73
+RCS: 30 JULY 73
 
 SECRET
 (When Filled In)

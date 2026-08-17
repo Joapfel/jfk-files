@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3662.png
-
-Convert to MarkdownOFFICIAL USE ONLY
+OFFICIAL USE ONLY
 
 13-00000
 

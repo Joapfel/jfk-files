@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10386.png
-
-Convert to Markdown5. Information on the background of the Cuban is fairly extensive, but it is inconclusive. He is known to have been a member of anti-Castro organizations in this country. There are also reports that his mother was imprisoned in Cuba at one time. There are other episodes in his life that suggest intelligence involvement on his part with some hostile service, but this is not yet definitely established.
+5. Information on the background of the Cuban is fairly extensive, but it is inconclusive. He is known to have been a member of anti-Castro organizations in this country. There are also reports that his mother was imprisoned in Cuba at one time. There are other episodes in his life that suggest intelligence involvement on his part with some hostile service, but this is not yet definitely established.
 
 6. The Office of Security has had at times a second informant in this case. His reporting has tended to confirm reporting by the principal informant.
 

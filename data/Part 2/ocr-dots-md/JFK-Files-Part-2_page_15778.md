@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15778.png
-
-Convert to MarkdownDAVID HILLIARD
+DAVID HILLIARD
 
 Copies of this memorandum are being furnished to the following agencies:
 

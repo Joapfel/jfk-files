@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4486.png
-
-Convert to Markdownb. UFGA 3926 dated 1 May 1962: 19-124-25
+b. UFGA 3926 dated 1 May 1962: 19-124-25
 
 Dispatch from JMWAVE to Headquarters, which forwarded
 (not attached) a paper prepared within the Station on-the subject

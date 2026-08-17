@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6593.png
-
-Convert to MarkdownFD-376 (Rev. 4-25-68)
+FD-376 (Rev. 4-25-68)
 
 UNITED STATES DEPARTMENT OF JUSTICE
 

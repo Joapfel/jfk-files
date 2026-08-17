@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4807.png
-
-Convert to MarkdownFBI CABLES
+FBI CABLES
 
 FROM DIRECTOR, FBI
 DATE: 4 APRIL 1976

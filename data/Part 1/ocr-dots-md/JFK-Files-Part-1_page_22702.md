@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22702.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tbody><tr><td>ORIG : J. H. SIC</td></tr><tr><td>UNIT : MID</td></tr><tr><td>EXT : 2555</td></tr><tr><td>DATE : 2 JUN 1969</td></tr></tbody></table>
 

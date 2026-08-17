@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10363.png
-
-Convert to MarkdownTHE STATE LAW DEPARTMENT
+THE STATE LAW DEPARTMENT
 
 1208 Munsey Building
 Baltimore 2, Maryland

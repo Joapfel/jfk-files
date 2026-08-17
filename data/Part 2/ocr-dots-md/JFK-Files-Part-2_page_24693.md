@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24693.png
-
-Convert to Markdowntion of WIROGUE (O'Donnell, 9/11/75, pp. 39-42). O'Donnell men-
+tion of WIROGUE (O'Donnell, 9/11/75, pp. 39-42). O'Donnell men-
 
 tioned that agent QJWIN was considered for use on a "strong arm
 squad," but said that this was for purposes more general than

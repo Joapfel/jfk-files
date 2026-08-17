@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1681.png
-
-Convert to MarkdownLJF 110977
+LJF 110977
 
 SECRET
 (When Filled In)

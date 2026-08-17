@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32561.png
-
-Convert to MarkdownSECRET
+SECRET
 
 own sources indicated intention of travelling to Cuba. Pertinent information from CIA unilateral operations is being passed regularly to cooperating Uruguayan officials. Station has a further check in that the Mexican Ambassador to Uruguay is now checking all applicants for Mexican visas with the station. On the basis of information furnished to him, he held up visa applications of Uruguayan Communist Labor delegates who planned to attend May Day celebrations in Havana. Creation of this bottleneck may force some travellers to abandon the Mexican route to Cuba and turn to the longer and far more expensive route via Prague. Information on past travel to Cuba by Uruguayans, furnished by the station, was included in a study of Cuban subversion prepared by Uruguayan Military Intelligence Service for the National Council of Government.
 

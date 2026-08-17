@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5246.png
-
-Convert to MarkdownSECRET
+SECRET
 
 c) **(S) Potential damage to a growing intelligence collection method.** Firms which assist CIA by permitting the use of their documentation in support of non-official cover do so voluntarily and without remuneration. In addition, CIA generally requests that the companies sign secrecy agreements. Therefore, the unilateral release by CIA of information about this association would complicate future negotiations by creating the perception that we are an unreliable partner.
 

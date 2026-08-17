@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6000.png
-
-Convert to MarkdownAttachment 'A
+Attachment 'A
 
 Havana, 28 Nov 62
 

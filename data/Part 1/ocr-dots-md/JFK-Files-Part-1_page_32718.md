@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32718.png
-
-Convert to Markdown<table>
+<table>
   <caption>ICAT '1 FOR FEDERAL EMPLOYER</caption>
   <tbody>
     <tr>

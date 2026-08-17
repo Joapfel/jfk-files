@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10761.png
-
-Convert to MarkdownPH 52-7165 SUB S
+PH 52-7165 SUB S
 
 the charge against her but would not waive her rights and talk to the interviewing Agents. She stated she would not discuss either the charge or reason for her being in the east alcove, with three other individuals across from the Post Office at 4:00 a.m., on the 22nd of August 1971.
 

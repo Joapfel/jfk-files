@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_375.png
-
-Convert to Markdown6-16-78
+6-16-78
 
 FROM LOBERT GENZMAN, HSCA
 (Delivered by Betsy Wolf)

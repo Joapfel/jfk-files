@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27083.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SOD 5-6/6
 21 MAY 1965

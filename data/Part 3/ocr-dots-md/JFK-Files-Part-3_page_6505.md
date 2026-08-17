@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6505.png
-
-Convert to MarkdownMarch 2, 1965
+March 2, 1965
 
 Memorandum for Messrs. Tolson, Belmont, Gale, Rosen, Sullivan, DeLoach
 

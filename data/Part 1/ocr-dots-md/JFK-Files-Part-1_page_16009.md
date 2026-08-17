@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16009.png
-
-Convert to Markdown14-0000
+14-0000
 
 Dept of the Army
 Memo for: Deputy Best Secty of Defense

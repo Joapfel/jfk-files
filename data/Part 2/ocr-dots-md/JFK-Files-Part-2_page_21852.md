@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21852.png
-
-Convert to MarkdownHedgman: There was no doubt in my mind that this was one of the way[s], and probably what they thought was the only way that would work (Hedgman, 8/21/75, p. 25).
+Hedgman: There was no doubt in my mind that this was one of the way[s], and probably what they thought was the only way that would work (Hedgman, 8/21/75, p. 25).
 
 Hedgman explained (Gottlieb) provided him with poisons as a means of assassination:
 

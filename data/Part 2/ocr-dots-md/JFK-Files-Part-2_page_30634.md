@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30634.png
-
-Convert to Markdown# Volume I / Production
+# Volume I / Production
 
 π See summary of Dispatch traffic for HMMA-2245-2. In addition to paragraph about Arehart it says; under heading "exploitation of LIENVOY information": "MEXI 645-3 reported a contact by an English-speaking man with the Soviet Embassy in Mexico City. This was forwarded to Headquarters for further dissemination."
 

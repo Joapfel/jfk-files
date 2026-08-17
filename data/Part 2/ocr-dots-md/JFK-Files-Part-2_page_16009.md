@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16009.png
-
-Convert to Markdown10/20/69
+10/20/69
 
 TO: DIRECTOR, FBI
 FROM: SAC, CHICAGO

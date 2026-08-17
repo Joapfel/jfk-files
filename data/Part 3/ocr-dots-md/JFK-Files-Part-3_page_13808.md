@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13808.png
-
-Convert to Markdownin the anti-Castro organization there who ostensibly escaped from Cuba, maintaining contacts with all of the Latin American groups.
+in the anti-Castro organization there who ostensibly escaped from Cuba, maintaining contacts with all of the Latin American groups.
 
 4. Plata said an important shipment for MOEC is due to arrive from Venezuela via Cuicuta in February 1963. It is to be used in the MOEC plans to increase their activities in the Department of Santander. Plata mentioned Santander several times in the discussion as an area where the MOEC will play a more important role in violence in the future. He said there are several MOEC training areas in Colombia and Venezuela. Plata said he ostensibly is a salesman of refrigeration equipment for Comerciales Unidas Ltda., Carrera 5a No. 15-75, Cali.³ He said most of the MOEC representatives in Colombia pose as traveling salesmen. He asserted MOEC is looking for new people who are not known to the Colombian authorities to help them transport arms and equipment around the country.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21992.png
-
-Convert to Markdownnot know any details concerning the operational activity
+not know any details concerning the operational activity
 which led to the discovery of McGUIRE's letter mailing.*
 
 "I know of no case in which an American tourist was

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14859.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>387 DCL/KV/VN/S</td><td>S-E-C-R-E-T</td></tr><tr><td>19 FEB 59</td><td></td></tr><tr><td>TO</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>FRANKFURT</td></tr><tr><td>ACTION:</td><td>SR 6</td></tr><tr><td>INFO</td><td>CI, CI/OA, FI, FI/OPS, EE 4, WE 4, OS 2, S/C 2</td></tr><tr><td>CITE</td><td>FROB 3501</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>387 DCL/KV/VN/S</td><td>S-E-C-R-E-T</td></tr><tr><td>19 FEB 59</td><td></td></tr><tr><td>TO</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>FRANKFURT</td></tr><tr><td>ACTION:</td><td>SR 6</td></tr><tr><td>INFO</td><td>CI, CI/OA, FI, FI/OPS, EE 4, WE 4, OS 2, S/C 2</td></tr><tr><td>CITE</td><td>FROB 3501</td></tr></tbody></table>
 
 RE: DIR 13127 (OUT 73385)*
 

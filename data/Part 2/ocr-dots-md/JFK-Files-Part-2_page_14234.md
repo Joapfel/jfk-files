@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14234.png
-
-Convert to MarkdownLegal Counsel to Mr. Adams
+Legal Counsel to Mr. Adams
 
 RE: H. R. 214
 

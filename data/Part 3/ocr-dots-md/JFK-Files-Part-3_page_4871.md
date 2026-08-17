@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4871.png
-
-Convert to Markdown# ADMINISTRATIVE
+# ADMINISTRATIVE
 
 Departmental Attorney WALLACE H. JOHNSON, JR. advised on May 26, 1967, that Agents of the Federal Narcotics Bureau in Miami, Florida, will conduct an investigation in Miami relative to the possibility of ROTHMAN being engaged in narcotics. The Alcohol and Tobacco Tax Unit will conduct an investigation of the Albion Lounge. Mr. JOHNSON stated that he has instructed both agencies to keep the FBI informed as to the progress of the investigations. He stated further that should a narcotics violation against ROTHMAN be proved, he would endeavor to use ROTHMAN to give him MAX EDER or PASQUALE ERRS.
 

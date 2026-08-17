@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33167.png
-
-Convert to MarkdownORIG: J. SEARS:mam
+ORIG: J. SEARS:mam
 UNIT: WII/COG/OPS
 DAT: 1255
 DATE: 7 APR 69

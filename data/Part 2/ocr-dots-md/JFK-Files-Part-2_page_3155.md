@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3155.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 By the first week in November 1960, it had become clear to the most senior planners of the anti-Castro effort -- Jake Esterline, J. C. King, Tracy Barnes, and Richard Bissell -- that decisions were going to have to be made about all aspects of the paramilitary program. The basic question being whether a paramilitary program under CIA aegis should be launched at Castro, or whether, at this time, such a program should become a joint operation between the Department of Defense and the Agency. In the discussion among Agency personnel, in the discussions between Agency personnel and representatives of the Special Group, and in discussions within the meetings of the Special Group, the whole gammut of options was being explored. Barnes, apparently deferring to Bissell, suggested that rather than small team activities something on the order of 10-20 man teams be formed and tried out. Barnes was very emphatic that what was needed at this time, was a willingness to run some risks -- including the risk of defeat. Barnes was critical of the Special Group, pointing out that the apparent belief of the Group was that every operation had to succeed; and that if there were "losses,"

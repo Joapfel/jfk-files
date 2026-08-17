@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7649.png
-
-Convert to MarkdownMr. DULLES. Thank you.
+Mr. DULLES. Thank you.
 
 Mr. BELMONT. Coming back to this item you inquired about, sir, the other dissemination to Secret Service concerning the security of the President is set forth on pages 2 and 3 of this inclusion in our manual, and it extends the dis- semination to "subversives, ultrarightists, racists, and fascists, (a) possessing emotional instability or irrational behavior, (b) who have made threats of bodily harm against officials or employees of Federal, State or local government or officials of a foreign government, (c) who express or have expressed strong or violent anti-U.S. sentiments and who have been involved in bombing or bomb- making or whose past conduct indicates tendencies toward violence, and (d) whose prior acts or statements depict propensity for violence and hatred against organized government." That was prepared in an effort to provide additional, and a voluntary effort, without request, to provide additional information that might be helpful to avoid such an incident as happened November 22, 1963.
 

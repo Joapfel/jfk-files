@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13810.png
-
-Convert to Markdown1. Raúlce Rodriguez
+1. Raúlce Rodriguez
 2 Elieo González
 3 Manuel Vega
 

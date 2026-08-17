@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30246.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 PSC: 24 MAY 62

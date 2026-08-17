@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21312.png
-
-Convert to Markdown14-0000
+14-0000
 
 DISPATCH NO. OITA-33
 

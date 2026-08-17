@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25607.png
-
-Convert to Markdownoutfit and be an immediate and final breach of this agreement and will result in forfeiture by you of any and all benefits which may then have accrued to you by reason of this agreement.
+outfit and be an immediate and final breach of this agreement and will result in forfeiture by you of any and all benefits which may then have accrued to you by reason of this agreement.
 
 8. Instructions. Instructions received by you from the Government in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
 

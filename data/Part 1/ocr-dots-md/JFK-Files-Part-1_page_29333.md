@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29333.png
-
-Convert to MarkdownSECRET
+SECRET
 
 this was all right with him. Therefore, I am scheduling the following procedure:
 

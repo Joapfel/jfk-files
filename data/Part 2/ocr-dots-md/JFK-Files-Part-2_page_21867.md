@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21867.png
-
-Convert to MarkdownThe (Chief of) Station concluded this cable with the following cryptic recommendation, reminiscent of his testimony that he may have "suggested" shooting Lumumba to (Gottlieb) as an alternative to poisoning (Hedgman, 8/21/75, pp. 27-29):
+The (Chief of) Station concluded this cable with the following cryptic recommendation, reminiscent of his testimony that he may have "suggested" shooting Lumumba to (Gottlieb) as an alternative to poisoning (Hedgman, 8/21/75, pp. 27-29):
 
 IF CASE OFFICER SENT, RECOMMEND HQS POUCH SOONEST HIGH POWERED FOREIGN MAKE RIFLE WITH TELESCOPIC SCOPE AND SILENCER. HUNTING GOOD HERE WHEN LIGHTS RIGHT. HOWEVER AS HUNTING RIFLES NOW FORBIDDEN, WOULD KEEP RIFLE IN OFFICE PENDING OPENING OF HUNTING SEASON. (CIA Cable IN 28936, 10/17/60.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31288.png
-
-Convert to Markdownon American defectors, a more detailed description appearing here
+on American defectors, a more detailed description appearing here
 individuals was requested and provided in an expanded version of
 the regional list. This machine listing included the following infor-
 mation when available for each individual: name, date and place

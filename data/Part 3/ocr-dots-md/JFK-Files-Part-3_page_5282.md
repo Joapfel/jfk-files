@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5282.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PURCHASE OF CAMERAS
 

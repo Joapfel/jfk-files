@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11189.png
-
-Convert to Markdown... a first
+... a first
 
 recommendation is being made, and submitted with a
 current report. If not, the Bureau should be advised

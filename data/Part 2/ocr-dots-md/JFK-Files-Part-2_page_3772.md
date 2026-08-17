@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3772.png
-
-Convert to MarkdownCIA HISTORICAL REVIEW PROGRAM
+CIA HISTORICAL REVIEW PROGRAM
 RELEASE IN FULL 1998
 
 # New Orleans Probe Figure In D.C. Area

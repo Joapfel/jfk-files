@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8170.png
-
-Convert to Markdown13-00000
+13-00000
 
 CONFIDENTIAL FOR Y B A T OEPA-1097
 

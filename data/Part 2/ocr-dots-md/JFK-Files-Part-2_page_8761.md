@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8761.png
-
-Convert to Markdownsame author, was in possession of Treasury Dept.,
+same author, was in possession of Treasury Dept.,
 Wash., D.C. by official who was in contact with CIA
 on the matter. JMWAVE forwarded the 29 Nov 62 letter,
 from Jose MENENDEZ to Bernardo MORALES in Miami, and

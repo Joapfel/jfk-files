@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26141.png
-
-Convert to Markdown14-00000
+14-00000
 
 HMO-5287 Subj is Chief of Information on Pueblo, anti-US and pro-Cuba newspaper,
 11 Nov 61

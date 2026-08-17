@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25399.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>ORIG:</td></tr><tr><td>UNIT:</td></tr><tr><td>DY:</td></tr><tr><td>DATE:</td></tr></table>
 

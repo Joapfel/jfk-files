@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2611.png
-
-Convert to Markdown14-0000.
+14-0000.
 
 Top Secret
 

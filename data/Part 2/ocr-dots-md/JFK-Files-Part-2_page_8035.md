@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8035.png
-
-Convert to Markdown# Assassination Tapes
+# Assassination Tapes
 
 CHARTED FROM PAGE 1/4
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15749.png
-
-Convert to Markdownadvised on December 8, 1969, an
+advised on December 8, 1969, an
 unknown female representing the BPP in Cleveland, Ohio,
 contacted JOAN GRAY of the Illinois Chapter of the BPP,
 suggesting that representatives of the Cleveland Chapter had

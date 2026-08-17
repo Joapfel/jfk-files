@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13878.png
-
-Convert to MarkdownAs to O-FBI public statement - no interest.
+As to O-FBI public statement - no interest.
 
 As to P (the overall FBI recommendation), he would like personal access.
 

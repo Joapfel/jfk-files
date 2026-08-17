@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9814.png
-
-Convert to Markdown12 March, 1968
+12 March, 1968
 
 1. Rodolfo Reyes Cártes informed Rowton 8/3/68 that while in Havana he discussed with his friend Sukendah Hanafi, ex-Indonesian Ambassador to Cuba, possibility of collaboration with his Greek leftist businessman friend both in international commercial deals and politically. According Reyes, Hanafi expressed immediate interest, accepting Reyes' word that he could place full trust in Rowton. Hanafi stated that he felt something could be worked out to their mutual advantage of both the Greek and the Indonesian revolution, since he had contact himself with the liberation army of Indonesian.
 

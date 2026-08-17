@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4046.png
-
-Convert to Markdown# C. Capital
+# C. Capital
 
 | | (INVENIRICA) | (EXPORTAC) | (TOTAL) |
 | :--- | ---: | ---: | ---: |

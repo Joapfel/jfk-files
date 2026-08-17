@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30991.png
-
-Convert to MarkdownDavid W. Ferrie File - DDO
+David W. Ferrie File - DDO
 201-835476
 
 File opened 25 Jun 68

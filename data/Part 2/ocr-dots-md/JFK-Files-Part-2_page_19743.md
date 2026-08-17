@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19743.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 For the information of Philadelphia, re San Francisco LHI related to a scheduled demonstration of captioned group 11/20/71 in the San Francisco area and noted that a JUDY KLEINBERG who has been in the San Francisco area since 10/30/71 and is formerly from Massachusetts was publicity coordinator for captioned group in San Francisco.
 

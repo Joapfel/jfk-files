@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20942.png
-
-Convert to MarkdownWFO 100-52290
+WFO 100-52290
 
 On 5/18/72, a source in the position to know, advised that the following individuals were connected with the Sojourner Truth Press:
 

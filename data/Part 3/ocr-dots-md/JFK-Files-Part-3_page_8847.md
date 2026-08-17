@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8847.png
-
-Convert to MarkdownSTANDARD FORM NO. 1159a
+STANDARD FORM NO. 1159a
 
 May 1, 1955, in General Regulations No. 123.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5028.png
-
-Convert to MarkdownAirtel to Birmingham
+Airtel to Birmingham
 
 RE: EUGENE THOMAS, ET AL;
 

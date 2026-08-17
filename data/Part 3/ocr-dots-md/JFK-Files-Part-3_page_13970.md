@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13970.png
-
-Convert to Markdown# Board Report of October 19, 1962
+# Board Report of October 19, 1962
 
 Rec. #43:
 

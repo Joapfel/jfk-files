@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33339.png
-
-Convert to MarkdownAllende in Retrospect
+Allende in Retrospect
 
 Specific aspects of the Chilean system also made the Allende experiment a particularly difficult one. He was able to come to power in the first place because of Chile's deeply-rooted commitment to the democratic system and because the Marxist parties were able to mobilize a part of the proletariat and the peasantry, and he had at his disposal many instruments for state control of the economy which had been developed by previous administrations since the 1930's. However, he was required to operate within an institutional system which included frequent and staggered elections, proportional representation, and a multiparty system which made majority rule very difficult and often gave veto powers to the extremes of Right and Left. The economy had been characterized for nearly a century by a chronic tendency to inflation, and successive governments had consistently ignored agriculture in the interest of securing urban electoral support. The most important systemic constraint of all, of course, was the existence of a professionalized and institutionally-loyal military which was unresponsive to the ideological blandishments of the Left.”
 

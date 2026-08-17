@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2730.png
-
-Convert to MarkdownSECRET
+SECRET
 
 20 DEC 1973
 

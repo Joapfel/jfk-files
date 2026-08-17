@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31297.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10. ENTHUSIAST AND INTEREST IN THE WORK
 Not observed ①

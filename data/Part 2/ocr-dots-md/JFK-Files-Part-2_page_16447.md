@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16447.png
-
-Convert to MarkdownB. External: to gather intelligence material in sectional area.
+B. External: to gather intelligence material in sectional area.
 
 C. Political: (Sub-Section Leader) Teaching and maintaining a high level of political ideology of party at section of each.
 

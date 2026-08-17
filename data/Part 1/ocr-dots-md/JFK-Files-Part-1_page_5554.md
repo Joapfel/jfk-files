@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5554.png
-
-Convert to Markdown# Political Prisoner in Hospital
+# Political Prisoner in Hospital
 
 Clemart Joseph Charles was taken from the National Penitentiary in Port-au-Prince to Haiti's General Hospital. The former Duvalier banker has been jailed since 1951 "for political reasons" No proper trial was held.
 

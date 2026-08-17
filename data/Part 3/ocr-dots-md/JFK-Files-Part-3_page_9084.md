@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9084.png
-
-Convert to MarkdownRE: INTERVIEW OF FORMER FBI EMPLOYEE BY SSC
+RE: INTERVIEW OF FORMER FBI EMPLOYEE BY SSC
 
 Mr. Armstrong could not recall whether Mr. Gray and Mr. Felt were to go through the safe together or whether Mr. Felt was to do it alone and advise Mr. Gray of his findings.
 

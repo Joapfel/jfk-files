@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16225.png
-
-Convert to MarkdownThis businessman stated that there is definite increased activity but that no specific date for any overt action has been mentioned.
+This businessman stated that there is definite increased activity but that no specific date for any overt action has been mentioned.
 
 This businessman believes that Mafia money is an important factor and that Blacks will be hired to do the actual fighting if there is any fighting. He views the casino issue as the crucial one. He believes Blacks who are opportunistic will seize upon the casino issue to obtain weapons and money from the Mafia and attempt to seize power.
 

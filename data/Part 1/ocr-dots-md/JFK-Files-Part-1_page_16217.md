@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16217.png
-
-Convert to Markdown# OLIVER ROSA CORP
+# OLIVER ROSA CORP
 65 52
 
 2089 EL RANCHO DR

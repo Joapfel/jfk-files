@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31747.png
-
-Convert to MarkdownCrusade Campaign, no action should be taken on Admiral Miller's proposals. However, it is recommended that a sum of $300,000 be made available for the remainder of the fiscal year 1953, to be drawn upon by the DNP, to finance such activities as may be necessary to transfer the direction of the 1953 Crusade Campaign to the American Heritage Foundation and to prepare the beginnings of that Campaign.
+Crusade Campaign, no action should be taken on Admiral Miller's proposals. However, it is recommended that a sum of $300,000 be made available for the remainder of the fiscal year 1953, to be drawn upon by the DNP, to finance such activities as may be necessary to transfer the direction of the 1953 Crusade Campaign to the American Heritage Foundation and to prepare the beginnings of that Campaign.
 
 2. Should the American Heritage Foundation decide against taking over the Crusade Campaign for 1953, the present Crusade organization will have to again be reorganized with policies and financing decided.
 

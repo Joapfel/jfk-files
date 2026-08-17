@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23958.png
-
-Convert to Markdown(Amilcar Cabrera)
+(Amilcar Cabrera)
 
 That was a name used, not a pseudonym, a false name. It doesn't represent anyone, it represents the FALN of Venezuela in Europe. They have a bureau in France. I didn't really know them. I knew there were several people. One of them, a graphic artist, whose drawings were printed in Revolution. They brought the things to him. They are authentic. Because when Verges had a young French boy traveling through Latin America he went to Venezuela. They got him into the guerrillas. They got him all around. We had some very authentic first-hand reports. So whoever they are they are authentic. They were very, very cautious, probably suspicious of me because I was an American, so I never had any real conversation with them.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7029.png
-
-Convert to Markdownboth the Agency and Board staff on issues which were marginal to the story and to processing decisions by the Board. For example:
+both the Agency and Board staff on issues which were marginal to the story and to processing decisions by the Board. For example:
 
 a. Under the JFK Act every piece of paper in the collection was considered a "unique" assassination record. The result is a staggering amount of chaff and duplication. For example, one cable was files and processed 58 times in the collection.
 

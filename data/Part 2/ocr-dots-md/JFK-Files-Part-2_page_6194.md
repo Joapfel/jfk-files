@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6194.png
-
-Convert to MarkdownSECRET
+SECRET
 
 John -
 

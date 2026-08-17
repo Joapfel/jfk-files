@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28682.png
-
-Convert to MarkdownCertificate of Relationship/Nonrelationship to
+Certificate of Relationship/Nonrelationship to
 Any Current Member of Congress
 
 Date March 13, 1978

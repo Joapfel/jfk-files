@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12932.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MESSAGE HANDLING INDICATOR
 DATE THIS GROUP

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34455.png
-
-Convert to MarkdownU.S. Lets Swiss
+U.S. Lets Swiss
 And Red Envoys
 Talk to Defector
 

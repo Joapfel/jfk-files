@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11949.png
-
-Convert to MarkdownIn view of the apparent upsurge in Chicom activity we furnished a detailed memorandum to Dr. Kissinger at the White House and to the Attorney General under date of 9/30/70. Our memorandum outlined the recent activities of Chicom in the intelligence field and pointed out increasing Chicom support for New Left and Black militant revolutionaries in this country.
+In view of the apparent upsurge in Chicom activity we furnished a detailed memorandum to Dr. Kissinger at the White House and to the Attorney General under date of 9/30/70. Our memorandum outlined the recent activities of Chicom in the intelligence field and pointed out increasing Chicom support for New Left and Black militant revolutionaries in this country.
 
 We furnished information to State, Central Intelligence Agency and Secret Service which led to strengthening of guard and security around CHIANG Ching-kuo, Deputy Prime Minister of Nationalist China and son of CHIANG Kai-shek, who was in the United States during April, 1970. As a result of this increased security, an attempt by two anti-Chinese nationalist individuals to assassinate CHIANG was thwarted.
 

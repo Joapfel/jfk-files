@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23665.png
-
-Convert to Markdownthis recommendation as well, not simply in the context of the President's own proposals and own measures that he has taken but in terms of the measures which we propose be taken in statute.
+this recommendation as well, not simply in the context of the President's own proposals and own measures that he has taken but in terms of the measures which we propose be taken in statute.
 
 which of course the oversight committee or whatever responsible legislative committee will have the power to dispose of these
 

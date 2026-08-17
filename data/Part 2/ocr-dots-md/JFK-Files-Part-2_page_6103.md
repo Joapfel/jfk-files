@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6103.png
-
-Convert to MarkdownPROFESSIONAL EXPERIENCE
+PROFESSIONAL EXPERIENCE
 
 Concurrent Non-Academic Positions
 

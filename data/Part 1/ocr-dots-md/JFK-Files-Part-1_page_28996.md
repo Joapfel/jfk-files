@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28996.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. This movement of personnel from one agency to another is by no means an unheard-of thing. As you are aware, as in the case of French service officers assigned to the TUTOR ORG, so are selected military personnel assigned to KUBARK. Very recently two senior ODIBEX officers on the KURROOK Senior Staff were released at ODIBEX request by KUBARK and subsequently transferred to ODTOWN, Thailand, with no further KUBARK connection.
 

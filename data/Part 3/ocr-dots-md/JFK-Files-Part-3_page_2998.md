@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2998.png
-
-Convert to Markdown1936
+1936
 
 I for one feel that we should investigate the Nazi Party.
 

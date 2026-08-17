@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23242.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG</td><td>R. REYNOLDS</td></tr><tr><td>UNIT</td><td>JH/III/CARIBBEAN</td></tr><tr><td>EXT</td><td>2056</td></tr><tr><td>DATE</td><td>5 MARCH 1958</td></tr></table>
 

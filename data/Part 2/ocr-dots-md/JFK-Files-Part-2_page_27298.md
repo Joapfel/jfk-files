@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27298.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A - Soviet Defector
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32637.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In addition to the regularly scheduled international service, Radio Havana has been known to broadcast special programs in order to take advantage of unique political situations. When serious disorders broke out in the Dominican Republic in late 1961, for example, broadcasts emanating from a self-styled "clandestine" station which said it was located inside the Dominican Republic demanded the overthrow of the Dominican government. The station went off after about a week, but not before direction finder bearings and other technical clues indicated that it had been transmitting from Radio Havana's transmitting facilities in Cuba.
 

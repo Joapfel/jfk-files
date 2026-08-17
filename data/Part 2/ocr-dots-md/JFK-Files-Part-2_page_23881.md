@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23881.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 be accomplished, and objectives, are established by the Agency,
 2 and the second is that the individual involved is tasked to

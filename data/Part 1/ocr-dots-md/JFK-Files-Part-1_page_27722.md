@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27722.png
-
-Convert to MarkdownL48 100 020
+L48 100 020
 
 APPROVALS
 

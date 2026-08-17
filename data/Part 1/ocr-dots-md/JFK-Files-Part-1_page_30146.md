@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30146.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 ## SEC. II. WORK EXPERIENCE (CONT'D)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9114.png
-
-Convert to MarkdownDE 157-3075,
+DE 157-3075,
 
 This matter is being pursued intensively by the Detroit Office and contact is maintained on a daily basis with the Intelligence Unit of the Michigan State Police and the Special Investigations Bureau of the Detroit Police Department, both having direct interest in local black nationalist activities and conduct surveillances in regard to key black nationalist figures in the Detroit area. Racial informants, who are familiar with the black nationalist activity in the Detroit area, are contacted often in regard to an organized BPP in the Detroit area. Contact with the above sources has revealed that no organized BPP has been established in the Detroit area wherein the BPP is holding regular scheduled meetings.
 

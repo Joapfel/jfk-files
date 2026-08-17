@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1033.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 In October, 1968, the St. Louis Office confidentially advised Mr. George Killenkey, Associate Editor of the "St. Louis Globe-Democrat," that the Students for a Democratic Society (SDS) in St. Louis announced an intention to make inroads into area high schools. Newspaper articles concerning SDS appeared in the "St. Louis Globe-Democrat."
 

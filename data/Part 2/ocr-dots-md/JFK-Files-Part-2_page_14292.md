@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14292.png
-
-Convert to Markdown5. Committee staff access to annual inspection reports and related surveys for the past ten years with respect to the following FBI field offices: New York City; Chicago; San Francisco; Los Angeles; San Diego; Sacramento; Springfield, Illinois; Buffalo; Atlanta; and Columbia, South Carolina.
+5. Committee staff access to annual inspection reports and related surveys for the past ten years with respect to the following FBI field offices: New York City; Chicago; San Francisco; Los Angeles; San Diego; Sacramento; Springfield, Illinois; Buffalo; Atlanta; and Columbia, South Carolina.
 
 6. The annual inspection reports and related surveys for the past ten years pertaining to the FBI Intelligence Division.
 

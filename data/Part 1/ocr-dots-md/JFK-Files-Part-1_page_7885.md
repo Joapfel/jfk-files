@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7885.png
-
-Convert to Markdown<table><thead><tr><th>STATE/INR</th><th>DIA</th><th>NMCC/MC</th><th>(SECDEF)</th><th>JCS</th><th>ARMY</th><th>NAVY</th><th>AIR</th><th>CIA/NMCC</th><th>NIC</th><th>NBA<br>USIA</th><th>ONE</th><th>OCR<br>ORR</th><th>SOO<br>DCS</th><th>AIO<br>CDS</th></tr></thead></table>
+<table><thead><tr><th>STATE/INR</th><th>DIA</th><th>NMCC/MC</th><th>(SECDEF)</th><th>JCS</th><th>ARMY</th><th>NAVY</th><th>AIR</th><th>CIA/NMCC</th><th>NIC</th><th>NBA<br>USIA</th><th>ONE</th><th>OCR<br>ORR</th><th>SOO<br>DCS</th><th>AIO<br>CDS</th></tr></thead></table>
 
 FBI
 

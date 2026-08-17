@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32895.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6 JUN 67 IN 82817
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26992.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OGC (John Greany)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24610.png
-
-Convert to MarkdownIndeed, it stated that "Agency officers made clear to each of the sources that the United States Government would not under any circumstances, condone the planned actions". (Id., p. 1.)
+Indeed, it stated that "Agency officers made clear to each of the sources that the United States Government would not under any circumstances, condone the planned actions". (Id., p. 1.)
 
 When the Special Group considered the information in Helms memorandum on June 18, 1964, McCone stated he was "somewhat skeptical" and proposed additional investigation, but "others, including Mr. Bundy, felt that the U. S. was being put on notice and should do everything in its power to ascertain promptly the veracity of the reports and then undertake prevention". (Memorandum of Special Group Meeting, June 18, 1964.) In a memorandum on the June 18 meeting, McCone indicated he had dissented from the Special Group's decision, stating his belief that the Special Group was "overly exercised" and that he was inclined to dismiss the matter as "Miami cocktail party talk". McCone noted, however, that the Special Group "was more concerned than I and therefore planning to discuss the subject with the Attorney General and possibly Mr. Hoover". (Memorandum June 18, 1964, p. 1.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23360.png
-
-Convert to Markdown## 1. HUMANOID
+## 1. HUMANOID
 
 ### A. Identifying data:
 

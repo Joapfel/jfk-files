@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15257.png
-
-Convert to Markdown7. Other Conditions.
+7. Other Conditions.
 
 The following additional conditions have been made to the
 Subject:

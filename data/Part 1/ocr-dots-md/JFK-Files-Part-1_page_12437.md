@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12437.png
-
-Convert to MarkdownDe las condiciones da vida del minero
+De las condiciones da vida del minero
 
 El Minero organizado en grupo de trabajo, tiene ingresos provenientes de:
 

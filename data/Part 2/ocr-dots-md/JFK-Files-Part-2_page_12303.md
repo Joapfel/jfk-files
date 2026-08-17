@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12303.png
-
-Convert to Markdown# Loyalty Oaths, Affidavits, and Statements
+# Loyalty Oaths, Affidavits, and Statements
 
 1. Each informant should be made to guide security informants away from situations requiring them to sign or fill out loyalty oaths or forms.
 

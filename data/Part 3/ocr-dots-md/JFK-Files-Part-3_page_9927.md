@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9927.png
-
-Convert to Markdown### III. ID, Army will be responsible for:
+### III. ID, Army will be responsible for:
 
 1. The investigation and disposal of all cases in these categories involving active and retired military personnel of the Army.
 

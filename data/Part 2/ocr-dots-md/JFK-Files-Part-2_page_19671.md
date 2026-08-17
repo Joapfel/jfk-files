@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19671.png
-
-Convert to MarkdownWFO 100-55290
+WFO 100-55290
 
 RITA MAE BROWN
 CHARLOTTE BUNCH

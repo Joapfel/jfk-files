@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20881.png
-
-Convert to MarkdownNR 002 AX PLAIN
+NR 002 AX PLAIN
 
 7:38PM NITEL 4-10-71 CSW
 

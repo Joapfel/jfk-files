@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32653.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LETTER OF TRANSMITTAL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20384.png
-
-Convert to MarkdownPD 100-10983
+PD 100-10983
 
 Sources utilized in this LHM, who have furnished reliable information in the past, are as follows:
 

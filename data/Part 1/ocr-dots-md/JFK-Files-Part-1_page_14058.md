@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14058.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>3. SCOGGIN:mot</td></tr><tr><td>COG/CICS</td></tr><tr><td>EST: 2578</td></tr><tr><td>DATE: 30 November 1966</td></tr></table>
 

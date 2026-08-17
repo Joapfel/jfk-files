@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_32340.png
-
 USARMA in Guatemala, increasing the capability for intelligence assistance in that country.
 
 OSA. ASG. CONTROL NO. 2505A

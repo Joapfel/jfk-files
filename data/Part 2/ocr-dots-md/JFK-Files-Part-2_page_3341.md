@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3341.png
-
-Convert to Markdown26 FEB 1963
+26 FEB 1963
 
 SECRET
 C.O. T - PERSOAL

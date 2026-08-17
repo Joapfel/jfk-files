@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24315.png
-
-Convert to MarkdownSECRET
+SECRET
 
 heavily involved in anti-CP ops (in which field I suppose this would fall),
 and those three have former CI/ICG men who know QRPHONE well:

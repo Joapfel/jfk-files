@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34827.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WH/C 66-324
 

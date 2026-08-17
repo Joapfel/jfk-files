@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25830.png
-
-Convert to Markdown1.- ¿Cómo como corte en el Pre sento.
+1.- ¿Cómo como corte en el Pre sento.
 
 Ramón ALVAREZ, PURANT
 

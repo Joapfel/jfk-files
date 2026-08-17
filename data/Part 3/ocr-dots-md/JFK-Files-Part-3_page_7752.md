@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7752.png
-
-Convert to Markdowndated July 2, 1971, the Attorney General still has the responsi-
+dated July 2, 1971, the Attorney General still has the responsi-
 bility of furnishing names of organizations to the heads of
 departments and agencies. However, instead of the organizations
 being designated by the Attorney General, the new Executive

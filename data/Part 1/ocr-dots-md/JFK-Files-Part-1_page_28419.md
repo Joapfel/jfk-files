@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28419.png
-
-Convert to MarkdownBLT: 23 DEC 1960
+BLT: 23 DEC 1960
 
 SECRET
 (When Filled In)

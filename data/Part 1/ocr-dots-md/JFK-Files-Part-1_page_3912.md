@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3912.png
-
-Convert to MarkdownAtt. No. 35 to UFGA-21693
+Att. No. 35 to UFGA-21693
 
 C.P. CO.
 

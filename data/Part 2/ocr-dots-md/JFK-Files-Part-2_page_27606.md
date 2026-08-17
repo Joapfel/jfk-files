@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27606.png
-
-Convert to MarkdownRESUME
+RESUME
 
 LILLIAN BARBARA JOHNSON
 7516 Forest Road

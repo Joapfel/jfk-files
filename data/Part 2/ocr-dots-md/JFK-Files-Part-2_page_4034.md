@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4034.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 August 23, 1963
 

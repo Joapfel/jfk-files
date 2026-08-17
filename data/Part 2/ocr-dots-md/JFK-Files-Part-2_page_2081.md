@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2081.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>PERIODIC SUPPLEMENT</td></tr><tr><td>PERSONAL HISTORY STATEMENT</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_892.png
-
-Convert to Markdown# NATIONAL SECURITY INFORMATION
+# NATIONAL SECURITY INFORMATION
 
 Subject to Criminal Sanctions
 

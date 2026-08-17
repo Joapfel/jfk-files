@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5575.png
-
-Convert to Markdown**• ROUTINE**
+**• ROUTINE**
 IN 075915
 075925
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7088.png
-
-Convert to Markdown<table><tr><td colspan="3">SECRET OFFICE, CHAIN OF ORDER</td></tr><tr><td>1. YES</td><td colspan="2"></td></tr><tr><td colspan="3">Sergei</td></tr><tr><td colspan="3">RED COPY</td></tr><tr><td colspan="3">AMOUNT</td></tr><tr><td>30.05.</td><td colspan="2">7532</td></tr></table>
+<table><tr><td colspan="3">SECRET OFFICE, CHAIN OF ORDER</td></tr><tr><td>1. YES</td><td colspan="2"></td></tr><tr><td colspan="3">Sergei</td></tr><tr><td colspan="3">RED COPY</td></tr><tr><td colspan="3">AMOUNT</td></tr><tr><td>30.05.</td><td colspan="2">7532</td></tr></table>
 
 SUPERVISOR
 

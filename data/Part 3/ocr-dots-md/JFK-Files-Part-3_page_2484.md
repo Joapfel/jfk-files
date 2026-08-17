@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2484.png
-
-Convert to MarkdownD. PHYSICAL LOCATION
+D. PHYSICAL LOCATION
 
 1. UNITED STATES POST OFFICE (USPO) Airmail facility, foreign unit, 5741 West 98th street, Los Angeles. (Los Angeles letter to director dated April 10, 1961, marked "June")
 

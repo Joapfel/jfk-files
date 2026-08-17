@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17606.png
-
-Convert to MarkdownMemorandum to Mr. Walsh
+Memorandum to Mr. Walsh
 
 Re: Senate Select Committee on
 Intelligence Activities

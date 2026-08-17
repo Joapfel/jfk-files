@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9554.png
-
-Convert to Markdown7. Mobilizing the channeling forces in the Arab world toward the Palestinian Revolution.
+7. Mobilizing the channeling forces in the Arab world toward the Palestinian Revolution.
 
 8. Rejecting the principle of conventional warfare due to the international imperialist circumstances which protect the Zionist forces in our occupied Palestine and due to the contradictions in the Arab countries which resulted in a passive atmosphere and led to continuous failure regarding the Palestinian question, thus enabling the enemy to grow and prepare for its next expansionist battle.
 

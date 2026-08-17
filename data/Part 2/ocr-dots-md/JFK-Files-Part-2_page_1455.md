@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1455.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (When filled in)
 
 # TRAINING REPORT

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25745.png
-
-Convert to Markdown<table><thead><tr><td>10</td></tr></thead><tbody><tr><td>Chief of Station, Mexico City</td></tr><tr><td>DPO.</td></tr><tr><td>Price</td></tr><tr><td>Chief, KURIOT</td></tr><tr><td>Address: AQUILA/Operational UV Lamp for Raymond H. GERENDE</td></tr><tr><td>ACTION REQUIRED • REFERENCES</td></tr><tr><td>REF: IDMA-16102, 9 December 1960</td></tr></tbody></table>
+<table><thead><tr><td>10</td></tr></thead><tbody><tr><td>Chief of Station, Mexico City</td></tr><tr><td>DPO.</td></tr><tr><td>Price</td></tr><tr><td>Chief, KURIOT</td></tr><tr><td>Address: AQUILA/Operational UV Lamp for Raymond H. GERENDE</td></tr><tr><td>ACTION REQUIRED • REFERENCES</td></tr><tr><td>REF: IDMA-16102, 9 December 1960</td></tr></tbody></table>
 
 1. As requested by reference, KURIOT is herewith forwarding the following:
 

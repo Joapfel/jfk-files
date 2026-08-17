@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29604.png
-
-Convert to MarkdownLYNCH, Grayston L. T for
+LYNCH, Grayston L. T for
 
 Emp
 

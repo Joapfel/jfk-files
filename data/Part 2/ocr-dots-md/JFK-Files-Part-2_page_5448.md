@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5448.png
-
-Convert to Markdown04/23/97
+04/23/97
 
 AKKB
 

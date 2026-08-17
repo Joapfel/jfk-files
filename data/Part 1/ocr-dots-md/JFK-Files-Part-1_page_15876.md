@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15876.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>SECRET</td><td>OFR-32334</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>SECRET</td><td>OFR-32334</td></tr></table>
 
 He was then paroled to his brother and was living near Marseille. He attempted to go into business using some of the inventions that he had conceived during his confinement in prison. His personality and intense drive and self-confidence quickly gained him a business partner with capital to invest in a cinematographic color reproduction system that was patented and earned decent profits for the two of them. Subject was still on parole and tied to his older brother's "self-righteous intelligence," however. It was shortly after this that Subject was approached by a member of KUBARK who was following up on Subject as an ops lead furnished by a cousin in PARIS. Subject was favorably assessed and removed black from Franco because of travel restrictions imposed by his parole status.
 

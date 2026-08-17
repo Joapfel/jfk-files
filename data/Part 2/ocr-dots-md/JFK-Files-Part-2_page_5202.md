@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5202.png
-
-Convert to MarkdownMAR 31 '97 12:03PM
+MAR 31 '97 12:03PM
 
 SKUNK WORKS
 A Personal Memoir of My Years at Lockheed

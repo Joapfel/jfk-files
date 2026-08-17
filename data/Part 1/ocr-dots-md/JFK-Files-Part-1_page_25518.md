@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25518.png
-
-Convert to Markdown# RELEASE AND SECRECY AGREEMENT
+# RELEASE AND SECRECY AGREEMENT
 
 I, Hester ROOS de ALVAREZ, do hereby forever release the United States Government from any and all claims and demands of whatever nature which I or any member of my family has against the United States Government.
 

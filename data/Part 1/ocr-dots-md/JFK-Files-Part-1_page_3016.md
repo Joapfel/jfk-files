@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3016.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 13 October 1978
 

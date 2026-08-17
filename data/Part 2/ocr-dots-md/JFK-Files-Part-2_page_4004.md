@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4004.png
-
-Convert to MarkdownIP 65-951
+IP 65-951
 
 Cuban or Russian sources gave him a pistol and microfilm, would he be permitted to return same to his contact so he could be of further use to U. S. Government. Claimed to be constantly under surveillance. Advised FBI in Los Angeles on 4/19/63 he had taken former wife to court on same date for failure to comply with court order giving subject visitation rights with children. Subject's condition diagnosed by VA, Los Angeles, on 6/4/63 as "depression, tearful, nervous, rigid. Would only utter words 'Got to see my kids.'"
 **Attempted Bank Robbery:** Subject arrested 9/20/63 in El Paso, Texas, on charge of attempting to rob State National Bank, El Paso, same date in violation Section 2113, Title 18, USC. Slashed wrist night of 9/20/63, felt he needed psychiatric treatment, highly emotional when interviewed, given to spells of crying, stated unable to get on feet since discharge from U. S. Army. Cell mate said subject apparently became member Communist Party during confused period after discharge, decided everything was against him in Los Angeles and made arrangements with Communist Party in Los Angeles to pick up visa and passport from contact in El Paso and eventually end up in Czechoslovakia. Subject reportedly attempted suicide three times enroute to El Paso but lost nerve.

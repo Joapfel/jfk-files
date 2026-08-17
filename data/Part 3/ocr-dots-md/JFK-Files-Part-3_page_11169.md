@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11169.png
-
-Convert to MarkdownRita D. Argenta (Hogan)
+Rita D. Argenta (Hogan)
 Room 2339 Rayburn House Office Building
 
 Cleared: TS, SI

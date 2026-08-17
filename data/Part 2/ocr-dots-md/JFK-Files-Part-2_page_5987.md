@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5987.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 AIN 0 256 167 1994
 

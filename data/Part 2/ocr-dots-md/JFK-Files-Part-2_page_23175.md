@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23175.png
-
-Convert to Markdown officer. Therefore Kale was assigned to that. He continued
+officer. Therefore Kale was assigned to that. He continued
 to receive his pay, quarters, and other allowance through the
 military establishment.
 

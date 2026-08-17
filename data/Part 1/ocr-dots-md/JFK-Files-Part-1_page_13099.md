@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13099.png
-
-Convert to MarkdownDeblycer = 19 April 67
+Deblycer = 19 April 67
 Report = 20 April 67
 
 V-

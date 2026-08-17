@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21686.png
-
-Convert to Markdownthe responsible SCD case officer, KOSOLAPOV, would be sent to Helsinki under the alias to strike up an acquaintance with the code clerk which the SCD hoped to continue in Moscow. GOLITSYN talked to KOSOLAPOV in Helsinki at that time, and the Residency procured for KOSOLAPOV a place in the compartment of the American on the train from Helsinki to Moscow.
+the responsible SCD case officer, KOSOLAPOV, would be sent to Helsinki under the alias to strike up an acquaintance with the code clerk which the SCD hoped to continue in Moscow. GOLITSYN talked to KOSOLAPOV in Helsinki at that time, and the Residency procured for KOSOLAPOV a place in the compartment of the American on the train from Helsinki to Moscow.
 
 The previous summary also stated GOLITSYN had advised that later in Helsinki he inquired of another SCD officer "from the Embassy Section" (First Section, SCD) about the case on which he had helped KOSOLAPOV. According to GOLITSYN, the officer refused to discuss the case and he, GOLITSYN, concluded from this reaction that it must have resulted in a successful recruitment.
 

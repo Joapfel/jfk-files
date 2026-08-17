@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11378.png
-
-Convert to Markdownlocate subjects are not to be submitted. The Bureau
+locate subjects are not to be submitted. The Bureau
 will closely follow investigative action to locate
 missing security index subjects.
 

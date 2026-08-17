@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27961.png
-
-Convert to Markdown# RESUME
+# RESUME
 
 Cecelia Morton
 

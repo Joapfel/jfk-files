@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25171.png
-
-Convert to Markdown<table><tr><td colspan="2">JOHNSON, Lyndon B.</td></tr><tr><td>HEIMS</td><td>MCNAMARA</td></tr><tr><td>CARTER</td><td>BUNDY</td></tr><tr><td rowspan="3">COLBY</td><td>RUSK</td></tr><tr><td>McNAMARA</td></tr><tr><td>HARKINS</td></tr></table>
+<table><tr><td colspan="2">JOHNSON, Lyndon B.</td></tr><tr><td>HEIMS</td><td>MCNAMARA</td></tr><tr><td>CARTER</td><td>BUNDY</td></tr><tr><td rowspan="3">COLBY</td><td>RUSK</td></tr><tr><td>McNAMARA</td></tr><tr><td>HARKINS</td></tr></table>
 
 <table><thead><tr><th>OCCURRENCE:</th></tr></thead><tbody><tr><td>August 30, 1963, there was a VICE PRESIDENTIAL meeting on Vietnam, with HELMS, CARTER, and COLBY participating. The record is provided by C/FE COLBY which shows that:</td></tr></tbody></table>
 

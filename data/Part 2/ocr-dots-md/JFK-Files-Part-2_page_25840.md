@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25840.png
-
-Convert to MarkdownRUBIAN
+RUBIAN
 
 USSR
 S. A., Washington

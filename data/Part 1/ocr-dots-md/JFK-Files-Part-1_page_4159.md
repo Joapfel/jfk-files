@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4159.png
-
-Convert to MarkdownSE
+SE
 
 AMBOLD Meeting in Panama City. 8 August 1964
 

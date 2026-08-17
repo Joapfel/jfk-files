@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34463.png
-
-Convert to MarkdownEMERGENCY INSTRUCTIONS
+EMERGENCY INSTRUCTIONS
 (Continued)
 
 3. At the first available opportunity, the EGA should call the SAC or ASAC, or if they cannot be reached, a senior DFO Agent, and furnish him with full particulars concerning the situation and the action being taken.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29614.png
-
-Convert to MarkdownUNITED STATES CIVIL SERVICE COMMISSION
+UNITED STATES CIVIL SERVICE COMMISSION
 
 Mr. Myronley A. Halkyanice
 4718 Asturay Place, N.W.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20628.png
-
-Convert to MarkdownSources utilized are identified as follows:
+Sources utilized are identified as follows:
 
 ## INFORMANTS
 

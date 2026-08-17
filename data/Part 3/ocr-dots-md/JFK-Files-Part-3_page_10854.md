@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10854.png
-
-Convert to Markdown(e) **Legislation:**
+(e) **Legislation:**
 
 CIA currently has the duty to correlate and evaluate intelligence relating to the national security and to provide for appropriate dissemination of such intelligence within the Government. This is set out in Title 50, USC, Section 403a. The overt collection of foreign intelligence is not the subject of legislation but rather of National Security Council Intelligence Directives which would have to be revised in order to give the Bureau this authority now lodged with CIA.
 

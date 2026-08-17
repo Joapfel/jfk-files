@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13118.png
-
-Convert to Markdown<table><thead><tr><td>OFFICIAL ROUTING SLIP</td></tr></thead><tbody><tr><td>C/NE Attn: Sd 10</td><td>Sd 1340</td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td>ACTION</td><td>DIRECT REPLY</td><td>PREPARE REPLY</td><td></td></tr><tr><td>APPROVAL</td><td>DISPATCH</td><td>RECOMMENDATION</td><td></td></tr><tr><td>COMMENT</td><td>FILE</td><td>RETURN</td><td></td></tr><tr><td>CONCURRENCE</td><td>INFORMATION</td><td>SIGNATURE</td><td></td></tr></tbody></table>
+<table><thead><tr><td>OFFICIAL ROUTING SLIP</td></tr></thead><tbody><tr><td>C/NE Attn: Sd 10</td><td>Sd 1340</td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td>ACTION</td><td>DIRECT REPLY</td><td>PREPARE REPLY</td><td></td></tr><tr><td>APPROVAL</td><td>DISPATCH</td><td>RECOMMENDATION</td><td></td></tr><tr><td>COMMENT</td><td>FILE</td><td>RETURN</td><td></td></tr><tr><td>CONCURRENCE</td><td>INFORMATION</td><td>SIGNATURE</td><td></td></tr></tbody></table>
 
 Remarks:
 

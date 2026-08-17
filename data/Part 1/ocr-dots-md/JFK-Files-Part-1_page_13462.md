@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13462.png
-
-Convert to MarkdownFebruary 7,1966
+February 7,1966
 
 PICO'S TRIP TO MEDELLIN
 

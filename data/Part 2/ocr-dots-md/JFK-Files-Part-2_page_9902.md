@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9902.png
-
-Convert to Markdown1
+1
 
 ALL INFORMATION CONTAINED
 HEREIN IS UNCLASSIFIED

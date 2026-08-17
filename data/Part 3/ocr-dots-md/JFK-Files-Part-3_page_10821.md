@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10821.png
-
-Convert to Markdownbased on a specific request from Mr. Murphy on 12/5/55 that we place technical surveillances on all Egyptian establishments in the United States. Since then, technical surveillances have been placed on numerous establishments of foreign countries for either extended or limited periods of time, depending upon developments on the international scene.
+based on a specific request from Mr. Murphy on 12/5/55 that we place technical surveillances on all Egyptian establishments in the United States. Since then, technical surveillances have been placed on numerous establishments of foreign countries for either extended or limited periods of time, depending upon developments on the international scene.
 
 (2) White House Request - In May, 1965, President Johnson advised the Director he wanted the FBI to set up a group in the Dominican Republic for the purpose of taking charge of cleaning out communists in the Dominican Government and advising the Government of those who might try to infiltrate Government ranks. This was the basis for opening our Santo Domingo Office, which has continued operation since 5/21/65.
 

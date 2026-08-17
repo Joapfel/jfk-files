@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17559.png
-
-Convert to MarkdownSECRET / KAPAK
+SECRET / KAPAK
 
 of reports from this source are:
 

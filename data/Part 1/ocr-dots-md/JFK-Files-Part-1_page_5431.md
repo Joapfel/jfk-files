@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5431.png
-
-Convert to MarkdownIN 00388
+IN 00388
 
 TDCSDB-315/02404-67
 

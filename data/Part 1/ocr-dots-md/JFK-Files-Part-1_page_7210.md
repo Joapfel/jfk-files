@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7210.png
-
-Convert to MarkdownValentin Sergeyevich LOGINOV
+Valentin Sergeyevich LOGINOV
 
 DOB: 23 December 1927
 Position: Third Secretary in the Consular Section of the

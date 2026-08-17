@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23687.png
-
-Convert to Markdownon that matter before we can talk about the matter of the
+on that matter before we can talk about the matter of the
 practice of recruiting because I don't think we can use the
 word practice until such time as we have —
 

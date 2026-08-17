@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24373.png
-
-Convert to MarkdownSeptember 1, 1975
+September 1, 1975
 
 SELECT COMMITTEE - ASSASSINATION REPORT
 

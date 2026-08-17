@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13587.png
-
-Convert to Markdown14-00900
+14-00900
 
 ha sido la misma y no ha cambiado en lo que pone el testigo ante los ojos, sin
 sino en lo que va a hacer la comparación, ya se acercan las comparaciones de

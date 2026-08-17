@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16710.png
-
-Convert to MarkdownDDP/WH/DF/C.Bustos:kte (10 August 1964)
+DDP/WH/DF/C.Bustos:kte (10 August 1964)
 
 Distribution:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29522.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG</td><td>F. F. CYRUS, N.L.</td></tr><tr><td>UNF</td><td>TH/ SUPPORT</td></tr><tr><td>EXI</td><td>3712</td></tr><tr><td>DATE</td><td>19 APRIL 1962</td></tr></table>
 

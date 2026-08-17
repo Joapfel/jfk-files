@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23496.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG : T.J. DESMOND
 UNIT : WH III

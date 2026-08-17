@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11739.png
-
-Convert to MarkdownSECTION CHIEF W. R. WANNALL
+SECTION CHIEF W. R. WANNALL
 NATIONALITIES INTELLIGENCE SECTION
 
 At the outset it should be noted that Western nations have been isolated from

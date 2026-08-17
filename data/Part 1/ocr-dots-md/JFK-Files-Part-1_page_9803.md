@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9803.png
-
-Convert to MarkdownSECRET
+SECRET
 
 152357Z APR 68 CITE GUATEMALA CITY 8882
 

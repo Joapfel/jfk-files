@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8510.png
-
-Convert to Markdown27 April 77
+27 April 77
 
 a) Received AF comment on Congo item 339 & incorporated into draft preprint
 

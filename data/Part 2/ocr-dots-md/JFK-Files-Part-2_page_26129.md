@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26129.png
-
-Convert to Markdownhaving quite a bit of an advisory role with
+having quite a bit of an advisory role with
 the military commanders out there, and influence
 with them as fighting another Korea in Vietnam
 more or less. There were some changes in tactics,

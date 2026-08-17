@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31367.png
-
-Convert to MarkdownA) Prepared and conducted several "Discussion Groups" for use in these classes. I provided, as outlined above, the text to suit them to the needs of our class.
+A) Prepared and conducted several "Discussion Groups" for use in these classes. I provided, as outlined above, the text to suit them to the needs of our class.
 
 B) Trained men to conduct "Discussion Groups" in each of 92 to 100 units; provided for use of the prepared material each week; and inspected both classes.
 

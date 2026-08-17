@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25994.png
-
-Convert to Markdowntwo Americans who were not only best known
+two Americans who were not only best known
 by the Indonesians but were respected, and
 there was an affection there, and I have told
 the ambassador at the time, afterwards, make

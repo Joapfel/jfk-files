@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15704.png
-
-Convert to MarkdownRED LIVES
+RED LIVES
 
 Dear Friend:
 

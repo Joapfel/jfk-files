@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20115.png
-
-Convert to MarkdownThe following was the Agenda for the conference
+The following was the Agenda for the conference
 as originally prepared by the June 27 Working Committee:
 
 Saturday, July 15

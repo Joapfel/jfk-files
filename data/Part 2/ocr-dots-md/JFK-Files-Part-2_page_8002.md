@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8002.png
-
-Convert to Markdown# Burying Facts and Rewriting History - II
+# Burying Facts and Rewriting History - II
 
 One of the efforts of this magazine is to pursue truth. One of the ways in which truth is pursued is not to let statements of the utmost importance be buried and forgotten in the pages of daily newspapers, nor unreported and lost because they are no longer well covered in national news magazines.
 

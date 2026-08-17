@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25760.png
-
-Convert to MarkdownMr. Raymond H. Gerende
+Mr. Raymond H. Gerende
 
 Dear Mr. Gerende:
 

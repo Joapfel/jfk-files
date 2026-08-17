@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33217.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td colspan="2">DIPATCH</td></tr></thead><tbody><tr><td>TO</td><td>Chief of Station, Quito</td></tr><tr><td>INFO.</td><td>Chief, W. Division</td></tr><tr><td>FROM</td><td>Chief of Station, Buenos Aires</td></tr><tr><td>SUBMIT</td><td>RECIPIENT/MANAGEMENT/Four Postcards</td></tr></tbody></table>
 

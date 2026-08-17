@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12127.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 INSPECTOR EDWARD S. MILLER: Your concurrence with this suggestion on a trial basis is considered forward-looking, particularly since you have used this type of handling with marked success in your Racial Intelligence Program.
 

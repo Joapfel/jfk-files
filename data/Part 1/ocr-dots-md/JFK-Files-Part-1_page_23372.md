@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23372.png
-
-Convert to MarkdownOFFICIAL CS FILE
+OFFICIAL CS FILE
 
 SECRET
 

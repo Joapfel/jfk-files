@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10916.png
-
-Convert to MarkdownIn evaluating the operations and location of CIA counterespionage the Task Force commented as follows:
+In evaluating the operations and location of CIA counterespionage the Task Force commented as follows:
 
 "The counterespionage activities of CIA abroad appear properly integrated with CIA's other clandestine operations. Although arguments have been made in favor of extending CIA's authority to include responsibility for counterespionage in this Country, such an extension of jurisdiction does not a present appear justified. For one thing, concentration of power over counterespionage activities at home in the hands of a Director of Central Intelligence responsible for espionage abroad might justifiably arouse public suspicion and opposition. Conceivably it could form the basis for a charge that a gestapo is in process of creating even though the power to arrest were specifically withheld. To transfer responsibility for domestic counterespionage from the FBI, which has an established organization and long tradition, to CIA, which is not equipped for the assignment, would probably create more problems than it would solve. It is doubtful whether the logical benefit of having one agency responsible for counterespionage throughout the world would justify the dislocation and confusion that such a transfer would inevitably occasion."
 

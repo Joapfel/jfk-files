@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4385.png
-
-Convert to MarkdownSECRET
+SECRET
 
 28APRIL 1966
 INVOICE NO.

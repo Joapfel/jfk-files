@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8246.png
-
-Convert to Markdown1. TITLE/SUBJECT: Legal Authorities of the FBI
+1. TITLE/SUBJECT: Legal Authorities of the FBI
 
 2. ORIGINATING ORGANIZATION: FBI
 

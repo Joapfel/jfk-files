@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6167.png
-
-Convert to Markdown56 Md. L. Rev. 1, *36
+56 Md. L. Rev. 1, *36
 
 (f) Any other record that does not fall within the scope of assassination record as described in 1400.1, but which has the potential to enhance, enrich, and broaden the historical record of the assassination.
 

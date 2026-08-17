@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2566.png
-
-Convert to MarkdownK. William O'Connor, Esq.
+K. William O'Connor, Esq.
 
 July 1, 1975
 

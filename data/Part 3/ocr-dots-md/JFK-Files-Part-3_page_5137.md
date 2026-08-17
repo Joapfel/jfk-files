@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5137.png
-
-Convert to MarkdownPart V -- requested for delivery by September 4, 1975
+Part V -- requested for delivery by September 4, 1975
 
 1. All materials pertaining to the referring of information by the Los Angeles field office of the FBI in 1973 to the Los Angeles district office of the Internal Revenue Service with regard to Bella Stumbo and Della (LNU) and the allegation that Bella Stumbo had been using the false name of Della (LNU) to conceal income.
 

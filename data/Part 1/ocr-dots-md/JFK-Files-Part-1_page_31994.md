@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31994.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 new initiatives during these occasions, after due thought and consultation, if he thought they were warranted. And he has been an excellent judge of men (and women) and their quality. In his dealings with LNFALL, its various LNBUZZ agencies and their directors he has held up the Base's interests and image well while seeking fair and practical answers and solutions. He has a good sense of economy in monetary as well as other affairs. As he becomes more senior and more exclusively a supervisor and executive he should become more and more effective.
 

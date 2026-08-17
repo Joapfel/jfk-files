@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8709.png
-
-Convert to Markdown10.04.26 ¿qué libros le ha ido mencionar haber leído con placer,
+10.04.26 ¿qué libros le ha ido mencionar haber leído con placer,
 sí ha mencionado alguno?
 
 10.04.27 ¿qué películas le ha ido mencionar haber visto con placer,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13247.png
-
-Convert to Markdown1 bunch with him when they came to the Air Force, even with
+1 bunch with him when they came to the Air Force, even with
 2 General Bayo. And I felt that if I would get the nod to assas-
 5 sinate them, I could do it within 30 seconds, high tail it and
 6 everything.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30214.png
-
-Convert to Markdown14-0000
+14-0000
 
 Director of Personnel
 Department of Justice-F.B.I.

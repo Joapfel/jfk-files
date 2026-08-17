@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3467.png
-
-Convert to Markdown3. The Director then described in some detail Agency covert financial support in the recent [Peru] elections, the last [Greek] elections, and the [Finland] election. He also described our activities in connection with the Italian political parties. Following this, he covered our plans for the upcoming [Brazilian] elections. He touched on our thoughts with regard to the political situation in [British Guiana].
+3. The Director then described in some detail Agency covert financial support in the recent [Peru] elections, the last [Greek] elections, and the [Finland] election. He also described our activities in connection with the Italian political parties. Following this, he covered our plans for the upcoming [Brazilian] elections. He touched on our thoughts with regard to the political situation in [British Guiana].
 
 4. At this juncture, the Director discussed Agency labor operations. He read to the group a short paper which outlined our support to anti-Communist labor unions in [France] and [Italy], our work through the [ICFTU], and our relationships with [American] labor and the assistance [United States unions] have given us.
 

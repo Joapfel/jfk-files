@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_14591.png
-
-Convert to Markdowng. "We have to be on the side of the Soviets for two reasons: first from the military and economic point of view; secondly, because, whether right or wrong, they are on the same side fighting those who are on the other side."
+g. "We have to be on the side of the Soviets for two reasons: first from the military and economic point of view; secondly, because, whether right or wrong, they are on the same side fighting those who are on the other side."
 
 h. "Cuba has had and now has major discrepancies with the USSR, China, and the US, but we are on the side of communism because we are against capitalism."

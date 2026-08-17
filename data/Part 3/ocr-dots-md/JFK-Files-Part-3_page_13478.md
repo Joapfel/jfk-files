@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_13478.png
-
 .
 
 But it underwent several changes in name. I changed

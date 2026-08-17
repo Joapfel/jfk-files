@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27339.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 STATUS AND EFFICIENCY REPORT:
 
 *** (see instructions on reverse side) ***

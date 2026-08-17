@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14041.png
-
-Convert to Markdown(Dr. Baker departed the Board meeting at this point.)
+(Dr. Baker departed the Board meeting at this point.)
 
 Taking up the sixth item suggested by the Board for discussion, the DCI said that he felt that there were no security implications in the Profumo case in Britain. Mr. McConesaid it was thought that it would be contrary to Soviet procedure for Ivanov to attempt to use Keeler for espionage purposes, although there might have been a Soviet attempt at political action against the MacMillan government. In answer to Mr. Coyne's question, Mr. McConesaid that the British had cooperated fully with CIA in regard to the Profumo case with respect to any U. S. people involved, but that the British have rightfully withheld information on the implication of other Britishers. Mr. McCon informed the Board that within a couple of days the Labor Party in England will break the case involving Philby who turns out to be the "third man" in the Burgess-MacLean case, and who in the late 1940's was in liaison with the CIA and FBI. The DCI added that MacMillan has been sitting on this case for a long time and CIA has tried in the past to get the British to surface it.
 

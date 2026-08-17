@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13474.png
-
-Convert to Markdown1
+1
 
 WARD & PAUL
 

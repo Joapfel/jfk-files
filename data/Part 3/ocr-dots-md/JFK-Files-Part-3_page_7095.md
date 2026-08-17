@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7095.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 extensive background and experience regarding the nature and special vulnerabilities of the particular type of compartmented information involved.
 

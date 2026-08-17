@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23241.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Tweedy. That is the way all cables were addressed.
 

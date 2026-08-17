@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14983.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C. O. told Subject that he should not forget he would be required to establish a Zweiter Wohnsitz. Subject said he would look into this as soon as the work shop in Munich was completed and ready for him.
 

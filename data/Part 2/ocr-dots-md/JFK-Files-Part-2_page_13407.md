@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13407.png
-
-Convert to Markdown21 MAY 1975
+21 MAY 1975
 
 COMPARTMENTED
 CLEARANCE

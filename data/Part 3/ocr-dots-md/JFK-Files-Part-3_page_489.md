@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_489.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Counterintelligence Programs
 

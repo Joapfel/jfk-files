@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9198.png
-
-Convert to MarkdownRE: MICHAEL HALSEY BROWN
+RE: MICHAEL HALSEY BROWN
 
 Mrs. Brown, after the political symposium, had stated
 that many of the immature students at the university had been

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30437.png
-
-Convert to MarkdownNo. 15 (cont.)
+No. 15 (cont.)
 
 FROM 3/2/3 TO 10/19/3 CLASSIFICATION: SECRET
 

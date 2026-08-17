@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35705.png
-
-Convert to MarkdownMEMORANDUM FOR: THE FILES
+MEMORANDUM FOR: THE FILES
 
 FROM : George Weademan
 

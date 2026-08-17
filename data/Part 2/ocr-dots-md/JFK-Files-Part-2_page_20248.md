@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20248.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Dear Friend:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30351.png
-
-Convert to Markdown1 mentioned Priscilla Johnson's book. Did you by any chance
+1 mentioned Priscilla Johnson's book. Did you by any chance
 2 while you were working in the American tourist area, did you
 3 have any occasion to investigate her coming to Russia or did
 4 she come during any of that time as a student?

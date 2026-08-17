@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2915.png
-
-Convert to Markdownobtain for them certain kinds of information by exercising the
+obtain for them certain kinds of information by exercising the
 necessary surveillance to obtain . and to have a purely
 political character, that they simply wanted to have for their
 own personal purposes.

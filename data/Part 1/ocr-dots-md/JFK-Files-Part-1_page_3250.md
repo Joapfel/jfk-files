@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3250.png
-
-Convert to MarkdownWashington, D.C.
+Washington, D.C.
 
 26 August 1964
 

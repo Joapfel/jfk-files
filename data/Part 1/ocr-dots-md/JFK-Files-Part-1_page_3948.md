@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3948.png
-
-Convert to MarkdownSUBJECT: YOUNG, Manuel
+SUBJECT: YOUNG, Manuel
 aka: "El Chino"
 
 1. Source mat Subject when both were exiled in Mexico City in late 1937. Source saw Subject again about 1960 (in Pinar del Rio City on a trip source made there) Accompanying his father who had a farm in Consolacion, Pinar del Rio Province. Source claims he never was a close friend of Subject. Source heard about 1958 that the Subject is a Lieutenant in the G-2 in Pinar del Rio City. Source is not able to provide any information on subject's private life nor does he know if Subject has any relatives outside Cuba, if Subject has ever traveled to any country in the Soviet bloc, or if Subject has ever received any political, military or intelligence training.

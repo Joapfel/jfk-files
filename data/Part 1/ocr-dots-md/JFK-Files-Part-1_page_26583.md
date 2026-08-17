@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26583.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>MSGR:Jly</td></tr><tr><td>NH/CA</td></tr><tr><td>5006</td></tr><tr><td>22 AUGUST 1963</td></tr></table>
 

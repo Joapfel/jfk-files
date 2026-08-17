@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21229.png
-
-Convert to MarkdownDepartment, had relations with her at the
+Department, had relations with her at the
 National Hotel which were photographed.
 
 In 1962 or 1963 NOSENKO heard from

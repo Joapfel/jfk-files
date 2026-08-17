@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7994.png
-
-Convert to Markdown# Computer Art: The Search Beyond Manipulation
+# Computer Art: The Search Beyond Manipulation
 
 Grace C. Hertlein
 California State University-Chico

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7429.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee
 
 reason and for the reason that the Director desired to be cooperative with

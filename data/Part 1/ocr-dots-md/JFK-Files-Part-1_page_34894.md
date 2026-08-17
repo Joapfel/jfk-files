@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34894.png
-
-Convert to Markdown# NUEVO DEL VALLE
+# NUEVO DEL VALLE
 ## SPECIAL POOR OF ATTORNEY
 
 ---In San Diego del Valle, en Juse 5th, 1967.---------------------------------

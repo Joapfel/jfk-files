@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16343.png
-
-Convert to MarkdownDate June 5, 1969
+Date June 5, 1969
 
 A search was conducted incidental to arrest, of the third or top floor of a building at 2350 West Madison, Chicago, Illinois, which building and floor was occupied by a Negro group known as the Black Panthers. The search lasted from 6:10 a.m. to 7:39 a.m. on June 4, 1969. The following Special Agents participated directly in the search under the direction of SA RAMON W. STRATTON, while other Special Agents, including JOHN H. WILMES, who took photographs, were present off and on during the search:
 

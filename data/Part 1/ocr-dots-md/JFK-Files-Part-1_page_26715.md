@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26715.png
-
-Convert to MarkdownReel 72-AICP-33
+Reel 72-AICP-33
 
 29 April 1965
 

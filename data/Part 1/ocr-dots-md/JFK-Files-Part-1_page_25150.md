@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25150.png
-
-Convert to Markdownwhich in Russian slang may mean an individual with a dark skin, or may refer to the fact of his wearing tinted glasses, or it may signify that he went through a school of hard knocks
+which in Russian slang may mean an individual with a dark skin, or may refer to the fact of his wearing tinted glasses, or it may signify that he went through a school of hard knocks
 
 It is quite certain that KOSTIKOV and ALFERIYEV belong to the same group of former hooligans, who by dint of sheer disregard for moral standards forged ahead and became "somebodies".
 

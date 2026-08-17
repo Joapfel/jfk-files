@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31737.png
-
-Convert to Markdown23 January 1953
+23 January 1953
 
 MEMORANDUM FOR: IO/BRANCH 1 - Miss Ellen Stera
 SUBJECT: Meeting of Poles to be held here in February

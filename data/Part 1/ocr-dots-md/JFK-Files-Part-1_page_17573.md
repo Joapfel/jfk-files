@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17573.png
-
-Convert to MarkdownSECRET / KAPOK
+SECRET / KAPOK
 
 2. Field Agents
 

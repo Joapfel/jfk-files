@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8230.png
-
-Convert to Markdownagencies," as delineated in United States v. United States District Court, 40/ U.S. at 309 n.8, and discussed in the testimony of Deputy Assistant Attorney General Maroney before this Subcommittee.
+agencies," as delineated in United States v. United States District Court, 40/ U.S. at 309 n.8, and discussed in the testimony of Deputy Assistant Attorney General Maroney before this Subcommittee.
 The above 3 categories are intended to be mutually exclusive.
 
 10. a. The particular United States government departments, agencies, bureaus, divisions and other United States government entities that engaged in electronic surveillance or domestic organizations and individuals, as described in Question 9a above.

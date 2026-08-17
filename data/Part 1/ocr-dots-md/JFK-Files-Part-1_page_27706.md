@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27706.png
-
-Convert to Markdown**RESULTS OF CALL:**
+**RESULTS OF CALL:**
 
 Subject will EOD 20 May 1957
 

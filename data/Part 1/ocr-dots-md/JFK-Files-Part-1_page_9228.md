@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9228.png
-
-Convert to MarkdownIt Life, one of those $25,000 per annum men. For the present he doesn't want it; an association with the picture book known to his employer for several good and compelling reasons. (Including the fear that they would plagiarize the idea). But in the final stages he'll have to tell them in order to get their cooperation on digging into their files as well as their official permission for the use of his name as a collaborator.
+It Life, one of those $25,000 per annum men. For the present he doesn't want it; an association with the picture book known to his employer for several good and compelling reasons. (Including the fear that they would plagiarize the idea). But in the final stages he'll have to tell them in order to get their cooperation on digging into their files as well as their official permission for the use of his name as a collaborator.
 
 "I'm useless to say, all of the above is a deep dark secret, but then what isn't these days? More important than all of the above is the fact that the gentleman in question / Lawson purposely didn't ask Shub who his collaborator is/; in addition to being a top-flight picture man, is deeply interested in the subject and—miraculously— knows a great deal about it."
 

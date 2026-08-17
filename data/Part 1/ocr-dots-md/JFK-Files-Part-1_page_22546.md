@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22546.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 establish that the trip was a direct result of this cable. There
 is some evidence that suggests that the trip may have been in

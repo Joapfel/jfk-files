@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4473.png
-
-Convert to Markdownparticularly Cuban seamen, to increase the (twenty) officers and crew members aboard(six) Cuban vessels we are now running as controlled agents.
+particularly Cuban seamen, to increase the (twenty) officers and crew members aboard(six) Cuban vessels we are now running as controlled agents.
 
 6. Penetration of Cuban Installations Abroad: At the present time we are running (12) Cuban diplomats stationed outside Cuba as controlled agents and have viable operations aimed at an additional (20) Cuban diplomats. We propose to continue and intensify the current program of attempting to recruit or defect every Cuban official representative abroad to whom we can gain access and concerning whom we have any reason to believe a susceptibility to approach exists. These additional penetrations will be attempted both through unilateral operations and where appropriate in conjunction with liaison services.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1394.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="3">FD-36 (Rev. 7-27-76)</td>
         <td>FBI.</td>

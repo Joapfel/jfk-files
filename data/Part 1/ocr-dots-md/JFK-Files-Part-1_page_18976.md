@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18976.png
-
-Convert to MarkdownAPPLICATI ON FOR FEDERAL ENployMEN T
+APPLICATI ON FOR FEDERAL ENployMEN T
 
 <table>
   <thead>

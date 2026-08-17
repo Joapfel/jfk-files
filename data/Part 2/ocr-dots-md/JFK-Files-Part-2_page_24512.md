@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24512.png
-
-Convert to MarkdownBundy further contended that the President was not considering an assassina-
+Bundy further contended that the President was not considering an assassina-
 tion, but rather "what are things going to be like after Castro." (Bundy, p. 81.)
 
 Taylor's Testimony

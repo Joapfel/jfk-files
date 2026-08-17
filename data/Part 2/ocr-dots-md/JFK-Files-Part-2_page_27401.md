@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27401.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A. Memo to Chief, Special Security Div - 13 June 52 SECRET
 

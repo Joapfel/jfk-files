@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9855.png
-
-Convert to Markdown27 March 1968
+27 March 1968
 
 Subject: LIRING/3 Identification of FAR Memeber.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5335.png
-
-Convert to Markdown# ADMINISTRATIVE-INTERNAL USE ONLY
+# ADMINISTRATIVE-INTERNAL USE ONLY
 
 B. Former officers, status unknown. While the heading to this section would seem to suggest the CIA does not know the cover/non-cover status of some of its former officers, the section does not really deal with this issue. Rather, within the section, Mr. Gunn simply recognizes the fact that CIA may not be able to find all of its former officers to ask if they want to be opened up or remain under cover. The test required by Mr. Gunn to satisfy the Board and thus continue postponement until 1 June of this year is a "good faith showing that reasonable attempts" were made to locate the officer and failed.
 

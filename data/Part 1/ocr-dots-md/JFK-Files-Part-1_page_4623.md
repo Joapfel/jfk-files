@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4623.png
-
-Convert to MarkdownSECRET 812209Z
+SECRET 812209Z
 
 DIR CITE WAVE 7629
 TYPIC AMOT

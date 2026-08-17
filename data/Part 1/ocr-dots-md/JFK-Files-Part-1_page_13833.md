@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13833.png
-
-Convert to Markdown100. Receipt of mail where, when, how?
+100. Receipt of mail where, when, how?
 
 101. Dispatch of mail where, when, how?
 

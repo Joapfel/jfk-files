@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_185.png
-
-Convert to Markdown# La organiza el Dato. de Estado, denunciando la AMP
+# La organiza el Dato. de Estado, denunciando la AMP
 
 La Asociación Mexicana de Periodistas firmó el paso a la campaña antisociedad unitaria hace dos semanas por un grupo del servicio del imperialismo norteamericano que se ocasiona como "defensor de los judíos". En un documento firmado por el Sen. Xavier Campos Ponce, Antonio Caram y Gerardo Diella, presidente, secretario y vocal, respectivamente de la AMP, denunciaron el carácter de la campaña aliminatoria, presentan un hecho que súe para corroborar que los hilos de toda la historia han ido en contra del imperialismo y demuestran con una serie de datos que en la Unión Soviética no existe discriminación contra los judíos.
 

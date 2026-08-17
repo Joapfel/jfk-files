@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5418.png
-
-Convert to MarkdownMR. KELLEY: No sir, he does not have to have but we inform him that he may have if he so desires.
+MR. KELLEY: No sir, he does not have to have but we inform him that he may have if he so desires.
 
 QUESTION:
 

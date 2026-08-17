@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10996.png
-
-Convert to MarkdownTHE WHITE HOUSE
+THE WHITE HOUSE
 WASHINGTON
 
 CONFIDENTIAL,

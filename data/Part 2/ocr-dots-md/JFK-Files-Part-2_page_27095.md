@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27095.png
-
-Convert to MarkdownCIA only a couple of years ago and could not
+CIA only a couple of years ago and could not
 possibly have had any prior knowledge or
 involvement. Additionally, I used personnel
 from my own staff to assure that compilation of

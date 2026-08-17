@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11670.png
-
-Convert to MarkdownA1R
+A1R
 
 23 November 1950
 

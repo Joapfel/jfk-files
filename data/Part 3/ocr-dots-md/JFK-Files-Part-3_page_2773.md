@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2773.png
-
-Convert to Markdownwe tried to reconstruct as to the actual number of Klan
+we tried to reconstruct as to the actual number of Klan
 informants in relation to Klan members was around 6 percent, I
 think after we had read some of the testimony on it. Isn't that
 right, Bill? Now the problem we had on the Klan is the Klan

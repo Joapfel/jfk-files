@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21183.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 On January 11, 1968, (N-92), NOSENKO gave a written summary of the [MORONE] case which was basically the same as his previous information but added that [MORONE] and a U. S. Marine in 1961 met out in the city of Moscow, a female agent who worked at American House, and her girl friend. They went to a restaurant and about one or two o'clock in the morning returned to the American Embassy (or American House) where the girls remained until morning. He also related that [MORONE] was not approached by KGB primarily because [STORSBERG] was considered more important and KGB did not want to prejudice that case.
 

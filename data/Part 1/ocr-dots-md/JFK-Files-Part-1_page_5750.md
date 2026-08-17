@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5750.png
-
-Convert to MarkdownCOE
+COE
 
 Virginia Frank COE
 

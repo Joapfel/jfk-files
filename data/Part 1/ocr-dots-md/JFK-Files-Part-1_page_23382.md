@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23382.png
-
-Convert to Markdown# SECURITY INFORMATION
+# SECURITY INFORMATION
 
 TRSA-403 "Subject is considered to be extremely reliable and intelligent, which, combined with his past experience, qualify him for a wide range of assignments."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1430.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><caption>NOTIFICATION OF PERSONNEL ACTION<br>APR: 19 MAY 1959</caption><tbody><tr><td rowspan="2">1. Serial No.</td><td colspan="3">S. Name (Last-First-Middle)</td><td>3. Date Of Birth</td><td colspan="2">4. Vet. Prof. S. Ser. (A CS. T.O.D.)</td></tr><tr><td>560947</td><td colspan="2">WHEELER ROBERT P</td><td>Mo. 10, Da. 08, Yr. 15</td><td>Nono-0 5 Pt-1 10 Pt-2 Code 1</td><td>M 1</td><td>Mo. 09, Da. 28, Yr. 52</td></tr><tr><td rowspan="2">7. SC&D</td><td colspan="3">8. CSC Retrn.</td><td>10. App. Advldv.</td><td colspan="2">11. FLGLI 19. LCO</td><td colspan="3">13. Rtn'ty.(Tco)</td></tr><tr><td>Yes. 1 No. 2</td><td>Codo</td><td>Yes. 1 No. 2</td><td>Yes. 1 No. 2</td><td>Codo</td><td>Mo. 09, Da. 23, Yr. 52</td><td>Yes. 1 No. 2</td><td>Codo</td><td></td></tr><tr><td>No. 08</td><td>Da. 06</td><td>Yr. 42</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

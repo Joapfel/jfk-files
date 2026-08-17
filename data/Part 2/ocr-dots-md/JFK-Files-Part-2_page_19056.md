@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19056.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 situations like the Cuban crisis. He also requested the source to bring him a miniphone recording machine from the United States. Source stated that he had never experienced anything else which would indicate the Soviets were attempting to compromise him.
 

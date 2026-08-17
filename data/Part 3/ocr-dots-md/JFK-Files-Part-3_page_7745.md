@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7745.png
-
-Convert to MarkdownThe question to be resolved, then, is divided into
+The question to be resolved, then, is divided into
 several interrelated parts. First, if the Presidential
 directives described heretofore are actually valid. Secondly,
 assuming that the directives are completely valid, why have

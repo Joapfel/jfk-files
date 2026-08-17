@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15633.png
-
-Convert to Markdown(inaudible) so we won't be walking around with our asses
+(inaudible) so we won't be walking around with our asses
 unwiped. We can't wipe our asses with no quarters, nickles,
 or dimes, We need some paper. We don't look to see if
 it's a 20 or 1 or not because it all feels the same.

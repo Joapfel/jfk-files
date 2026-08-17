@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22563.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 downtown location a combination business office and living quarters, possibly at some such place as the 1028 Connecticut Avenue Building.
 

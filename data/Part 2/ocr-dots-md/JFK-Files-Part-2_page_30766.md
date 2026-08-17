@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30766.png
-
-Convert to Markdown(6) material which from 55C - about 10 document but were shown to them on specific request irrelevant sources & methods - identity of agents.
+(6) material which from 55C - about 10 document but were shown to them on specific request irrelevant sources & methods - identity of agents.
 
 met Rocca twice - can't recall when. - SAT in on A 55C 5 sessions @ him.
 

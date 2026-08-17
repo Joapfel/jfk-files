@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7065.png
-
-Convert to Markdown... clear and convincing evidence that the threat to the military defense, intelligence operations, or conduct of foreign relations of the United States posed by the public disclosure of the assassination record is of such gravity that it outweighs the public interest, and such public disclosure would reveal—
+... clear and convincing evidence that the threat to the military defense, intelligence operations, or conduct of foreign relations of the United States posed by the public disclosure of the assassination record is of such gravity that it outweighs the public interest, and such public disclosure would reveal—
 
 (B) an intelligence source or method which is currently utilized, or reasonably expected to be utilized, by the United States Government and which has not been officially disclosed, the disclosure of which would interfere with the conduct of intelligence activities; or
 

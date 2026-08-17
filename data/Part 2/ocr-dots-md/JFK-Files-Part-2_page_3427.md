@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3427.png
-
-Convert to MarkdownRevised: 26 September 1966 (303)
+Revised: 26 September 1966 (303)
 
 NATIONAL PHOTOGRAPHIC INTERPRETATION CENTER
 

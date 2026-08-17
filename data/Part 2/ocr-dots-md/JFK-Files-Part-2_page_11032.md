@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11032.png
-
-Convert to MarkdownSeptember 30, 1960
+September 30, 1960
 
 # MANUAL OF RULES AND REGULATIONS
 ## REVISION NUMBER 95

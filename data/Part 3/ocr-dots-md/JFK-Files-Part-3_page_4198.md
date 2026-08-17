@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4198.png
-
-Convert to MarkdownNovember 25, 1975
+November 25, 1975
 
 Michael E. Shaheen, Esq.
 Special Counsel for Intelligence

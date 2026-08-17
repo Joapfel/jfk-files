@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23152.png
-
-Convert to Markdown1 government of?
+1 government of?
 
 2 Mr. Halley. No, off the top of my head, no, but I
 3 do want to come back to your point. I do think there is a

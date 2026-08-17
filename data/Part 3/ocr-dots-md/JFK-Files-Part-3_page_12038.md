@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12038.png
-
-Convert to MarkdownOur ghetto informants have materially increased from 4,605 at the time of the last inspection to 6,224 as of 1/12/71, which represents an increase of 1,619.
+Our ghetto informants have materially increased from 4,605 at the time of the last inspection to 6,224 as of 1/12/71, which represents an increase of 1,619.
 
 At the time of the last inspection we were operating 438 informants furnishing information concerning white extremist organizations and as of 1/12/71 we are operating 376 such informants, which represents a decrease of 62. This is to be expected as a result of the continuing decline of Klan and other white extremist activities.
 

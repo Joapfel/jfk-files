@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35635.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      RETIRAN DE LA VIA PUBLICA LOS VENDEDOPFS CLANDESTINOS

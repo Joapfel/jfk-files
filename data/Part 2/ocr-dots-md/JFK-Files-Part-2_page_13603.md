@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13603.png
-
-Convert to MarkdownTo: Interview of Retired Special Agent (SA)
+To: Interview of Retired Special Agent (SA)
 by Senator Walter F. Nondale and
 Staff Members of the Senate Select
 Committee (SSC)

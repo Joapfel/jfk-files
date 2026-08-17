@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17572.png
-
-Convert to MarkdownPROJECT / KAPOCK
+PROJECT / KAPOCK
 
 # PROJECT OUTLINE
 

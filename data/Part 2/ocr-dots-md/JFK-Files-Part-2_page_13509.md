@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13509.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA)
+RE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA)
 
 "Q: What type of work was the Security Squad in Atlanta concerned with?
 

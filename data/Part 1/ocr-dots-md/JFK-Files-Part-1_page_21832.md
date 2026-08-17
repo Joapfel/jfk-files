@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21832.png
-
-Convert to MarkdownPage
+Page
 
 (ii) Statements in 1964 520
 (iii) BELITSKIY Photograph 521

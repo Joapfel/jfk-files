@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21942.png
-
-Convert to Markdownagent by a cryptonym (known to NOSENKO and confirmed by GOLITSYN) appearing in the CHEREPANOV papers.*
+agent by a cryptonym (known to NOSENKO and confirmed by GOLITSYN) appearing in the CHEREPANOV papers.*
 
 The KGB defector Nikolay KHOKLOV had earlier identified the Polish-born wife of WHITNEY as a KGB agent, an allegation which she denied, and it had been long assumed that WHITNEY too had reached some sort of accommodation with the KGB because of this fact and because of the long duration of his tour as a correspondent in Moscow.
 

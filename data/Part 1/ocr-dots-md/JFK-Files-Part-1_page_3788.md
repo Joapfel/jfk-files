@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3788.png
-
-Convert to Markdown-3-
+-3-
 
 He (Allan Gross Quiros) has written two letters to this
 address:

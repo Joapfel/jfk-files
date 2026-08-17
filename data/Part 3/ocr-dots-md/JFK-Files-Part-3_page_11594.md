@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11594.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 
 4-E
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6322.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 (f) To the extent records from foreign governments are included in the JFK Assassination Records Collection, copies of the original records shall be sufficient for inclusion in the collection.
 

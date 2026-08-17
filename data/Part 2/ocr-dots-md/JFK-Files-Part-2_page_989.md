@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_989.png
-
-Convert to MarkdownPERSONAL HISTORY STATEMENT
+PERSONAL HISTORY STATEMENT
 
 Instructions: 1. Answer all questions completely. If question is not applicable write "NA." Write "unknown" only if you do not know the answer and cannot obtain the answer from personal records. Use the blank pages at the end of this form for extra details on any question or questions for which you do not have sufficient room.
 2. Type, print, or write carefully; illegible or incomplete forms will not receive consideration.

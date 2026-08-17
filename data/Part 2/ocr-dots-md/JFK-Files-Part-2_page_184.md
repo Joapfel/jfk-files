@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_184.png
-
-Convert to MarkdownUN LLAMADO DE CONFIANZA, DEL COMITE CENICANO PRO DEFENSA DE LOS DERECHOS DE LOS JUDIOS EN LA UNION SOVIETICA.
+UN LLAMADO DE CONFIANZA, DEL COMITE CENICANO PRO DEFENSA DE LOS DERECHOS DE LOS JUDIOS EN LA UNION SOVIETICA.
 
 Al término de un examen, libre de todo espíritu pardillo, hemos comprobado cientos hechos que nos llevan a abrigar el temor de que aun existe una brecha entre la situación de igualdad que la Constitución de la URSS confiere a los judíos, y su situación real, en el plano religioso, cultural, económico y humano. Estamos convencidos que dicha situación se halla en contradicción con los fines que persigue la sociedad soviética, y su evolución desde 1956. Estamos asimismo convencidos que la misma constituye un obstáculo para aminorar la tension internacional. Es por esta razón que estamos igualmente perjudicados que el Gobierno de la Union Sovieta se mostrara sensible al llamamiento que hoy le originos:
 

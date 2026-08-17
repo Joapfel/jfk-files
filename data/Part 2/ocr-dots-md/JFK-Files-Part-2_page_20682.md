@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20682.png
-
-Convert to MarkdownAPR201972
+APR201972
 
 TELETYPING SECTION
 

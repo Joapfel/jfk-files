@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23281.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 what, to your understanding, was the time at which authorization
 was provided to transfer arms?

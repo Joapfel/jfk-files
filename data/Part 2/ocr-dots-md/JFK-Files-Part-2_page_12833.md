@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12833.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 October 19, 1976
 

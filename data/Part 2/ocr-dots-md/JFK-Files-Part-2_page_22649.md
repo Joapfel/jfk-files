@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22649.png
-
-Convert to Markdown1. Soviet Ambassador to Havana, and a man named Leontov, who was the Soviet KGB operational man in Mexico. When the Mexican police arrested Castro as a student, they found in his notebooks the name of Leontov, KGB, Mexico.
+1. Soviet Ambassador to Havana, and a man named Leontov, who was the Soviet KGB operational man in Mexico. When the Mexican police arrested Castro as a student, they found in his notebooks the name of Leontov, KGB, Mexico.
 
 5 Now, photographs 61, and so on, are in a KGB journal for
 6 Soviet citizens abroad. It is a bible,75 percent KGB staff.

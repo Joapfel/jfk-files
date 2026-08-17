@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21172.png
-
-Convert to Markdownthe date on which KGB made the recruitment approach
+the date on which KGB made the recruitment approach
 to him. (It is noted he stated on September 28, 1964,
 that on the evening he was approached, prior to leaving
 American House, he had seen [JOSEPH MORONE] dancing with

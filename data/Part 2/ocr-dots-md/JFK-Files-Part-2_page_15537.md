@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15537.png
-
-Convert to Markdownnext thing, all the young warriors, the
+next thing, all the young warriors, the
 youths who will fight the power structure
 are thrown in jail, indicted and put away
 for good. . . these people had better get

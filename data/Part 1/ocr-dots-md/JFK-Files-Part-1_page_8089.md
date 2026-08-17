@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8089.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ULTRACRIMINAL, MX</td>
     <td>(OF)-300-003</td>

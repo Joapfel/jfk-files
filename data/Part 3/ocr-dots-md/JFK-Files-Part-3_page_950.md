@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_950.png
-
-Convert to Markdown3. Cooperative Services
+3. Cooperative Services
 
 In its traditional role of seeking professionalism at all levels of law enforcement, the FBI is enthusiastically committed to providing expert assistance to local, State and Federal law enforcement agencies. Some of the facilities of the FBI available to Federal law enforcement agencies are:
 

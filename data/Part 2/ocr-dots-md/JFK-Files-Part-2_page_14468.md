@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14468.png
-
-Convert to MarkdownSECRET
+SECRET
 ROUTE IN ENVELOPE
 
 Federal Bureau of Investigation

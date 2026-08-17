@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_50.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tbody><tr><td colspan="6">FROM: (Requesters name) ①</td><td rowspan="2">BADGE NO.</td><th colspan="4" style="text-align:center;">NAME CHECK AND CONSOLIDATION REQUEST</th></tr><tr><td colspan="3">BRANCH</td><td colspan="2">ROOM</td><td>EXTENSION</td><td>DATE</td><td>RID CONTROL NO.</td></tr><tr><td colspan="5"></td><td></td><td colspan="3"></td><th>CHECKING INSTRUCTIONS</th></tr><tr><th>TO</th><th>TUBE</th><th>ROOM</th><th>DATE</th><th>INITIALS</th><td></td><td colspan="3"></td><td></td></tr><tr><td>RID/INDEX</td><td colspan="3">DT-5</td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>REQUESTER</td><td colspan="3"></td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>RID/FILES</td><td colspan="3">DT-6</td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>REQUESTER</td><td colspan="3"></td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>RID/ANALYSIS</td><td colspan="3">GT-7</td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>RID/201</td><td colspan="3">DW-6</td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>RID/MIS</td><td colspan="3">GT-6</td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>RID/INDEX</td><td colspan="3">DT-5</td><td colspan="3"></td><td colspan="3"></td></tr></tbody></table>
 

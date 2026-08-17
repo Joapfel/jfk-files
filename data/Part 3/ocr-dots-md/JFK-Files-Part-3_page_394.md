@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_394.png
-
-Convert to MarkdownPlease refer to the attachments to the July 9, letter:
+Please refer to the attachments to the July 9, letter:
 
 Page 3, Paragraph 2, Subsection A. All of the FBI files on the so called "Kissinger 17" surveillance will be made available to you and specific appropriately cleared staff in Room 4171 of the Hoover Building. These documents may be reviewed and studied there, and you and such staff may take such notes as you deem appropriate; we have agreed that the notes are to be left in the secure room of the Hoover Building during your study. When your study is completed, you may prepare a summary of the information which you consider to be appropriate for Committee use. The summary must be checked with senior Bureau executives to ensure the protection of national security matters, protection of confidential sources of information, and observation of privacy considerations. Thereafter, the approved summary may be removed to the Committee's office and all the staff notes will be destroyed. You may check the summary back to the original documents as extensively as necessary, in Room 4171.
 

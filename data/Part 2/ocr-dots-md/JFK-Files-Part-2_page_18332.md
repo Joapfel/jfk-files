@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18332.png
-
-Convert to MarkdownPERSONNEL RECORDS UNIT
+PERSONNEL RECORDS UNIT
 
 END.
 

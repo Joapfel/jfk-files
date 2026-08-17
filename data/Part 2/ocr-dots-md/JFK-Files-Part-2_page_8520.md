@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8520.png
-
-Convert to MarkdownTHE VIETNAM-CAMBODIA EMERGENCY, 1975
+THE VIETNAM-CAMBODIA EMERGENCY, 1975
 Part IV—Cambodia Evacuation: Testimony of Ambassador John Gunther Dean
 
 HEARING

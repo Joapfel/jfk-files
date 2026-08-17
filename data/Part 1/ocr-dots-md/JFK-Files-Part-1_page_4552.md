@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4552.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, WUSCA
 Chief, VA Division

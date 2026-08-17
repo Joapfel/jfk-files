@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1936.png
-
-Convert to MarkdownFile
+File
 
 24 November 1964
 

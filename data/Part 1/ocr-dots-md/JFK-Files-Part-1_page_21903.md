@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21903.png
-
-Convert to Markdown59.
+59.
 
 TE
 

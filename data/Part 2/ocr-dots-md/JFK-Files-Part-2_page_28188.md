@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28188.png
-
-Convert to Markdown# Sheryl L. Bonifer
+# Sheryl L. Bonifer
 
 ## EMPLOYMENT:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15840.png
-
-Convert to MarkdownInn (see article "Why Free Huey Newton").
+Inn (see article "Why Free Huey Newton").
 
 Attorney LCharles P. Garry has filed affidavits of the Panthers arrested in a suit against the City of Oakland, the Chief of Police and the Mayor of Oakland, seeking to enjoin the DA from any further prosecutions of the Panthers. The affidavits charged brutalization of the Panthers by the police, intimidation and lying. Some Panthers did make brief statements to a man they were told was their lawyer, who had been brought in "because Garry and other Panther attorneys had no interest in the case" (a complete fabrication). The "lawyer" turned out later to be a con. Another Panther was beaten on the soles of his feet until he made a statement. A third Panther said he had never made any statement to the police at all, and that it was pure lies on their part when they attributed statements to him. The complete statements in the affidavits indicate that the con harrassment and brutalization were designed to(1) "confuse and deceive each of the brothers and turn them against each other and on Eldridge Cleaver by blatantly lying to them; (2) to get statements from them which would build up as much evidence against Eldridge Cleaver as possible."
 

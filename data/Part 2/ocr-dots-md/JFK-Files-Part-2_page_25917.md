@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25917.png
-
-Convert to MarkdownThe I.G. Report has April 1962 as the time period for the delivery of the rental truck with the rifles, etc. -- Roselli's recollection of what was inside? -- Rifles with telescopic sites for assassination purposes? Communications equipment -- what type?
+The I.G. Report has April 1962 as the time period for the delivery of the rental truck with the rifles, etc. -- Roselli's recollection of what was inside? -- Rifles with telescopic sites for assassination purposes? Communications equipment -- what type?
 
 NOTE: Roselli's recollection regarding joint surveillance by Harvey and Shackley in one car and O'Connell and Roselli in another car?
 

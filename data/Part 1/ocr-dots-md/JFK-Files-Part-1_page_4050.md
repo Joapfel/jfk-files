@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4050.png
-
-Convert to MarkdownDIAGRAM NO. 1 - GENERAL VIEW
+DIAGRAM NO. 1 - GENERAL VIEW
 
 **Storage Yard**
 

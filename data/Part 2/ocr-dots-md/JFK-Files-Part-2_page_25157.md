@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25157.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Milting, Amb. Affair, Saigon Embassy</td><td></td><td></td></tr><tr><td>Hilsman, Roger, Assistant Secretary of State</td><td rowspan="2">8/14/63</td><td rowspan="2">Drew ✓ Card 1 of 2</td></tr><tr><td>Trueheart, William</td></tr><tr><td>(Mechlin, Director, USIA Viet Nam)</td><td></td><td></td></tr></table>
+<table><tr><td>PERSONS/ENTITIES</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Milting, Amb. Affair, Saigon Embassy</td><td></td><td></td></tr><tr><td>Hilsman, Roger, Assistant Secretary of State</td><td rowspan="2">8/14/63</td><td rowspan="2">Drew ✓ Card 1 of 2</td></tr><tr><td>Trueheart, William</td></tr><tr><td>(Mechlin, Director, USIA Viet Nam)</td><td></td><td></td></tr></table>
 
 **CARD 1 OCCURRENCE:** Higgins points out that on August 14, 1963, Hilsman, in a voice of America broadcast, declared that the Buddhist crisis was "beginning to affect the war effort." Higgins decided to check this story with the Saigon Embassy in approached Milting, who was at that time in conference with Trueheart and Mechlin. Milting told Higgins that "Our report shows that the Buddhist crisis is not having any impact at all--though, of course, it could if riots become severe enough to necessitate diverting front-line troops."
 

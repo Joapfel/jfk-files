@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12273.png
-
-Convert to Markdown5. Utilization
+5. Utilization
 a. If confidential source is to be used for assistance in security investigations, secure Bureau approval, and background data must be furnished to the Bureau of the same type which is required for potential security informants.
 b. Except in espionage and foreign nationality matters in which the frequency of contact is dependent upon circumstances of the individual case, confidential sources on whom pending files are maintained should also be contacted at least once every two weeks in the same manner as security informants.
 c. Records of contacts with confidential sources who have pending files may be posted.

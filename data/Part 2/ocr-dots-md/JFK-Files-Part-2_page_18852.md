@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18852.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 5. Time, Incorporated, 9 Rockefeller Plaza, New York City, started here 6/16/52 as an editorial trainee for "Life" magazine; on 10/14/52 became a researcher for "Life" magazine where he is still employed in that capacity.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34472.png
-
-Convert to Markdown**Question #3 - Did McCone or Raborn have any information on this:**
+**Question #3 - Did McCone or Raborn have any information on this:**
 
 **What?**
 

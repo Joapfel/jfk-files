@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6520.png
-
-Convert to Markdown13-00000
+13-00000
 
 (a) existed and officer military personnel to be schooled in Panama and/or the United States.
 

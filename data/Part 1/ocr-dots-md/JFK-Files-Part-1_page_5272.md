@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5272.png
-
-Convert to MarkdownMember of: Committee for the Rehabilitation of the Rural Sections of Haiti
+Member of: Committee for the Rehabilitation of the Rural Sections of Haiti
 
 Commerce & Industry Association of New York
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22566.png
-
-Convert to MarkdownSECRET-ENYS ONLY
+SECRET-ENYS ONLY
 
 Diaz requested Dr. Reid to take this telegram to 'Wimpy,' an American who owned a supermarket in Ciudad Trujillo, and to tell 'Wimpy' to take the telegram immediately to the American Consul and to ask the Consul to code the telegram and send it through the proper channels to Detancourt.
 

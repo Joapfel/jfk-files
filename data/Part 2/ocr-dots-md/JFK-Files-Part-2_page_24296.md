@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24296.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Necessary implication refers to a logical necessity; it means that no other interpretation is permitted by the words of the Acts construed; and so has been defined as an implication which results from so strong a probability of intention that an intention contrary to that imputed cannot be supported. The term is used where the intention with regard to the subject matter may not be manifested by explicit and direct words, but is gathered by implication or necessary deduction from the circumstances and the general language.
 

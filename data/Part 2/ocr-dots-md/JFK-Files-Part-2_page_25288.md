@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25288.png
-
-Convert to MarkdownDAILY NEWS: FRIDAY, APRIL 25, 1975
+DAILY NEWS: FRIDAY, APRIL 25, 1975
 
 # Frogmen' Blew Up a French Ship in Havane
 

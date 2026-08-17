@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5241.png
-
-Convert to Markdownthe foreign under the form of grants - counterpart funds - or of private investments jointly with the mobilization of our national resources.
+the foreign under the form of grants - counterpart funds - or of private investments jointly with the mobilization of our national resources.
 
 As for the assistance to be given to private initiatives towards the development of new agricultural, industrial and commercial enterprises, it will be necessary to reorganize our banking system by the creation of a Central Bank, Stock Exchange, Mortgage Bank, Agricultural Rural Credit Bank and other financial institutions such as: Savings & Credit Bank, Bank for Financing low cost housing for the people with low revenue, etc.
 

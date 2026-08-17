@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22415.png
-
-Convert to MarkdownSECRET
+SECRET
 
 on an old Cuban Airways airplane. The damn airplane few too high and the bull became sterile by the time he landed in Cuba. No thought given to, you know, pressurizing the cabin and keeping the temperature at a certain point and this type of thing. So he was helping us all along the line and this here again, we generate propaganda, incompetence and this type of thing.
 

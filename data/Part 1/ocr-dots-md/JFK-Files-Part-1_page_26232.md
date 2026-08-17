@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26232.png
-
-Convert to Markdown31 gennaio 1967
+31 gennaio 1967
 
 Egregio Dottore:
 

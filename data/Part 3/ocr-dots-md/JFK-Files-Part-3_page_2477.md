@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2477.png
-
-Convert to MarkdownJUN 23 1975
+JUN 23 1975
 
 DELEGATE
 

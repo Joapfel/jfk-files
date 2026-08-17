@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32786.png
-
-Convert to MarkdownAB Nemo No. 9568
+AB Nemo No. 9568
 12 April 1968
 
 MEMORANDUM FOR: Chief, MIA/Argentina

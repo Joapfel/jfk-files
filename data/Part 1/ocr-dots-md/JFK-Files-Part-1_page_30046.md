@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30046.png
-
-Convert to MarkdownFILE TITLE/TITLE/VOLUME: Kennedy, Herman E.
+FILE TITLE/TITLE/VOLUME: Kennedy, Herman E.
 
 INCLUSIVE DATES: 11/16/49 -11/12/65
 

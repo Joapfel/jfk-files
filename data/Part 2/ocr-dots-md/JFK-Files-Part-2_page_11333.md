@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11333.png
-
-Convert to Markdownclassified contracts with the key facility.] Copies of reports for the Marine Corps should be disseminated locally to ONI.
+classified contracts with the key facility.] Copies of reports for the Marine Corps should be disseminated locally to ONI.
 
 Dissemination to the Atomic Energy Commission (AEC), Defense
 Atomic Support Agency (DASA) (formerly Armed Forces Special

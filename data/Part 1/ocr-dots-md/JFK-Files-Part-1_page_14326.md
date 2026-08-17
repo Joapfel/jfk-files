@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14326.png
-
-Convert to Markdown<table><tr><td>14-6000</td></tr></table>
+<table><tr><td>14-6000</td></tr></table>
 
 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27490.png
-
-Convert to MarkdownRESTRICTED
+RESTRICTED
 
 31 October 1950
 

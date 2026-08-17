@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14710.png
-
-Convert to MarkdownOrestes Guillermo RUIZ Perez
+Orestes Guillermo RUIZ Perez
 
 16 Jan. Netherlands-Spain
 27 July Spain-France

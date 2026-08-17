@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25700.png
-
-Convert to MarkdownOSWALD, LEE HENRY
+OSWALD, LEE HENRY
 
 20
 

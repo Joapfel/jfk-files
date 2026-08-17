@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4381.png
-
-Convert to MarkdownMemorandum for the Attorney General
+Memorandum for the Attorney General
 
 and order but on war level which will force the calling out of
 the Army. Plamondon refers to this new level of violence as

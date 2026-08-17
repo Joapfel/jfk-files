@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32980.png
-
-Convert to MarkdownPHONES: 041-2395
+PHONES: 041-2395
 041-2396
 
 Hogarama Discount

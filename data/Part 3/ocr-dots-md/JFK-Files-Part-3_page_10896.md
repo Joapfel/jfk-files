@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10896.png
-
-Convert to Markdown3. National Intelligence Authority (NIA)
+3. National Intelligence Authority (NIA)
 
 On January 22, 1946, President Harry S. Truman addressed a Directive to the Secretary of State, the Secretary of War, and the Secretary of the Navy stating, in part, "I hereby designate you, together with another person to be named by me as my personal representative, as the National Intelligence Authority. ..." The Directive provided that each of these three Secretaries would from time to time assign personnel and facilities from their respective departments "which persons shall collectively form a Central Intelligence Group" (CIG) under a Director of Central Intelligence. It was provided that the latter would be responsible to the NIA.
 

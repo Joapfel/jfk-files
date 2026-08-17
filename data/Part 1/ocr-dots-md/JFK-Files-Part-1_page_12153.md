@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12153.png
-
-Convert to MarkdownSECRET
+SECRET
 NOT SUITABLE FOR MICROFILM
 
 from: Borotk

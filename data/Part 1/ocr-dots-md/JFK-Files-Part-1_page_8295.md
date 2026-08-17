@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8295.png
-
-Convert to MarkdownJune 23, 1960
+June 23, 1960
 
 Contact Report:
 

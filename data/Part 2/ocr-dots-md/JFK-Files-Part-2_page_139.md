@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_139.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Attn. No. 17 to UFGA 19939
 

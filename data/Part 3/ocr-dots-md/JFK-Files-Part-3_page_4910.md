@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4910.png
-
-Convert to MarkdownPHYSICAL DESCRIPTION
+PHYSICAL DESCRIPTION
 
 **Race:** White
 **Sex:** Male

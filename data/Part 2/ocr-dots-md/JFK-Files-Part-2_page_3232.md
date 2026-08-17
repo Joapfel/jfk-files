@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3232.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Instructions were that the Embassies could furnish copies of the document to the foreign ministers and to other high officials in their respective countries.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1454.png
-
-Convert to MarkdownSECRET
+SECRET
 
 portions of the annual Operating Program responses; chair-
 ing the Program Review Panel; preparing and/or coordinating

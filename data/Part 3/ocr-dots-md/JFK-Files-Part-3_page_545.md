@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_545.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 Between February and April, 1969, the Miami Office furnished a number of items or topics which could be explored by Managing Editor, Mr. Milt Kelly, "Ft. Lauderdale News" in a follow-up news article concerning Klan activity in Broward County, Florida.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29090.png
-
-Convert to Markdown# Schedules A&B—Itemized Deductions AND (Form 1040) Dividend and Interest Income
+# Schedules A&B—Itemized Deductions AND (Form 1040) Dividend and Interest Income
 
 Department of the Treasury
 Internal Revenue Service

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6127.png
-
-Convert to Markdown organizations:
+organizations:
 
 William Bishop, 6202 Capestone, Dallas, Texas, Date of Birth,
 (DOB) September 4, 1953.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30419.png
-
-Convert to MarkdownMr. Goldsmith. Think for a moment on the Nosenko issue.
+Mr. Goldsmith. Think for a moment on the Nosenko issue.
 As Chief of the CI Staff, if it were demonstrated to you very
 clearly that the story given by Mr. Nosenko on Lee Harvey
 Oswald was full of contradictions and in addition to contra-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6914.png
-
-Convert to Markdownsummary or substitution shall be clearly labeled as such when released to the public."
+summary or substitution shall be clearly labeled as such when released to the public."
 
 6. The Joint Resolution should probably be amended to recognize the records of the Rockefeller commission as a component of this effort. The Archives would be the appropriate custodian of Rockefeller commission materials for purposes of the Joint Resolution.
 

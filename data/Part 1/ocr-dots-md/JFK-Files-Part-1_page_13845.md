@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13845.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="4">
             <table><thead><tr><th colspan="2">DISPATCH</th></tr><tr><th>CLASSIFICATION</th><th>PROCESSING</th></tr><tr><td>SECRET</td><td><table><thead><tr><th>FED. NO.</th><th>ACTION</th><th>ACCOM. PUBLISHED</th></tr></thead><tbody><tr><td>X</td><td>MARRIED FOR INDEXING<br/>NO INDEXING REQUIRED</td><td></td></tr><tr><td></td><td>CAN'T QUALIFIED<br/>HEADQUARTERS DEPT<br/>CAN USE INDEXING</td><td></td></tr><tr><td></td><td>ABSTRACT /<br/>BICLORITUR</td><td></td></tr></tbody></table></td></tr>

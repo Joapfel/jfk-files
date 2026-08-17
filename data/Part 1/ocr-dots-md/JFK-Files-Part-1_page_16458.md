@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16458.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Vladimir RODRIGUEZ LaHera
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21465.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 NY 105-42387
 

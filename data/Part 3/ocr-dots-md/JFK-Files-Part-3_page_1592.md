@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1592.png
-
-Convert to MarkdownFEDERAL GOVERNMENT
+FEDERAL GOVERNMENT
 
 Assistant Attorney General
 Criminal Division

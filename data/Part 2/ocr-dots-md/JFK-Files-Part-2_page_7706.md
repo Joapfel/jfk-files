@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7706.png
-
-Convert to Markdown(2) War with China would in fact be a war of mutual attrition and even in the case of a formal Soviet victory and a change-over in Chinese leadership - the U.S.S.R. will be unable to feed the hungry masses of China. According to GVISHYANI, there are a hundred million hungry people in China, and in the U.S.S.R. there is not enough food for the population. A Soviet victory would thus double the needs of the Soviet Union in this respect and would put too great a strain on her economy.
+(2) War with China would in fact be a war of mutual attrition and even in the case of a formal Soviet victory and a change-over in Chinese leadership - the U.S.S.R. will be unable to feed the hungry masses of China. According to GVISHYANI, there are a hundred million hungry people in China, and in the U.S.S.R. there is not enough food for the population. A Soviet victory would thus double the needs of the Soviet Union in this respect and would put too great a strain on her economy.
 
 3. From some conversations mainly with KHALIPOV, Source concluded that the Soviet Union is preparing for war with Western Europe rather than with China; here are his reasons:
 

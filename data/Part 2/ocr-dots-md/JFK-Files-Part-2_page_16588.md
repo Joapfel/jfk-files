@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16588.png
-
-Convert to Markdowndecision was based upon newspaper articles reporting a Federal investigation of the Black Panther Party. CUNNINGHAM further stated that this decision was actually reached on Monday night, December 15, 1969, but that he had been "too busy" to contact Special Agent in Charge JOHNSON.
+decision was based upon newspaper articles reporting a Federal investigation of the Black Panther Party. CUNNINGHAM further stated that this decision was actually reached on Monday night, December 15, 1969, but that he had been "too busy" to contact Special Agent in Charge JOHNSON.
 
 CUNNINGHAM further informed Special Agent in Charge JOHNSON that undoubtedly the Federal Government could obtain access to the premises at 2337 West Monroe Street, through legal action, and that "of course they could not prevent that." CUNNINGHAM stated that "it is politically impossible for the Black Panther Party to voluntarily cooperate."
 

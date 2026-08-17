@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29822.png
-
-Convert to MarkdownM - Why would Jason do something like that?
+M - Why would Jason do something like that?
 
 D - some disagreements in the neighborhood, and you know he had killed a lot shurbs and they in return drove nails in his cars or something like that and went back and forth, but as far as Gino, no, I don't know of anything
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13429.png
-
-Convert to MarkdownMr. Lester B. Seidel
+Mr. Lester B. Seidel
 
 May 19, 1975
 Page -2-

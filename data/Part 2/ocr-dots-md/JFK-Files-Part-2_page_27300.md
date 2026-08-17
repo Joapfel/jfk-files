@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27300.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A - M/R - Subj: Iden 1 # 3709 - 4 Feb 75 SECRET
 

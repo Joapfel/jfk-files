@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7993.png
-
-Convert to Markdown13-00000
+13-00000
 
 International Investment Activities
 of Multinational Companies

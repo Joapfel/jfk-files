@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8892.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 ## CONTENTS
 

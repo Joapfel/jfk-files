@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29320.png
-
-Convert to MarkdownHW 50955: DocId:32263505 Page 3
+HW 50955: DocId:32263505 Page 3
 
 1:25 P.M.
 

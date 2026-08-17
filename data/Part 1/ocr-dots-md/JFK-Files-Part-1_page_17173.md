@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17173.png
-
-Convert to MarkdownSECRET
+SECRET
 
 30 JAN 1968
 

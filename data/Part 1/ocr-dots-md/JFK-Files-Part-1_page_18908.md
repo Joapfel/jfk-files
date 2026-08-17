@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18908.png
-
-Convert to MarkdownS-E-C-N-I-T
+S-E-C-N-I-T
 
 **IV. COMMENTS:** Miss Goodpasture's handling of the problems indicated that she is capable of shrewd analysis. She overlooked some points which might have been considered in one problem and dealt with the other problem in too brief fashion, but in general her analysis reflected her actual experience and suggested that she is perhaps stronger in analysis than in making operational decisions. She presented a rather complex case and demonstrated that she not only understood the case but was able to give a clear account of it.
 

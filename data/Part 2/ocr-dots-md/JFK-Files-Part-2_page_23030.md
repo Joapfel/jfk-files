@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23030.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 me. As I recall, he was some sort of an activist in some
 2 Cuban exile group. To give you a definitive answer, you know, I

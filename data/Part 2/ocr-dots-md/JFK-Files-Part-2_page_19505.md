@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19505.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## COMMUNIST INFILTRATION OF THE WOMEN STRIKE FOR PEACE, Also Known As Women's International Strike for Peace
 

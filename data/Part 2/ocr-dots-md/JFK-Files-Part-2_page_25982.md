@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25982.png
-
-Convert to Markdowninto it again at that point at any time?
+into it again at that point at any time?
 
 LANSDALE: No.
 

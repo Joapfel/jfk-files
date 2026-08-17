@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30383.png
-
-Convert to MarkdownIUP SECRET
+IUP SECRET
 
 document. CIA no. 1818 indicates that CI Staff has completed a
 review of the files of 117 US persons who had "defected" to

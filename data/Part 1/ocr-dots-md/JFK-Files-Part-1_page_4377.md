@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4377.png
-
-Convert to Markdown"Como, herido ejerciendo y be-
+"Como, herido ejerciendo y be-
 blando más heavy que el disydo...
 (Se repare en normalidad de
 rinsa)

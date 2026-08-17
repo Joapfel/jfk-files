@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19919.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 Medicaid the right to abortions on demand; that the coali-
 tion continue to organize Black, Puerto Rican, Chicano,

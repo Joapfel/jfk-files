@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10423.png
-
-Convert to Markdown(2)
+(2)
 
 with Howard Hunt. On 19 July 1972 after my return from Florida I reported
 this conversation to the Director of Security and made it a Memorandum for

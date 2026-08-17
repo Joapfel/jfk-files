@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18760.png
-
-Convert to MarkdownNY 65-15026
+NY 65-15026
 
 with Red China and then tell the subject that he spoke with his father on the phone and learned that most of the foreign traders in San Francisco desired to have the embargo against trade with Red China lifted or at least relaxed.
 

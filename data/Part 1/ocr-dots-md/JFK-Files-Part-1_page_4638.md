@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4638.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">CABLE DEC 31987 BY 2 PES</td>
     <td>FOR 20-1 U.S. BY</td>

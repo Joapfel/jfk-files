@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28733.png
-
-Convert to MarkdownAMERICAN EMBASSY
+AMERICAN EMBASSY
 MEXICO, D. F.
 
 June 3, 1965

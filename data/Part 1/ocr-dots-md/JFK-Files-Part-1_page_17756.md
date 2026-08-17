@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17756.png
-
-Convert to Markdown5000 ...
+5000 ...
 
 424.- Patrón.- Dr. CABREIRA preguntó por el Consul TAPIA, MARINA diciendo que esfere un momento. Después, Patrón informó que ya lo dijo a TEIXE le haga la carta, y puede pasar por ella a eso de la una y media, CABRERA, que está bien.- 443-
 

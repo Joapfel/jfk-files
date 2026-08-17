@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20171.png
-
-Convert to MarkdownSEC. 9. MOTHER-IN-LAW
+SEC. 9. MOTHER-IN-LAW
 
 FULL NAME NOT APPLICABLE
 First Middle Last

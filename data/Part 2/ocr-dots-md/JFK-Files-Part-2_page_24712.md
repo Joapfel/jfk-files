@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24712.png
-
-Convert to Markdownthe discussion of U.S. policy toward the Congo. In the course of his remarks, Dillon maintained that the presence of United Nations troops in the Congo was necessary to prevent Soviet intervention at Lumumba's request:
+the discussion of U.S. policy toward the Congo. In the course of his remarks, Dillon maintained that the presence of United Nations troops in the Congo was necessary to prevent Soviet intervention at Lumumba's request:
 
 > If . . . Lumumba carried out his threat to force the UN out, he might then offer to accept help from anyone. . . . The elimination of the UN would be a disaster which, Secretary Dillon stated, we should do everything we could to prevent. If the UN were forced out, we might be faced by a situation where the Soviets intervened by invitation of the Congo. (NSC Minutes, 8/18/60)
 

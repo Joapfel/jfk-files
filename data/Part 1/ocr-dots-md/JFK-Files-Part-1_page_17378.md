@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17378.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NO.</th></tr></thead><tbody><tr><td>SECRET</td><td>HIMMA-19990<br/>~~1959~~</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NO.</th></tr></thead><tbody><tr><td>SECRET</td><td>HIMMA-19990<br/>~~1959~~</td></tr></tbody></table>
 
 <table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td style="text-align: right;">CLASSIFICATION<br/>SECRET, NEW YORK</td></tr></table>
 

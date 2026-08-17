@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28491.png
-
-Convert to MarkdownSECRET
+SECRET
 
 KENNETT HARRINGTON BAGLEY
 

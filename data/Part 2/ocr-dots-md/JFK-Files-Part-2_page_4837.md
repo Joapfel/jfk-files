@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4837.png
-
-Convert to MarkdownSECRET
+SECRET
 
 everybody said, "This is the time fellas and we are all going
 to make headlines." And they were all looking for headlines no

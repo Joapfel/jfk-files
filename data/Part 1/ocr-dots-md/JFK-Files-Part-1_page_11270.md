@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11270.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>REQUEST FOR INFORMATION AND REVIEW</td><td>DATE<br/>9-03-89</td></tr><tr><td>TO:</td><td>C NO.</td></tr><tr><td>FROM: CHIEF, CI/OA</td><td>SUBJECT:</td></tr></table>
 

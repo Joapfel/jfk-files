@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1282.png
-
-Convert to MarkdownC. Maintain through clandestine means, short of command and guerrilla type operations, the maximum economic and political pressures on the Cuban regime and economy not only for the purpose of hampering the Cuban regime, but for the additional purpose of insuring the maximum possible drain on Bloc resources used to support Cuba.
+C. Maintain through clandestine means, short of command and guerrilla type operations, the maximum economic and political pressures on the Cuban regime and economy not only for the purpose of hampering the Cuban regime, but for the additional purpose of insuring the maximum possible drain on Bloc resources used to support Cuba.
 
 D. Maintain maximum possible intelligence and counter-intelligence coverage of Cuba, including particular emphasis on:
 

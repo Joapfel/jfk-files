@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24384.png
-
-Convert to Markdown**General Rene Schneider (Chile).**
+**General Rene Schneider (Chile).**
 
 On October 25, 1970, General Schneider died of gunshot wounds inflicted while resisting a kidnap attempt three days earlier. Schneider, as Commander in Chief of the Army and a constitutionalist opposed to military coups, was considered an obstacle to efforts to prevent Salvador Allende from assuming the office of President of Chile. The United States Government supported, and sought to instigate, a military coup to block Allende. U.S. officials supplied financial aid, machine guns and other equipment to various military figures who opposed Allende. There was conflicting evidence on whether the United States had previously severed relations with the group that kidnapped and killed Schneider and on whether any of the equipment supplied was actually used in the kidnapping.
 

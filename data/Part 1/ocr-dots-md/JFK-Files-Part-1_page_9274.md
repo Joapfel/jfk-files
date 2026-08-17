@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9274.png
-
-Convert to Markdown28 Sept. 1950
+28 Sept. 1950
 
 just FYI
 

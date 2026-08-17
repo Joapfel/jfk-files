@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4817.png
-
-Convert to MarkdownUN.ED STATES DEPARTMENT OF JUSTICE
+UN.ED STATES DEPARTMENT OF JUSTICE
 FEDERAL BUREAU OF INVESTIGATION
 
 Copy to: 1 - U.S. Attorney, Miami (ATTN: Departmental Attorney

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15343.png
-
-Convert to MarkdownMemorandum for Mr. Belmont from Mr. Donahoe
+Memorandum for Mr. Belmont from Mr. Donahoe
 
 Re: INTELLIGENCE COVERAGE OF DIPLOMATIC REPRESENTATIVES OF FRIENDLY FOREIGN NATIONS
 

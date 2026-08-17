@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9861.png
-
-Convert to MarkdownDear Seymour:
+Dear Seymour:
 
 Attached is sent per your request. Feel free to show it to anyone you may want to see it. I wrote it and am not ashamed of it.
 

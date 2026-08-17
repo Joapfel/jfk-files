@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6922.png
-
-Convert to Markdown546 LB/ATB
+546 LB/ATB
 
 CORIG : JENNY G CLARK
 UNIT : WTI/3/Guatemala

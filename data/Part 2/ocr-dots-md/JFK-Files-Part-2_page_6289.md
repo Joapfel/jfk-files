@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6289.png
-
-Convert to MarkdownThese types of records need to be reviewed on the same word-to-word basis as the board has reviewed records thus far.
+These types of records need to be reviewed on the same word-to-word basis as the board has reviewed records thus far.
 
 But we have a new problem: how should the Board review records from the sequestered collections where the relevance to the assassination is not clear.
 

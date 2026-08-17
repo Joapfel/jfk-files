@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11192.png
-
-Convert to Markdown(52)
+(52)
 
 MESSAGE FORM
 

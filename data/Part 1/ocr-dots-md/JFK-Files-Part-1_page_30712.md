@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30712.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><caption>PERSONNEL EVALUATION REPORT<br/>Revised by PUD</caption><tr><td colspan="5">Items 1 through 8 will be completed by Administrative or Personnel Office</td></tr><tr><th scope="row">IF NAME (First) (Last)</th><th scope="col">(First) (Last)</th><th scope="col">Original Title</th><th scope="col">2. Grade</th><th scope="col">3. POSITION TITLE</th></tr><tr><td>Milam</td><td>Howton</td><td>Scott</td><td>S-13</td><td> posi.Off.</td></tr><tr><th scope="row">N. OFFICE</th><th scope="col">STAFF ON DIVISION</th><th scope="col">AREA(S)</th><td>(2)</td><td>DEPT. <input type="checkbox"/></td></tr><tr><td>DOP</td><td>E</td><td>2</td><td></td><td>FIELO <input type="checkbox"/></td></tr></table>
 

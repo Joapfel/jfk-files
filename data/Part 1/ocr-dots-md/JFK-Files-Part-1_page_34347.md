@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34347.png
-
-Convert to Markdown<table><tr><td>MICROFILMED<br>SEP. 23 1965</td></tr><tr><td>DOC. MICRO. GER.</td></tr></table>
+<table><tr><td>MICROFILMED<br>SEP. 23 1965</td></tr><tr><td>DOC. MICRO. GER.</td></tr></table>
 
 Separate Cover Attn chment to
 No. 1 to --- UFGA-23078

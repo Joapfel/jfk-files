@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5367.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><tr><td>MICROFILMED</td></tr><tr><td>JUN 20 1968</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>
 

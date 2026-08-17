@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2124.png
-
-Convert to Markdown6 October 1967
+6 October 1967
 
 MEMORANDUM FOR: Chief, Central Cover Staff
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9511.png
-
-Convert to Markdown1 April
+1 April
 
 JED: This idea sounded as though it might have a mischief-making potentialities; I have discussed it with Shub and Droller.
 

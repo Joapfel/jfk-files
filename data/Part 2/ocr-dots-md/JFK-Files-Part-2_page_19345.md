@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19345.png
-
-Convert to MarkdownTeletype to SAC, Seattle
+Teletype to SAC, Seattle
 
 RE: DEMONSTRATION PROTESTING U. S. POLICY
 IN VIETNAM, WASHINGTON, D. C.,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30154.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="4">TYPE OR PRINT ALL INFORMATION IN BLACK</td>

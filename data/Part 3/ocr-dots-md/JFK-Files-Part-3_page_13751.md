@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13751.png
-
-Convert to MarkdownSECRET - NO FOREIGN DISSEM
+SECRET - NO FOREIGN DISSEM
 
 TABLE OF CONTENTS
 ---

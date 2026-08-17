@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13776.png
-
-Convert to MarkdownS-E-C-1-E-T
+S-E-C-1-E-T
 
 <table>
     <tbody>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4013.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 complaining that his civil rights had been violated in hopes
 that the FBI would contact the Los Angeles Police and

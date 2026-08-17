@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19529.png
-
-Convert to Markdown14-0000
+14-0000
 
 Form approved.
 Budget Bureau No. 50-R018.A

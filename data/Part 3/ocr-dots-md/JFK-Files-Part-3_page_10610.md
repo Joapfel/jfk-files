@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10610.png
-
-Convert to MarkdownEXAMPLE:
+EXAMPLE:
 
 Jackson teletype to the Bureau dated 10-21-64,
 captioned UNSUBS; EXPLOSION ON LAWN OF RESIDENCE OF MAYOR

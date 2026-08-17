@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28850.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>②<br/>DATE OF EMPLOYMENT (month, year)<br/>FROM: Oct. 1949 TO: Feb. 1952<br/>PLACE OF EMPLOYMENT (City and State)</td>

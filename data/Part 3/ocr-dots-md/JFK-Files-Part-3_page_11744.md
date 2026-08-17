@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11744.png
-
-Convert to MarkdownChicomms for the purpose of making themselves available for
+Chicomms for the purpose of making themselves available for
 possible recruitment by Chicom Intelligence.
 
 We have a list of approximately 3500 ethnic Chinese scientists and/or technicians who have security clearances. Because of manpower limitations, we have not included other offices in this program nor have we allowed more than 50 cases of this type to be opened. It would be desirable to expand this effort to include other offices and to increase the number of individuals involved in each office to perhaps 50. Again, our object is to develop a nucleus of sources who would be of present or future value in our counterintelligence operations against the Chicomms.

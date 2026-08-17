@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30872.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td><td></td><td>CLASSIFICATION<br/>SECRET</td><td colspan="2">PROCESSING ACTION</td></tr><tr><td>TO: <br/> Chief, Western Hemisphere Division.</td><td>X</td><td colspan="3">NO INDICATING REQUIRED</td></tr><tr><td>INFO</td><td colspan="4"></td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td colspan="4"></td></tr><tr><td>SUBJECT<br/>Forwarding of Retirement Application on Jeremy K. BENADUM</td><td colspan="4"></td></tr></table>
+<table><tr><td>DISPATCH</td><td></td><td>CLASSIFICATION<br/>SECRET</td><td colspan="2">PROCESSING ACTION</td></tr><tr><td>TO: <br/> Chief, Western Hemisphere Division.</td><td>X</td><td colspan="3">NO INDICATING REQUIRED</td></tr><tr><td>INFO</td><td colspan="4"></td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td colspan="4"></td></tr><tr><td>SUBJECT<br/>Forwarding of Retirement Application on Jeremy K. BENADUM</td><td colspan="4"></td></tr></table>
 
 ACTION REQUIRED · REFERENCES
 

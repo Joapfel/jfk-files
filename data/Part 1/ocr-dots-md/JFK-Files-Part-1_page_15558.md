@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15558.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CLASSIFIED MESSAGE</td>
     <td style="text-align: right;">DATE : 295 JO<br/>FROM : LEOPOLDVILLE<br/>ACTION : C/AF 3 (TEMPO COPY SLOTTED C/AF, 1000, 5 APR)<br/>INFO : COP, C/CA, C/CI, C/FI 2,C/EE 3, S/C 2<br/><em>(Handwritten: per GSH 43-43)</em></td>

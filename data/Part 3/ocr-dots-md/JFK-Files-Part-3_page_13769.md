@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13769.png
-
-Convert to MarkdownSECRET NO FOREIGN DISSEM
+SECRET NO FOREIGN DISSEM
 
 A biweekly periodical, *Panorama Economico Latinoamericano*, which is distributed throughout Latin America, is to be given wider circulation and published additionally in an English-language edition. Fernando Colino, editor of the periodical, is said to be planning a campaign on "the economic tragedy of the Latin American peoples." (CIA OS-3/530, 108, 5 December, SECRET NO FOREIGN DISSEM)
 

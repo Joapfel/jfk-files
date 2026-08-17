@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13182.png
-
-Convert to MarkdownMM 92-1047
+MM 92-1047
 
 MM T-1 advised in August, 1967, that DAVID YARAS maintains a good deal of control over the activities of certain Miami and Miami Beach bookmakers and gamblers as part of the over-all plan to integrate the Miami area bookmakers into the Chicago organization. A certain amount of the action received by YARAS is turned over to PASQUALE ERRA, described by the informant as being the strongest La Cosa Nostra (LCN) figure in Miami. The informant states that YARAS' main interests, however, lie in Chicago, where he continues to maintain bookmaking, shylocking and "scam" businesses.
 

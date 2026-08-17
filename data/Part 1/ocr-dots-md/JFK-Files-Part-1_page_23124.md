@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23124.png
-
-Convert to MarkdownAri Kiev, M.D.
+Ari Kiev, M.D.
 
 -3-
 

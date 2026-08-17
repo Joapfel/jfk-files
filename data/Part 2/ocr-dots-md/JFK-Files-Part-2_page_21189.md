@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21189.png
-
-Convert to Markdowndisclosed that the name following number 33 was
+disclosed that the name following number 33 was
 [LUBIN](5) that following 34 was [SMITH](5) that following
 35 was [WILL BURTIN](5) and that following 36 was [CIPE](5)
 [BURTIN](5). The other two names were of KGB case

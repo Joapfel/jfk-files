@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1783.png
-
-Convert to Markdown6 April 1962
+6 April 1962
 
 MEMORANDUM FOR: Director of Central Intelligence
 

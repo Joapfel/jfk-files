@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22939.png
-
-Convert to Markdown11 April 1958
+11 April 1958
 
 MEMORANDUM FOR : Chief, Safehouse Branch, Office of Logistics
 THROUGH : Chief, Central Cover Branch, ID/P

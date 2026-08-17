@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8790.png
-
-Convert to MarkdownTHIRTIETH OF NOVEMBER GROUP (MRTN) 19-120-37
+THIRTIETH OF NOVEMBER GROUP (MRTN) 19-120-37
 
 Specific document not cited
 

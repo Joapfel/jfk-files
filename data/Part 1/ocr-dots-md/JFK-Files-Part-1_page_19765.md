@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19765.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">C. INDICATE IF YOU THINK THAT ANY SINGLE STRENGTH OR WEAKNESS IN THE following INDIVIDUALS MEETS THE AGENCY REQUIREMENT: <br> NA <br> D. DO YOU FEEL THAT HE REQUIRES CLOSE SUPERVISION? [X] ... [ ] ... [MAIL READ ONLY]</th></tr></thead><tbody><tr><td>E. WHAT TRAINING DO YOU RECOMMEND FOR THIS INDIVIDUAL?<br> Training in the Agency Management Program.</td><td></td></tr><tr><td>F. OTHER COMMENTS (Indicate here general traits, specific habits or characteristics not covered elsewhere in the report but which have a bearing on effective utilization of this person):<br> NA</td><td></td></tr></tbody></table>
 

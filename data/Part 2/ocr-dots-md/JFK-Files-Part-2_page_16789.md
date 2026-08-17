@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16789.png
-
-Convert to MarkdownREPORT
+REPORT
 of the
 
 LABORATORY

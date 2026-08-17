@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29410.png
-
-Convert to MarkdownCHECK-OFF FORM
+CHECK-OFF FORM
 
 Departing personnel will carry this form from office to office during the last few days at the Station in order to obtain complete assurance that all obligations and commitments have been satisfied. The form will be turned in to the Personnel Office when initiated and dated by responsible personnel. Only when this is complete may the individual depart from the Station.
 

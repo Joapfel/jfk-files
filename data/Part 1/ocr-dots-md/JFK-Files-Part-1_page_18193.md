@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18193.png
-
-Convert to Markdown24 November 1958
+24 November 1958
 
 MATERIAL FOR: FL/OPS-Projects Branch
 SUBJECT: Justification for Automobiles under Project LIMEETY

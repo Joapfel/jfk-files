@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_950.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td rowspan="2">ROY V. FOSTER / jwi<br/>SAS/PERSONNEL</td>

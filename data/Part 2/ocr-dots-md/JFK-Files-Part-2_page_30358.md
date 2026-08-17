@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30358.png
-
-Convert to Markdown1 Union can contact the embassy.
+1 Union can contact the embassy.
 
 2 Mr. Dodd. Let me jump onto something else quickly in the time we've got.
 

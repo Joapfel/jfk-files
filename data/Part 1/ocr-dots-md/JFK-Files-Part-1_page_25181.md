@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25181.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Source: AENIGMAG/2
 Date acquired: September 1966

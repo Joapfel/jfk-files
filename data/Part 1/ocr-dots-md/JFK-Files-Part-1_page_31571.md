@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31571.png
-
-Convert to MarkdownATTACHMENT #1
+ATTACHMENT #1
 
 (TRANSLATION)
 

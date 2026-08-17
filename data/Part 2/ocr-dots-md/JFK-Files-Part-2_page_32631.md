@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32631.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Latin American governments are also able to maintain fairly accurate lists of their nationals known to have been in Cuba. We get a certain amount of cross-checking from lists of names furnished us by several of our agents who have undergone training, and in confessions of captured guerrillas who had been in Cuba. Thus in the case of Peru, for instance, we come up with a list of 235 names of individuals known to have made extended stays in Cuba in 1961 and 1962. We have to make allowance for some who did not receive guerrilla training, and allowance in the opposite direction for those whose names have escaped our surveillance. But we are guided in these adjustments by the cross-checking information mentioned above.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12194.png
-
-Convert to MarkdownSECRET
+SECRET
 
 STAFF PRINCIPAL OFFICER
 

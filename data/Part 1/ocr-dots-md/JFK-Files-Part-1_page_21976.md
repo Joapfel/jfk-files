@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21976.png
-
-Convert to MarkdownAfter returning to Geneva in 1964 and during subsequent debriefings and interrogations, NOSENKO made the following additional statements concerning the FRIPPEL case:
+After returning to Geneva in 1964 and during subsequent debriefings and interrogations, NOSENKO made the following additional statements concerning the FRIPPEL case:
 
 - Although he had personally recruited FRIPPEL, he did not do so alone; Col. V.D. CHELNOKOV, Deputy Chief (and later Chief) of the Tourist Department, was present; he and NOSENKO "carried out the recruitment together" in early September 1959. NOSENKO was, however, FRIPPEL's case officer.
 

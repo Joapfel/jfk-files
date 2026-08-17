@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1369.png
-
-Convert to MarkdownSECRET
+SECRET
 
 m. Another officer, Seymour Young, wrote in 1965:
 > "After reading and re-reading this man's various files, I began to feel that this man in his position would be an ideal 'agent of influence'. It was noted that he is always in a crisis area and usually in advance of the crisis and writes articles which are more concerned with the Communist successes."

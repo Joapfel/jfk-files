@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9927.png
-
-Convert to Markdownwas personally delivered without difficulty to Crozco's neither by I/4. ( This was confirmed to Rowton by Lining/9, whom he met with privately at 1630 on 9 August at the restaurant of tear Boebuck,Insurgentes),
+was personally delivered without difficulty to Crozco's neither by I/4. ( This was confirmed to Rowton by Lining/9, whom he met with privately at 1630 on 9 August at the restaurant of tear Boebuck,Insurgentes),
 
 I/3 also reported that he hoped to receive a message from him / René Cichoa through Aurelio Monzo ( Comercio Exterior) who, according to Cichoa, was due in to Mexico City that same day ( 11/8/67). I/3 aided that he expected a telephone call from Cichoa the preceding evening and, although the phone rang several times, he did not receive any communication from him.
 

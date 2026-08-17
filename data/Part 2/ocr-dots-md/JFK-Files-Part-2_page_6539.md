@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6539.png
-
-Convert to Markdown# F. Travel controls
+# F. Travel controls
 
 (1) We should strive for an OAS embargo on travel to and from Cuba. If unable to achieve a majority decision in the OAS we should pursue the matter on a bilateral basis, outside of the framework of the OAS, and inject these Cuban isolationist criteria into acceptance requirements of the "Alliance for Progress".
 

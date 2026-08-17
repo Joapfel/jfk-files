@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2743.png
-
-Convert to Markdown1939
+1939
 
  mistakes and in doing so this is what has hurt the FBI. But at the same time I don't feel that a balanced picture comes out, as you have said yourselves, because of the necessity of zeroing in on abuses.
 

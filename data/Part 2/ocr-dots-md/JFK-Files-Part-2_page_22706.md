@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22706.png
-
-Convert to MarkdownPhone (Area 202) 344-6500
+Phone (Area 202) 344-6500
 
 WARO & PAUL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11418.png
-
-Convert to MarkdownII. [Activity in support of Cuban regime
+II. [Activity in support of Cuban regime
 
 Careful consideration should be given to recommending
 for inclusion in the security index those individuals

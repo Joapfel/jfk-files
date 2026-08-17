@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7984.png
-
-Convert to Markdown# Cooperative Facilities to Obtain the Advantages of Computers
+# Cooperative Facilities to Obtain the Advantages of Computers
 
 Michael J. Cerullo
 Asst. Professor of Accounting

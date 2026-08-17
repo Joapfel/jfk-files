@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14131.png
-
-Convert to MarkdownSPECIAL LIMITED DISTRIBUTION
+SPECIAL LIMITED DISTRIBUTION
 
 - 2 -
 

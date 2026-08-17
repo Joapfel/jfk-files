@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12079.png
-
-Convert to Markdownand one awaiting approval. This special coverage provides on a daily basis a wealth of intelligence information and is most productive source for the opening of numerous new cases in the black extremist field. With the added coverage we can expect a continuing increase in the caseload.
+and one awaiting approval. This special coverage provides on a daily basis a wealth of intelligence information and is most productive source for the opening of numerous new cases in the black extremist field. With the added coverage we can expect a continuing increase in the caseload.
 
 In view of the above factors, there exists a dire need for two additional Special Agent Supervisors at this time.
 

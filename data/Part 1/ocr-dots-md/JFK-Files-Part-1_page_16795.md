@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16795.png
-
-Convert to MarkdownORIG : JUDKINS:ds
+ORIG : JUDKINS:ds
 UNIT : WH/3/MEX 24
 EXT : 5940
 DATE : 1 MARCH 1963

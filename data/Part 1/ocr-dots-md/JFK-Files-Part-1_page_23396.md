@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23396.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TRS /PRQ/ 26
 

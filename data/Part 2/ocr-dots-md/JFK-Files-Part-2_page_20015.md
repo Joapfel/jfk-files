@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20015.png
-
-Convert to MarkdownPAGE TWO
+PAGE TWO
 
 TWO. CONGRESS USE ITS POWER TO HEAL A SICK SOCIETY
 AT HOME.

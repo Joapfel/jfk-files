@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23983.png
-
-Convert to MarkdownII activities in Chile were undertaken in response to President Nixon's September 15 order and were directed towards actively promoting and encouraging the Chilean military to move against Allende. In his testimony before the Committee, Kissinger stressed the links between Tracks I and II:
+II activities in Chile were undertaken in response to President Nixon's September 15 order and were directed towards actively promoting and encouraging the Chilean military to move against Allende. In his testimony before the Committee, Kissinger stressed the links between Tracks I and II:
 
 > ...There was work by all of the agencies to try to prevent Allende from being seated, and there was work by all of the agencies on the so-called Track I to encourage the military to move against Allende ...the difference between the September 15th meeting and what was being done in general within the government was that President Nixon was encouraging a more direct role for the CIA in actually organizing such a coup. (Kissinger testimony, p. 13)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10707.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 TDCS
 

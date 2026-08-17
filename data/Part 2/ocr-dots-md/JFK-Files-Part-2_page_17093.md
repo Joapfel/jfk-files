@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17093.png
-
-Convert to Markdown# GROUNDWORK FOR FASCISM
+# GROUNDWORK FOR FASCISM
 
 FREE HUEY
 

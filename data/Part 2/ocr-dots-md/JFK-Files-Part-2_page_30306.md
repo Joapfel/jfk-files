@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30306.png
-
-Convert to MarkdownSeventh Department at that time?
+Seventh Department at that time?
 
 Mr. Nosenko. Krupnov appeared a little later.
 

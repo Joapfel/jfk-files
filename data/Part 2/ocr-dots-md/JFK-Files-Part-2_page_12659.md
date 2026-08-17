@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12659.png
-
-Convert to MarkdownS ECTION 87. SECURITY INVESTIGATI
+S ECTION 87. SECURITY INVESTIGATI
 
 5. Other statutes
 

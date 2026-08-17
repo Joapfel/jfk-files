@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3204.png
-
-Convert to Markdown1816
+1816
 
  definitive guideline where we all know what the will of the people is as expressed by Congress.
 

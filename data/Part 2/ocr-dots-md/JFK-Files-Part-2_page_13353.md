@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13353.png
-
-Convert to Markdown29 MAY 1975
+29 MAY 1975
 
 MEMORANDUM FOR: Members of the USIB Ad Hoc Coordinating Group
 SUBJECT : Certification of Clearances for Classified Information and Compartmented Information of Staff Members of the Senate Select Committee

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13225.png
-
-Convert to Markdown14-0000
+14-0000
 
 MEMORANDUM FOR: Chief, CI/OA
 Subject: Luis Clemente POSADA Carriles · 201 - 30095

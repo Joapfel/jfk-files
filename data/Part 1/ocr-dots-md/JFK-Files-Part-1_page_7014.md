@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7014.png
-
-Convert to MarkdownSECRET
+SECRET
 CONFIDENTIAL CONTROL
 
 Distributions

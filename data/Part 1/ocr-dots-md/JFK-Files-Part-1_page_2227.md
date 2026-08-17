@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2227.png
-
-Convert to Markdown<table><tr><td>14-0000</td></tr><tr><td>104-10140-10420</td></tr></table>
+<table><tr><td>14-0000</td></tr><tr><td>104-10140-10420</td></tr></table>
 
 <table><tr><td>J-22</td></tr><tr><td>H S C A</td></tr><tr><td>77-0007/16</td></tr></table>
 

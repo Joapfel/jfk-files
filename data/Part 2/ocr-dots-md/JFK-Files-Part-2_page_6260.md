@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6260.png
-
-Convert to Markdown- Gates released a pre-assassination file on Oswald to Congress in 1992
+- Gates released a pre-assassination file on Oswald to Congress in 1992
 
 - Microfilm (1 of 64 boxes, 72 reels, 164,000 pages) (printouts)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31102.png
-
-Convert to Markdownof Recuperation. In this position he was
+of Recuperation. In this position he was
 envolved in theft of jewels & money, All
 sources envolved in informing on Nobrega's
 consider him a man of no scruples, a

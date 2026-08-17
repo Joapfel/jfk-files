@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8971.png
-
-Convert to Markdown- 8 -
+- 8 -
 
 was in Salvador apparently is working fairly well. You'll recall that this was accepting with the Bible that if anyone worked for six days (this was referable to the campesinos) he was entitled to the seventh day pay. I was worried at the time and mentioned my worries to Choretic (Phonetic) and also the Minister of Economics who was at breakfast with us at that time, that one of the possible dangers of any reform is that it is not carried through intelligently and forcibly. It is better not to have a reform, not to announce a new idea, not to arouse expectations, if there is going to be violation of those expectations. At that time it was contemplated that the army would administer the program of the seventh day pay. Apparently they have changed their mind on that and have a civilian group that is administering the program; there has been no real scandal with respect to violations of this. I was a little fearful that a local army guy would get paid off by some of the big plantation owners and thus be permitted to do all kinds of violations. Apparently this has not happened, and they've been pretty effective in the administration.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_877.png
-
-Convert to Markdown# STATEMENT OF THE CASE
+# STATEMENT OF THE CASE
 
 In its initial decision in this case, the Court affirmed appellant's conviction of conspiracy to violate the espionage statute, 18 U.S.C. § 794(a) and (c). 384 F.2d 554 (1967). While appellant's certification petition was pending, the Solicitor General informed the Supreme Court that appellant had been electronically overheard. The Supreme Court considered the effect of such disclosures in this case and in one arising from the Tenth Circuit in Alderman v. United States, 394 U.S. 165 (1969) and remanded both cases to the respective District Courts:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8099.png
-
-Convert to Markdownd. "Protection of sources or sensitive information" -- "Materials on FBI counterintelligence activities; technical devices and techniques; the telephone surveillance involving sensitive coverage in the national security area".
+d. "Protection of sources or sensitive information" -- "Materials on FBI counterintelligence activities; technical devices and techniques; the telephone surveillance involving sensitive coverage in the national security area".
 
 23. All memoranda, files, or other materials, including inspection reports or related surveys, which pertain to the following statement by Attorney General Levi in his testimony before the House Judiciary Committee, February 27, 1975:
 

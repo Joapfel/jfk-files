@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34210.png
-
-Convert to Markdown"HANLA... UNIDAT REVOLUCIONARIA" (W.R.U.L.)
+"HANLA... UNIDAT REVOLUCIONARIA" (W.R.U.L.)
 
 November 11, 1965: "Coexistence Dreams Come Tumbling Down".- Thesis: There can be no coexistence between Castro and the U.S. After Castro returned from Moscow in 1963, and under pressure from Khrushchov, he began his first conciliatory overtures with the United States. Nikita had pleaded geographical and economic impossibility to maintain his commitments with the Castro tyranny. Result: The Soviet Union cannot continually support Castro and the U.S., on their part, reject Castro-Communism. In face of this situation, the men in the Cuban armed forces and in the government have only one dignified course of action: to remove the despot from power in order that Cuba may emerge from chaos and tragedy.
 

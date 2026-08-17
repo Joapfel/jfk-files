@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29291.png
-
-Convert to Markdown## Undated Committee Request:
+## Undated Committee Request:
 
 1. Zack Stout - 1607642. Latest available mailing address provided Select Committee by phone.
 

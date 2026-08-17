@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_315.png
-
-Convert to Markdown1. Psychological & Paramilitary Operations Staff (PP)
+1. Psychological & Paramilitary Operations Staff (PP)
 
 2. Overall Operation for Cuba
 

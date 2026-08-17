@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23962.png
-
-Convert to Markdowneverywhere. He literally was sleeping on my floor at one point.
+everywhere. He literally was sleeping on my floor at one point.
 
 If you had told me, I could have brought my book. I gave you people whom
 I contacted on my trip.

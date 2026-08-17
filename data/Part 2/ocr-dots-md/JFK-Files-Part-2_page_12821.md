@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12821.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RE: RAMIRO DE LA FE
 aka Captain Anton

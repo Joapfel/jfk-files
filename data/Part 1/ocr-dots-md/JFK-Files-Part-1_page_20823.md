@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20823.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CC: 9.4209</td>
    </tr>

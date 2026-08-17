@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22915.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">C-O-N-F-I-D-E-H-T-I-A-L</th></tr></thead><tbody><tr><td>COUNTRY</td><td>Cuba</td><td>REPORT NO.</td><td>00-B-3,164,653</td></tr><tr><td>SUBJECT</td><td>Friction in New Management of Eabo Refinery</td><td>DATE DISTR.</td><td>23 Aug 60</td></tr><tr><td></td><td></td><td>NO. PAGES</td><td>One</td></tr><tr><td></td><td></td><td>REFERENCES</td><td></td></tr><tr><td>DATE OF INFO.</td><td>Aug 60 and earlier</td><td></td><td></td></tr><tr><td>PLACE & DATE ACQ.</td><td>Havana/Aug 60 and earlier</td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">C-O-N-F-I-D-E-H-T-I-A-L</th></tr></thead><tbody><tr><td>COUNTRY</td><td>Cuba</td><td>REPORT NO.</td><td>00-B-3,164,653</td></tr><tr><td>SUBJECT</td><td>Friction in New Management of Eabo Refinery</td><td>DATE DISTR.</td><td>23 Aug 60</td></tr><tr><td></td><td></td><td>NO. PAGES</td><td>One</td></tr><tr><td></td><td></td><td>REFERENCES</td><td></td></tr><tr><td>DATE OF INFO.</td><td>Aug 60 and earlier</td><td></td><td></td></tr><tr><td>PLACE & DATE ACQ.</td><td>Havana/Aug 60 and earlier</td><td></td><td></td></tr></tbody></table>
 
 **THIS IS UNEVALUATED INFORMATION**
 

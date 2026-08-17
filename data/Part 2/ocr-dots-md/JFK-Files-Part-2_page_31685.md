@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31685.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH:jb
 
 ROBERT SCHEER was at his residence, 6468 Benvenue Avenue, Oakland, on October 19, 1968 and had his infant son with him. He also has a new girl friend who looks like a "hippie" who has been at this residence quite a lot in recent weeks. It is understood that SCHEER's son has been residing with his mother at a different location.

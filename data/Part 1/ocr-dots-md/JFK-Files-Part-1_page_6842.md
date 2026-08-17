@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6842.png
-
-Convert to MarkdownSECRET/NOFORN
+SECRET/NOFORN
 CONTINUED CONTROL
 
 a) P.O. Box 104, والت. Housatonic, N. Y., 10953 (609-871-2200).

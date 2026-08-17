@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22056.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>MURPHY DULLES</td><td rowspan="5">11/4/59</td><td rowspan="5">MONGODB<br>SPECIAL GROUP ✓</td></tr><tr><td>MERCHANT</td></tr><tr><td>GRAY</td></tr><tr><td>IRWIN</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>MURPHY DULLES</td><td rowspan="5">11/4/59</td><td rowspan="5">MONGODB<br>SPECIAL GROUP ✓</td></tr><tr><td>MERCHANT</td></tr><tr><td>GRAY</td></tr><tr><td>IRWIN</td></tr></table>
 
 **OCCURRENCE:**
 

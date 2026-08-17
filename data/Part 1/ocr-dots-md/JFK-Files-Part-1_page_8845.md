@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8845.png
-
-Convert to Markdown14-00000
+14-00000
 
 ORIG : C.R.Hallwell
 UNIT : WH/1

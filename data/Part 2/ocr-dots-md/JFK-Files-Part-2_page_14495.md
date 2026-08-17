@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14495.png
-
-Convert to MarkdownSECRET
+SECRET
 
 they may be communists. Two foreign students and an exile from (Haiti) have been acting as intermediaries. Several have applied for admittance to (Friendship) University and other schools in the (USSR) because of finances or ideology. A (Nicaraguan) Marxist in the U.S. is acting as an intermediary for an individual at (Friendship) University by forwarding mail to (Bolivia). Data is furnished regarding foreign students who attended school in the (USSR) and are now in the U.S. One of these appears to have been compromised before he left (Russia) and another brought his (Soviet) wife to the U.S.
 

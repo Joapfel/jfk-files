@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31486.png
-
-Convert to MarkdownSP 100-33835
+SP 100-33835
 PTD/maj
 
 The subject was observed at the above meeting by Special Agents of the FBI.

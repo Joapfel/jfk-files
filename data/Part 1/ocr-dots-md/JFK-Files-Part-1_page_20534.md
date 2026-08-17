@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20534.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">NOTIFICATION OF EST. HMENT OR CANCELLATION<br>OF OFFICIAL COVER BACKSTOP</th><th>DAT</th></tr></thead><tbody><tr><td rowspan="3">TO:<br>(Check)<br>X CHIEF, RECORDS AND CONTROL</td><td rowspan="3">CHIEF, CONTRACT PERSONNEL DIVISION</td><td>April 23, 1970</td></tr><tr><td>FILE NUMBER<br>1088</td></tr><tr><td>EMPLOYEE NUMBER</td></tr><tr><td rowspan="2">ATTN:<br>Chief Support Staff</td><td rowspan="2">CHIEF, OPERATING COMPONENT (For action)</td><td>ID CARD NUMBER<br>EUR</td></tr><tr><td>BACKSTOP ESTABLISHED<br>DISCONTINUED</td></tr><tr><td>REF:<br>Retirement Debriefing</td><td>SUBJECT<br>HUNT, E. Howard</td><td>UNIT<br>OFFICIAL COVER<br>X</td></tr><tr><td colspan="2"></td><td>Department of State</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16323.png
-
-Convert to MarkdownDIARY
+DIARY
 
 15th August 64.
 

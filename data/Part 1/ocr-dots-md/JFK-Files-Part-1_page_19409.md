@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19409.png
-
-Convert to Markdown<table><tr><td>1. SERIAL NO.</td><td>NAME</td><td>ORGANIZATION</td><td>SERIES</td><td>YEAR MAR'S</td></tr><tr><td>JCS820</td><td>PETER J. ALLIEDAN</td><td>OC 535</td><td></td><td></td></tr><tr><td>6</td><td>NO SALARY RATE</td><td>NEW SALARY RATE</td><td>FOR PERIOD</td><td></td></tr><tr><td>Gross</td><td>Step</td><td>Senior</td><td>Last/Date</td><td>Grade Step Salary Effective DATE AS OF</td></tr><tr><td>US 150</td><td></td><td>354,700</td><td>09/24/77</td><td>US 150 1 355,784 09/22/77</td></tr></table>
+<table><tr><td>1. SERIAL NO.</td><td>NAME</td><td>ORGANIZATION</td><td>SERIES</td><td>YEAR MAR'S</td></tr><tr><td>JCS820</td><td>PETER J. ALLIEDAN</td><td>OC 535</td><td></td><td></td></tr><tr><td>6</td><td>NO SALARY RATE</td><td>NEW SALARY RATE</td><td>FOR PERIOD</td><td></td></tr><tr><td>Gross</td><td>Step</td><td>Senior</td><td>Last/Date</td><td>Grade Step Salary Effective DATE AS OF</td></tr><tr><td>US 150</td><td></td><td>354,700</td><td>09/24/77</td><td>US 150 1 355,784 09/22/77</td></tr></table>
 
 CERTIFICATION AND AUTHENTICATION
 

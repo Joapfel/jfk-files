@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19029.png
-
-Convert to MarkdownSAMUEL ADASON JAFFE
+SAMUEL ADASON JAFFE
 
 Attitude of Vyacheslav Kiselov, aka
 "Slava". (Vyacheslav Aleksandrovich Kuskov)

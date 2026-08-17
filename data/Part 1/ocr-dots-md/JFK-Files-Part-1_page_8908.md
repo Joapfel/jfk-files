@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8908.png
-
-Convert to MarkdownCLASSIFIED MESS
+CLASSIFIED MESS
 
 <table><tr><td>149</td></tr><tr><td>SECRET</td></tr></table>
 

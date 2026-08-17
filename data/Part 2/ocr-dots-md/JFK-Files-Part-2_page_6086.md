@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6086.png
-
-Convert to Markdown-3-
+-3-
 
 10. Military Service: None
 

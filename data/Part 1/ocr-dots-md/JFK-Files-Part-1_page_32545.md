@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32545.png
-
-Convert to Markdown10 June 1965
+10 June 1965
 
 TO WHOM IT MAY CONCERN:
 

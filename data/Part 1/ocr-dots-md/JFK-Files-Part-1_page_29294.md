@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29294.png
-
-Convert to MarkdownRESUME OF EMPLOYMENT
+RESUME OF EMPLOYMENT
 
 NAME: Grayston L. Lynch
 

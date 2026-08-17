@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23371.png
-
-Convert to Markdown<table>
+<table>
     <caption>CIA INTERNAL USE ONLY<br>SECRET<br>(When Filled In)</caption>
     <thead>
         <tr><th colspan="7">PERSONALITY (201) FILE REQUEST</th></tr>

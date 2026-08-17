@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12498.png
-
-Convert to MarkdownSTANDARD FORM NO. 1169A
+STANDARD FORM NO. 1169A
 
 Form prescribed by Comptroller General U.S.
 (All payments and disbursements of the Government of the United States, including Revenues and Expenses, must be made in accordance with these "CONDITIONS OF PAYMENT".)

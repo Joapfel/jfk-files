@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11547.png
-
-Convert to Markdownone group headed by Departmental attorney John Martin, analyzed all investigative results received by the Department in an effort to establish whether a case was being made. Mr. Brennan advised the Section Chief that Mr. McGrath would be in a position to furnish any information required by the Section Chief from the Internal Security Division and instructed that copies of daily teletypes received from our various offices be furnished through Mr. McGrath to the Internal Security Division as they came in.
+one group headed by Departmental attorney John Martin, analyzed all investigative results received by the Department in an effort to establish whether a case was being made. Mr. Brennan advised the Section Chief that Mr. McGrath would be in a position to furnish any information required by the Section Chief from the Internal Security Division and instructed that copies of daily teletypes received from our various offices be furnished through Mr. McGrath to the Internal Security Division as they came in.
 
 5(b). Approximately two weeks after this case was instituted, the Section Chief asked Mr. Brennan if he would brief both the Section Chief and the Section Number One Man on his concept of the magnitude of this case and its various ramifications. This was done and Mr. Brennan again emphasized the need for following all facets on a special basis.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33582.png
-
-Convert to MarkdownSir,
+Sir,
 
 On behalf of Mr. A. Pretsionu, Chairman of the last conference, and Mr. Constantine Stitch, Chairman of the Serbian National Committee, Chair an of the next meeting of the Central and Eastern European Conference, I am inviting you and your political friends to a meeting of the 30th, 7th and 14th of December at the Hotel Ilard, Executive Room, Pennsylvania Ave. and 14th St., Washington, D.C., at precisely 3 P.M.
 

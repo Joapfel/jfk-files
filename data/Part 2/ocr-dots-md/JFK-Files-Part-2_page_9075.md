@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9075.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LIST OF BUREAU CRIEVANCES
 

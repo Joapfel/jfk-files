@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_63.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: Nelson H. Smith
 

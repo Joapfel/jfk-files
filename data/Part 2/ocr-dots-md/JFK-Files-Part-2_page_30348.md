@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30348.png
-
-Convert to Markdown1 from what country, this they were interested, as much as possible
+1 from what country, this they were interested, as much as possible
 2 to take this type of information. They asked me about Oswald.
 3 I told them what I knew.
 

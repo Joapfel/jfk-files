@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19062.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 18 July 1963
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14647.png
-
-Convert to Markdown# VII. HIJACKINGS OF U. S. PLANES
+# VII. HIJACKINGS OF U. S. PLANES
 
 The following are summaries of all hijackings since January 1, 1968. There has been a total of 70 incidents of hijackings or attempts to hijack aircraft during this period. There were 56 hijackings and 14 aborted hijackings.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8328.png
-
-Convert to MarkdownADPC
+ADPC
 Attention: Security Officer
 Chief, Special Security Branch
 

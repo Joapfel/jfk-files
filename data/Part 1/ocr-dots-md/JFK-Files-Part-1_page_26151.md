@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26151.png
-
-Convert to MarkdownRICO, Victor (Calan) 201 336474
+RICO, Victor (Calan) 201 336474
 
 7a
 

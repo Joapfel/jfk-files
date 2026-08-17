@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23631.png
-
-Convert to Markdown# PROCEEDINGS
+# PROCEEDINGS
 
 Senator Huddleston. Let's come to order.
 

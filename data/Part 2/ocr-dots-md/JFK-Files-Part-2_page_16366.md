@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16366.png
-
-Convert to Markdown1. No one is to play at the office.
+1. No one is to play at the office.
 
 2. No one is authorized to be in the office unless on business.
 

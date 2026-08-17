@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15653.png
-
-Convert to Markdown# CHAIRMAN FRED LIVES
+# CHAIRMAN FRED LIVES
 
 At 5 a.m., December 4, Nixon and Daley's avaricious pigs brutally slaughtered the Chairman of the Illinois Chapter of the Black Panther Party, and a member of the Peoria branch. The pigs, with their usual tactics, attacked an apartment where 9 Panthers were sleeping. The result of the raid: Fred Hampton and Mark Clark dead, four others critically wounded, and three others arrested and charged with attempted murder for defending themselves.
 

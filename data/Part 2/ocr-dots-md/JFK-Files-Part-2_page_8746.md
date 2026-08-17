@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8746.png
-
-Convert to Markdownand FERNANDEZ. CIA advised the FBI that the Agency
+and FERNANDEZ. CIA advised the FBI that the Agency
 was taking steps to further develop the information
 and to identify the original source and additional
 data would be provided the FBI immediately.

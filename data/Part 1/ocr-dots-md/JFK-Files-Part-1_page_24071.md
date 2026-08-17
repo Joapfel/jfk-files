@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24071.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:</td><td></td></tr><tr><td colspan="2">SECRET</td></tr><tr><td>ROUTING AND/OR INITIALS - Mdm of</td><td></td></tr><tr><td>3</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></table>
+<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:</td><td></td></tr><tr><td colspan="2">SECRET</td></tr><tr><td>ROUTING AND/OR INITIALS - Mdm of</td><td></td></tr><tr><td>3</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></table>
 
 <table><tbody><tr><td>DNO: DIANE L. CHATELAN</td></tr><tr><td>LMT: CA/CF</td></tr><tr><td>EXT: 7767</td></tr><tr><td>DATE: 23 Apr.68</td></tr></tbody></table>
 

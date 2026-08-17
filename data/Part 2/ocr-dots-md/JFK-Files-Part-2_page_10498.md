@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10498.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # DEVISED FACILITIES COVER
 

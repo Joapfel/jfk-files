@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2429.png
-
-Convert to MarkdownCITE DCU/MIAI 15377.
+CITE DCU/MIAI 15377.
 
 TO DCU/HEADQUARTERS
 

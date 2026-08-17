@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24989.png
-
-Convert to MarkdownSTATEMENT BY "ROBERT MARANA"
+STATEMENT BY "ROBERT MARANA"
 TO FREDERICK BARON ON NOVEMBER 14, 1975
 
 I am a current employee of the Central Intelligence Agency. My current address is c/o Review Staff, Central Intelligence Agency, Langley, Virginia.

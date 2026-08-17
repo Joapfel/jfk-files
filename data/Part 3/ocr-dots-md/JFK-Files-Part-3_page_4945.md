@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4945.png
-
-Convert to MarkdownPHILIP J. MENT, JR.
+PHILIP J. MENT, JR.
 WALTER F. CAMPBELL, JR.
 RALPH D. RIGGS, JR.,
 ROBERT WOODSON

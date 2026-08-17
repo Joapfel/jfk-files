@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3871.png
-
 s may have passed funds to ARCACHA, who may have briefed or even employed NOVEL,
 
 19. On 28 May 1967 NOVEL sent the following telegram to the DCI:

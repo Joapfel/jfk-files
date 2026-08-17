@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10119.png
-
-Convert to MarkdownNW 88608 DocId:32989628 Page 396
+NW 88608 DocId:32989628 Page 396
 
 RECEIVED
 TELETYPE UNIT

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18073.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM
 0-6A

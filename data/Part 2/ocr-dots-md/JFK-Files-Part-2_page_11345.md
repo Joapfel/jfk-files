@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11345.png
-
-Convert to Markdown[ (10)] Dissemination at the Bureau
+[ (10)] Dissemination at the Bureau
 
 There are some situations in which dissemination is made at the
 Bureau instead of in the field. In the majority of instances,

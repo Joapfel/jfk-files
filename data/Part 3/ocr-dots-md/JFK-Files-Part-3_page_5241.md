@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5241.png
-
-Convert to Markdown# ADMINISTRATIVE MEMORANDUM
+# ADMINISTRATIVE MEMORANDUM
 
 ## Administrative Handling of Theft From Interstate Shipment Cases in the San Francisco Division
 

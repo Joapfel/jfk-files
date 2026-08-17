@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3013.png
-
-Convert to MarkdownWASHINGTON
+WASHINGTON
 
 A.C WHITE & Dorthy
 (10125 Markham Ave.)

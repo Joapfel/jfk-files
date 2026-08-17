@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24374.png
-
-Convert to MarkdownAgreed to by Subcommittee
+Agreed to by Subcommittee
 
 October 8, 1975
 

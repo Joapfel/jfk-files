@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5354.png
-
-Convert to MarkdownClemard Joseph Charles
+Clemard Joseph Charles
 
 George Musulina/bm
 BCB/Operational Support Staff

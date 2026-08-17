@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14261.png
-
-Convert to Markdownimperceptible, while 2.5 can be felt; near the point of origin and 3 can be felt (over a fair-sized area. Slight damage can be caused at 4.5, a level of 5 is considered ainy, 7 is major, and 8 is a "great earthquake."
+imperceptible, while 2.5 can be felt; near the point of origin and 3 can be felt (over a fair-sized area. Slight damage can be caused at 4.5, a level of 5 is considered ainy, 7 is major, and 8 is a "great earthquake."
 
 The issue, most geologists and seismic experts agree, is not whether another blockbuster quake will occur, but when. It could happen any time.
 

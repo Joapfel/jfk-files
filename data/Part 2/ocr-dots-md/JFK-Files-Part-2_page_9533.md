@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9533.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 a question and answer session, NEWTON finished speaking at
 2:30 p.m.

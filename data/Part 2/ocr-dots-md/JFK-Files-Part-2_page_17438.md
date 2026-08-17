@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17438.png
-
-Convert to MarkdownUNITED STATES
+UNITED STATES
 
 Memorandum
 

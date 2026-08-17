@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20860.png
-
-Convert to MarkdownWomen's National March On
+Women's National March On
 The Pentagon, April 10, 1971
 
 Bronx Community College,) all to depart for Washington, D.C. at approximately 6:00 a.m. on April 10, 1971. The buses chartered for captioned march are:

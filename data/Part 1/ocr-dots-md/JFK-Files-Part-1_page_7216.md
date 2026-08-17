@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7216.png
-
-Convert to Markdown11 Aug 66
+11 Aug 66
 
 MEMO FOR RECORD
 

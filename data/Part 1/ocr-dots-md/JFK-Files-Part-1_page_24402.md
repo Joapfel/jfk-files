@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24402.png
-
-Convert to MarkdownSEPARATE COVER ATTACHMENT TO:
+SEPARATE COVER ATTACHMENT TO:
 
 <table><tr><td>MICROFILMED</td></tr><tr><td>MAY 13 1969</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>
 

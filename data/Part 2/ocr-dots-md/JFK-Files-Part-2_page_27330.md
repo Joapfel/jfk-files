@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27330.png
-
-Convert to Markdownz - Memo for Special Agent in Charge - from Hqs - Undated - Subj: Project RESISTANCE # 533 989 I-SB
+z - Memo for Special Agent in Charge - from Hqs - Undated - Subj: Project RESISTANCE # 533 989 I-SB
 
 a - Memo for Special Agent in Charge - 17 Dec 70
 

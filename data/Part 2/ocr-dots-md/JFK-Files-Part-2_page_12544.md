@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12544.png
-
-Convert to Markdownto Secret Service locally and to FBIHQ for dissemination at headquarters level.
+to Secret Service locally and to FBIHQ for dissemination at headquarters level.
 
 (1) Secret Service should be advised of reason for referral; i.e., statement of class or classes of agreement which applies to subject. FD-376 serves as letter of transmittal for both local and FBIHQ dissemination. Forward original and one copy to FBIHQ and maintain copy in case file.
 

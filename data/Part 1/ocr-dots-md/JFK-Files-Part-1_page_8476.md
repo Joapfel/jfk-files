@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8476.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">THE AMERICAN SCHOOL FOUNDATION A. G.</td>
   </tr>

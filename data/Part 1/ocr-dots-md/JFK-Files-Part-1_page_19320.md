@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19320.png
-
-Convert to MarkdownCPD
+CPD
 
 Chief, FBZ
 

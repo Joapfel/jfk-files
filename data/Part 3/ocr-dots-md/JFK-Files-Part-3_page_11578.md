@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11578.png
-
-Convert to Markdownbeing prepared for early dissemination. In June, 1971, a comprehensive document on the potential for violence in the Nation during the Summer of 1971 was prepared for high-level dissemination.
+being prepared for early dissemination. In June, 1971, a comprehensive document on the potential for violence in the Nation during the Summer of 1971 was prepared for high-level dissemination.
 
 In addition to the above, this Unit prepares a monthly "FBI Digest of Civil Disorders" briefly summarizing all disorders occurring in the previous month growing out of racial unrest. The incidents are listed geographically and chronologically so that the White House and other recipients can tell at a glance the general nature of incidents and problems and where they are.
 

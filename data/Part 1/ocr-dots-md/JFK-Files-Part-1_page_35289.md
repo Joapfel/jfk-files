@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35289.png
-
-Convert to Markdown# JUDICATURA CUBANA DE OGG:ATTICA
+# JUDICATURA CUBANA DE OGG:ATTICA
 
 July 31, 1962.
 

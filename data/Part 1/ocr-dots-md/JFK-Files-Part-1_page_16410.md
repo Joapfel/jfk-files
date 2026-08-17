@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16410.png
-
-Convert to Markdown# Target Analysis Summary Report
+# Target Analysis Summary Report
 
 ## AUX/C/1 Operation
 

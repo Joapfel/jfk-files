@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35672.png
-
-Convert to MarkdownMayo 1 Viernes Dr. Cesar Lugones # 94 Clinología
+Mayo 1 Viernes Dr. Cesar Lugones # 94 Clinología
 " 2 Sabado Dr. " " # 95 Clínología
 " 4 Lunes Dr. Maceo # 96 Catarteritis
 " 5 Martes " # 97 Parálisis I

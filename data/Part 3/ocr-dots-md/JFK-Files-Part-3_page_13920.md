@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13920.png
-
-Convert to MarkdownAt the present time, Mr. Fitzgerald said, CIA has a number of integrated covert operations which were approved by the Standing Group and by the President. The six-part program is a long-range one geared to a period of 18 months, and it is within the framework of U. S. policy toward Cuba. The elements of the integrated program are:
+At the present time, Mr. Fitzgerald said, CIA has a number of integrated covert operations which were approved by the Standing Group and by the President. The six-part program is a long-range one geared to a period of 18 months, and it is within the framework of U. S. policy toward Cuba. The elements of the integrated program are:
 
 (1) Intelligence collection, both strategic and operational.
 

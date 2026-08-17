@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11904.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 INTERNATIONAL NEW LEFT AND SEDITION UNIT
 
 (Prior to 12/16/70, part of Protest Groups and International

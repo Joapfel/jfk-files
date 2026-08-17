@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18735.png
-
-Convert to MarkdownDIRECTOR, FBI (105-54487)
+DIRECTOR, FBI (105-54487)
 
 SAC, NEW YORK (134-2112)
 

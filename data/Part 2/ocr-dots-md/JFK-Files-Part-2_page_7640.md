@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7640.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 Distribution For
 Book Dispatch No. 4726

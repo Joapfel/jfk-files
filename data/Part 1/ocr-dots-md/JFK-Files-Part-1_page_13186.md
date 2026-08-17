@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13186.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CABLE SECRETARY DISSEMINATION</td></tr><tr><td>PERSONAL NOTIFIED</td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLOTTED</td></tr><tr><td>BY ______ AT ______<br/>DISSENT BY 24 PER .<br/>ACTION WH-8 ☑ DO COPY</td></tr><tr><td colspan="2">CLASSIFIED MESSAGE F</td></tr><tr><td colspan="2">TOTAL COPIES 25</td></tr><tr><td colspan="2">OUTING AND/OR INITIALS - SEEN BY</td></tr><tr><td>GROUP I<br/>CITE CIGARS IN VENEER<br/>CIGARETTE NO<br/>1039618</td><td>1 6</td></tr><tr><td>REPRODUCTION OF THIS COPY PROHIBITED</td><td>2 7</td></tr><tr><td>INDEX ☐ YES ☐ NO</td><td>3 8</td></tr><tr><td>CLASSIFY TO FILE NO ____________</td><td>4 9</td></tr><tr><td>X-REF TO FILE NO ____________</td><td>5 10</td></tr><tr><td>FILE RIO ☐ RETURN TO BRANCH ☐ DESTROY ☐ SIG.</td><td></td></tr><tr><td>INFO<br/>FILE. vr W/COG-8, CI, CLOPS, CIPS,<br/>FI, FITINT-2</td><td></td></tr></table>
 

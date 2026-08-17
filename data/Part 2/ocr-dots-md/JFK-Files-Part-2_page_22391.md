@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22391.png
-
-Convert to MarkdownSECRET
+SECRET
 
 our activities but I just can't think -- I remember this was on one of our activities but I just can't remember what the extra-legal was. I just can't remember what it was. I know it was one of the parts of the program.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31295.png
-
-Convert to Markdown2. <u>**TAKING RECORD**</u>. The following indicates the various traits as observed by the instructors during the training period. The observations include the student's participation and conduct in training as well as his reactions to various problems and situations.
+2. <u>**TAKING RECORD**</u>. The following indicates the various traits as observed by the instructors during the training period. The observations include the student's participation and conduct in training as well as his reactions to various problems and situations.
 
 1. <u>UNDERSTANDING INSTRUCTIONS</u>
 

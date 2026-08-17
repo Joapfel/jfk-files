@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9648.png
-
-Convert to MarkdownUNDER SEPARATE COVER ATTACHMENT TO: HMMW-1945S
+UNDER SEPARATE COVER ATTACHMENT TO: HMMW-1945S
 
 IDENTITY #1 - George Blake, V.P. of American Chamber of Commerce
 

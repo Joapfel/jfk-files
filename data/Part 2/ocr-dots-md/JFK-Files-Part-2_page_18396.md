@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18396.png
-
-Convert to MarkdownPLAINTEXT
+PLAINTEXT
 
 TELETYPE
 

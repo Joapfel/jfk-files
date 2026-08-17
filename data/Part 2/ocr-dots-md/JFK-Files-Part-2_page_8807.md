@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8807.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 teltap take against the Soviet Embassy during the period September through November 1963, to determine a possible Soviet link with OSWALD.
 

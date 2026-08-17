@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24301.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. **Substance:** You noted that ORPHONE . . . "cannot just simply show up and start a leftist nuclei . . ." Why not? Others have, He is a well-known leftist in intellectual circles in Europe and has written many articles in praise of Mao. This should do for a start. As for what he might have to offer local leftists . . . money, energy and ideas will do. A great deal of money. of course, is unneeded, but some is. We can supply it. As for ideas and energy, he has both. Concerning the "built-in jealousy, animosity, etc." which such action would likely engender on the part of local rival leftists, this may or may not occur. But is this such a calamity if it should occur? Are not leftists usually fighting among themselves anyway? In any case, we have nothing to lose by trying to salvage this agent. What we have to lose by not trying is an agent asset of proved worth.
 

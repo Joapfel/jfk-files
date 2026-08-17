@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14092.png
-
-Convert to Markdown- 22 -
+- 22 -
 
 TOP SECRET
 

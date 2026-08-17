@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35020.png
-
-Convert to MarkdownDELEGATIONS
+DELEGATIONS
 
 CAREEX "I-N"
 

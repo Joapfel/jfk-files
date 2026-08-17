@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24494.png
-
-Convert to Markdown14-00000
+14-00000
 
 # Secuestros y Atracos del F.L.N.
 ## Para Financiar el Movimiento Guerrillero

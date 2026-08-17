@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24527.png
-
-Convert to Markdown"This should be a 'Special Target' operation ... Gangster elements might provide the best recruitment potential for actions against police -- G2 /intelligence/ officials." (Id., p. 151). */
+"This should be a 'Special Target' operation ... Gangster elements might provide the best recruitment potential for actions against police -- G2 /intelligence/ officials." (Id., p. 151). */
 
 Lansdale testified that early in the Mongoose opera-
 tion he had suggested to the working level representatives of the Mongoose

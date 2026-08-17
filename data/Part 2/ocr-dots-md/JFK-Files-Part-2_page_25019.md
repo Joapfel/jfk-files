@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25019.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Dillon. That is right.
 

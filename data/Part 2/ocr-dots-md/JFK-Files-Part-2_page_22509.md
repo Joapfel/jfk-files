@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_22509.png
-
-Convert to MarkdownRegarding his overseas travel, for the early years, he was reimbursed in toto for travel expenses. However, once World News Analysis had become established and had acquired some regular source of income, the reimbursements for his overseas travel was decreased, and only a token contribution was made toward lengthy trips.
+Regarding his overseas travel, for the early years, he was reimbursed in toto for travel expenses. However, once World News Analysis had become established and had acquired some regular source of income, the reimbursements for his overseas travel was decreased, and only a token contribution was made toward lengthy trips.

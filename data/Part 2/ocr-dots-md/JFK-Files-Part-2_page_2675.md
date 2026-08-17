@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2675.png
-
-Convert to Markdown(4)
+(4)
 
 OCCUPATION LAST EMPLOYER
 EMPLOYER'S OR OWN BUSINESS ADDRESS (St and Number) (City) (State) (Country)

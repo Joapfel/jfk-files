@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12820.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RE: ARTURO CARABALLO
 CUCO (LNU)

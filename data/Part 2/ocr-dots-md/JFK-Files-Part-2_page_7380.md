@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7380.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 or notes, etc., are inadvertently left un-
 secured. (Attached are examples of Security

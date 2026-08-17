@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11732.png
-
-Convert to Markdown(3) New Offices Recommended If Further Expansion Undertaken
+(3) New Offices Recommended If Further Expansion Undertaken
 
 In response to the Director's request, we recommended by memorandum 5/28/71 that six additional offices be opened for the specific purpose of increasing our production of high-level intelligence of interest to the White House. Three of these would be offices formerly operated but presently closed, while three would be completely new offices. The following are the three former Legat offices which we proposed be opened:
 

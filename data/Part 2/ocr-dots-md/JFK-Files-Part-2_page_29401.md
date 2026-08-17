@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29401.png
-
-Convert to Markdown# Classification:
+# Classification:
 
 200003
 

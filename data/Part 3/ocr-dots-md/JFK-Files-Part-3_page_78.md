@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_78.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IRAN
 * Consulate General of Iran, New York City: 62-93147

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5478.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OCC-95-149
 

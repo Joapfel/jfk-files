@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22309.png
-
-Convert to Markdown716.
+716.
 
 given instructions that no actions were to be taken which
 might embarrass then existing good relations with the United

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24521.png
-
-Convert to Markdown3. Bissell's Testimony Concerning Presidential Instructions to Act More Vigorously, But That Assassination Was Not Included.
+3. Bissell's Testimony Concerning Presidential Instructions to Act More Vigorously, But That Assassination Was Not Included.
 
 Sometime in the early fall of 1961, Bissell was apparently called to the White House and was said to have been
 

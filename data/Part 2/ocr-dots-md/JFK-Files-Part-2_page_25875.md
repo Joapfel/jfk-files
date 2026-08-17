@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25875.png
-
-Convert to MarkdownSECRET
+SECRET
 
 S-L-C-R-E-T/NO:FORN/LIMITED
 

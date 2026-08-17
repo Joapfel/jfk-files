@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32456.png
-
-Convert to Markdownwere Cubans. Further, the Government of Panama, prior to the departure
+were Cubans. Further, the Government of Panama, prior to the departure
 of the invasion group from Cuba informed the Cuban Government of reports
 about this impending event, invoking the 1928 Habana Convention on the
 Duties and Rights of States in the Event of Civil Strife. The Cuban

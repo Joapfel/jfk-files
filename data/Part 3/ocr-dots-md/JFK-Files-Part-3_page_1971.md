@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1971.png
-
-Convert to MarkdownSLC:05 0101950
+SLC:05 0101950
 
 RR
 

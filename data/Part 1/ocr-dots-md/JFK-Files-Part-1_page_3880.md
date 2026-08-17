@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3880.png
-
-Convert to MarkdownHOTEL MÉRIDA
+HOTEL MÉRIDA
 
 MERIDA VUCATAN. MEXICO.
 

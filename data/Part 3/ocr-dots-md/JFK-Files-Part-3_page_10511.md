@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10511.png
-
-Convert to Markdown# VD1 68-304
+# VD1 68-304
 
 E.D.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10574.png
-
-Convert to Markdown# ¿OPTIMISMO O PESIMISMO?
+# ¿OPTIMISMO O PESIMISMO?
 
 En el ambiente del exilio cubano, flota la interrogante de sí conviene ser optimisto o si perjudica que los voceros de la opinión pública del destierro, se exceden en sus pronunciamientos, torciendo quizá la dirección de los acontecimientos, al preciptar a los patriotos en una dirección que, por su naturalidad requiere más tiempo y mayores reflexiones.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28990.png
-
-Convert to Markdown1975
+1975
 
 # Supplemental Schedule of Gains and Losses
 Sales, Exchanges and Involuntary Conversions under

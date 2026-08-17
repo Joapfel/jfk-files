@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19886.png
-
-Convert to MarkdownNO INCIDENTS WERE REPORTED.
+NO INCIDENTS WERE REPORTED.
 
 **ADMINISTRATIVE:**
 

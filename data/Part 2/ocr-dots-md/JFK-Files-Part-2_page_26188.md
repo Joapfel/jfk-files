@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26188.png
-
-Convert to Markdownand it's a human, understandable type of a
+and it's a human, understandable type of a
 thing. They had been there and associated
 there, and some of them had spent their entire
 lives there, and here they were having to

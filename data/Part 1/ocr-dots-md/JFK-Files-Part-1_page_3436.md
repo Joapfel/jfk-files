@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3436.png
-
-Convert to Markdown27 May 1964
+27 May 1964
 
 AMBOSLOW MEETING IN WASHINGTON, D.C. 19 May 1964
 

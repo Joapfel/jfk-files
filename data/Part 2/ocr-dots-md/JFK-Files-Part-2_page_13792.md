@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13792.png
-
-Convert to Markdown# C. Mail Covers and Mail Openings
+# C. Mail Covers and Mail Openings
 
 The Committee is examining the conduct of mail covers and mail openings by or on behalf of the FBI and any instances of mail openings or intercepts which may have been conducted by or on behalf of the FBI. This inquiry may involve allegations of abuse or other controversial matters where there is reason to believe improprieties may have occurred.
 

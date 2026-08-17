@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11465.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">RECEIPIENT FORM<br/>TOTAL COPIES:</th><th>RECIPIENT INFORMATION - SEEN BY</th></tr></thead><tbody><tr><td rowspan="6">OBO: Marvin Francis/lq<br/>TEN: WH/1/3F04<br/>EXT:<br/>DATE:</td><td rowspan="6"><table border="1" style="border-collapse: collapse; text-align: center;"><tbody><tr><td>SECRET</td></tr></tbody></table></td><td>1</td></tr><tr><td>2</td></tr><tr><td>3</td></tr><tr><td>4</td></tr><tr><td>5</td></tr><tr><td>6</td></tr></tbody></table></td><td>17</td></tr><tr><td>8</td></tr><tr><td>9</td></tr><tr><td>10</td></tr></tbody></table></td><td></td></tr></tbody></table>
 

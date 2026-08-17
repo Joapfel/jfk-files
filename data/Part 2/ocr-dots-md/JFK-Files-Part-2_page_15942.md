@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15942.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Mackey refers to this person as Dennis Harvey. He also noted that Mackey's description of the 1965 Pontiac leaving scene taking Curry is similar to a vehicle owed by an alleged BPP member from Maywood, Illinois; namely, Robert Bruce.
 

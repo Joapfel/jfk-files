@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5265.png
-
-Convert to Markdown3
+3
 
 SUPERVISOR ROBERT D. ROBY:
 

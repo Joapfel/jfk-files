@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28089.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 5. The nature of the task assigned to DDO/PIC includes the word by word review of thousands of pages of documents. The impact on the Agency, and the USG, of unauthorized disclosure of secrets, adds to the weight of constant decision making, and to the strain and tension of defending a crucial perimeter. And this perimeter is under an almost daily attack of erupting crises. Mr. Randall's dedication and superior ability in handling an onerous, difficult, and complex job, filled with frustrations that would dismay and discourage others, has been truly outstanding.
 

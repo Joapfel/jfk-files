@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8006.png
-
-Convert to MarkdownFebruary 1972
+February 1972
 
 43 Who Shot President Kennedy? - Or Fact and Fable in History
 by Gareth Jenkins, Weston, Mass.

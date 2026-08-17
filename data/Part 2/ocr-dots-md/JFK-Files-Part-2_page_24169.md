@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24169.png
-
-Convert to MarkdownV. THE DISPOSAL OF AGENCY PROPRIETARIES
+V. THE DISPOSAL OF AGENCY PROPRIETARIES
 
 a) An Overview
 

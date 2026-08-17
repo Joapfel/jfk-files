@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11873.png
-
-Convert to Markdown"SECRET - NO FOREIGN DISSEMINATION"
+"SECRET - NO FOREIGN DISSEMINATION"
 
 23. Disinformation
 The passage of deceptive information by an OA is a complex operation which requires detailed planning and coordination between field office and FBIHQ. This technique should be employed only in OA operations in which the foreign intelligence service has apparently accepted the bona fides of the OA, when the benefit will clearly outweigh the risk to the overall OA operation.

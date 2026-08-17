@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6170.png
-
-Convert to MarkdownThis document must be denied to protect the former deep cover asset, AMJHEER/1. This document is denied under (b)(1) proper classification, (b)(3) protection of sources and methods and (b)(6) protection of the privacy of others. A representative of LA Division does not wish to declassify this memorandum, and I concur.
+This document must be denied to protect the former deep cover asset, AMJHEER/1. This document is denied under (b)(1) proper classification, (b)(3) protection of sources and methods and (b)(6) protection of the privacy of others. A representative of LA Division does not wish to declassify this memorandum, and I concur.
 
 4. Recommendation: It is recommended that the initial denial as stated in our reply of 29 Oct 75 be reaffirmed, based on Title 5, U.S.C. 552(b)(1), (b)(3) and (b)(6) as stated above.
 

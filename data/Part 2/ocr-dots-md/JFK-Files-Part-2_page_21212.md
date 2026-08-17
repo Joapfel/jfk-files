@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21212.png
-
-Convert to Markdown7th Department as NOSENKO claimed. If NOSENKO was mistaken and
+7th Department as NOSENKO claimed. If NOSENKO was mistaken and
 was referring to SHUBIN'S [1961] visit he could not have noticed
 his name while reviewing tourist lists because NOSENKO was in
 the American Department at that time.

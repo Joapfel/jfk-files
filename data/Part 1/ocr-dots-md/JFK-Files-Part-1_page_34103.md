@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34103.png
-
-Convert to MarkdownF- Att. #5 UPGA-26348
+F- Att. #5 UPGA-26348
 
 C13 (E)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28944.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 MEMORANDUM FOR: Clandestine Services Personnel Division
 

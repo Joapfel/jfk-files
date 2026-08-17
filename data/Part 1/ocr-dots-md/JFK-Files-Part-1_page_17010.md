@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17010.png
-
-Convert to MarkdownHMM-4-3992
+HMM-4-3992
 KAPOK-492
 
 16 January 1956

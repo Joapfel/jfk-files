@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21093.png
-
-Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+# Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : A. H. BELMONT
 FROM : W. A. BRANTIGAN

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_20.png
-
-Convert to Markdownhectic
+hectic
 The atmosphere in the spring of 1965, with the
 
 Dominican situation coming on top of growing difficulties in Vietnam,

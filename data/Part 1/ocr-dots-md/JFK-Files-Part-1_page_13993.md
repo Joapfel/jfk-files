@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13993.png
-
-Convert to MarkdownASSIGNED AGENT: C. JOHNSON
+ASSIGNED AGENT: C. JOHNSON
 AX File #:
 105-RC
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7037.png
-
-Convert to Markdown1. Howard Osborn's recommendations for the Brezhnev "watch list":
+1. Howard Osborn's recommendations for the Brezhnev "watch list":
 
 a. Delete NOSSENKO. He's happily rehabilitated, well disposed toward CIA and the USG, well adjusted. Not a threat.
 

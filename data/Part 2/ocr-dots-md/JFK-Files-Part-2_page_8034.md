@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8034.png
-
-Convert to Markdownbeen Oswald's rifle. The PSE showed considerable stress in his statements.
+been Oswald's rifle. The PSE showed considerable stress in his statements.
 
 Patrolman Gerald L. Hill testified that he found three spent bullet hulls on the floor beneath the window from which the fatal shots allegedly were fired. The PSE showed third stress in his statements.
 

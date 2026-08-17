@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29256.png
-
-Convert to Markdown<table><tr><td>DO NOT USE THIS SPACE</td></tr><tr><td>ISSUED BY</td></tr></table>
+<table><tr><td>DO NOT USE THIS SPACE</td></tr><tr><td>ISSUED BY</td></tr></table>
 
 PERSONAL HISTORY STATEMENT
 

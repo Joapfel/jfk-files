@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1942.png
-
-Convert to Markdown27 April 1970
+27 April 1970
 
 MEMORANDUM FOR: Chief, Retirement Affairs Division
 

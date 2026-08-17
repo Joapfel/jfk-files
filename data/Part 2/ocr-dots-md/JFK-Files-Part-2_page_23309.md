@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23309.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of disclosure, the problem was we did not want to be associated
 with assassination. That's why I struck it out.

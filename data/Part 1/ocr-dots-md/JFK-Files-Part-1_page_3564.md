@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3564.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td rowspan="2">MESSAGE JOHN TOTAL COPY</td><th colspan="3"></th><th colspan="3">ACCOUNTING AND LOGISTICS - SHEET BY</th></tr><tr><td>SECRET</td><td></td><td></td><td></td><td></td><td></td></tr></table>
 

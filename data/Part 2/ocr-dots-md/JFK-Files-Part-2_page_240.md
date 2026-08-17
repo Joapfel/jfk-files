@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_240.png
-
-Convert to Markdown23 Feb 66
+23 Feb 66
 
 Jack,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12606.png
-
-Convert to Markdownregarding subject's entry into armed forces. Disseminate copy of report or LHM locally to appropriate military intelligence agency and furnish copies to Bureau for dissemination at headquarters level. Place case in closed status.
+regarding subject's entry into armed forces. Disseminate copy of report or LHM locally to appropriate military intelligence agency and furnish copies to Bureau for dissemination at headquarters level. Place case in closed status.
 
 Remove subject from ADEX. File geographical card for subject in case file marked "canceled" and destroy alphabetical card. Set administrative tickler and each six months make appropriate inquiry to determine if subject has been discharged. Make such checks locally, through pre-text if necessary, and, if necessary, submit letter requesting check by field office covering records of appropriate service.
 

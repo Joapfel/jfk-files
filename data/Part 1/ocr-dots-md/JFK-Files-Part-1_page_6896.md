@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6896.png
-
-Convert to MarkdownCS COPY
+CS COPY
 
 19 Jan 58
 

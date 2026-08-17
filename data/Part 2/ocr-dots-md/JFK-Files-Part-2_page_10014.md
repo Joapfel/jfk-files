@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10014.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 for Administration
 
 Director, FBI

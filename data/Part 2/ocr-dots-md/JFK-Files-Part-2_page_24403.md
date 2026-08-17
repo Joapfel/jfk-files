@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24403.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 would participate in a plan to "dispose" of Castro* (Maheu, 7/29,
 p. 8). Maheu had known Roselli since the late 1950's (Maheu, 7/29,

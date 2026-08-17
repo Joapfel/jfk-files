@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5953.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td><table><tr><td>SECRET</td></tr></table></td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td><table><tr><td>SECRET</td></tr></table></td></tr></table>
 
 BETWEEN 17-19 FEB. JAVA/2 AND 3 TO ACCOMPANY A-3 SOONEST SECURE RECEPTION ARRANGED.
 

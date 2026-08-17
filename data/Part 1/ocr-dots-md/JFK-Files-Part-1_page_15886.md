@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15886.png
-
-Convert to Markdownreally wants. To bet of my recollection, Subject thought highly
+really wants. To bet of my recollection, Subject thought highly
 of Monty Love (T), the C/O that helped pitch him and who brought
 him out Black from France. Monty was to go to one of the German
 Stations or bases the last time I saw him in late 1959.

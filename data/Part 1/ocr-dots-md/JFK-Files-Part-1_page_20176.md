@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20176.png
-
-Convert to Markdown10
+10
 
 FROM OCT 1944 TO JAN 1945 NORTHERN EUROPE WAR SERVICE
 City or Section Country Purpose

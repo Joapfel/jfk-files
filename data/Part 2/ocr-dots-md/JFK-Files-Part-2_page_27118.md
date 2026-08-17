@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27118.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 supporting the flimsy documentation on
 Oswald handed over to the U.S. Government

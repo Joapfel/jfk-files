@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20595.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OGC 65-2476a
 

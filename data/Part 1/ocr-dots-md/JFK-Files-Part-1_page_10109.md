@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10109.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HMMA-33910
 24 JANUARY 1968

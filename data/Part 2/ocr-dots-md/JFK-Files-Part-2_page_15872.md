@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15872.png
-
-Convert to MarkdownBell, Lance S.
+Bell, Lance S.
 
 Arrested: 1/3/69
 Charge: Disorderly Conduct

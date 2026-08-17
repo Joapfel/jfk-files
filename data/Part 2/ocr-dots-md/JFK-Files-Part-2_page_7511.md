@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7511.png
-
-Convert to MarkdownPersonal Misc.
+Personal Misc.
 
 1. Very adept diplomat - finds it easy to adopt conversation to group he is with.
 

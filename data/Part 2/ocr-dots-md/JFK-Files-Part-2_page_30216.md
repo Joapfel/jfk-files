@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30216.png
-
-Convert to MarkdownJuly 10, 1978
+July 10, 1978
 
 NOTICE OF RECEIPT OF
 FINGERPRINT CARDS

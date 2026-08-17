@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28756.png
-
-Convert to Markdown<table><tr><td>REASON: PERSONAL - No additional information available.<br>✓ ADDRESS: 3715 Acosta Road<br>Fairfax, Virginia 22030.</td></tr></table>
+<table><tr><td>REASON: PERSONAL - No additional information available.<br>✓ ADDRESS: 3715 Acosta Road<br>Fairfax, Virginia 22030.</td></tr></table>
 
 <table><thead><tr><th>1. CLEARSANCE</th><th>INITIALS OR SIGNATURE</th><th>DATE</th><th colspan="4">INTRANKS PERFORMANCE REPORTING FACTORY</th></tr><tr><td>(1)</td><td></td><td></td><td>☐</td><td>☐</td><td>☐</td><td>☑</td></tr><tr><td>(2) CELL OR POS CONTROL</td><td></td><td>MAR-1-5 1973</td><td>☐</td><td>☐</td><td>☑</td><td>☐</td></tr><tr><td>(3) CLASSIFICATION</td><td></td><td></td><td>☑</td><td>☐</td><td>☑</td><td>☐</td></tr><tr><td>(4) EMPLOYMENT</td><td></td><td></td><td>☐</td><td>☑</td><td>☑</td><td>☐</td></tr><tr><td>(5) APPROVED BY:</td><td></td><td></td><td>☑</td><td>☑</td><td>☐</td><td>☑</td></tr></thead></table>
 

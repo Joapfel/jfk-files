@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16098.png
-
-Convert to MarkdownUNITED STATES GO. MENT.
+UNITED STATES GO. MENT.
 Memorandum
 
 TO : SAC, CHICAGO

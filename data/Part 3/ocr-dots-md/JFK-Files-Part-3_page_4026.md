@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4026.png
-
-Convert to MarkdownMarch 29, 1968
+March 29, 1968
 
 DO AS I SAY, NOT AS I DO
 

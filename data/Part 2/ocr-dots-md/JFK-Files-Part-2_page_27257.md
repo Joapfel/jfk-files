@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27257.png
-
-Convert to MarkdownA. Clandestine Services Instruction 50-10 - 26 Aug 67 SECRET
+A. Clandestine Services Instruction 50-10 - 26 Aug 67 SECRET
 
 B. Restrictions on Operational Use of Certain Categories of Individuals
 4 Sept 73 SECRET

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14308.png
-
-Convert to Markdown# Meeting of March 23-24, 1962
+# Meeting of March 23-24, 1962
 
 During a discussion in Executive Session, Board Chairman Killian noted that President Kennedy had accepted the Board's recommendations concerning a re-definition of the role of the DCI, and regarding reorganization of the CIA. Dr. Killian thought that the point had now been reached in the Board's efforts when it should serve the President by examining selected areas of the government's intelligence effort, and he mentioned as an example, covert actions carried out under NSC 5412/2.
 

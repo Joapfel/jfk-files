@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9486.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## LEAGUE OF REVOLUTIONARY BLACK WORKERS
 Also known as

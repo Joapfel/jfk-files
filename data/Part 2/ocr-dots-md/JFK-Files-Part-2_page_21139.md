@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21139.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 or have been her case officer in the 1955-57 period. It
 was further noted that KUNGAROVA, who [had married an American

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9201.png
-
-Convert to Markdown<table><tr><td colspan="2">FBI</td></tr><tr><td>Date:</td><td>6/3/75</td></tr><tr><td>Transmit the following in</td><td>(Type in plaintext or code)</td></tr><tr><td>Via AIRTEL</td><td>AIR MAIL</td></tr><tr><td colspan="2">(Priority)</td></tr></table>
+<table><tr><td colspan="2">FBI</td></tr><tr><td>Date:</td><td>6/3/75</td></tr><tr><td>Transmit the following in</td><td>(Type in plaintext or code)</td></tr><tr><td>Via AIRTEL</td><td>AIR MAIL</td></tr><tr><td colspan="2">(Priority)</td></tr></table>
 
 <table><tbody><tr><td>Assoc. Dir.</td></tr><tr><td>Dep. AD Adm.</td></tr><tr><td>Dep. AD Inv.</td></tr><tr><td>Asst. Dir.:</td></tr><tr><td>Admin.</td></tr><tr><td>Comp. Syst.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Files &amp; Com.</td></tr><tr><td>Gen. Inv.</td></tr><tr><td>Ident.</td></tr><tr><td>Inspection</td></tr><tr><td>Intell.</td></tr><tr><td>Laboratory</td></tr><tr><td>Plan. &amp; Eval.</td></tr><tr><td>Spec. Inv.</td></tr><tr><td>Training</td></tr><tr><td>Legal Coun.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director Sec'y</td></tr></tbody></table>
 

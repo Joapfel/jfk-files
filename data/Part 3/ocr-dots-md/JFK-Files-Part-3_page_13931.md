@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_13931.png
-
 s, Mr. Cord Meyer and Mr. Desmond Fitzgerald (head of CIA's headquarters staff dealing with Cuba). Highlights of the briefings were as follows:
 
 MESSRS. HELMS and MEYER

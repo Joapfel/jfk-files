@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23131.png
-
-Convert to Markdown government?
+government?
 
 Mr. Halleyc. I don't think -- there I'd have to get a better definition from you of what is highly placed. If you are talking about Fidel Castro and his immediate entourage -- Mr, Wallach, People who could possibly have been in meetings or dinner with Castro, or meetings with Castro. I don't know enough about how Castro operated.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14281.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the memorandum to the President was as follows:
 

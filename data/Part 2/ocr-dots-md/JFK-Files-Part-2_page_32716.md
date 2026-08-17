@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32716.png
-
-Convert to Markdown- 20 -
+- 20 -
 
 gladly exhibit photographic evidence to prove the truth of the charges.
 

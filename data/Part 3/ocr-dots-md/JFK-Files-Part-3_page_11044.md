@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11044.png
-
-Convert to MarkdownMemorandum J. A. Mintz to Mr. Dalbey
+Memorandum J. A. Mintz to Mr. Dalbey
 
 RE: FBI JURISDICTION: CRIMINAL INTELLIGENCE INFORMATION
 

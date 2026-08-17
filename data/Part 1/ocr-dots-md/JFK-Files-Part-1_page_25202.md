@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25202.png
-
-Convert to MarkdownBaltimore Sun
+Baltimore Sun
 
 Mr. Adam CLYMER
 

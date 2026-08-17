@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25971.png
-
-Convert to Markdownstopped my visit to Vietnam, and back-
+stopped my visit to Vietnam, and back-
 stopped it principally so that I could take
 a look at some of the political factors as
 well as economic, military, and psychological,

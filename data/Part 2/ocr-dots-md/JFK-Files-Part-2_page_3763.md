@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3763.png
-
-Convert to Markdown13-00000
+13-00000
 
 Novel occurred in 1975 and there is no apparent reason for Novel having singled out Mr. Osborn as a defendant. Mr. Jameson also requested traces on two individuals who are alleged to have been involved in this matter--Larry Blanscett and Bridget Pfiffer. He was advised that the Office of Security had no record of either of these individuals.
 

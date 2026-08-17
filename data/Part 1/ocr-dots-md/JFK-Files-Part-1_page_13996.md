@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13996.png
-
-Convert to MarkdownAPRIL TO MAY NATIONAL ACADEMY OF MEDICINE INTERVIEWED -- HAVANA, MAY 15
+APRIL TO MAY NATIONAL ACADEMY OF MEDICINE INTERVIEWED -- HAVANA, MAY 15
 
 Pedro Badza, Cuban delegate to the Centenary celebration of the National Academy of Mexico, was interviewed upon his return to Havana. The most important event at the celebration, he told reporters, was his meeting with US scientist Linus Pauling who wishes to visit Cuba.
 

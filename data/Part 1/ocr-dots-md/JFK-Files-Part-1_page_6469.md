@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6469.png
-
-Convert to Markdownofficers have no way of determining whether an escapee is or is not a member of TROPES. However, if CA3 desires to furnish USEP with a list of TROPZ membership, CPC will request the USEP Divisiona in each country to confer eligibility on the individuals listed and to pay particular attention that such individuals may receive personal attention in the future.
+officers have no way of determining whether an escapee is or is not a member of TROPES. However, if CA3 desires to furnish USEP with a list of TROPZ membership, CPC will request the USEP Divisiona in each country to confer eligibility on the individuals listed and to pay particular attention that such individuals may receive personal attention in the future.
 
 7. <u>Question</u>. Is there any possibility of eliminating Tolstoy and AFMP altogether and doing this job through another agency or agencies?
 

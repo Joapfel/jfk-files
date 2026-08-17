@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28494.png
-
-Convert to MarkdownJune 6, 1977
+June 6, 1977
 
 Thomas M. Gannon, S.J.
 Select Committee on Assassinations

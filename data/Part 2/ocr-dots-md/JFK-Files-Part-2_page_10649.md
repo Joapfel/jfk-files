@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10649.png
-
-Convert to Markdown25. Prosab - Protection of Strategic Air Command and intercontinental ballistic missile bases of the U.S. Air Force.
+25. Prosab - Protection of Strategic Air Command and intercontinental ballistic missile bases of the U.S. Air Force.
 
 26. Revolutionary Activities - Violence - Periodic reports appraising potential dangerousness of the various revolutionary groups.
 

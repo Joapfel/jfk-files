@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18872.png
-
-Convert to MarkdownORIGINAL
+ORIGINAL
 Copy
 Volume 2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24685.png
-
-Convert to MarkdownBut O'Donnell had no knowledge that QJWIN was ever used for an assassination mission (O'Donnell, 9/11/75, pp. 36, 42).
+But O'Donnell had no knowledge that QJWIN was ever used for an assassination mission (O'Donnell, 9/11/75, pp. 36, 42).
 
 O'Donnell said that, as far as he knew, he was the only CIA officer with supervisory responsibility for QJWIN and QJWIN did not report independently to anyone else (O'Donnell, 9/11/75, p. 28). When asked if it was possible that QJWIN had a mission independent of that he was performing for O'Donnell, he said:
 

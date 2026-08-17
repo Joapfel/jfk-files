@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22339.png
-
-Convert to Markdown746.
+746.
 
 # 3. Schooling
 

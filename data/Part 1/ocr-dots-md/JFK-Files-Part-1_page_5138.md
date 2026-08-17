@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5138.png
-
-Convert to Markdown14-0000
+14-0000
 
 No. DEL PASAPORTE
 Nombre del portador Carlos Luis Paniaque Mindez

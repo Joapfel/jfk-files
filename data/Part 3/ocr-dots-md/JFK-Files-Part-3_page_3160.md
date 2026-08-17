@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3160.png
-
-Convert to Markdown1772
+1772
 
 Dr. King or anyone else?
 

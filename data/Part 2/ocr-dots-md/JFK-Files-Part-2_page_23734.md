@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23734.png
-
-Convert to Markdownadvancement within the clandestine service.
+advancement within the clandestine service.
 
 Ms. Culbreth. Then you get back in to what we struck out from the original, which was as opposed to covert action operations. We deleted that from the earlier thing to try to avoid —
 

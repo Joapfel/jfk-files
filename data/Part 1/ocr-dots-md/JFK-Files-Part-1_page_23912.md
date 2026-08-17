@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23912.png
-
-Convert to Markdown(Curious mix-up - this religion and politics.)
+(Curious mix-up - this religion and politics.)
 
 Returning to our first subject, Strelkoff. Is he a practicing Jew?)
 

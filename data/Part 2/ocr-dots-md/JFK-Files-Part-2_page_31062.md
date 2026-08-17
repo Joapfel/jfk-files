@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31062.png
-
-Convert to Markdown# Origin of Autonomous Operations
+# Origin of Autonomous Operations
 
 Integrated Covert Action Program for Cuba, approved by Higher Authority in June 1963, provided for "support of autonomous anti-Castro Cuban groups to supplement and assist in the execution" of other courses of action. Concept was first voiced in Sept. 1962 in Walter Rostow's proposal for a "Track Two" approach to Cuban operations. Parallel to regular CIA-controlled Cuban teams, CIA would extend financial aid and some advice and guidance to independent and uncontrolled Cuban leaders such as Manuel Ray.
 

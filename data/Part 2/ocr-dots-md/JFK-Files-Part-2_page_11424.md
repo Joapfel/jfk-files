@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11424.png
-
-Convert to MarkdownThe alphabetical card will be in the nature of a
+The alphabetical card will be in the nature of a
 control card. Should the original or geographical
 card be withdrawn from the geographical section for
 apprehension purposes, an appropriate notation shall

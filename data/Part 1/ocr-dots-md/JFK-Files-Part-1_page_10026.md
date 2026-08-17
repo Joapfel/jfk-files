@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10026.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th></th><th>SECRET</th><th></th><th></th></tr></thead><tbody><tr><td>C.</td><td></td><td>A. LEADER</td><td></td></tr><tr><td>G</td><td></td><td>K</td><td></td></tr><tr><td>S</td><td></td><td>T</td><td></td></tr><tr><td>M</td><td></td><td>R</td><td></td></tr><tr><td>D</td><td></td><td>O</td><td></td></tr><tr><td>E</td><td></td><td>C</td><td></td></tr><tr><td>Y</td><td></td><td>U</td><td></td></tr><tr><td>W</td><td></td><td>A</td><td></td></tr><tr><td>L</td><td></td><td>A</td><td></td></tr><tr><td>O</td><td></td><td>N</td><td></td></tr><tr><td>H</td><td></td><td>I</td><td></td></tr><tr><td>T</td><td></td><td>E</td><td></td></tr><tr><td>N</td><td></td><td>O</td><td></td></tr><tr><td>F</td><td></td><td>T</td><td></td></tr></tbody></table>
 

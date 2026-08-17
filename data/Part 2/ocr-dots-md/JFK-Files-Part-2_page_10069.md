@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10069.png
-
-Convert to MarkdownDepartment of the Treasury
+Department of the Treasury
 
 Internal Revenue Service
 Washington, DC 20224

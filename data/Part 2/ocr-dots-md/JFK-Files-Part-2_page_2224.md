@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2224.png
-
-Convert to MarkdownSECRET
+SECRET
 
 APPLICATION FOR MEMBERSHIP
 in the CAREER STAFF of the

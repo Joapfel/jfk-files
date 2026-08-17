@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2544.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Bruce A. Bertotally
 

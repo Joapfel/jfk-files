@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10327.png
-
-Convert to MarkdownSUBJECT: Involvement In Domestic Affairs
+SUBJECT: Involvement In Domestic Affairs
 
 4. The CIA Library has several informal snag files intended to aid the librarians in answering the kinds of questions that they know they will get on a continuing basis. An appointments file is a collection of clippings on appointed federal officials: who holds what job when and what is his background? The extremist files are a collection of folders on a variety of organizations and a few people with intricate organizational links. Any sort of extremism is grist for these particular files. And a few persons, e.g., Rap Brown and Eldridge Cleaver, have dossiers consisting almost exclusively of clippings from public media. These files are unclassified and consist mostly of clippings from the public press: U.S., foreign, underground, scholarly.
 

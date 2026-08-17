@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33752.png
-
-Convert to Markdown30 June 1952
+30 June 1952
 
 MEMORANDUM FOR: CHIEF, INTERNATIONAL ORGANIZATIONS
 

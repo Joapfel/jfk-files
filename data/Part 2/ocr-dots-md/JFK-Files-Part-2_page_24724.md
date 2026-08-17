@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24724.png
-
-Convert to Markdownalready out of office (Dillon, 9/2/75, p. 48).* When reminded of the fact that Lumumba's movement and communications were not restricted by the UN force and that the Congolese army continued to seek his arrest long after the NSC meeting, Dillon acknowledged that during this period Lumumba continued to be viewed by the United States as a potential threat and a volatile force in the Congo:
+already out of office (Dillon, 9/2/75, p. 48).* When reminded of the fact that Lumumba's movement and communications were not restricted by the UN force and that the Congolese army continued to seek his arrest long after the NSC meeting, Dillon acknowledged that during this period Lumumba continued to be viewed by the United States as a potential threat and a volatile force in the Congo:
 
 > He had this tremendous ability to stir up a crowd or a group. And if he could have gotten out and started to talk to a battalion of the Congolese Army, he probably would have had them in the palm of his hand in five minutes. (Dillon, 9/20/75, p. 49.)
 

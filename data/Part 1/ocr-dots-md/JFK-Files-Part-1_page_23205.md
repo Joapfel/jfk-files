@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23205.png
-
-Convert to Markdown582 HM/DJ/COJB
+582 HM/DJ/COJB
 
 CLASSIFIED MESSAGE
 

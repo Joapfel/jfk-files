@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2307.png
-
-Convert to MarkdownTo the best of your knowledge, was PENKOVSKY exposed to the KGB because of the mass surveillance on the British Embassy? Yes.
+To the best of your knowledge, was PENKOVSKY exposed to the KGB because of the mass surveillance on the British Embassy? Yes.
 
 Was there any misleading information in the notes you brought out from the Soviet Union? No.
 

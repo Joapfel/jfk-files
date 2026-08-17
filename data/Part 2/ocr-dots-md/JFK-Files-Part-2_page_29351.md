@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29351.png
-
-Convert to Markdown000049
+000049
 
 Mr. Arehart said that Lee Harvey Oswald never came to his attention prior to the assassination. He does not know whether or not he was ever asked to retain, or turn over to the station, any tape containing Oswald's voice. He explained that such requests would be made to him by giving him the tape number and that he never knew what was on any particular tape that was requested from him. He has never heard of a tape of Oswald existing nor has he heard that such tapes did not exist; he has simply never discussed it.
 

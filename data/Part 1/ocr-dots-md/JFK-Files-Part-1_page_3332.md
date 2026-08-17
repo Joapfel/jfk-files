@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3332.png
-
-Convert to Markdown5. Our query why Adelaide, if she had AMBIDDY-1's interests at heart, appeared to have qualms about owning up in respect to past events, was parried by AMBIDDY-1 by claiming that Adelaide was of course aware of all these rumors and had warned him of possible political embarrassment.
+5. Our query why Adelaide, if she had AMBIDDY-1's interests at heart, appeared to have qualms about owning up in respect to past events, was parried by AMBIDDY-1 by claiming that Adelaide was of course aware of all these rumors and had warned him of possible political embarrassment.
 
 6. Evaluating UFGA 16512 on the basis of our talk with AMBIDDY-1, we conclude that its main source has a high batting average. At least there appears to be a hard core of truth to practically all allegations made, to the extent we were able to check them out. We would venture the guess that, despite his protestations to the contrary, AMBIDDY-1 is quite conversant with Adelaide's past history, but can see no practical gain in so telling us. He may reason that an avowal of intent to marry a woman whose antecedents are in fact as described, would seriously blemish his image and that by pleading ignorance now he can, if things should get out of control, always strike a pose of injured innocence and elicit a "here but for the Grace of God go I" reaction from his PAPRIME associates.
 

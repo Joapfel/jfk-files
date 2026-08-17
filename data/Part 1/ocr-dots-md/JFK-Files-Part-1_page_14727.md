@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14727.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 B. Traces: (SE/SAG/OP routinely uses the following sources in tracing: Soviet GICS, Soviet travel, IP Main Index, OCR and SE/SAG/OP branch index. These traces should not be construed as being extensive or complete and any recipients of this report with an active interest in any of the subjects should run full traces of their own.)
 

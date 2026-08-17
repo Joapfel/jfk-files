@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30791.png
-
-Convert to Markdown11.11.07.03
+11.11.07.03
 
 KOSTIKOV
 VOL. II JAN. 63-DEC. 64

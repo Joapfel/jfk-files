@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20600.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ## I. Funding and Accounting
 

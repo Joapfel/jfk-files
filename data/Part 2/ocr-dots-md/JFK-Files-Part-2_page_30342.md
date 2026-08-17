@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30342.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 or correspondence. I could maybe something miss, you see,
 when I mentioning. I do not have such a brilliant, brilliant

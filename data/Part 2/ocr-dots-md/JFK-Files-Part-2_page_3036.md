@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3036.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the Ambassador and other members of the American
 Embassy in Havana also were very much interested in

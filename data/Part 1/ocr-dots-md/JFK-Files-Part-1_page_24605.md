@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24605.png
-
-Convert to Markdown<table><tr><td>CABINET NUMBER</td></tr><tr><td>SECRET</td></tr><tr><td>REFERENCE NUMBER</td></tr><tr><td>DATE</td></tr><tr><td>STATUS</td></tr><tr><td>LATEX COPY</td></tr></table>
+<table><tr><td>CABINET NUMBER</td></tr><tr><td>SECRET</td></tr><tr><td>REFERENCE NUMBER</td></tr><tr><td>DATE</td></tr><tr><td>STATUS</td></tr><tr><td>LATEX COPY</td></tr></table>
 
 <table><thead><tr><th>NAME</th><th>POSITION</th><th>OFFICE</th></tr></thead><tbody><tr><td>CORNELICUS MCCAULEY</td><td>GROUP CHAIRMAN</td><td>CO-CHAIRMAN</td></tr><tr><td>CSDO</td><td>RELEASING OFFICER</td><td>ASSISTANT RELEASING OFFICER</td></tr></tbody></table>
 

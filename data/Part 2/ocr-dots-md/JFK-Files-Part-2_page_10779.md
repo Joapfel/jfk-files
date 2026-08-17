@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10779.png
-
-Convert to MarkdownEmployment
+Employment
 
 Part-time (at school)
 Frances Mains, loan of $30

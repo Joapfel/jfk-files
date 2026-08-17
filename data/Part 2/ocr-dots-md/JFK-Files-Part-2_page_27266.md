@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27266.png
-
-Convert to MarkdownSCHWARTZER CHRON FILE
+SCHWARTZER CHRON FILE
 
 A. Memo to the Commission and Staff - 9 Apr 75
 

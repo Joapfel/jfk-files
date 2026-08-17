@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30287.png
-
-Convert to MarkdownMr. Klein. Did the agents make notes when you were talking?
+Mr. Klein. Did the agents make notes when you were talking?
 
 Mr. Nosenko. Yes, sir.
 

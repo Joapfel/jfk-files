@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7812.png
-
-Convert to MarkdownPRIORITY HANDLING
+PRIORITY HANDLING
 
 FOIA REQUEST
 

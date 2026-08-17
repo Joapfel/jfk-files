@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20167.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 NY T-7 on July 18, 1972, and NY T-11 on July 19, 1972, provided information that a WONAAC conference was held at Hunter College, Park Avenue and 69th Street on July 15, 1972 and July 16, 1972.
 

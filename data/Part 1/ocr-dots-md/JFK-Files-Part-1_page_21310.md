@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21310.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Series No. TIN-344
 10 March 1965

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27082.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 K. The Targeting of San Cristobal
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21489.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>Series</th></tr></thead><tbody><tr><td>CORPS/CA</td></tr><tr><td>AF/2</td></tr><tr><td>AF/3</td></tr><tr><td>AF/4</td></tr><tr><td>AF/5</td></tr><tr><td>AF/6</td></tr><tr><td>FE/CAN</td></tr><tr><td>CO/CO/CA</td></tr><tr><td>SB/CA</td></tr><tr><td>DO/CA</td></tr><tr><td>CI/F&A</td></tr></tbody></table>
 

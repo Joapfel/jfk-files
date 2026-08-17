@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23890.png
-
-Convert to Markdownpromissory notes. and having been accorded by General Panachon
+promissory notes. and having been accorded by General Panachon
 promissa
 
 I have to leave around noon. my little girl at home by herself.

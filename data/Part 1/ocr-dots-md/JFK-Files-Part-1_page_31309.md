@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31309.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 <table><thead><tr><th colspan="5">GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</th></tr><tr><th rowspan="2">NAME OF REGION<br>OF COUNTRY</th><th rowspan="2">TYPE OF SPECIALIZED<br>KNOWLEDGE</th><th rowspan="2">DATE OF TRAVEL<br>OR RESIDENCE</th><th rowspan="2">DATE & PLACE<br>OF STUDY</th><th colspan="4">KNOWLEDGE ACQUIRED BY<br>SERVICE</th></tr><tr><th>BEST<br>DEGREE</th><th>TRAVEL</th><th>STUDY</th><th>WORK<br>ASSIST</th></tr></thead><tbody><tr><td>L.S.S.R.</td><td>POLITICAL</td><td>—<br>1966</td><td>TO DATE.<br>SUMMER '73</td><td></td><td>X</td><td>X</td><td></td></tr><tr><td>R.E.P. SOUTH AFRICA</td><td>POLITICAL/GENERAL</td><td>Oct. Nov</td><td>FALL 1966</td><td></td><td>X</td><td>X</td><td>X</td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2571.png
-
-Convert to MarkdownSECRET
+SECRET
 
 GARBLER, Paul - IV, E, 52
 GARCIA, Anthony A. - IV, E, 39

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35663.png
-
-Convert to Markdown<table><tr><td>ORIG.</td></tr><tr><td>EXT.</td></tr><tr><td>DISTR.</td></tr></table>
+<table><tr><td>ORIG.</td></tr><tr><td>EXT.</td></tr><tr><td>DISTR.</td></tr></table>
 
 CLASSIFIED MESSAGE
 

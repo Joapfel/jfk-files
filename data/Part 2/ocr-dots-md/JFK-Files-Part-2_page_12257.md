@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12257.png
-
-Convert to Markdown[107D - E SECTION 107. SECURITY INFORMANTS [AND CONFIDENTIAL SOURCES]
+[107D - E SECTION 107. SECURITY INFORMANTS [AND CONFIDENTIAL SOURCES]
 
 12. During initial stages of development and on occasion active informants may raise a personal question concerning their own position if it becomes known publicly that they are affiliated with a subversive organization. In the event a potential informant or informant inquires as to what can be done for him in such a case, he may be told that his cooperation is a matter of record in the FBI and if some question arises concerning his loyalty we will consider making the facts of his cooperation with the FBI known to his employer or to the responsible individuals. It should be pointed out that this action may make it impossible for him to continue on behalf of the FBI and the service which he is performing for his country may be terminated. Before taking steps to advise anyone of a potential informant's or informant's cooperation, prior Bureau authority must be obtained.
 

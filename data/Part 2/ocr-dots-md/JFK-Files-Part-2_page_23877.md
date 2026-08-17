@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23877.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 that prohibition on Fulbright grantees to all of those under
 the Fulbright-Hayes legislation. Under the specifics of the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25238.png
-
-Convert to MarkdownGEN. MINH
+GEN. MINH
 
 11/1/63
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20388.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>NATURE OF EMPLOYMENT</th><th>PERMANENT</th><th>TEMPORARY, DEPT.</th><th>FULL TIME</th><th>PARTIAL TIME</th><th>FINAL RATE</th><th>X TEMPORARY</th><th>FULL TIME</th><th>PARTIAL TIME</th></tr></thead><tbody><tr><td>RETIRATION DEDUCTIONS</td><td>YES X<br/>NO</td><td>AMERICAN X<br/>NON-AMERICAN</td><td>VETERAN PREFERENCE</td><td>5 POINTS<br/>10 POINTS</td><td>X</td><td>NEW X<br/>ADDITIONAL IDENTICAL</td><td>REALLOCATION X<br/>VICTIMS</td><td>VACANCY</td></tr><tr><td>LEGAL RESIDENCE</td><td colspan="2">ELA M Single</td><td colspan="2">PATIONAL STATUS AND CHILDREN STATUS</td><td>21</td><td></td><td></td><td></td></tr></tbody></table>
 

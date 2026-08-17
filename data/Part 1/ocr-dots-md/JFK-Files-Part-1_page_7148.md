@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7148.png
-
-Convert to Markdown27 Jan 1965
+27 Jan 1965
 
 MEMO FOR RECORD
 

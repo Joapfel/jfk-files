@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9584.png
-
-Convert to MarkdownFEDERAL BUREAU OF IN TIGATION
+FEDERAL BUREAU OF IN TIGATION
 
 <table>
   <tbody>

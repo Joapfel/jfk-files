@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19057.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 From comments, it is clear that KGB considered JAFFE as at least a cooperative source and it is clear that JAFFE was furnishing some type of information to KGB officer KUSKOV. -5-
 

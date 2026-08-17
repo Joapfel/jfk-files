@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_230.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th></th><th>DESTROY</th><th>RETURN TO BRANCH</th><th>FILE ID</th></tr></thead><tbody><tr><td colspan="2">MESSAGE FORM</td><td rowspan="5"><table><tr><td>ROUTING</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table></td></tr><tr><td>TOTAL COPIES:</td><td>23</td></tr><tr><td>ORIG:</td><td>W.J.Kaufman</td><td>☐ INDEX</td><td>☑ SECRET</td></tr><tr><td>UNIT:</td><td>WH/1</td><td>☐ NO INDEX</td><td></td></tr><tr><td>EXT:</td><td>4506</td><td>☐ FILE IN CS FILE NO.</td><td></td></tr><tr><td>DATE:</td><td>4 Mar 66</td><td></td><td></td></tr></tbody></table>
 

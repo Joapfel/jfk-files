@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31238.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Would stop in Paris to see Tegelov.
 

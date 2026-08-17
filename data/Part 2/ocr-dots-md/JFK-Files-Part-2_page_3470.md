@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3470.png
-
-Convert to Markdown4. CIA-sponsored activities at the Helsinki Youth Festival was the next item presented. A full report was given which followed carefully the post-mortem written by the CA Staff.
+4. CIA-sponsored activities at the Helsinki Youth Festival was the next item presented. A full report was given which followed carefully the post-mortem written by the CA Staff.
 
 5. As for CA activities in the remainder of Latin America, the following countries were covered: Dominican Republic, Chile, [Peru], [Haiti] and [British Guiana] were then touched on, with particular reference to the sensitivity of the [US-UK] cooperation on the latter.
 

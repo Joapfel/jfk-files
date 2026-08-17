@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9174.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">IP/AR<br/>GA-50</td>
     <td rowspan="2">TUBE GT-7</td>

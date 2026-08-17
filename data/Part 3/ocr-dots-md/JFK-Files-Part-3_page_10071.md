@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10071.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th rowspan="2">AUG. 17 TO 20</th>

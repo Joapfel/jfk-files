@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6126.png
-
-Convert to Markdown3. One of the duties of the ARRB will be to determine what constitutes an "assassination record." What criteria do you think should be used to make this determination?
+3. One of the duties of the ARRB will be to determine what constitutes an "assassination record." What criteria do you think should be used to make this determination?
 
 The definition of "assassination records" will be one of the most important and significant decisions of the ARRB. It is important to understand better the universe of potential records before the difficult decision on how to define "assassination records." Preliminarily, and without such an understanding yet, I would favor a broad definition because (1) a broad definition will help assure the American public that all relevant records are being reviewed and disclosed, and (2) I believe that is the intent of Congress as expressed in the Act.
 

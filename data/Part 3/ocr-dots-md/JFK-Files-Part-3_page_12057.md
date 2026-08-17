@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12057.png
-
-Convert to Markdown- 5 -
+- 5 -
 
 Assistant Director C. D. Brennan
 

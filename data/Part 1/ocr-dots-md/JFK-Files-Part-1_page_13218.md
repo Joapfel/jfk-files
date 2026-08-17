@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13218.png
-
-Convert to Markdown**LUIS Clemente Faustino ROSADA Carriles**
+**LUIS Clemente Faustino ROSADA Carriles**
 **Army Serial No. C 2 312 445**
 
 DCS: 15 Feb 1928

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25159.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 <table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>DIEM</td><td>8/21/63</td><td>Diem ✓</td></tr><tr><td>OCCURRENCE:</td><td colspan="2">On 21 August 1963, the current intelligence memorandum (OCI 2341/63): "Coup Rumors in South Vietnam" stated that "additional reports of plot-ting against the DIEM government have been received. While there is no hard evidence of imminent action, the Buddhist issue continues to make the situation dangerous." (3)</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6715.png
-
-Convert to MarkdownMr. Barry Harrelson
+Mr. Barry Harrelson
 
 October 27, 1996
 Page 2

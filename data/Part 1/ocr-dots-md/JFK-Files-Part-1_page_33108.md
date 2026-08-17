@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33108.png
-
-Convert to Markdown13 November 1969
+13 November 1969
 
 **MEMORANDUM NO.:** Chief, CIO/C25/MH
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27677.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 CENTRAL INTELLIGENCE AGENCY
 WASHINGTON, D.C. 20505

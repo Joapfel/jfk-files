@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3421.png
-
-Convert to Markdown13-00000
+13-00000
 
 SECRET
 RECONCILED BY HR 1-11a (HIS 16/17)

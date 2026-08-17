@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14203.png
-
-Convert to Markdown(188. 11/24/62 Continued)
+(188. 11/24/62 Continued)
 
 "which have been hidden underground in concrete shelters where American reconnaissance planes cannot detect them. The island is alive with rumors, and it is difficult to sift the facts out of the stories of the big Russian military buildup still going on. Some of these stories tell of big concrete constructions in the wooded countryside and underground rocket bases still being built by the Russians in the mountains. . ."
 

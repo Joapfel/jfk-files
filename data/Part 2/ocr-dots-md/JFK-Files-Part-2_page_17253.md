@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17253.png
-
-Convert to Markdown# E. Police Records
+# E. Police Records
 
 On February 14, 1969, the records of the Identification Division, Federal Bureau of Investigation (FBI), Washington, D.C., were searched. They showed, under FBI number 756 977 G, that the fingerprints of RONALD JEROME SATCHEL were submitted on January 30, 1969, by the Chicago Police Department for aggravated assault and resisting arrest.
 

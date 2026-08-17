@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25066.png
-
-Convert to Markdown✓4. Dominican Republic
+✓4. Dominican Republic
 
 Mr. Dulles inquired whether Mr. Merchant wanted to discuss the proposal to dispatch a letter to Trujillo suggesting that the latter retire from office. At Mr. Merchant's request, the DCI stated his opinion, which was to the effect that he had considerable reservation as to the efficacy or wisdom of such a letter. He said that it seemed to him much more useful to make a personal approach, which not only stood a chance of being more effective, but also could be denied. He pointed out that a personal approach had been attempted some time ago, but that the individual in question had not been able to carry it off. He suggested that the approach might best be made by an unofficial American, and that Mr. Pawley would be a better bet than the previous individual.
 

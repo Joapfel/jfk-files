@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17988.png
-
-Convert to MarkdownTHE NUMBER OF FBI FIELD OFFICE AGENTS ASSIGNED TO
+THE NUMBER OF FBI FIELD OFFICE AGENTS ASSIGNED TO
 INTERNAL SECURITY AND COUNTERINTELLIGENCE MATTERS
 
 Based on a survey of all FBI field offices, it has been determined that matters relating to internal security and counterintelligence require the following commitment of manpower in FBI field offices, stated in terms of equivalent full-year employees:

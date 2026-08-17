@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11024.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><caption>PROVISIONAL OPERATIONAL APPROVAL</caption><tbody><tr><td rowspan="3">MEMORANDUM FOR: Chief,<br>SAS - H.E.Mulloy</td><th scope="row">NUMBER</th><td>c-101331</td></tr><tr><th scope="row">SUBJECT</th><td>LITAMIL/9</td></tr><tr><th scope="row">REFERENCE: Your Memorandum, Dated:</th><td>25 July 1962</td></tr></tbody></table>
 

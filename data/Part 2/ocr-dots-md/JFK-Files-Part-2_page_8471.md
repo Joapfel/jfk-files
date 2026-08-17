@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8471.png
-
-Convert to Markdown3. The following items were heretofore classified SECRET because they described sources and methods in identifying a support base located in the United States, but are now considered to have been placed in the public domain.
+3. The following items were heretofore classified SECRET because they described sources and methods in identifying a support base located in the United States, but are now considered to have been placed in the public domain.
 
 Items 124, 126, and 127 on pages 129 and 130 -- INTERMOUNTAIN AVIATION, INC. Intermountain Aviation, Inc. is named as an Agency proprietary in Book I of the Senate Select Committee Final Report, pp. 208-9, and in the Report of the Rockefeller Commission on CIA Activities Within the United States, pg. 218.
 

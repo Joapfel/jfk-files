@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24318.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DDP/CA/B3/DMuntz:1b
 

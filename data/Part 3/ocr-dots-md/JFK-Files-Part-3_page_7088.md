@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7088.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 I would like to suggest that you appoint a member of your staff - say, Ben Marshall - as a focal point for handling compartmented information access approvals and assign him the responsibility of insuring that these security standards are met by persons selected to participate in this sensitive area.
 

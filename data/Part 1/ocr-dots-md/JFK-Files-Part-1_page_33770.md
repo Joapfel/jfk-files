@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33770.png
-
-Convert to Markdown10 June
+10 June
 
 BILL:
 

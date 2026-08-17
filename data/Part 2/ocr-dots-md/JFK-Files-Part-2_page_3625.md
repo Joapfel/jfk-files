@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3625.png
-
-Convert to Markdown13-00000
+13-00000
 
 c. The Betancourt government has scheduled a press conference tomorrow to break the story that a three-ton cache of Cuban arms has been unearthed. A formal accusation against Cuba is to be made before the Organization of American States a week from today. (Includes INTERCEPTS)
 

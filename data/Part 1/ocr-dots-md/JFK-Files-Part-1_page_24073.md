@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24073.png
-
-Convert to MarkdownWho paid Le is CIA agent:
+Who paid Le is CIA agent:
 
 1. Anderson said Hamza Alavi told Franz Fanon Institute in 1964 Gibson an (em. agent (Eb. rept. 18/2/66)
 

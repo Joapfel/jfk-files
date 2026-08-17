@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20912.png
-
-Convert to MarkdownWomen's Bail Fund
+Women's Bail Fund
 
 "....providing legal information for prisoners.
 

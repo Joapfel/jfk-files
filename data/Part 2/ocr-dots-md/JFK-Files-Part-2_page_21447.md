@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21447.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 CG 100-41353
 

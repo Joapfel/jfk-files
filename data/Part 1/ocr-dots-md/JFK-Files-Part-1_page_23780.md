@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23780.png
-
-Convert to Markdown1st June, Cont.
+1st June, Cont.
 
 to Africa, is going to ALGIERS and wants to stay. Is going to
 Tanzania if he can. Had planned to leave LONDON today, but is

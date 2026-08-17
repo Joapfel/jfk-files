@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33323.png
-
-Convert to MarkdownAilende in Retrospect
+Ailende in Retrospect
 
 people have all power and in accord with the constitution can do what they desire when they have the majority of the nation behind them.⁸
 

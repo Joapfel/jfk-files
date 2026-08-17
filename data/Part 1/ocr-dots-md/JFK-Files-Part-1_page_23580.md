@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23580.png
-
-Convert to Markdown5. **Leave.** You will be entitled to fourteen(14) calendar days' leave per contract year. Such leave may be accrued during the term of this contract or any renewal hereof but payment in lieu of unused leave will not be authorized. Such leave may only be taken at times and places approved in advance by appropriate representatives of KUBARK.
+5. **Leave.** You will be entitled to fourteen(14) calendar days' leave per contract year. Such leave may be accrued during the term of this contract or any renewal hereof but payment in lieu of unused leave will not be authorized. Such leave may only be taken at times and places approved in advance by appropriate representatives of KUBARK.
 
 6. **Cover.** It is anticipated that you will undertake certain cover employment in the course of your performance under this agreement. It is expressly understood and agreed that any and all documents which you may execute in the course of such cover employment are subordinate to this agreement and any contradiction in terms which may in any way amplify, extend or restrict your rights and/or obligations hereunder shall be resolved by this agreement which shall always be dominant.
 

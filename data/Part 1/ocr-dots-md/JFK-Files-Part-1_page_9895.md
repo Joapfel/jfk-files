@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9895.png
-
-Convert to MarkdownPage 3
+Page 3
 ERO 869919
 
 NOTE

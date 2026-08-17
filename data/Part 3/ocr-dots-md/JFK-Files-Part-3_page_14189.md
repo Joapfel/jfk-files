@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14189.png
-
-Convert to Markdown(141. 10/4/62 Continued)
+(141. 10/4/62 Continued)
 
 Special Group then directed the NRO to prepare an over-all program for reconnaissance of Cuba for presentation at the Special Group meeting of 10/9/62.
 

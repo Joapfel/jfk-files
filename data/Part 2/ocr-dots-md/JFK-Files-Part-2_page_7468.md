@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7468.png
-
-Convert to MarkdownDOHB 70-1-1
+DOHB 70-1-1
 
 CHAPTER III, ANNEX B
 Attachment 2

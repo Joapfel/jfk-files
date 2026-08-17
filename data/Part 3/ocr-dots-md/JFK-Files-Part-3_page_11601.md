@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11601.png
-
-Convert to Markdown4-E
+4-E
 
 was held in abeyance pending final approval of the White House, which had requested a temporary delay. Soviet has been on summer leave and recently returned to the U. S. We are currently seeking concurrence from the White House so that arrest may take place at the next meeting scheduled for 9/13/71.
 

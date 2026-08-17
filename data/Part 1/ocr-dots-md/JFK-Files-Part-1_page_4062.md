@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4062.png
-
-Convert to MarkdownIII. VIVIENDA Hídrica DEL PROYECTO
+III. VIVIENDA Hídrica DEL PROYECTO
 
 Costo de Producción General para el primer año de construcción. En el cálculo se take, al hora de consideración la construcción de un edificio abierto, servicio completo de reparación y mantenimiento en 300 verajes, y hasa servicionelocano, con un total de 31,000 lunes de trabajo (en unitario de turnos diarios).
 

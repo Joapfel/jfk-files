@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9807.png
-
-Convert to MarkdownFebruary 18, 1969: instructions from the Assistant Attorney General, Internal Security Division, for FBI to obtain information concerning possibility that underlying subversive groups were giving illegal directions or guidance to numerous campus disorders.
+February 18, 1969: instructions from the Assistant Attorney General, Internal Security Division, for FBI to obtain information concerning possibility that underlying subversive groups were giving illegal directions or guidance to numerous campus disorders.
 
 (Other policy instructions from Attorney General and Department have been received, amplifying points set forth above; many of these concerned specific cases.)
 

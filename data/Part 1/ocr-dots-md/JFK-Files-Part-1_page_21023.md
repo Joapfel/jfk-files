@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21023.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AMENDMENT TO ALLOWANCE COMMITTEE ADDENDUM
 For Career Agent, Thomas B. CASASIN

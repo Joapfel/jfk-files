@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33057.png
-
-Convert to MarkdownSECRET RYBAT TELEPHONE
+SECRET RYBAT TELEPHONE
 
 DISP NO - HFAA-1983
 

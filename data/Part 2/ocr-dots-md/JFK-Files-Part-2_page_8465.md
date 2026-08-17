@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8465.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Item 29, page 49, Guyana
 Classified. Executive Order exemption 5 (B) 3

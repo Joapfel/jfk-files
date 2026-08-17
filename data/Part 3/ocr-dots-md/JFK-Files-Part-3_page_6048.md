@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6048.png
-
-Convert to MarkdownUNITED STATES GO
+UNITED STATES GO
 
 Memorandum
 

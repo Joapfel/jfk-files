@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2673.png
-
-Convert to Markdownsmn9
+smn9
 
 2518
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14595.png
-
-Convert to MarkdownMemorandum to Mr. Belmont
+Memorandum to Mr. Belmont
 
 Re: Ghana Activities in the U.S.
 105-78601

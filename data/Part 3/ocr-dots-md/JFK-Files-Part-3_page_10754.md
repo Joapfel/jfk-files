@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10754.png
-
-Convert to Markdownstating requests for applications be directed to P. O.
+stating requests for applications be directed to P. O.
 Box 1182, Pine Bluff. In this leaflet it was pointed
 out that the KKK was striving for a lawful settlement
 of the difficulties brought on by the National associa-

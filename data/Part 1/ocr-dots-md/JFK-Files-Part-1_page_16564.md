@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16564.png
-
-Convert to Markdown3 June 1971
+3 June 1971
 
 MEMORANDUM FOR : Chief of Station, WH/Miami
 

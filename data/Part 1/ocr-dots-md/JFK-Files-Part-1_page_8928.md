@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8928.png
-
-Convert to MarkdownChief of Station, Mexico City
+Chief of Station, Mexico City
 
 Chief, WH Division
 

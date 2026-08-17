@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12212.png
-
-Convert to MarkdownREPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
 
 <table><thead><tr><th colspan="3">PERSON UNIT NOTIFIED</th></tr></thead><tbody><tr><td colspan="2"></td><td>SECRET</td></tr></tbody></table>
 

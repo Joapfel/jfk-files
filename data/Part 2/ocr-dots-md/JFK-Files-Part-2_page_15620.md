@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15620.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 Chief Cimino stated that following the service, Hampton's body would be removed to O'Hare International Airport for shipment to Haynesville, Louisiana. The body will be transported on Delta Airlines Flight 359, departing Chicago at 9:15 a.m., December 10, 1969, arriving Shreveport, Louisiana, at 1:30 p.m., the same date.
 

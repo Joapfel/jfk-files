@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3796.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="3">SENDER WILL CHECK CLASSIFICA</td>

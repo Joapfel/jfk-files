@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17256.png
-
-Convert to MarkdownOn the evening of February 25, 1969, about five BPP members, including SATCHHEL, travelled to De Kalb, Illinois, the location of the University of Northern Illinois, for the alleged purpose of contacting someone referred to as "the Teacher."
+On the evening of February 25, 1969, about five BPP members, including SATCHHEL, travelled to De Kalb, Illinois, the location of the University of Northern Illinois, for the alleged purpose of contacting someone referred to as "the Teacher."
 
 On March 20, 1969, advised that RONALD SATCHEL, Minister of Health, and YVONNE KING, acting Minister of Labor of the BPP of Chicago, reportedly travelled to Detroit, Michigan, during the weekend of March 15 - 17, 1969. They stayed with the parents of ROBERT STANLEY WHITE in Detroit. WHITE is Field Secretary of the BPP in Chicago. He was originally from Detroit and is presently incarcerated in Detroit on charges of armed robbery.
 

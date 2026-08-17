@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30447.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 19 SEP 1975
 

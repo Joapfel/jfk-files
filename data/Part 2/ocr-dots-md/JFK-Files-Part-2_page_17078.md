@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17078.png
-
-Convert to MarkdownThe Indianapolis Division of the Federal Bureau of Investigation (FBI) advised on October 1, 1969, JEWEL COOK, WILLIE CALVIN and CLEVELAND COOK were all arrested in Indianapolis, Indiana, where they had travelled to help the Indianapolis BPP Chapter get back on its feet. The three individuals are BPP Chicago members. These three, according to the Indianapolis Division were arrested for larceny and violation of a local firearms act. In the vehicle they were travelling in, a .38 Cqlt Snubnose revolver bearing Serial Number 223772 was found.
+The Indianapolis Division of the Federal Bureau of Investigation (FBI) advised on October 1, 1969, JEWEL COOK, WILLIE CALVIN and CLEVELAND COOK were all arrested in Indianapolis, Indiana, where they had travelled to help the Indianapolis BPP Chapter get back on its feet. The three individuals are BPP Chicago members. These three, according to the Indianapolis Division were arrested for larceny and violation of a local firearms act. In the vehicle they were travelling in, a .38 Cqlt Snubnose revolver bearing Serial Number 223772 was found.
 
 This gun was reported stolen in Chicago on March 24, 1969. Source advised the above individuals were incarcerated in Indianapolis, Indiana on charges of unlawful possession of a weapon and stealing a car battery. The three, according to the source, were in Indianapolis to assist in re-organizing that BPP chapter.
 

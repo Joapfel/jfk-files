@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3858.png
-
-Convert to MarkdownNEW ORLEANS STATES-ITEM
+NEW ORLEANS STATES-ITEM
 New Orleans, La.
 
 16 February 1968

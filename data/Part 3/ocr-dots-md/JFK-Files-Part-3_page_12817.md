@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12817.png
-
-Convert to MarkdownMr. W. R. Wannall
+Mr. W. R. Wannall
 
 W. O. Cregar
 

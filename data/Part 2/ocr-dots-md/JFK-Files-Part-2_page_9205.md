@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9205.png
-
-Convert to Markdown<table><thead><tr><th>REPORTING OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td>DETROIT</td><td>SAN FRANCISCO</td><td>7/9/74</td><td>5/14/73 - 6/20/74</td></tr><tr><th>TITLE OF CASE</th><th colspan="3">REPORT MADE BY</th><th>TYPED BY</th></tr><tr><td>BLACK PANTHER PARTY</td><td colspan="3">SA ROBERT W. MEYERS, JR.</td><td>dmz</td></tr><tr><th>CHARACTER OF CASE</th><th colspan="4"></th></tr><tr><td></td><td colspan="4">EM</td></tr></tbody></table>
+<table><thead><tr><th>REPORTING OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td>DETROIT</td><td>SAN FRANCISCO</td><td>7/9/74</td><td>5/14/73 - 6/20/74</td></tr><tr><th>TITLE OF CASE</th><th colspan="3">REPORT MADE BY</th><th>TYPED BY</th></tr><tr><td>BLACK PANTHER PARTY</td><td colspan="3">SA ROBERT W. MEYERS, JR.</td><td>dmz</td></tr><tr><th>CHARACTER OF CASE</th><th colspan="4"></th></tr><tr><td></td><td colspan="4">EM</td></tr></tbody></table>
 
 REFERENCE: Detroit report of SA LAWRENCE W. LEVINE, 5/9/73.
 

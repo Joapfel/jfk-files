@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7533.png
-
-Convert to MarkdownPg. 121 - Kimsey felt that Saul was a middle-European, so probably grew up with German as second language. "Saul" spoke English like an American.
+Pg. 121 - Kimsey felt that Saul was a middle-European, so probably grew up with German as second language. "Saul" spoke English like an American.
 
 Pg. 143 - "Saul" said he came back to the U.S. for a short period one time, lived in Southern Calif. for about a month, or six weeks, then moved to Mexico. Said business was good in Mexico, and that made it easy, or easier, to try to make contact with whoever was trying to make contact with him.
 

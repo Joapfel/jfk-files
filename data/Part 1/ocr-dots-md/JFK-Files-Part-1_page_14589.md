@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14589.png
-
-Convert to Markdowntogether, and they are not heard to argue. On the other hand,
+together, and they are not heard to argue. On the other hand,
 there appear to be very deep inconsistencies in his public
 and private behavior. Sometimes he speaks like a man at war
 with himself.

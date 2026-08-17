@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9964.png
-
-Convert to Markdownconsistent with the interests of the national security. Such information shall relate, but shall not be limited to the following:
+consistent with the interests of the national security. Such information shall relate, but shall not be limited to the following:
 
 (i) Depending on the relation of the Government employment to the national security;
 

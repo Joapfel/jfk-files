@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18773.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DEC 2 1 1948
 

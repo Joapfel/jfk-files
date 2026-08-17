@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7535.png
-
-Convert to MarkdownFBI REPORT
+FBI REPORT
 
 DATE: JULY 51
 CLASS: CONFIDENTIAL

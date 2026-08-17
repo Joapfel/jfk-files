@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2768.png
-
-Convert to MarkdownKENT, William M.
+KENT, William M.
 
 (continuation of Section C)
 

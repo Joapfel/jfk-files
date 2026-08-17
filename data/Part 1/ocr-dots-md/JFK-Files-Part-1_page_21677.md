@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21677.png
-
-Convert to Markdownbelieved reasonable to assume that the remarks of KOVSHUK to
+believed reasonable to assume that the remarks of KOVSHUK to
 GOLITSYN in January 1961, as related by COLITSYN concerning
 a successful operation against a military code clerk in Moscow at the
 end of 1960, referred to STORSBERG and that KOVSHUK either was

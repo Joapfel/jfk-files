@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9831.png
-
-Convert to Markdown2.
+2.
 
 activity when the occasion called for it. LIRING/2 replied that he had too many other things to do, and anyway, when something smelled bad ("apuesta") he keeps away from it. LIRING/4, continuing to take the offensive, stated that on several occasions in the past the Greek had invited her out but she had not accepted, but that she easily could accept on the next occasion and possibly even obtain a photo of some kind for LIRING/2. L/2 replied that a photo would not be of any use, all he could do with it being to send it to Havana. He added that he had many suspicions, particularly as a result of the telephone, but had nothing concrete "in his hands", and that what he needed was "datos".
 

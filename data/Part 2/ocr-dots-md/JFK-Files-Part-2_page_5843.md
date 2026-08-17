@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5843.png
-
-Convert to Markdownprofessional opinion is that most likely such tapes were never returned to Headquarters for retention. It was normal practice to recycle audio tapes after they had been listened to by transcribers and their transcripts made.
+professional opinion is that most likely such tapes were never returned to Headquarters for retention. It was normal practice to recycle audio tapes after they had been listened to by transcribers and their transcripts made.
 
 Messages between field stations and headquarters used operational jargon and shortened sentence structures that can sometimes allow for misinterpretations. Thus, possible confusion was created when references to what was being sent to headquarters referred to "tapes" but really intend "information" from tapes.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14.png
-
-Convert to Markdown1 February 1965
+1 February 1965
 
 Case Officer Comment:
 

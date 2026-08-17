@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23839.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 this, furthermore, or adding to that, the fiscal impact or
 2 the budgetary impact of the proprietaries should be included

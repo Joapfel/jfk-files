@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32004.png
-
-Convert to Markdown# FITNESS REPORT - HOWARD A. TRECKLER
+# FITNESS REPORT - HOWARD A. TRECKLER
 
 ## SECTION C (CONT'D)
 

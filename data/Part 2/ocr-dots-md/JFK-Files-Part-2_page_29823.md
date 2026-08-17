@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29823.png
-
-Convert to MarkdownS - Was it a social relationship too?
+S - Was it a social relationship too?
 
 D - yes, I don't know for sure but it seemed like Jason would usually call the shots and Gino would usually Jason had more to say about the business
 

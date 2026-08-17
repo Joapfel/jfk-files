@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18482.png
-
-Convert to MarkdownSECRET (When Filled In)
+SECRET (When Filled In)
 
 <table>
   <caption>NOTIFICATION OF PERSONNEL ACTION</caption>

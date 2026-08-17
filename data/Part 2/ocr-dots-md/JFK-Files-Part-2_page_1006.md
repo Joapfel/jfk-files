@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1006.png
-
-Convert to Markdown14-00000
+14-00000
 
 Sanford J. L. GIVE TWO CHARACTER REFERENCES IN THE U.S. WHO KNOW YOU INTIMATE NATELY - (Give personal and best-known addresses where possible.)
 

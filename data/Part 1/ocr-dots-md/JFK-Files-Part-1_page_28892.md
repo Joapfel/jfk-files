@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28892.png
-
-Convert to MarkdownLUCIEN E. CONEIN
+LUCIEN E. CONEIN
 
 Legion of Honor (Chevalier)
 Croix de Cuerre (Palm and 2 Bronze Stars)

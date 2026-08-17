@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4073.png
-
-Convert to MarkdownHe questioned that on July 15, 1962, "while making a meeting" between Malibu and Camarillo, he had been shot in the chest. In connection with this letter incident, he exhibited a brief newspaper clipping which mentioned that he had refused completely to identify his co-defendants or furnish information which would assist the police in identifying and locating the person or persons involved.
+He questioned that on July 15, 1962, "while making a meeting" between Malibu and Camarillo, he had been shot in the chest. In connection with this letter incident, he exhibited a brief newspaper clipping which mentioned that he had refused completely to identify his co-defendants or furnish information which would assist the police in identifying and locating the person or persons involved.
 
 He stated further that on August 6, 1962, he had withdrawn his request for a hearing so that he could get the money which he alleged was due him from the State of California, consisting of $300.00 retirement contributions and $300.00 for unused accumulated leave.
 

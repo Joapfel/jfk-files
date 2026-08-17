@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4858.png
-
-Convert to MarkdownT 693418
+T 693418
 
 EIA228
 

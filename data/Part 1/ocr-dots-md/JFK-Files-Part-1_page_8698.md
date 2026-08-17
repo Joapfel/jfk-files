@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8698.png
-
-Convert to Markdown9.04.12 ¿Se ocupa poco de si beben o no los demás?
+9.04.12 ¿Se ocupa poco de si beben o no los demás?
 ¿Sirve la bebida de modo socialmente apropiado?
 ¿Tiende a obligar a otros a beber?
 

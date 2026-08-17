@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10085.png
-
-Convert to Markdown<table><tr><td>PERSONAL RECORD QUESTIONNAIRE<br/>PART I - BIOGRAPHICAL INFORMATION</td></tr><tr><td>INSTRUCTIONS: 1. Write clearly.<br/>2. Answer all questions. If question is not applicable, write "NA"<br/>3. Attach blank pages, if additional space is needed</td></tr><tr><td>DISPATCH NO.</td></tr></table>
+<table><tr><td>PERSONAL RECORD QUESTIONNAIRE<br/>PART I - BIOGRAPHICAL INFORMATION</td></tr><tr><td>INSTRUCTIONS: 1. Write clearly.<br/>2. Answer all questions. If question is not applicable, write "NA"<br/>3. Attach blank pages, if additional space is needed</td></tr><tr><td>DISPATCH NO.</td></tr></table>
 
 ● SECTION I
 

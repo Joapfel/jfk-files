@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26092.png
-
-Convert to MarkdownSECRET
+SECRET
 
 0523927 CITE JMWAVE 8497
 DIRECTOR CARACAS

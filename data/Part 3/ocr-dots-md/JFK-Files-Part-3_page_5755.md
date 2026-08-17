@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5755.png
-
-Convert to MarkdownRefyrd. page(s)
+Refyrd. page(s)
 
 of memo
 to

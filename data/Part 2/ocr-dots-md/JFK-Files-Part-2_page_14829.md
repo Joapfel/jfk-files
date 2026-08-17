@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14829.png
-
-Convert to MarkdownJanuary 18, 1960
+January 18, 1960
 
 STATUS OF SUN VALLEY, INC.
 JAMES RIDDLE HOFFA; ET AL.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9119.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Re: Black Panther Party
 Detroit Division APPENDIX

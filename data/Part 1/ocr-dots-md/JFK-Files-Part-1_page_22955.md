@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22955.png
-
-Convert to MarkdownSec. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
+Sec. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
 
 1. NAME Ross Arnulfo Crozier
    CITIZENSHIP US

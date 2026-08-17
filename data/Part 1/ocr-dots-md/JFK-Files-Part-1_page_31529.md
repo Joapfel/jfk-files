@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31529.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>TO</th><th></th><th>INITIALS</th><th>DATE</th></tr></thead><tbody><tr><td>1</td><td>Chief/IO Division</td><td></td><td></td></tr><tr><td>2</td><td></td><td></td><td></td></tr><tr><td>3</td><td></td><td></td><td></td></tr><tr><td>4</td><td></td><td></td><td></td></tr><tr><td>5</td><td></td><td></td><td></td></tr><tr><th>FROM</th><th></th><th>INITIALS</th><th>DATE</th></tr><tr><td>1</td><td>Exee. Asst. to DCI</td><td>JSE/dr</td><td>12 Jan 54</td></tr><tr><td>2</td><td></td><td></td><td></td></tr><tr><td>3</td><td></td><td></td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15839.png
-
-Convert to Markdownstunned and nulled their weapons at 2905 Union Street, an entire two- block area was blocked. . . and dozens of Emeryville and Oakland no- lice officers had (supposedly answering a call for reinforcements) anneared on the scene, thoroughly equipped with riot helmets, OVERKILL weapons, tear gas bombs. . .
+stunned and nulled their weapons at 2905 Union Street, an entire two- block area was blocked. . . and dozens of Emeryville and Oakland no- lice officers had (supposedly answering a call for reinforcements) anneared on the scene, thoroughly equipped with riot helmets, OVERKILL weapons, tear gas bombs. . .
 
 Cleaver's account of the incident indicated that the trouble began around 9:30 p.m. when a squad car nulled alongside 3 Panther cars marked on 28th Street. Cleaver saw a con get out of a squad car, which had suddenly nulled up, "heard some loud talk" from a con "and suddenly a gun exploded right in my face." Cleaver said he and Bobby "lit out" through an alleyway and through a side door into the basement of a house that had no connection with the Panthers. "He laid down on our backs and the cons started firing. I could see their bullets coming in through a beavertboard partition about a foot above my face."
 

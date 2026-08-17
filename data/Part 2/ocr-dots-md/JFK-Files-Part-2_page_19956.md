@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19956.png
-
-Convert to MarkdownBRIGADE FORMED TO CONFRONT CONGRESS
+BRIGADE FORMED TO CONFRONT CONGRESS
 
 Helena, Montana
 November 27, 1967

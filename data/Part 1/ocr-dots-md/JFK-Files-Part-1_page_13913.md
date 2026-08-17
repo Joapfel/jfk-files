@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13913.png
-
-Convert to Markdown**S-E-C-R-E-T**
+**S-E-C-R-E-T**
 **NO FOREIGN DISSEH**
 
 COUNTRY Cuba/Mexico

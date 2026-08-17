@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1506.png
-
-Convert to MarkdownTRUE
+TRUE
 
 107. BARQUIN, Casimiro
 108. MORALES David S.3643

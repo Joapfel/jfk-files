@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6004.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 databases. Unfortunately, there is no way of retrieving these cables through a reasonable search using any generic or specific term, since cables were not captured by any organized filing process.
 

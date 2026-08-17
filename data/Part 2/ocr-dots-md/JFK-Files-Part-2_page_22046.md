@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22046.png
-
-Convert to MarkdownNO OBECTION en escrito
+NO OBECTION en escrito
 NATIONAL SECURITY COUNCIL
 
 CIA HAS NO OBJECTION TO

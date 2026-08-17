@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18822.png
-
-Convert to MarkdownNY 105-8180
+NY 105-8180
 
 On 3/5/57, Special Agents of the FBI observed the activities of a certain individual in the offices of the Ceylon Delegation where the afore-mentioned code was known to be kept, and subsequently observed this individual with GRUSHA. Approximately one hour later, after this individual had again been observed with GRUSHA, he was observed returning a red covered book to the offices of the Ceylon Delegation.
 

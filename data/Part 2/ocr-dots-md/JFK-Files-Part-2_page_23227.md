@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23227.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Tweedy. No, I do not.
 

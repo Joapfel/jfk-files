@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2899.png
-
-Convert to Markdown1 ourselves whether Mr. Hoover was off on a wild goose chase
+1 ourselves whether Mr. Hoover was off on a wild goose chase
 2 or whether there was, in effect, some reason. Again, I am
 3 not advocating it, I am merely asking a question. They would
 4 be available if the Committee took a vote to hear them and

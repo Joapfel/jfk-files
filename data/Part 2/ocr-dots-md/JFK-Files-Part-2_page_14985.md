@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14985.png
-
-Convert to MarkdownSUBVERSIVE ACTIVITIES ON COLLEGE CAMPUSES
+SUBVERSIVE ACTIVITIES ON COLLEGE CAMPUSES
 
 The field of education has long been a major target of the Communist Party. The communists' emphasis on students in the recent past was best expressed by the Party's General Secretary, Gus Hall, when he stated "Communism is big, really big, on college campuses now. You've got to play the ball game where the players are and the really good players are in college." Today there is considerable unrest and agitation on college campuses throughout the Nation. Subversive agitators constitute the major source behind this unrest and, from a long-range viewpoint, these campus subversives may well become seriously damaging to our national security. In light of this, the FBI will continue to carry out its defined responsibilities, whether they be on the college campus or elsewhere, while at the same time respect the spirit of academic freedom on which our college system is based.
 

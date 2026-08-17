@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13379.png
-
-Convert to MarkdownOLSEN: Did you understand that this attorney was occupying offices at Southern Air Transport?
+OLSEN: Did you understand that this attorney was occupying offices at Southern Air Transport?
 
 STURGIS: No, sir. I understand that possibly the address which I just gave you on Andrews Avenue may be his law firm's address, but Southern Air Transport is a CIA front.
 

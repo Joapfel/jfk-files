@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34953.png
-
-Convert to MarkdownJUAN DE LA FERIA, S/CL. - - -
+JUAN DE LA FERIA, S/CL. - - -
 CITARIO: - Si el Presidente de la República
 delجزo Civil a cargo de, suyos; al que co-
 pisan d'co:- - - - - - - - - - - - -

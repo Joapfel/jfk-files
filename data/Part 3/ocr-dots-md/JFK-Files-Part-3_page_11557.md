@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11557.png
-
-Convert to MarkdownJ. M. Sizoo assigned exclusively to the research and preparation of an extensive biographical write-up on Ellsberg. In this regard, facts concerning Ellsberg's life, behavioral patterns, associates, education, political views, personality transformations, family, and influences will be studied and analyzed.
+J. M. Sizoo assigned exclusively to the research and preparation of an extensive biographical write-up on Ellsberg. In this regard, facts concerning Ellsberg's life, behavioral patterns, associates, education, political views, personality transformations, family, and influences will be studied and analyzed.
 
 In addition to the above specific assignments, each member of the unit on a daily basis is required to participate in Section, Unit and/or Branch conferences for resolution of investigative facets of the Ellsberg, Toll Lek and SALT Lek investigations.
 

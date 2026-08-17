@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14618.png
-
-Convert to MarkdownMay 26, 1960
+May 26, 1960
 
 DESTRUCTION OF AIRCRAFT OR
 MOTOR VEHICLES - FALSE REPORTS

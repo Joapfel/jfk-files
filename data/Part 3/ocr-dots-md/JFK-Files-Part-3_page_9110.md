@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9110.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 # Table of Contents
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29916.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 1. As Mr. David E. Murphy, GS-18, retires on 31 July 1975, he will have completed some 33 years of Federal service, 27 of which have been with the Agency. His record has been an outstanding one in all respects. His accomplishments and the level and range of responsibilities he has exercised fully warrant the award of the Distinguished Intelligence Medal in recognition thereof.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24848.png
-
-Convert to MarkdownINDEX: ☐ YES ☐ NO
+INDEX: ☐ YES ☐ NO
 
 CLASSIFIED MESSAGE TOTAL COPIES
 

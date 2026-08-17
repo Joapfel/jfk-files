@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22631.png
-
-Convert to Markdown4
+4
 
 Charles SCHUMAN
 348 East 19th St.,

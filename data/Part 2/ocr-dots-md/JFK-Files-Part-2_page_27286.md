@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27286.png
-
-Convert to MarkdownA. Ltr from Knoche to Roethe - 22 Apr 75 SECRET
+A. Ltr from Knoche to Roethe - 22 Apr 75 SECRET
 
 B. National Security Council Intell. Dir. No. 9, 31 Mar 75 SECRET
 

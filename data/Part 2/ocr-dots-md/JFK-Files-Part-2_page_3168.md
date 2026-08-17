@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3168.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 (b) Continue present operations of infiltrating small paramilitary teams to organize, train, and lead resistance forces and report intelligence information.
 

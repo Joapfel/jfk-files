@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22441.png
-
-Convert to Markdowng. Develop and support covert press assets in the staffs of influential newspapers.
+g. Develop and support covert press assets in the staffs of influential newspapers.
 
 h. Develop access to individuals and organizations in the labor field and support non-Communist leaders and groups in key unions.
 

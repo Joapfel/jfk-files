@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21537.png
-
-Convert to Markdownin Soviet organizations and more specifically in the KGB. As an example,
+in Soviet organizations and more specifically in the KGB. As an example,
 a Chief of Department in the KGB or the Chief of a Residentura abroad
 may have 2, 3 or even 4 deputies, one of whom is given the title of
 First Deputy. This particular deputy acts in the absence of the Chief

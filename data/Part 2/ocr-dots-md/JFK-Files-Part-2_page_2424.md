@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2424.png
-
-Convert to MarkdownTHE WACKENBUT CORPORATION
+THE WACKENBUT CORPORATION
 
 A-15-45-91
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23655.png
-
-Convert to Markdown# CRYPTONYM
+# CRYPTONYM
 
 ## AMTRUNK VII
 

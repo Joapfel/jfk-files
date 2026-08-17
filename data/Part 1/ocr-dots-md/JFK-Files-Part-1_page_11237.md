@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11237.png
-
-Convert to MarkdownLa Habana, 17 de Marzo de 1956
+La Habana, 17 de Marzo de 1956
 
 "AÑO DE LA SOLIDARIDAD"
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33011.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPY: 24-2</th><th colspan="2">REMITTING AND/OR INITIALS - SLIP BY</th></tr></thead><tbody><tr><td colspan="2">SECRET</td><td>5</td><td>1</td></tr><tr><td>3</td><td></td><td>8</td><td>1</td></tr><tr><td></td><td></td><td>7</td><td>1</td></tr><tr><td>4</td><td>18/76</td><td>5</td><td>1</td></tr></tbody></table>
 

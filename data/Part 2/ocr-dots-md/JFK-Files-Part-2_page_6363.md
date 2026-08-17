@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6363.png
-
-Convert to Markdown10 March 1995
+10 March 1995
 
 **MEMORANDUM FOR:** J. Barry Harrelson @ DA
 

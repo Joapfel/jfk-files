@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7240.png
-
-Convert to Markdown3.
+3.
 
 Priklyko then remarked something to the effect that Subj now didn't want to do anything for them -what with his bad health and being tied up in business-but that maybe in the future..... and then got very much into the present by sliding easily into the old grooves: he said "I talked/you several times about a man coming tourist to Mexico - what is the best way to arrange legal residence-could it be done through your office - he could be attached to your office-he doesn't have to work there."
 

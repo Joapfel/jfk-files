@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3225.png
-
-Convert to MarkdownSection XII
+Section XII
 
 3. Nina Shchogoleyva Kiseleva
 4. None

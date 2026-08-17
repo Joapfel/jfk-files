@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24407.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 2 LCPIPIT 2389 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6701.png
-
-Convert to MarkdownNew Crl·ans Nov. 27 de 1963
+New Crl·ans Nov. 27 de 1963
 
 Dear Mr. Tools:
 

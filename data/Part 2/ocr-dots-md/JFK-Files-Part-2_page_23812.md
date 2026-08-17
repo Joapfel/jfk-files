@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23812.png
-
-Convert to Markdown1 phone calls and overtures, and it is a former Director trying to gain a benefit. It is an unseemly situation, and they labeled it as a conflict of interest which they sought to avoid, and in fact they did, and they are praised for it in the report because they were really under tremendous pressure.
+1 phone calls and overtures, and it is a former Director trying to gain a benefit. It is an unseemly situation, and they labeled it as a conflict of interest which they sought to avoid, and in fact they did, and they are praised for it in the report because they were really under tremendous pressure.
 
 6 So I have no feeling one way or the other. I think to leave out his name unfairly impugns the other. To leave it in, also, is only the second time in the whole findings and conclusions that we mention anybody's name, so I don't care.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15990.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## NATION OF ISLAM
 

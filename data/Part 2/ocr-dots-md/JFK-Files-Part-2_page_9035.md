@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9035.png
-
-Convert to MarkdownInformation on the guerilla force inancy and conflicting. It is agreed, however, that most of the members of the National Liberation Front (FLN), a Communist-dominated and Cuban-supported revolutionary organization active primarily in Honduras and Nicaragua since the fall of 1962. The strength of the force is not known.
+Information on the guerilla force inancy and conflicting. It is agreed, however, that most of the members of the National Liberation Front (FLN), a Communist-dominated and Cuban-supported revolutionary organization active primarily in Honduras and Nicaragua since the fall of 1962. The strength of the force is not known.
 
 ## II. MEXICO
 

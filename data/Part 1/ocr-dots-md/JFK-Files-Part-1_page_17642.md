@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17642.png
-
-Convert to MarkdownC. CUMMINGS
+C. CUMMINGS
 4200
 2555
 9 DECEMBER 1957

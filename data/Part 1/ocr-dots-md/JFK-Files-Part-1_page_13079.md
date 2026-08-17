@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13079.png
-
-Convert to Markdown15 currently cooperating FBI
+15 currently cooperating FBI
 
 Became involved R July 63
 

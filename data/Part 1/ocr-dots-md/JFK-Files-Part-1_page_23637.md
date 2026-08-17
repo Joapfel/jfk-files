@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23637.png
-
-Convert to MarkdownBox 779
+Box 779
 San Jose, C.R.
 7 Oct 52
 

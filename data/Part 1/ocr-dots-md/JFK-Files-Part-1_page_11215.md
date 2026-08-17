@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11215.png
-
-Convert to MarkdownLa Habana, 16 de Mayo de 1966
+La Habana, 16 de Mayo de 1966
 
 "ALO EN LA SOLIDARIDAD"
 

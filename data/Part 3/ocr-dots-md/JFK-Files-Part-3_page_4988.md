@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4988.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Memorandum to Mr. W. R. Wannall
 
 Re: U. S. Senate Select Committee on Intelligence Activities (SSC)
 

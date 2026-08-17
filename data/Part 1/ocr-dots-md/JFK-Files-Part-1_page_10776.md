@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10776.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OVER
 4 Jan 67

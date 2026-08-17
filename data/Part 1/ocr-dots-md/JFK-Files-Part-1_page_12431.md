@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12431.png
-
-Convert to Markdown13.- Comercio del diamante en Venezuela
+13.- Comercio del diamante en Venezuela
 
 131.- Legislación:
 

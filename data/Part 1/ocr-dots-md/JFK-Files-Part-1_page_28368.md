@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28368.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG. C.R.Hallwell
 UNIT, W/W/1

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26261.png
-
-Convert to MarkdownGallini. No respondió que eso era también imposible; que sólo el Director podría hacerlo. En realidad el guardia eresela cumuliendo con su dober.
+Gallini. No respondió que eso era también imposible; que sólo el Director podría hacerlo. En realidad el guardia eresela cumuliendo con su dober.
 
 LUIGI DE MANCHI,
 

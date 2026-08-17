@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15565.png
-
-Convert to MarkdownLR
+LR
 
 to submit an order for printing. BROWN stated that the financial situation had been discussed regarding that matter and the Illinois Chapter was unable to send any money at the present time inasmuch as the money was needed for other things.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3053.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the US program should be overt or covert, with the
 overt implications being the ultimate application

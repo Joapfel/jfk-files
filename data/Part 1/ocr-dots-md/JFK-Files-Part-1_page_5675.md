@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5675.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SHALLOWAY (P) currently in Paris was provided cover in Paris, France from 1954-1963 by the Research Institute of America, Inc. During operations against Cuba in 1959-60 Mr. Cherne was active in both an FI and CA capacity. He was also subsequently a DCI source.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23341.png
-
-Convert to MarkdownORIG : J.B.NOLND
+ORIG : J.B.NOLND
 UNIT : VII/III/CUBA
 EXT : 2056
 DATE : 18 FEBRUARY 1957

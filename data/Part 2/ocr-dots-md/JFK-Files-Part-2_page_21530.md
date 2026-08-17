@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21530.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 and had, as far as I know, personally, at least, nothing to do
 with assassination.

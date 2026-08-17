@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2976.png
-
-Convert to Markdown1914
+1914
 
  Senator Hart of Michigan. Let's assume that the rule
 for opening an investigation on a group is narrowly drawn. The

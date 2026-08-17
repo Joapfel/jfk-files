@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10647.png
-
-Convert to MarkdownSECRET
+SECRET
 
 not condensed, his activities. It would seem preferable to have
 him immediately put under a more stringent parole, perhaps with

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12159.png
-
-Convert to Markdown[107L SECTION 107. [INTERNAL]SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
+[107L SECTION 107. [INTERNAL]SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
 
 a. Receipts should be of such a nature that they will be self-sufficient so that, if it becomes necessary to introduce receipts in evidence, they will not relate to other documents or files.
 

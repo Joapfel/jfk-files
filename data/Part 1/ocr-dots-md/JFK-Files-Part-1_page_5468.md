@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5468.png
-
-Convert to MarkdownTDCSDB-315/02061-67
+TDCSDB-315/02061-67
 
 PAGE 5 OF 7 PAGES
 

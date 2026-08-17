@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30370.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 you got later, that was net money after whatever taxes or whatever it was —
 

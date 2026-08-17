@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_7838.png
-
-Convert to MarkdownCONTINUED
+CONTINUED
 
 2

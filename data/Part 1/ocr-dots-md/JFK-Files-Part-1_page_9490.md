@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9490.png
-
-Convert to Markdown13 April 1950
+13 April 1950
 
 MEMORANDUM FOR: Kenneth H. Hambley
 SUBJECT: Letter of Instructions

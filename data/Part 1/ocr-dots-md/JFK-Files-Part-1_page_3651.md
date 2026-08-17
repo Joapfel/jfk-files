@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3651.png
-
-Convert to Markdown14-00000
+14-00000
 
 ORIG: DRAKE S. REID
 UNIT: C/WH/2/CN

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22180.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>ATTORNEY GENERAL ROBERT KENNEDY</td><td rowspan="3">Nov. 5, 1963</td><td rowspan="7"></td></tr><tr><td>HELMS</td></tr><tr><td>CHIEF CUSTodian</td></tr><tr><td>STEAKLEY</td><td>CASTRO</td></tr><tr><td></td><td>MONGODB</td></tr><tr><td></td><td>SPECIAL GROUP</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>ATTORNEY GENERAL ROBERT KENNEDY</td><td rowspan="3">Nov. 5, 1963</td><td rowspan="7"></td></tr><tr><td>HELMS</td></tr><tr><td>CHIEF CUSTodian</td></tr><tr><td>STEAKLEY</td><td>CASTRO</td></tr><tr><td></td><td>MONGODB</td></tr><tr><td></td><td>SPECIAL GROUP</td></tr></table>
 
 OCCURRENCE:
 

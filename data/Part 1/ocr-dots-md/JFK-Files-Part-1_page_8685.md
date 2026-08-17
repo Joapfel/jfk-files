@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8685.png
-
-Convert to Markdown4.14 PUNTOS DE DISTRIBIR
+4.14 PUNTOS DE DISTRIBIR
 
 4.14.01 ¿La gusta dormir y se duerme fácilmente? Sf ___ No ___
 ¿Lo ocuca o canta en preparación para dormir? Sf ___ No ___

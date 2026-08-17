@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33555.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="3">ADVANCE COPY ISSUED/SCOTTER<br/>ACTION UNIT: C/EURO INFO<br/>ACTION: 091</th>

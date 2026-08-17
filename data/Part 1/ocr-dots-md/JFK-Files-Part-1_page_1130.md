@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1130.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HR 20-55c
 

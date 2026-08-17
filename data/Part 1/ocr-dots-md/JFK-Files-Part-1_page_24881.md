@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24881.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. TICHBORN, 46, is bilingual and has a wide range of business and social contacts throughout Latin America. Following graduation from Harvard Law School in 1948, TICHBORN became affiliated with a law firm in Los Angeles which represented many Latin American corporations with California business connections. In the mid-1950's he became active in California state politics and served in various capacities in Democratic Party state and national organizations. He participated actively in the California gubernatorial campaign of James Roosevelt, the senatorial campaign of Helen Gahagan Douglas and both the 1952 and 1956 Stevenson campaigns for the Presidency. He has been President of the Southern California Young Democrats, a member of the California Democratic State Central Committee, a member of the Host Committee for the 1956 Democratic National Convention and a member of the Board of Directors of the National Democratic Minority Conference. In 1960 he served as Los Angeles coordinator of the Kennedy Movement for Americans of Mexican Extraction which, it is reported, contributed substantially to the success of the Kennedy campaign in Southern California. His only try for elective office was in 1958 when he was defeated in his bid for the position of California Secretary of State.
 

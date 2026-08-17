@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11673.png
-
-Convert to MarkdownBLACK REVOLUTIONARY PARTY
+BLACK REVOLUTIONARY PARTY
 157-15276
 
 The Black Revolutionary Party is an all black revolutionary, political organization which was formed in April, 1971, at an internal meeting of the pro-Red China Communist Party of Canada (Marxist-Leninist) (CP of C-ML). Among 16 people present were four Americans including well-known black extremist, Charles Knox, former Black Panther Party leader in Des Moines, Iowa.

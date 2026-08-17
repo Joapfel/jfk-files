@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17384.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
 
 <table><tr><td colspan="3">CO2<br/>DATE : 29 SEP 62<br/>TO : DIRECTOR<br/>FROM : HONG KONG<br/>ACTION : C/WH 5° ( C/WH TEMPO COPY SLOTTED 2345, 28 SEP)<br/>INFO : ACOIP, C/C1, C/WE 2, C/FE 6, S/C 2</td></tr></table>
 

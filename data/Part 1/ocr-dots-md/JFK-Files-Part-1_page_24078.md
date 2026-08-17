@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24078.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET/RYBAT</td><td>MARRED FOR INDEXING</td></tr><tr><td>Chief, WOLMIE</td><td>XEX NO INDEXING REQUIRED</td></tr><tr><td>Chief of Station, London<br/>Chief, EUR Division</td><td>CAN ONLY BE FURNISHED ON DEMAND</td></tr><tr><td>Chief, LCPIPIT/London</td><td rowspan="2">MICROFILM</td></tr><tr><td>CTRCORC/MHPBOMB/Operational<br/>ORPHONE/Memorandum of Oral Commitment</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET/RYBAT</td><td>MARRED FOR INDEXING</td></tr><tr><td>Chief, WOLMIE</td><td>XEX NO INDEXING REQUIRED</td></tr><tr><td>Chief of Station, London<br/>Chief, EUR Division</td><td>CAN ONLY BE FURNISHED ON DEMAND</td></tr><tr><td>Chief, LCPIPIT/London</td><td rowspan="2">MICROFILM</td></tr><tr><td>CTRCORC/MHPBOMB/Operational<br/>ORPHONE/Memorandum of Oral Commitment</td></tr></tbody></table>
 
 GROSS REFERENCE TO
 

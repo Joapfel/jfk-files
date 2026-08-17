@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29767.png
-
-Convert to MarkdownDonald Deneslya Interview
+Donald Deneslya Interview
 Page 4.
 
 In November 1962 Donald received a strange request from Golitsin. Rudolf Nureyev was appearing in Chicago, Illinois and there was an ad in the paper that tickets were available at a certain bookstore. He wanted Deneslya to contact the store and find out where Nureyev was staying.

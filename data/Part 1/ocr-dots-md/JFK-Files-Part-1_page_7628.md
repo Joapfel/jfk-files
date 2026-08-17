@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7628.png
-
-Convert to MarkdownCOPIES MADE
+COPIES MADE
 
 8. During the above conversation, we also discussed the United-States, including President Kennedy, whom both Subject and ALVAREZ claimed greatly to have admired, and Subject's experience in the U.S., where she attended Kent State University in Ohio. She stated at this time that she regarded the U.S. as a second home. She also expressed love for Mexico and together with ALVAREZ, took pride in pointing to Mexico's progress.
 

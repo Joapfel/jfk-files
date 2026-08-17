@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27391.png
-
-Convert to MarkdownA. Memo from Knoche to Weidner - 21 May 75 SECRET
+A. Memo from Knoche to Weidner - 21 May 75 SECRET
 
 B. Memo for Knoche from Chamberlain - Subj: WESTPOINTER - 20 May 75
 SECRET

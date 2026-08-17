@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3569.png
-
-Convert to Markdown5. Yemen
+5. Yemen
 
 a. Military activity has slackened but the stalemate continues.
 

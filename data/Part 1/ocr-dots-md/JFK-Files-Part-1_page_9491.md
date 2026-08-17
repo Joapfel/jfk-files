@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9491.png
-
-Convert to Markdown3. Duties and Responsibilities
+3. Duties and Responsibilities
 
 a. Operational
 

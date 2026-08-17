@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9288.png
-
-Convert to MarkdownDE T-1 advised on April 20, 1971, that MC CLURE is currently in New York.
+DE T-1 advised on April 20, 1971, that MC CLURE is currently in New York.
 
 DE T-1 advised on April 27, 1971, that MC CLURE returned to Detroit from New York about 3:00 p.m. on April 27, 1971.
 

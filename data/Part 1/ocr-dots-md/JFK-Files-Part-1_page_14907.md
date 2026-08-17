@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14907.png
-
-Convert to Markdown13. Father — Full name, occupation, present residence, year and place of birth, nationality at birth, and subsequent nationalities
+13. Father — Full name, occupation, present residence, year and place of birth, nationality at birth, and subsequent nationalities
 
 Simon Tritsichvili, mining engineer
 born Tiflis ca. 1887

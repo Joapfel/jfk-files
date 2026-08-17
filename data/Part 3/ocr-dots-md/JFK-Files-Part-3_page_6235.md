@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6235.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 was the defendant in a slander action brought by
 one L. B. SULLIVAN seeking $500,000 damages. This

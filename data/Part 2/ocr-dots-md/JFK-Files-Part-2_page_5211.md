@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5211.png
-
-Convert to MarkdownMAR 31 '97 12:08PM
+MAR 31 '97 12:08PM
 
 SHAW to him. J. Monroe SULLIVAN, executive director of the San Francisco World Trade Center, told the Associated Press that SHAW was in San Francisco and touring the Center with him on the day of the assassination. SHAW, now retired, was formerly the managing director of the International Trade Mart in New Orleans. He is 54 years old. Ramsey Clark, U.S. Attorney General, said that the FBI had investigated SHAW late in 1963. "On the evidence that the FBI has, there was no connection found" with the assassination.
 

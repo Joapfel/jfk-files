@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3299.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 covered." What I would love now [is] to see an outline of AMHINT.* 13/
 

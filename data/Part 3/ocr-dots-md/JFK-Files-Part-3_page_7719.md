@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7719.png
-
-Convert to Markdownnot made under the Freedom of Information Act, but as we
+not made under the Freedom of Information Act, but as we
 review the material in the file, exemptions in the act
 indicate, I think, the kind of concerns the Committee might
 want the Department to bring to its attention before dis-

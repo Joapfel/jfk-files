@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2545.png
-
-Convert to Markdown" intelligence activities", and use of the materials in further political intelligence.
+" intelligence activities", and use of the materials in further political intelligence.
 
 Honorable Edward H. Levi, Attorney General
 U. S. Department of Justice

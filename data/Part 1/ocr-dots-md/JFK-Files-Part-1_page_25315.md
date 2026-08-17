@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25315.png
-
-Convert to MarkdownSECRET
+SECRET
 
 H04-1524 (9 Apr 58)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16591.png
-
-Convert to MarkdownEDITIONS
+EDITIONS
 
 <table><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>LASSIFIED MESSAGE</td><td>TOTAL COPIES</td><td>ROUTING AND/OR INITIALS-SCEN I</td></tr><tr><td></td><td colspan="2">SECRET (When Filled In)</td><td></td></tr><tr><td></td><td colspan="3">REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td>[ ] READ [x] FILTERED [ ] SLOTTED</td><td colspan="3"></td></tr><tr><td>ev. <u>&nbsp;&nbsp;&nbsp;&nbsp;L&nbsp;&nbsp;&nbsp;&nbsp;</u></td><td colspan="3">At <u>&nbsp;&nbsp;&nbsp;&nbsp;1815&nbsp;&nbsp;&nbsp;&nbsp;</u> Z</td></tr><tr><td>Cותm by <u>&nbsp;&nbsp;&nbsp;&nbsp;J&nbsp;&nbsp;&nbsp;&nbsp;</u> PEP</td><td colspan="3"></td></tr><tr><td>ACTION</td><td><u>&nbsp;&nbsp;&nbsp;&nbsp;C/WH-8&nbsp;&nbsp;&nbsp;&nbsp;</u></td><td>FILE, VR</td><td>cledan, clevel, clec.fid. DDP. ADDP</td></tr></table>
 

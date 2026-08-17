@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11292.png
-
-Convert to MarkdownU·CLASSIFIED
+U·CLASSIFIED
 
 ☐ INTERNAL
 : BE ONLY

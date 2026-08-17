@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25420.png
-
-Convert to MarkdownIM 105-1742
+IM 105-1742
 
 MANUEL ARTINE, MRR
 

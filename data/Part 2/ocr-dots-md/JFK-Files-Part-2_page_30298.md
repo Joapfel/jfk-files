@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30298.png
-
-Convert to Markdown"KGB throught he was of no interest for the country or
+"KGB throught he was of no interest for the country or
 for the KGB, that he is not normal, that he should leave
 the country."
 

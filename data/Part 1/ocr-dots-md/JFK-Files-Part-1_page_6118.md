@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6118.png
-
-Convert to MarkdownSECRET
+SECRET
 
 b. As stated in Paragraph c above, I recommend that OGC, in their letter to requester, correct the previous error in identifying the deciding officials.
 

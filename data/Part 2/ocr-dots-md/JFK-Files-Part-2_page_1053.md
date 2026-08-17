@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1053.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NAME OF EMPLOYEE (Last-First-Middle)</td><td>NAME AND RELATIONSHIP OF DEPENDENT</td><td>CLAIM NUMBER</td></tr><tr><td>Smith, Joseph B.</td><td>Joe - John</td><td>59-200D</td></tr></table>
 

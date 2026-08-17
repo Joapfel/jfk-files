@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7318.png
-
-Convert to MarkdownJanuary 30, 1975
+January 30, 1975
 
 Director, FBI
 

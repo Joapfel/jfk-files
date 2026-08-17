@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25730.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 17 SEP 62<br/>TO : DIRECTOR<br/>FROM : MEXICO CITY<br/>ACTION: EE 6<br/>INFO : CI, CI/OPS, CI/OA, WH 7, S/C 2</td><td>SECRET</td></tr></tbody></table>
 

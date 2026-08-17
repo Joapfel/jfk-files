@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22737.png
-
-Convert to Markdown1. they would differentiate the priorities, and areas where the KGB was oversurveilled, the DGI would take over the surveillance of our personnel and so on.
+1. they would differentiate the priorities, and areas where the KGB was oversurveilled, the DGI would take over the surveillance of our personnel and so on.
 
 2. The moment this defector arrived in the United States, I sent Scotty to the airport immediately to see him because that's the number one priority. Here was an individual whose job was to work on Americans and who allegedly had seen information from one of our embassies. Now, that is the highest priority, and particularly because information of a counterintelligence nature is perishable. Some is and some isn't.
 

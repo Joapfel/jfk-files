@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14216.png
-
-Convert to MarkdownThe one-hour meeting with the President terminated with
+The one-hour meeting with the President terminated with
 the President repeating his expressions of appreciation for
 the work of the Board.
 

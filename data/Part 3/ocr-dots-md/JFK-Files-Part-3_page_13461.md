@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13461.png
-
-Convert to Markdown1
+1
 
 MR. RUSK: I can imagine there could be some
 2

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11853.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>REQUEST FOR CANCELLATION</td></tr></table>
 

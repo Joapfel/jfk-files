@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29551.png
-
-Convert to MarkdownNOTE:
+NOTE:
 
 Since his precipitate meeting with the Director about 1730 hours on 16 May 1961, Lynch has not been heard from. Presumably he returned to his home in Fayetteville, North Carolina.
 

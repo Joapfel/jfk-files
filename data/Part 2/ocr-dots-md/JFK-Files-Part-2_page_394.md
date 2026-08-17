@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_394.png
-
-Convert to MarkdownST
+ST
 
 7100-34558
 

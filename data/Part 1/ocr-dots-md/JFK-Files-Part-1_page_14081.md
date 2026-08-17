@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14081.png
-
-Convert to Markdown1 March 1963
+1 March 1963
 
 WH/C #63-48
 LX-1836

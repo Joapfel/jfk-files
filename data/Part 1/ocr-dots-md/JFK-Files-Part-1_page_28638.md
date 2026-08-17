@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28638.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ARTICLE XI. General. The Employee shall comply with the following provisions, and violation thereof by the Employee shall be deemed a breach of this contract.
 

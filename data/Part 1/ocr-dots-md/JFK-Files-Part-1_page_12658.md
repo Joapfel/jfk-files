@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12658.png
-
-Convert to Markdown1-79 WFG. 10/78
+1-79 WFG. 10/78
 
 <table>
     <tbody>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31163.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 03. AND PERSONAL ACTION VOUCHERED TO BE CHANGED

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26717.png
-
-Convert to Markdown14-00000
+14-00000
 
 Reel 72-MICP-23
 29 April 1965

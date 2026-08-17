@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18988.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">SECTION 15. NEIGHBORS-THREE IN THE UNITED STATES (AT YOUR LAST NORMAL ADDRESS)</th></tr><tr><th>NAME</th><th>ADDRESS STREET AND NUMBER</th><th>CITY</th><th>STATE</th></tr></thead><tbody><tr><td>M. Maurer</td><td>1514 17th St. N.W.</td><td>Wash., D.C.</td><td>USA</td></tr><tr><td>L. Herber</td><td>1514 17th St. N.W.</td><td>Wash., D.C.</td><td>USA</td></tr><tr><td>A. Haynes</td><td>1514 17th St. N.W.</td><td>Wash., D.C.</td><td>USA</td></tr></tbody></table>
+<table><thead><tr><th colspan="4">SECTION 15. NEIGHBORS-THREE IN THE UNITED STATES (AT YOUR LAST NORMAL ADDRESS)</th></tr><tr><th>NAME</th><th>ADDRESS STREET AND NUMBER</th><th>CITY</th><th>STATE</th></tr></thead><tbody><tr><td>M. Maurer</td><td>1514 17th St. N.W.</td><td>Wash., D.C.</td><td>USA</td></tr><tr><td>L. Herber</td><td>1514 17th St. N.W.</td><td>Wash., D.C.</td><td>USA</td></tr><tr><td>A. Haynes</td><td>1514 17th St. N.W.</td><td>Wash., D.C.</td><td>USA</td></tr></tbody></table>
 
 <table><thead><tr><th colspan="3">SECTION 16. MISCELLANEOUS</th></tr><tr><td colspan="3">DID YOU EVER HAVE OR DO YOU NOW HAVE MEMBERSHIP IN, OR SUPPORT ANY POLITICAL PARTY OR ORGANIZATION WHICH ADVOCATES THE OVERTHROW OF OUR CONSTITUTIONAL FORM OF GOVERNMENT IN THE UNITED STATES? YES [ ] NO [x]</td></tr></thead><tfoot><tr><td colspan="3">IF ANSWER IS "YES", EXPLAIN BELOW:</td></tr></tfoot></table>
 

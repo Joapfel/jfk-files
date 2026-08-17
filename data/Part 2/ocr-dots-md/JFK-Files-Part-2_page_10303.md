@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10303.png
-
-Convert to Markdown4. When Jack declined, he indicated that Mr. Hunt asked for any other recommendations he might have. According to Jack, he told Mr. Hunt that most of the people he knew were still in the Agency, but he did furnish the name of IDEN-108 who might be possibly ready to retire from the Agency.
+4. When Jack declined, he indicated that Mr. Hunt asked for any other recommendations he might have. According to Jack, he told Mr. Hunt that most of the people he knew were still in the Agency, but he did furnish the name of IDEN-108 who might be possibly ready to retire from the Agency.
 
 5. Jack informed me that he assumed that the Bureau obtained his name due to the resume he furnished Mr. Hunt. He said that the Bureau had talked to him on three or four occasions and that he had written up about a 40 page statement concerning his dealings with Mr. Hunt. When asked about Mr. McCord, Jack said that he really did not know McCord that well and declined any knowledge of Mr. McCord's technical capability.
 

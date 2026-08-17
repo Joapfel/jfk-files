@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25284.png
-
-Convert to Markdown# A Mission to Cuba: Tale of the Doomed Raiders
+# A Mission to Cuba: Tale of the Doomed Raiders
 
 By PAUL MESKIL
 

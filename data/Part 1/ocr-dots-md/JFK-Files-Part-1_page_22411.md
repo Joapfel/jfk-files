@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22411.png
-
-Convert to Markdown14-00000
+14-00000
 
 c. The Compromise of POPOV
 

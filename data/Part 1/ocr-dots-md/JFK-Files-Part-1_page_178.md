@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_178.png
-
-Convert to Markdown## -4-
+## -4-
 
 e. Eleven unwitting organizations which received grants from project organizations for operational or cover reasons or which cooperated with project organizations.
 

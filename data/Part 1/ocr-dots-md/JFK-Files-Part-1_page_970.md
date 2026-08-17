@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_970.png
-
-Convert to MarkdownHSCA Chrono, page 3
+HSCA Chrono, page 3
 
 11 Nov
 Blakey Req for Info on KINA - RAY (OLC 77-4938)

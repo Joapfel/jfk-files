@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19686.png
-
-Convert to MarkdownBS 100-44951
+BS 100-44951
 
 A review of Boston file 25-25585 (Bufile 25-569484) reflected that DELLINGER was also subject of investigation based on his participation in the previously mentioned Rededication Services at the Arlington St. Church in Boston on 1/29/68 at which 23 individuals turned in either a Notice of Classification and/or a Registration Certificate. Two other individuals turned in some other type of document. It was determined that DELLINGER had turned in a Selective Service Registration Certificate and two Notices of Classification issued by LB #28, Flemington, New Jersey. Also, a two-page statement signed PATCHEN DELLINGER supporting the Resistance movement was turned in.
 

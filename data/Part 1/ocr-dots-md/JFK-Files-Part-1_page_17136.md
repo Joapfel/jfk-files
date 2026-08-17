@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17136.png
-
-Convert to Markdown8 - MAY 1972
+8 - MAY 1972
 
 MEMORANDUM FOR: Assistant Deputy Director for Plans
 SUBJECT: Security Review of Project KDFACTOR

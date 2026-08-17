@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7807.png
-
-Convert to MarkdownOTIS G. PIKE, N. Y., CHAIRMAN
+OTIS G. PIKE, N. Y., CHAIRMAN
 
 ROBERT N. GIAIMO, CONN.
 JAMES V. STANTON, OHIO

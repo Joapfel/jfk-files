@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17993.png
-
-Convert to Markdown<table><tr><td colspan="2">CONTINUATION OF<br>DISPATCH</td><td>SECRET/RYBAT</td><td>HMMA-15400<br>RYBAT-1425</td></tr></table>
+<table><tr><td colspan="2">CONTINUATION OF<br>DISPATCH</td><td>SECRET/RYBAT</td><td>HMMA-15400<br>RYBAT-1425</td></tr></table>
 
 Between the dates 9 to 14 June during the visit of DORTICOS, LIENVOY covered 10 of the 20 lines of the Del Prado Hotel where the DORTICOS party was staying. This coverage was for 24 hours daily and the LIENVOY personnel monitored all calls coming to and going from the DORTICOS suite (see MEXI-5731). This service was requested by the Station the day before DORTICOS arrival in Mexico City and was readily agreed to and immediately put into effect thru the efforts of LIENVOY/2. Considerable information of interest and value was obtained from this operation as well as quantities of operational data.
 

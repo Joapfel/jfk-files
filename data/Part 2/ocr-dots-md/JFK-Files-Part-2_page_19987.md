@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19987.png
-
-Convert to Markdown1 - Mr. Rozamus
+1 - Mr. Rozamus
 
 12/21/67
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12076.png
-
-Convert to Markdown3. SECRET
+3. SECRET
 Authorized Staff only
 
 35. IS HE IN CORRESPONDENCE WITH PERSONS OR FIRMS OUTSIDE COUNTRY OF PRESENT RESIDENCE? (If so, list).

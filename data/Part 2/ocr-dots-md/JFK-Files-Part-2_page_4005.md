@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4005.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 TABLE OF CONTENTS
 

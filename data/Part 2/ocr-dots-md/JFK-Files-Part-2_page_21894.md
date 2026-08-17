@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21894.png
-
-Convert to Markdown(v) (O'Donnell) Planned to "Neutralize" Lumumba by Turning Him Over to Congolese Authorities and Requested the Assignment of Agent OJWIN to Leopoldville as His Alter Ego
+(v) (O'Donnell) Planned to "Neutralize" Lumumba by Turning Him Over to Congolese Authorities and Requested the Assignment of Agent OJWIN to Leopoldville as His Alter Ego
 
 After (Justin O'Donnell) arrived in the Congo, he formulated a plan for "neutralizing" Lumumba by drawing him away from the custody of the UN force which was guarding his residence:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10277.png
-
-Convert to MarkdownEstá contradecía: para poder desarrollarse hay que liberarse del explotador, se planten en Cuba de forma confusa, como una circula vicioso. Para salir del monocultivo y dependencia económica de un producto hay que diversificar e industrializarlo y para lograr la industrialización y diversificación agrícola hay que liberar la fuerza de trabajo desviada al azúcar a través de la mecanización cañera y para mecanizar hace falta la seguridad económica de que esta READICA utilidades.
+Está contradecía: para poder desarrollarse hay que liberarse del explotador, se planten en Cuba de forma confusa, como una circula vicioso. Para salir del monocultivo y dependencia económica de un producto hay que diversificar e industrializarlo y para lograr la industrialización y diversificación agrícola hay que liberar la fuerza de trabajo desviada al azúcar a través de la mecanización cañera y para mecanizar hace falta la seguridad económica de que esta READICA utilidades.
 
 ## El Círculo-Vicente:
 

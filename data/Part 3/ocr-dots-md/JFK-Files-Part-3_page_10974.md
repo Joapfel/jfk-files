@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10974.png
-
-Convert to MarkdownSuch efforts naturally fall in line with our internal
+Such efforts naturally fall in line with our internal
 security responsibilities, but the coverage may also
 provide leads for development of sources in the positive
 intelligence field. Every Soviet is not a member of KGB

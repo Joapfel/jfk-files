@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23530.png
-
-Convert to Markdown12 May 1952
+12 May 1952
 
 PLANS
 VIA : Mr. Paul Paxton

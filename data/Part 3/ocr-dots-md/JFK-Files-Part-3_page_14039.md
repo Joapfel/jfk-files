@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14039.png
-
-Convert to Markdown expected that this effort will result in press releases, and Soviet protests at the UN and elsewhere. However, Mr. McCone expressed the belief that there is already some disaffection within Cuban military circles, and if the CIA effort succeeds the result will be an overthrow of Castro but it will also mean a military dictatorship in Cuba for a time.
+expected that this effort will result in press releases, and Soviet protests at the UN and elsewhere. However, Mr. McCone expressed the belief that there is already some disaffection within Cuban military circles, and if the CIA effort succeeds the result will be an overthrow of Castro but it will also mean a military dictatorship in Cuba for a time.
 
 Mr. McCone suggested that it might be profitable for the Board to receive a briefing on Cuban matters from Mr. Fitzgerald of CIA, at the next Board meeting. Mr. Clifford agreed that this would be desirable.
 

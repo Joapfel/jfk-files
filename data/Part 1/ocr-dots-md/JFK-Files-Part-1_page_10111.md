@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10111.png
-
-Convert to MarkdownSECRET
+SECRET
 (When PIlled In)
 
 <table><thead><tr><th colspan="6">DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr></thead><tbody><tr><td colspan="3">SUBJECT OF DOCUMENT</td><td colspan="4">DOCUMENT IDENTIFICATION</td></tr><tr><td>RI FILE NO.</td><td></td><td></td><td colspan="2"></td><td></td><td></td></tr><tr><td>3. DISPATCH ON SOURCE DOC. SYMBOL NO.</td><td>4. DATE</td><td>5. SOURCE CRYPTOGRAM</td><td>6. DATE OF INFO.</td><td>7. EVALUATION</td><td></td><td></td></tr><tr><td>1. ANALYST</td><td>8. DATE PROCESSED</td><td>9. DISSEMINATED IN</td><td>10. DATE</td><td>11. DATE</td><td></td><td></td></tr><tr><td colspan="7">DOCUMENT DISPOSITION</td></tr><tr><td>12. CROSS REFERRED TO THIS FILM</td><td colspan="2"></td><td>13. TRANSFERRED TO</td><td></td><td></td><td></td></tr><tr><td colspan="7">PERIODIC INFORMATION</td></tr><tr><td colspan="7">14.<br/>ESPEZUN-PEEZE, CONSUELU<br/>201-330173<br/>SEX M DOB ?<br/>CIT ?<br/>OCC ?<br/>SEC TO 2ND SEC<br/>CUBAN OFFICIAL REPRESENTATION IN MEXICO<br/><br/>UFG<br/><br/>R 6801262172<br/><br/>LITAMIN-7<br/><br/>FILE IN 201- 330173<br/><br/>15.<br/>FILE THIS FORM IN FILE NO.</td></tr><tr><td colspan="7">16.<br/><br/></td></tr><tr><td colspan="7">17.<br/>SECRET<br/>(When Pilled In)<br/><br/>FORM 867 used previous revisions.<br/>SECRET (7-48)</td></tr></tbody></table>

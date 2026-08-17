@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25871.png
-
-Convert to MarkdownJob #
+Job #
 
 
 # Executive Registry File "John McCone 1962

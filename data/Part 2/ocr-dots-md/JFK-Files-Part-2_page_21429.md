@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21429.png
-
-Convert to MarkdownSUBJECT : Leibel BERGMAN
+SUBJECT : Leibel BERGMAN
 Herb BLOCK
 
 REFERENCE: Our memorandum of 6 February 1970, Subject:

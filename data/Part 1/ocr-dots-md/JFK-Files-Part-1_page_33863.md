@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33863.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. While Landowski was in New York, the EUB case officer was informed that Mr. Sperling, who is in charge of KIB's European headquarters at Munich, was in Washington for debriefing, and would be available for a few minutes discussion relative to Landowski. In this discussion Mr. Sperling advised that Mr. Hampft, the regular KIB employee mentioned by Mr. Lang as going to Greece "around the end of the year," was actually leaving in a week. As this would of course make it more difficult if not impossible for Landowski to explain his activities, on arriving in Athens several weeks after Hampft had installed himself as the KIB representative, the case officer protested that this was counter to the spirit of the existing agreement. Mr. Sperling, however, said the Hampft assignment to Greece had been planned a year earlier, and that it was not possible to change it. He added that he would help Landowski in every possible way, however, and asked that Landowski visit his office in Munich prior to starting work in Athens, for a thorough grounding in KIB's European programming operations.
 

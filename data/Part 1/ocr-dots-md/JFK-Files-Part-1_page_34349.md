@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34349.png
-
-Convert to MarkdownSECRET
+SECRET
 
 b. The NBC television program, "The Today Show", was approached and offered an interview with Mr. Alemany through Mr. Paul Cuningham, associate producer of that program.
 

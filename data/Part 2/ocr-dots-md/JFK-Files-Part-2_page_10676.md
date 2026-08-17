@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10676.png
-
-Convert to MarkdownMR 001 PH CODE
+MR 001 PH CODE
 
 6 06:05AM URGENT 8-8-71 JEW
 TO DIRECTOR (52-94527)

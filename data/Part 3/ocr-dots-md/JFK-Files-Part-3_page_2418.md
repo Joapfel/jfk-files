@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2418.png
-
-Convert to Markdown# III. OBSERVATIONS AND CONCLUSIONS
+# III. OBSERVATIONS AND CONCLUSIONS
 
 Historically, the United States has been the target for subversive activities emanating from and directed by the international communist movement in regard to efforts to foment disorder and disruption in a revolutionary vein. The change from the monolithic nature of the movement to polycentrism only served to magnify the problem in that it diversified the subversive attack.
 

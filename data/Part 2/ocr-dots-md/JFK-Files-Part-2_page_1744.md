@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1744.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <!-- Section D -->
     <tr>

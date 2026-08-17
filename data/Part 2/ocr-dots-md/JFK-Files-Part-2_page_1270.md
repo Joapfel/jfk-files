@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1270.png
-
-Convert to MarkdownFORM NO. 37-115
+FORM NO. 37-115
 MAY 1950
 
 TO: Medical Division

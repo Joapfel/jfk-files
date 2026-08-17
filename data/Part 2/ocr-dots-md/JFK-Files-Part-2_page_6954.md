@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6954.png
-
-Convert to MarkdownOur review of records in the early months was slowed by the complexities of the issues raised in the records. The unprecedented new standards of the JFK Act, which go far beyond those established under the Freedom of Information Act, required a time-consuming early phase.
+Our review of records in the early months was slowed by the complexities of the issues raised in the records. The unprecedented new standards of the JFK Act, which go far beyond those established under the Freedom of Information Act, required a time-consuming early phase.
 
 At first, the review process proceeded slowly and the agencies were afforded ample opportunity to present their evidence. Over time, the Review Board began to standardize its interpretation of the relevant section of the JFK Act and the issues raised in the various documents. Now that the Review Board and the agencies are familiar with the rigorous demands of the JFK Act, the process has accelerated. In a progressively increasing number of cases, records that initially contained proposed postponements can be released through a "consent" process. In this consent process, the ARRB staff notifies an agency that its proposed postponements are not likely to be approved by the Review Board and the agency thereupon voluntarily consents to the release of the information.
 

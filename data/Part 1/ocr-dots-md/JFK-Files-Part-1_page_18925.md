@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18925.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><thead><tr><th>NAME (PRINTED):</th><th>LAST</th><th>FIRST</th><th>MIDDLE</th><th>CAP RATING</th><th>SALARY</th><th>DATE OF ASSIGNMENT<br>(if different from June 8, 1951)</th></tr></thead><tbody><tr><td>RIGGS, Robert</td><td></td><td></td><td>H.</td><td>GAF-9</td><td>$4600.00</td><td>June 8, 1951</td></tr></tbody></table>
 

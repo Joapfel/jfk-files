@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25484.png
-
-Convert to Markdown<table><tr><td colspan="2">: J.J. Barry:ml</td></tr><tr><td>: C/WI/1/FI/CI</td><td>: C.I.</td></tr><tr><td>4/67/975</td><td>:</td></tr><tr><td>: 2 October 1970</td><td></td></tr></table>
+<table><tr><td colspan="2">: J.J. Barry:ml</td></tr><tr><td>: C/WI/1/FI/CI</td><td>: C.I.</td></tr><tr><td>4/67/975</td><td>:</td></tr><tr><td>: 2 October 1970</td><td></td></tr></table>
 
 <table>
    <thead>

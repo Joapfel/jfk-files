@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23515.png
-
-Convert to Markdowncontrol over this entire effort, it was determined that Division D, which is in closest touch with NSA on procurement requirements, could best conduct the activity. The spotting activity has now advanced far enough to justify removing from the OOA category.
+control over this entire effort, it was determined that Division D, which is in closest touch with NSA on procurement requirements, could best conduct the activity. The spotting activity has now advanced far enough to justify removing from the OOA category.
 
 4. Operational Assets :
 

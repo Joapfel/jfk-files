@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17005.png
-
-Convert to Markdown4. **EQUIPMENT:** 1 QP auto
+4. **EQUIPMENT:** 1 QP auto
 Photographic Equipment
 
 5. **PROJECT ACTIONS:** First approved in 1958, the FY 1971 Renewal Request was submitted in April 1970.

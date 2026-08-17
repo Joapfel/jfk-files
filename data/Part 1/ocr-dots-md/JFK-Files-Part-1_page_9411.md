@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9411.png
-
-Convert to MarkdownConcress for Cultural Freedom
+Concress for Cultural Freedom
 
 AP Berlin June 23
 

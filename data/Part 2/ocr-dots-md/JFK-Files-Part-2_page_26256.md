@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26256.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Syndicate of Free Dominican Labor in Exile (SLTDE), to organize picketing activities in San Juan against Ships carrying cargo to or from the Dominican Republic. The picketing had some success and showed promise of becoming a threat to the Dominican economy, but was finally broken up by the International Longshoremens Association (ILA), at least one officer of which was reportedly in the pay of Trujillo.
 

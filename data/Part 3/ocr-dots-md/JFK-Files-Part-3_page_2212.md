@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2212.png
-
-Convert to Markdown# ROUTE IN ENVELOPE
+# ROUTE IN ENVELOPE
 
 2 - Mr. J. A. Mintz
    (1 - Mr. J. B. Hotis)

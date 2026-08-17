@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17215.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 As of 5:45 am on October 4, 1969, the vicinity surrounding Panther Headquarters was calm.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24753.png
-
-Convert to MarkdownFINAL DRAFT
+FINAL DRAFT
 
 TRUJILLO
 

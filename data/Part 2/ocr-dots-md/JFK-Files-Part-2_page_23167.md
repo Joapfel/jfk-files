@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23167.png
-
-Convert to Markdown claimed that they had access to two Soviet missile technicians, Pauley brought this operation to the Agency, and the Agency agreed that we would cooperate with them in pursuit of this operation.
+claimed that they had access to two Soviet missile technicians, Pauley brought this operation to the Agency, and the Agency agreed that we would cooperate with them in pursuit of this operation.
 
 Senator Schweiker. And Time-Life did some funding for it, too?
 

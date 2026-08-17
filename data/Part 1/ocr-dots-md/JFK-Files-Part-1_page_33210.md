@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33210.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES: 22</td></tr><tr><td>R. FAMBRINI/jd</td></tr><tr><td>WH/4/AR</td></tr><tr><td>6609</td></tr><tr><td>17 JUNE 1968</td></tr><tr><td colspan="2"><table border="1"><tbody><tr><td rowspan="5">R. FAMBRINI/jd</td><td>BOUTING AND/OR INITIALS - SEEN BY</td></tr><tr><td>1 &nbsp;&nbsp; 8</td></tr><tr><td>2 &nbsp;&nbsp; 7</td></tr><tr><td>3 &nbsp;&nbsp; 8</td></tr><tr><td>4 &nbsp;&nbsp; 9</td></tr><tr><td>DATE: 17 JUNE 1968</td><td>10</td></tr></tbody></table></td></tr></table>
+<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES: 22</td></tr><tr><td>R. FAMBRINI/jd</td></tr><tr><td>WH/4/AR</td></tr><tr><td>6609</td></tr><tr><td>17 JUNE 1968</td></tr><tr><td colspan="2"><table border="1"><tbody><tr><td rowspan="5">R. FAMBRINI/jd</td><td>BOUTING AND/OR INITIALS - SEEN BY</td></tr><tr><td>1 &nbsp;&nbsp; 8</td></tr><tr><td>2 &nbsp;&nbsp; 7</td></tr><tr><td>3 &nbsp;&nbsp; 8</td></tr><tr><td>4 &nbsp;&nbsp; 9</td></tr><tr><td>DATE: 17 JUNE 1968</td><td>10</td></tr></tbody></table></td></tr></table>
 
 <table border="1"><thead><tr><th>(classification)</th><th>(date and time filed)</th><th>(reference number)</th></tr></thead><tbody><tr><td>SECRET</td><td>JUN 68</td><td>CITE DIRECTOR 08724</td></tr></tbody></table>
 

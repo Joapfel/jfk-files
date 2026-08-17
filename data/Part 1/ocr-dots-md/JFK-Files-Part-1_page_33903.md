@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33903.png
-
-Convert to MarkdownNew York
+New York
 10 December 1951
 
 Mr. James Clarendon

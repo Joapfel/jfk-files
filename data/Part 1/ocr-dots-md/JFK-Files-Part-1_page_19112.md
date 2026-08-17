@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19112.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 DISPATCH NO WPA-19526
 

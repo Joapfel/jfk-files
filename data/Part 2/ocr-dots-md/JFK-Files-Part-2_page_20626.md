@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20626.png
-
-Convert to MarkdownFEB 16 1972
+FEB 16 1972
 
 NR 006 DE CODE
 

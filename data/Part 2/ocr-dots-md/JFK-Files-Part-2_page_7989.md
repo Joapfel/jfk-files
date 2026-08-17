@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7989.png
-
-Convert to Markdownof read-write access to data sets. The volume de-
+of read-write access to data sets. The volume de-
 tection switch alerts the control program when the
 error is increased; this protects data from being
 written upon. This switch provides additional pro-

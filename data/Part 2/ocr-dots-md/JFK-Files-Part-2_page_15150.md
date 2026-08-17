@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15150.png
-
-Convert to Markdown# COMMUNIST PARTY, USA
+# COMMUNIST PARTY, USA
 
 The Communist Party, USA, is operating in an atmosphere of optimism as a result of the March 3, 1967, decision of the United States Court of Appeals, Washington, D.C., which stated that the Party could not be forced to register under the provisions of the Internal Security Act of 1950. The feeling throughout the Party is that it has won its fight for existence and now must move to capitalize on this victory by becoming an effective force on the American scene.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1644.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 6. **Personal Work Contacts:**
 

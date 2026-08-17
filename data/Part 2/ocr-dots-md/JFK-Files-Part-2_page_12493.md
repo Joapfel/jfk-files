@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12493.png
-
-Convert to Markdown## 5. Predication for investigation
+## 5. Predication for investigation
 
 In all cases handled under the provisions of this section, the first communication prepared for outside dissemination (report or LHM) should show specifically the statute upon which the investigation is based together with necessary supporting facts. Where investigation has been specifically requested by Department, this should be indicated. The following examples are illustrative; however, the basis for each individual case must be tailored to the circumstances of such case.
 

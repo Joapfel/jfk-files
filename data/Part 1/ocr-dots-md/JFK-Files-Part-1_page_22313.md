@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22313.png
-
-Convert to Markdown720.
+720.
 
 h. Responsibility for and Knowledge of ABIDIAN
 

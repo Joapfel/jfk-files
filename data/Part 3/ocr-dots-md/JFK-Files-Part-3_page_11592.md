@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11592.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 NEW LEFT GROUPS UNIT
 
 Included in the work of the New Left Groups Unit are the Students for a Democratic Society (SDS) factions (with the exception of the Weatherman), other New Left campus groups, the Key Activist program, New Left Movement reports, New Left publications, and the maintenance of a library of research material on the New Left for use of Bureau officials in connection with approved speaking commitments.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18751.png
-
-Convert to MarkdownFMYA-187
+FMYA-187
 5 October 1953
 
 TO : Chief, WHD

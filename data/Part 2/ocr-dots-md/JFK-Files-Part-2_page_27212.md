@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27212.png
-
-Convert to MarkdownG-C-H Files
+G-C-H Files
 
 J. Special Prosecutor
 Federal Register and Memo

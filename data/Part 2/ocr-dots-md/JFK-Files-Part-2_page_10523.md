@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10523.png
-
-Convert to Markdownunder various forms, such as draft evasions,
+under various forms, such as draft evasions,
 desertions, resistance, demonstrations which
 now affect even the soldiers. The Assembly
 calls for support to these progressive and

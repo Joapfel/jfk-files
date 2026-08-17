@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1295.png
-
-Convert to Markdown**Item (6)(b) should be reconsidered with the following language:**
+**Item (6)(b) should be reconsidered with the following language:**
 
 > "If the Task Force Leader has any objections to the excisions or paraphrases, the FEM will furnish a written statement of the grounds for its position to the Special Counsel who shall resolve the matter by negotiation within 24 hours."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25058.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 of foreign policy?
 

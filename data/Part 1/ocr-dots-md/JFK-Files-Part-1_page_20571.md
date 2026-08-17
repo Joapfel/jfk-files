@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20571.png
-
-Convert to MarkdownHOWARD HUNT
+HOWARD HUNT
 
 11120 River Road,
 Potomac, Maryland 20854,

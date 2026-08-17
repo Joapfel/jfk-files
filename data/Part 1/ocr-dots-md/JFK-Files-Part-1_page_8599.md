@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8599.png
-
-Convert to MarkdownCOUNTRY OF MEXICO ) CITY OF MEXICO, D.F. )
+COUNTRY OF MEXICO ) CITY OF MEXICO, D.F. )
 
 A G R E E M E N T
 

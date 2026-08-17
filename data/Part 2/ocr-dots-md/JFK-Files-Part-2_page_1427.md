@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1427.png
-
-Convert to MarkdownSECRET
+SECRET
 (Written In)
 
 <table><caption>NOTIFICATION OF PERSONNEL ACTION</caption><thead><tr><th colspan="4">BS 4 SEPT 59</th></tr><tr><th>1. Serial No.</th><th>2. Name (Last-First-Middle)</th><th>3. Date Of Birth<br/>Mo.<br/>04</th><th>4. Vt. Prof.<br/>None-0<br/>5 Pt-1<br/>10 Pt-2</th><th>5. Sex<br/>M</th><th>6. CS- EOD<br/>Mo.<br/>09</th><th>Do.<br/>28</th><th>Yr.<br/>52</th></tr></thead><tbody><tr><td>560947</td><td colspan="3">WHEELER ROBERT P</td><td>1</td><td></td><td></td><td></td></tr><tr><th colspan="2">7. SCD</th><th colspan="2">8. CSC Potmt.</th><th colspan="4">9. CSC Or Other Legal Authority</th></tr><tr><td>Mo. 08</td><td>Do. 06</td><td>Yes. 1<br/>No. -2</td><td>Cdo 1</td><td colspan="4"></td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19070.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 48. Memo of SA EDWARD F. GAMBER, dated 8/7/61,
 at NY captioned "IS - CUBA".

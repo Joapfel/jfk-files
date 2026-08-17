@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21010.png
-
-Convert to MarkdownANENDMENT TO ALLOWANCE COMMITTEE ADDENDUM
+ANENDMENT TO ALLOWANCE COMMITTEE ADDENDUM
 For Career Associate, Thomas B. CASASIN
 
 Mr. Thomas B. Casasin

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16246.png
-
-Convert to MarkdownA, B, C, D, E, and F must receive their training from the respective staffs of the Main Body, and come back to section and function in that capacity in their respective sections.
+A, B, C, D, E, and F must receive their training from the respective staffs of the Main Body, and come back to section and function in that capacity in their respective sections.
 
 NOTES
 

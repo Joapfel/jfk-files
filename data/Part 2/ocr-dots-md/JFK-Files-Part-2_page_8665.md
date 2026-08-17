@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8665.png
-
-Convert to Markdown13-00000
+13-00000
 
 UFGA-09395 E01
 11 JUN 63

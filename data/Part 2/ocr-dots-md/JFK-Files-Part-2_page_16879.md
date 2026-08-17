@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16879.png
-
-Convert to Markdown13. An Illinois Bell Telephone receipt for telephone number 277-3612, for the address 4102 West 16th Street, dated May 2, 1969.
+13. An Illinois Bell Telephone receipt for telephone number 277-3612, for the address 4102 West 16th Street, dated May 2, 1969.
 
 14. A telephone dial tag containing the above number.
 

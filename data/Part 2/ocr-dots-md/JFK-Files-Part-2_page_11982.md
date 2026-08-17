@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11982.png
-
-Convert to Markdown4. Six-month evaluation of informants not paid on Bureau authority
+4. Six-month evaluation of informants not paid on Bureau authority
 If the informant is not being paid on Bureau authorization, a communication[(FD-401)]must be transmitted to the Bureau every six months after the date of designation containing the same information set out in section 130G, item 2b, of this manual]except those items concerning payments.
 Recommendation of SAC regarding continuance of informant should also be set forth UACB. In espionage and foreign nationality cases comment is necessary regarding only those applicable items in section 130G, item 2b, of this manual.
 

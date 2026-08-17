@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_263.png
-
-Convert to Markdown16 Oct 65 M 74054
+16 Oct 65 M 74054
 
 SECRET 162125Z
 DIR CITE MEXI 5254

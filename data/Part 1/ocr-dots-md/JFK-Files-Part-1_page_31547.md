@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31547.png
-
-Convert to MarkdownHonorary President
+Honorary President
 
 President
 

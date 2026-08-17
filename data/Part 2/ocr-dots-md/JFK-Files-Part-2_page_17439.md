@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17439.png
-
-Convert to MarkdownInformant made available copies of 6 flyers being passed out by the BPP in Maywood. These were entitled "Ten Point Program," "6 Week Vocabulary Test," "Responsibilities of Private," "8 Points of Attention," "Attention - Letter from Black Panther Acting Deputy Minister of Education," and "Definitions - Minister of Education."
+Informant made available copies of 6 flyers being passed out by the BPP in Maywood. These were entitled "Ten Point Program," "6 Week Vocabulary Test," "Responsibilities of Private," "8 Points of Attention," "Attention - Letter from Black Panther Acting Deputy Minister of Education," and "Definitions - Minister of Education."
 
 Informant advised on 3/17/69:
 

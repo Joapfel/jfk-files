@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9091.png
-
-Convert to MarkdownENCLOSURE
+ENCLOSURE
 
 62-11637P-260
 

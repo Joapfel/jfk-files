@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25015.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 many years, all my life. But when I was down here at that time I knew he had a high position in the CIA, and was in charge of all this sort of stuff, and he was at a number of meetings there, or even at the White House. He was an advisor to Mr. Dulles. So I say that is very likely.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6570.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Chief, Contact Division
 Chief, Wilmington Office

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35057.png
-
-Convert to Markdown# MILITARY SECTION
+# MILITARY SECTION
 
 LATE "J-L"
 

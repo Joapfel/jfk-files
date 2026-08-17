@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8633.png
-
-Convert to Markdownevery action and statement of his is recorded from
+every action and statement of his is recorded from
 the moment the transmitter is strapped on him.
 
 b. SABORI should go to such a meet with expression of a person who is in exceptionally good mood, because of a business success and he was given a substantial advance on his commission. After A and SABORI have their routine two drinks, SABORI will state to A that he would pick up the tab for the evening ( after being treated by A so many times ) but he would want to celebrate the occasion. It would be desirable that A agrees on e drink or two to please S, but even if that does not take place, it is anticipated that A would want to accompany SK in his good humores. What ever be the case, the situation lends itself to a free talking, critical commenting and some bitching, just to play it big. It will be up to us to prepare S as to how to run the conversation to get out of A a few statements which he would not like his superiors to know about.

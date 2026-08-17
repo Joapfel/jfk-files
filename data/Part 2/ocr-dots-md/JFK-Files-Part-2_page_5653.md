@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5653.png
-
-Convert to Markdown10/8/1996
+10/8/1996
 
 branch
 responsible for operations in Mexico and Central America. Richard Helms, the CIA chief of clandestine services and later the agency's director, placed Scelso in charge of the assassination investigation. Angleton, a counterintelligence official with close ties to FBI Director J. Edgar Hoover, "immediately went into action to do all the investigating," Scelso testified, criticizing the move sharply.

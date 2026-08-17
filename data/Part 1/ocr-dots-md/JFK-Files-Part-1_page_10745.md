@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10745.png
-
-Convert to MarkdownCUBA
+CUBA
 
 3
 

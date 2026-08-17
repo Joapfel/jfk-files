@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17532.png
-
-Convert to MarkdownAugust 12, 1969
+August 12, 1969
 
 ALVINO SHINN; BOB RUSH; JEWEL COOK; RICHARD BLACK; JOHN "BEAVER" WILLIAMS; WILLIAM O'NEAL
 

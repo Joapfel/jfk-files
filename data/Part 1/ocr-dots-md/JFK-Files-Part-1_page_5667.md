@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5667.png
-
-Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+C-O-N-F-I-D-E-N-T-I-A-L
 
 PES-263-77
 31 August 1977

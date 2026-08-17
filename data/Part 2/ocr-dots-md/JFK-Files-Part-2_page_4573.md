@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4573.png
-
-Convert to Markdownlater since it takes more time to acquire these from somewhat sensitive sources.
+later since it takes more time to acquire these from somewhat sensitive sources.
 
 7. The President then went on to say that people seem to have the impression he was going to sit back and try to keep things on an even keel so as not to disturb the upcoming election. He said that this was a wrong impression for people to have and that he intended to do everything he possibly could to ensure maintaining and augmenting the great forward momentum that President Kennedy had been developing toward world peace and proper domestic policies. He said that this was a time for real action and that the United States must get itself out of this trend of thought that it sits back and reacts to others' actions rather than creates actions of its own. He is tired of reacting -- he wants to act and let others react to him and this is one of the things he intends to think about during upcoming months. He therefore urges the most imaginative thinking possible both in and out of Government to see how best his ends can be attained. He pointed out that this was not going to be easy because this was an election year and lots of people would be looking for ways to attack him and his policies. He said, however, that he could not sit by and watch this opportunity for promoting peace and understanding among nations to dissipate simply because it was an election year in which he would be politically involved.
 

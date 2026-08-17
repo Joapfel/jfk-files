@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3009.png
-
-Convert to Markdownsmn 8
+smn 8
 
 and we have immediately converted their status from an informant to the subject, and have prosecuted I would say, offhand, I can think of around 20 informants that we have prosecuted for violating the laws, once it came to our attention, and even to show you our policy of disseminating information on violence in this case, during the review of the matter, the agents told me that they found one case where their agent had been working 24 hours a day, and he was a little late in disseminating the information to the police department. No violence occurred, but it showed up in a file review, and he was censured for his delay in properly notifying local authorities.
 

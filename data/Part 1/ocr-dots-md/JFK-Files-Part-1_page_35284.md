@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35284.png
-
-Convert to Markdown# DELICATIONS (SPECIAL)
+# DELICATIONS (SPECIAL)
 
 Annex "I-"
 Page No. 2

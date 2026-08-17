@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19125.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # IMPORTANT INFORMATION CENTERS
 

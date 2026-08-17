@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11345.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE UNIT
 
 MAR 26 '93 30 AM '75

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6360.png
-
-Convert to Markdown1400.2 (continued)
+1400.2 (continued)
 
 (b) & (c) [ ok ]
 

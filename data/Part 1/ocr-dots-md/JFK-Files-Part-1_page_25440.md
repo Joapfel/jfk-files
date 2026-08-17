@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25440.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. The report has been forwarded to Dr. Karl Weber, of OSI, for review. A check with the Domestic Contact Service disclosed that McDonald had been a contact of the California Field Office and, although considered by DC5 to be somewhat of a phony and a nuisance, his clearances were verified by them. McDonald does not appear to me to be a crackpot although I have not read his report. He gave no indication at this meeting of making a "pitch." He appeared concerned about the information he has uncovered and seems to want to do what is right under the circumstances. Mr. Killgore, in Senator Goldwater's office, has asked that we give him a followup report on our contact with McDonald.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14934.png
-
-Convert to Markdownthey were going to recommend that the judge proceed with
+they were going to recommend that the judge proceed with
 the trial and at the conclusion thereof, if the judge feels
 it necessary, a hearing will be held to determine the validity
 of the Department's claim regarding the microphone evidence.

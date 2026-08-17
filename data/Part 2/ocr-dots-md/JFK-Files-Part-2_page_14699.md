@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14699.png
-
-Convert to Markdownrevolutionary movement of students and young intellectuals.
+revolutionary movement of students and young intellectuals.
 New Leftists from U. S. have played important roles in demon-
 strations in foreign countries.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13433.png
-
-Convert to Markdown1. nuclear secrets which that Joint Committee has not had discussed
+1. nuclear secrets which that Joint Committee has not had discussed
 2. with them. And I do not recall at the moment any significant
 3. leak that ever came out of that Committee.
 4. Now, if the Congress itself would approach this matter

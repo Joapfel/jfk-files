@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30671.png
-
-Convert to Markdown**Classification:** SECRET
+**Classification:** SECRET
 
 (This form is to be used for material extracted
 from CIA—controlled documents.)

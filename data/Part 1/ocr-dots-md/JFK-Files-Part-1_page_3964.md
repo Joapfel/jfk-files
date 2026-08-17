@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3964.png
-
-Convert to Markdownwho can furnish about 1,000 men to flesh out the unit. Case officer acknowledges that we recognized his potential for harmful action, had considered it thoroughly, and hoped he would not do anything of the kind. ARTIME said he had also considered all the possibilities and concluded there was no point in his being childish and trying to "bite us about the ankles."
+who can furnish about 1,000 men to flesh out the unit. Case officer acknowledges that we recognized his potential for harmful action, had considered it thoroughly, and hoped he would not do anything of the kind. ARTIME said he had also considered all the possibilities and concluded there was no point in his being childish and trying to "bite us about the ankles."
 
 3. ARTIME accepts the decision and will cooperate in a phase-out program. He does not understand the rationale, and, of course, does not agree with the decision, but he acknowledges our prerogative to make it. If we really wish still to be friends, he is willing, just as he told Mr. Fitzgerald originally. He asks only that we help him make it possible to remain friendly and makes two requests from us: (a) help take care of his men and their families until they can rehabilitate and remettle themselves, and (b) do everything possible to get his parents out of Cuba.
 

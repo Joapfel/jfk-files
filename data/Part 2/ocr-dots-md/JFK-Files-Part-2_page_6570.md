@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6570.png
-
-Convert to Markdown(2) Covert operations to prevent sale of pur-
+(2) Covert operations to prevent sale of pur-
 chase of items destined for Cuba or coming from Cuba. (Sagar,
 tropicals, etc.) NOTE: Since the Sino-Soviet commitment to
 Cuba is preponderant, a large portion is not susceptible to U. S.

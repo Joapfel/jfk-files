@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15786.png
-
-Convert to Markdown6. Subject will be authorized no access to transportation other than public and/or occasional rides afforded him by his Case Officer in an SR/DCB vehicle.
+6. Subject will be authorized no access to transportation other than public and/or occasional rides afforded him by his Case Officer in an SR/DCB vehicle.
 
 7. Subject's safe office will be terminated and vacated at the same time as his apartment.
 

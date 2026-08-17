@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7791.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (n) B-191, dated 9 October 1968; Subject: Jamaican Special Branch Report - Jamaica/ United States Black Power Ties; exempt under (b)(1)(5)B(1).
 

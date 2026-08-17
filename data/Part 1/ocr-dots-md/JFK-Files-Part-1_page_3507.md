@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3507.png
-
-Convert to MarkdownS & C & T
+S & C & T
 
 Report # DD-742, C-4. 20 Mar 64 (cont.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10747.png
-
-Convert to Markdownin this Klavern are HARRY-WALKER, CECIL-HENSON, EUGENE- REEVES, and RONNIE-TIDWELLS. Efforts are being made to secure information suitable for disruption purposes in connection with this group.
+in this Klavern are HARRY-WALKER, CECIL-HENSON, EUGENE- REEVES, and RONNIE-TIDWELLS. Efforts are being made to secure information suitable for disruption purposes in connection with this group.
 
 Investigation is being conducted concerning ROBERT-MARVIN-SHELTON. The Atlanta Office has been requested to ascertain why E. L. EDWARDS, now deceased, ousted SHELTON-from his then position of Grand-Dragon of the U. S. Klans. A copy of the article appearing in the "Birmingham-News" for April-30, 1960, entitled "SHELTON ousted from Klan Post," has been obtained. The article did not disclose the exact nature of the charges against SHELTON. Records of the Alabama Secretary of State reflect that SHELTON-was dropped as the Klan's authorized agent and was replaced by Rev. ALVIN-HORN of Talladega, Alabama. E. L. EDWARDS, Imperial-Wizard, U. S. Klans, Knights of the Ku Klux Klan, was quoted as saying "We had to have a grand dragon in Alabama and we didn't have one in ROBERT M. SHELTON." He told reporters that SHELTON was replaced as grand dragon and agent of the "Klan" in Alabama "for conduct unbecoming a Klansman and attempting to use the organization for selfish purposes." The article said EDWARDS did not elaborate on what is considered conduct unbecoming a Klansman.
 

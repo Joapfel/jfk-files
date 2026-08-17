@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6600.png
-
-Convert to Markdown-2-
+-2-
 
 considered, not to mention your fondness for new games and nick-racks. Have you grown out of it? Talways remember your weakness for them in the past.
 

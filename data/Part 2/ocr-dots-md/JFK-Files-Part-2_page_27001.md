@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27001.png
-
-Convert to MarkdownMEMORANDUM FOR RECORD
+MEMORANDUM FOR RECORD
 
 SUBJECT: Minutes of Meeting of the Special Group (Augmented) on Operation MONGOOSE, 6 September 1962
 

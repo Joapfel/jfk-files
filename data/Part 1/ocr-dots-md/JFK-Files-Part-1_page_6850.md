@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6850.png
-
-Convert to MarkdownSECRET/AFORN
+SECRET/AFORN
 CONTINUED CONTROL
 
 4. Enrique de los Rios may be identical with Enrique de los Rios Lavin (201--1099365) of the ALTO Case. E6A-12013, 28 January 1959, Source: LIVEAT, reports that de los Rios "was apparently recently in the USSR."

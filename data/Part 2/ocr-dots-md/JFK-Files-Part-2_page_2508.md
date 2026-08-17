@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2508.png
-
-Convert to MarkdownSECRET
+SECRET
 
 what he believes was a commitment on the part of the Agency
 to provide him with financial assistance in the purchase of

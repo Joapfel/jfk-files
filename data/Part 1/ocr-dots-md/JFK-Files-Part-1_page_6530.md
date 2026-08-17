@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6530.png
-
-Convert to MarkdownSHEET
+SHEET
 
 IN-297-72
 

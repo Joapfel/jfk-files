@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_670.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CLASSIFICATION</th><th>(DATE AND TIME FILED)</th><th>(ELITE NUMBER)</th></tr></thead><tbody><tr><td>SECRET</td><td>25 21 26 7</td><td>CITE DIRECTOR 07441</td></tr></tbody></table>
 

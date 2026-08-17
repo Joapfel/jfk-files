@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17316.png
-
-Convert to Markdownd. Each new item on a target person is linked to a past history; what appears as a fragmentary bit in a conversation becomes a meaningful development in a continuous story. Continuity on the job makes this possible.
+d. Each new item on a target person is linked to a past history; what appears as a fragmentary bit in a conversation becomes a meaningful development in a continuous story. Continuity on the job makes this possible.
 
 e. The equipment is kept in good working order by complete cleaning and checking of each unit once a month. The 32 units in use today are those installed in 1959.
 

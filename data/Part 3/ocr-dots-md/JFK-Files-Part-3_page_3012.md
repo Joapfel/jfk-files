@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3012.png
-
-Convert to Markdownsmn 11
+smn 11
 
 1950
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11200.png
-
-Convert to MarkdownLa Habana, 27 de Junio do 1966
+La Habana, 27 de Junio do 1966
 
 "AÑO DE LA SOLIDARIDAD"
 

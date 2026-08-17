@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24410.png
-
-Convert to Markdowninvolved) by an October 18, 1960 memorandum from J. Edgar Hoover, which stated that "a source whose reliability has not been tested" reported:
+involved) by an October 18, 1960 memorandum from J. Edgar Hoover, which stated that "a source whose reliability has not been tested" reported:
 
 "(D)uring recent conversations with several friends, Giancana stated that Fidel Castro was to be done away with very shortly. When doubt was expressed regarding this statement, Giancana reportedly assured those present that Castro's assassination would occur in November. Moreover, he allegedly indicated that he had already met with the assassin-to-be on three occasions. . . Giancana claimed that everything has been perfected for the killing of Castro, and that the 'assassin' had arranged with a girl, not further described, to drop a 'pill' in some drink or food of Castro's." (File R-505, memo from Hoover to DCI (Att: DDP), 10/19/60.)
 

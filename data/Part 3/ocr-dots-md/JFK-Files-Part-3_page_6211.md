@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6211.png
-
-Convert to MarkdownUNNED STATES DEPARTMENT OF JUSTICE
+UNNED STATES DEPARTMENT OF JUSTICE
 FEDERAL BUREAU OF INVESTIGATION
 
 Copy to: 1 - Secret Service, Los Angeles (RM)

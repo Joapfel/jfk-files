@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23499.png
-
-Convert to Markdownmatters. Gray said that he'd talked to Andrew GOODPASTER about the recent news stories which indicate that there was assassination planning against CASTRO during this period of time, and GOODPASTER said that he'd never heard about such things.
+matters. Gray said that he'd talked to Andrew GOODPASTER about the recent news stories which indicate that there was assassination planning against CASTRO during this period of time, and GOODPASTER said that he'd never heard about such things.
 
 ## EXECUTIVE ACTION
 

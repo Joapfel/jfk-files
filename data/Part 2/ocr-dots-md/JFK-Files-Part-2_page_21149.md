@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21149.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 information concerning [BOWDEN (S)(4)] and information
 regarding an economist at the Embassy whom [FRIPPEL (S)] presumed was GEORGE WINTERS. This also is consistent

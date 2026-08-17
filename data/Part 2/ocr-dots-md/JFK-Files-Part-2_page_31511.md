@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31511.png
-
-Convert to MarkdownJOHN THOMAS attended meetings of the DuBois Club of San Francisco on May 10 and 31, 1964.
+JOHN THOMAS attended meetings of the DuBois Club of San Francisco on May 10 and 31, 1964.
 
 When interviewed by Special Agents of the FBI on October 1, 1964, THOMAS indicated he was not a member of the W.E.B. DuBois Club and would not join any group until he found one that really helped the Negro people.
 

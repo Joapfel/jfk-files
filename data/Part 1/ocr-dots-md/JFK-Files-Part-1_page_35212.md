@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35212.png
-
-Convert to MarkdownDEMOCRATIC REVOLUTIONARY FRONT
+DEMOCRATIC REVOLUTIONARY FRONT
 
 Traveling Expenses
 

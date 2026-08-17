@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27200.png
-
-Convert to MarkdownSTANDARD FORM NO. 06
+STANDARD FORM NO. 06
 
 Office Memorandum • UNITED STATES GOVERNMENT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23022.png
-
-Convert to MarkdownTO : Chief, Special Affairs Staff
+TO : Chief, Special Affairs Staff
 
 FROM : Chief of Station, JM/AV2
 

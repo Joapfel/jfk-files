@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17246.png
-
-Convert to MarkdownSECRET/
+SECRET/
 REVIEW OF PROJECT LIEUPTY
 (For the Purpose of Project Renewal)
 

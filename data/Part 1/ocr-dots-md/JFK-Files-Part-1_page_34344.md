@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34344.png
-
-Convert to MarkdownHelenic Shipyards
+Helenic Shipyards
 4 Akademiac St.,
 Athens,
 Greece.

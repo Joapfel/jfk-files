@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27284.png
-
-Convert to MarkdownW - File: MKULTRA/1744/G Project & Budget SECRET
+W - File: MKULTRA/1744/G Project & Budget SECRET
 
 X - Equipment Evaluation Tests Against Uncontrolled Targets (Attachment A) SECRET
 

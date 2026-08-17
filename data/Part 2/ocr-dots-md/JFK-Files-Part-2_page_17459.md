@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17459.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 This confidential source advised on May 17, 1965, that the headquarters of the MMI are located in Suite 128, 3001 Throops Avenue, 2090 Seventh Avenue, New York, New York, where they were established on March 19, 1964. These headquarters are based with the Organization of Afro-American Unity Incorporated (OAAAU) which was also headed by MAICOLM X.
 

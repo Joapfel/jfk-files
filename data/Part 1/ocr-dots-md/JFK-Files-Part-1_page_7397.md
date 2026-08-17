@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7397.png
-
-Convert to Markdownunder the impression that Mr. Hunt's writing activities
+under the impression that Mr. Hunt's writing activities
 were either being encouraged or subsidized directly
 by this Agency in any official effort. Mr. Ryan re-
 sponded that he was personally not aware of any such

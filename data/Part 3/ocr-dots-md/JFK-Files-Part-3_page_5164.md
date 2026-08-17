@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5164.png
-
-Convert to Markdownd. Those Agents identified in #a above, who have developed qualified CIs in past five years but because of transfer, reassignment, or discontinuance of informant do not now have assigned a CI (furnish dates of development, discontinuance or reassignment).
+d. Those Agents identified in #a above, who have developed qualified CIs in past five years but because of transfer, reassignment, or discontinuance of informant do not now have assigned a CI (furnish dates of development, discontinuance or reassignment).
 
 e. Number of PCIs currently assigned to Agents identified in #a above.
 

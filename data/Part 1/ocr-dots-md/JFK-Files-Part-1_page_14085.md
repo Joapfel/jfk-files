@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14085.png
-
-Convert to MarkdownCUBA
+CUBA
 
 Cancillería y residencia: Francisco Marquez 160
 (Colonia Condesa)

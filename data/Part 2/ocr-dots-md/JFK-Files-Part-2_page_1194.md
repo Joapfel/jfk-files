@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1194.png
-
-Convert to MarkdownMr. Smith was received, but his contributions were quite pertinent and advanced the progress of the class discussions. In his written work he showed a sound knowledge and a feel for the handling of agents, but in other aspects of the case and problems his efforts were more casual. His student presentation demonstrated a cautious approach and a comprehensive analysis of a possible double agent.
+Mr. Smith was received, but his contributions were quite pertinent and advanced the progress of the class discussions. In his written work he showed a sound knowledge and a feel for the handling of agents, but in other aspects of the case and problems his efforts were more casual. His student presentation demonstrated a cautious approach and a comprehensive analysis of a possible double agent.
 
 **EXPLANATION.** The student chose an unusual competence, skill, or ability in meeting this objective or goal; he demonstrated a thorough pride of the material presented, or, if skills were involved, he demonstrated that he could perform it an extremely effective manner in this area.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27950.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 5. In addition to the PIAG crowd, Paul Haefner's people have had the endless and repetitive job of searching the CHAOS files and helping me deal with that most sensitive aspect of past history. Please express my thanks to them and, most particularly, to Paul himself.
 

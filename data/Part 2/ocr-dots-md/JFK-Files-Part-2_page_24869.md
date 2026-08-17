@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24869.png
-
-Convert to Markdownagainst a coup, but suggested that alternative leadership should be identified and cultivated. The recommendations were promptly approved by the President. (Pentagon Papers, pp.215-716)
+against a coup, but suggested that alternative leadership should be identified and cultivated. The recommendations were promptly approved by the President. (Pentagon Papers, pp.215-716)
 
 On October 3 Conein contacted Minh. Minh explained that a coup was being planned, and requested assurances of American support if it were successful. Minh outlined three courses of action, one of which was the assassination of Dien's brothers, Nhu and Can (Conein, p.25; cable, Saigon to Director, 10/5/63).
 

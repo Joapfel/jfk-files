@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1098.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 In February, 1965, an anonymous mailing was sent to three ministers (Dr. James H. Laird, Reverend Charles E. Lutton, and Reverend Norman E. Devine) associated with the Methodist Church, 23 E. Adams Street, Detroit, Michigan. This mailing enclosed a newspaper clipping depicting Nikita Khrushchev and Herbert Aptheker, a high Communist Party, USA (CPUSA) official, at bier of Elizabeth Gurley Flynn, late CPUSA Chairman, in Moscow. The purpose of this mailing was to alert church officials of Aptheker's CPUSA affiliation and his appearance at this church would be discouraged or cancelled.
 

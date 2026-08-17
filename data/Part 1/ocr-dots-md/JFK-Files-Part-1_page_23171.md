@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23171.png
-
-Convert to Markdown10 February 1966
+10 February 1966
 
 to us all in that. A person, devout Catholic, she died in 1957 or 1958, left some property to University. Pastorate himself is a conference economist and politician. He still believes pastorate's wife, a Ph.D. coaching at the high school level, is probably his own.
 

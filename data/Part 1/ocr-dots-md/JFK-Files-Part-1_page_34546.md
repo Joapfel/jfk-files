@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34546.png
-
-Convert to Markdown17. Who told Intourist that there was no KGB interest in Oswald? What is the name of the officer and his department who did so? While in Moscow, Oswald was interviewed by at least three American correspondents. Is it your opinion that the Second Chief Directorate was not interested to find out why Oswald talked to these newspapermen and who they were? Isn't that part of the KGB's responsibilities?
+17. Who told Intourist that there was no KGB interest in Oswald? What is the name of the officer and his department who did so? While in Moscow, Oswald was interviewed by at least three American correspondents. Is it your opinion that the Second Chief Directorate was not interested to find out why Oswald talked to these newspapermen and who they were? Isn't that part of the KGB's responsibilities?
 
 18. According to your statement, Oswald was not considered normal. Who determined that he was not normal? How many doctors, from what institutions, concluded that Oswald was not normal? The Second Chief Directorate and Intourist officers could not conclude that Oswald was abnormal without medical expertise.
 

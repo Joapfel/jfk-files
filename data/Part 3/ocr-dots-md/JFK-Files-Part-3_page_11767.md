@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11767.png
-
-Convert to MarkdownMemorandum to Mr. Tolson
+Memorandum to Mr. Tolson
 Re: Proposed Transfer of Supervisory Responsibility For Certain Cases from General Investigative Division to Domestic Intelligence Division
 
 that Division on specific violations such as current sedition case against Stokely Carmichael and prior requests of Criminal Division concerning activities of H. Rap Brown. Since enactment, 11 specific cases have arisen, the most recent being in connection with allegations of police brutality during the Democratic Convention in Chicago involving injury to over 70 police officers.

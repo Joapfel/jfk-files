@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14447.png
-
-Convert to MarkdownCS COPY
+CS COPY
 SECRET
 
 18 May 70

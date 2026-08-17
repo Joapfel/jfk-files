@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8045.png
-
-Convert to MarkdownAttachment to III-1520
+Attachment to III-1520
 
 CONFIDENTIAL
 SECURITY

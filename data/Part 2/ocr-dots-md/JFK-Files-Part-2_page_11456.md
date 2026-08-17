@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11456.png
-
-Convert to Markdownyour recommendation for instituting an investigation:
+your recommendation for instituting an investigation:
 
 (a) The Communist Party has specifically instructed its members to infiltrate the organization.
 

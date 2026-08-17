@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5259.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The President
 

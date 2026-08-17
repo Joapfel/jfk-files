@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6571.png
-
-Convert to Markdownneed to use the names of IRS personnel who cooperated with
+need to use the names of IRS personnel who cooperated with
 the FBI in certain COINTELPRO activities. Those names
 were made available to us for our use.
 

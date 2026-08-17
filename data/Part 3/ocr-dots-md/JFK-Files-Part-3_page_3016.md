@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3016.png
-
-Convert to Markdown1954
+1954
 
 and the FBI and everyone concerning the need to get these
 areas resolved.

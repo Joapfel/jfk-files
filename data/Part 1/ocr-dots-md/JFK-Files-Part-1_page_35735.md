@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35735.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 2 June 1973
 

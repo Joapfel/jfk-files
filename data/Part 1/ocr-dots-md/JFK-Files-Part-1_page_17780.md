@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17780.png
-
-Convert to Markdown...1.-
+...1.-
 
 ENTAJADA DOMINICANA.- 25-77-55.
 

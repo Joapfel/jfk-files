@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6535.png
-
-Convert to MarkdownNY#399-69
+NY#399-69
 
 12 June 1969
 

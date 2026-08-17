@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2352.png
-
-Convert to MarkdownTOPSECRET
+TOPSECRET
 
 Because the YSA is a youth group consisting in the main of college students, most of its activities take place on or near college campuses. Its members have participated in many of the campus disorders which have recently swept the country. For the past several years, [redacted], member and former national officer of the YSA, has been the dominant leader of the campus disorders and police confrontations on the campus of the University of California at Berkeley.
 

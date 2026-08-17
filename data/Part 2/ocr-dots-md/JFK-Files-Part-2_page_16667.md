@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16667.png
-
-Convert to Markdown9. Mutilated bullet and bullet fragments from stud behind hole designated Number 3 on south wall of front bedroom.
+9. Mutilated bullet and bullet fragments from stud behind hole designated Number 3 on south wall of front bedroom.
 
 10. Bullet from behind hole designated Number 39 in south wall of front bedroom.
 

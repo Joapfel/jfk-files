@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25022.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">PERSONAL NOTIFIED</td>
     <td>SECRET GROUP B<br/>(When Filled In) VOLUNTARY AUTOMATIC REFERRALS ONLY</td>

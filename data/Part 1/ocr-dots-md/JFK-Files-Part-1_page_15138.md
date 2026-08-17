@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15138.png
-
-Convert to Markdown-20-
+-20-
 
 Militia Dinststelle Nr. 17 ( Pass Abteilung) des Molotowski
 Rayon von Tbilisi, wo ich damals wohnte. Der Pass war ein

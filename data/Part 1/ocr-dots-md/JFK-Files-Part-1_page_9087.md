@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9087.png
-
-Convert to Markdown20 September 1967
+20 September 1967
 
 MEMORANDUM FOR: Chief, DO/Personal
 SUBJECT : Renewal and Amendment of the Contract for Edward O. TICHBORN (P)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7242.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>ABLE SEC DISSEM BY</td>

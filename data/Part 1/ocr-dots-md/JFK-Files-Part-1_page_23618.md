@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23618.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td rowspan="2">CLASSIFIED MESSAGE<br>CENTRAL INTELLIGENCE AGENCY</td><th colspan="8" style="text-align: center;">ROUTING</th></tr><tr><th>1</th><th>2</th><th>3</th><th>4</th><th>5</th><th>6</th><th>7</th><th>8</th></tr></table>
 

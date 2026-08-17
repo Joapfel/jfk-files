@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6131.png
-
-Convert to MarkdownHUNTER PROJECT
+HUNTER PROJECT
 
 1. Belmont to Boardman - 1/22/58*
 

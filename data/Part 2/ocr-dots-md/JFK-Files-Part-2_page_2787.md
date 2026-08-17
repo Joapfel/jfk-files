@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2787.png
-
-Convert to MarkdownSECRET
+SECRET
 
 I certify that I have seen the above Fitness Report:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11977.png
-
-Convert to Markdown# DESECO PROGRAM
+# DESECO PROGRAM
 
 limitations on other sensitive investigative techniques. It affords us a pool of human resources available for use against Soviet-bloc intelligence personnel in political, economic and particularly scientific fields in which the intelligence services of the bloc have shown extreme interest. This program has been reevaluated on an annual basis. It was last justified by memorandum dated 10/22/69, but by the action of the Executive Conference approved by the Director on memorandum of 10/29/70, Washington and New York were instructed that every Special Agent in those offices handling investigations of Soviet personnel should immediately open on and develop two completely new Desecco subjects. These instructions were sent to the field by airtel of 11/2/70.
 

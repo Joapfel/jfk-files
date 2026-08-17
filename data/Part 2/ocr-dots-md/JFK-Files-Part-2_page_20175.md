@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20175.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 For the information of New York the code name of
 WF 2034-S is STUKA and the code name for WF 2188-S is MARISA.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7509.png
-
-Convert to Markdown1. Can we find a photo that PENKOVSKY identified as MOSKALEVSKIY.
+1. Can we find a photo that PENKOVSKY identified as MOSKALEVSKIY.
 
 2. May I see PENKOVSKIY's 201 file for period 61-63?
 

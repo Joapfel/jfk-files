@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12440.png
-
-Convert to Markdown14.- Aprovechamiento del Diamante en Venezuela.-
+14.- Aprovechamiento del Diamante en Venezuela.-
 
 Del total de diamantes producido en Venezuela (en 1970 528.000,00 quilates) es infimo la port a aprovechada en el País.
 

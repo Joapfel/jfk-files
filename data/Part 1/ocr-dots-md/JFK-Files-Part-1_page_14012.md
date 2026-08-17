@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14012.png
-
-Convert to Markdown# INFORMATION OBTAINED FROM SOURCE "BEGIN" ON 19 OCTOBER 68
+# INFORMATION OBTAINED FROM SOURCE "BEGIN" ON 19 OCTOBER 68
 ## MISCELLANEOUS INFORMATION ON OFFICIAL CUBAN COMMUNITY
 
 1. Alfonso VILLACORTA, Prensa Latina. Source stated that VILLACORTA is disgusted with the Cuban regime, but has stayed on with Prensa Latina here because his brother is in prison in Cuba. Source believes that VILLACORTA would defect were his brother ever able to get out of Cuba. VILLACORTA cordially dislikes the CMUN and its personnel. VILLACORTA, who has been reportedly pro-Chinese in the past, has no deep political convictions, according to Source. Jose Antonio MARAZA Vasquez, a member of the Cuban Delegation to the 23rd UN General Assembly this year, has spent quite a bit of time with VILLACORTA in the past month. Source thinks that VILLACORTA may be homosexual.

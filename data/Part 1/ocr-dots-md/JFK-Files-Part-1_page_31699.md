@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31699.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 **MAV-01765**
 20 June 57

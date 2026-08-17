@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6509.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      No. 25

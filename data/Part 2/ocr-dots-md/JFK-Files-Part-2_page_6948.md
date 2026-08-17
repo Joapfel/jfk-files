@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6948.png
-
-Convert to Markdownimportant exception of the FBI and the CIA. I will elaborate on the status of records held by these two agencies later. The overwhelming majority of previously redacted information will have been made public by the Review Board.
+important exception of the FBI and the CIA. I will elaborate on the status of records held by these two agencies later. The overwhelming majority of previously redacted information will have been made public by the Review Board.
 
 ### III. Release of Government Records Related to the Assassination
 

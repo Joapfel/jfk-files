@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27004.png
-
-Convert to Markdownfailures by the introduction of biological agents which would appear to be of natural origin. Mr. Bundy said that he had no worries about any such sabotage which could clearly be made to appear as the result of local Cuban disaffection or of a natural disaster, but that we must avoid external activities such as release of chemicals, etc., unless they could be completely covered up.
+failures by the introduction of biological agents which would appear to be of natural origin. Mr. Bundy said that he had no worries about any such sabotage which could clearly be made to appear as the result of local Cuban disaffection or of a natural disaster, but that we must avoid external activities such as release of chemicals, etc., unless they could be completely covered up.
 
 5. A suggestion was made that small explosives or incendiaries which could be distributed to Cubans should be infiltrated. General Carter explained that the problem is not one of such supplies, since they can be easily improvised, but rather that the people have shown no inclination to use such materials despite many exile claims to the contrary.
 

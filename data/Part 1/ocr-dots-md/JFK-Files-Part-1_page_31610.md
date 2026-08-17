@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31610.png
-
-Convert to MarkdownSECUT
+SECUT
 SECURITY INFORMATION
 
 21 July 1953

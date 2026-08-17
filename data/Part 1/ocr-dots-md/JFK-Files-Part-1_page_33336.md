@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33336.png
-
-Convert to Markdownguilty of "compromising the national and professional character of the armed forces."
+guilty of "compromising the national and professional character of the armed forces."
 
 In its original form, the resolution had declared the Allende government to be illegitimate, but the acuerdo had later been softened in order to secure the support of the Christian Democrats. Yet its effect was still to give a congressional green light to the military, and Allende immediately so interpreted it. He replied to the motion by accusing the Congress of "promoting a coup d'état by asking the military forces to make governmental judgments independently of the authority and direction of the President"; he also pointed out that according to the Constitution the only way that the Congress could decide on the legality of the President's conduct of his office was through Impeachment by a two-thirds vote."
 

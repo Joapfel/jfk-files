@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10260.png
-
-Convert to MarkdownThese files are an integral part of the intelligence-
+These files are an integral part of the intelligence-
 gathering function. By the very nature of the FBI's assignment
 to coordinate internal security information, the maintenance
 of data over a period of time is required and it is necessary

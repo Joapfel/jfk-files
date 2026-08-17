@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12260.png
-
-Convert to Markdown8. [Persons being considered for use]in espionage and foreign nationality cases many times present special problems which limit or govern the scope of the initial investigation. (See instructions re contact cases and deseco program, section 105K, 6b and 6h, volume IV, of this manual.) However, where practical the above items should be covered.
+8. [Persons being considered for use]in espionage and foreign nationality cases many times present special problems which limit or govern the scope of the initial investigation. (See instructions re contact cases and deseco program, section 105K, 6b and 6h, volume IV, of this manual.) However, where practical the above items should be covered.
 9. Leads to obtain background data must be handled by auxiliary offices within 30 days.
 
 10. Investigation as outlined above must be completed prior to any request to guide, direct, [or designate] an individual as a potential [security] informant.

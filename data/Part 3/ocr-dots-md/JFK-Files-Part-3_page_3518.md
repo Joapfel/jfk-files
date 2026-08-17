@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3518.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Attorney General Edward H. Levi
 

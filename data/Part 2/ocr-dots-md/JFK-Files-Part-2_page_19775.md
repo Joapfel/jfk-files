@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19775.png
-
-Convert to MarkdownWOMEN'S NATIONAL ABORTION
+WOMEN'S NATIONAL ABORTION
 ACTION COALITION (WONAAC)
 
 Source one further advised that among those who traveled to San Francisco with this group were Dave Chamberlin, Richard Geyer, Carole Newcomb, Dave Gooler, Olga Rodriguez, Rachele Fruit, Peter Cooper, and Jack Barrett, all of whom are members of the Los Angeles Local - Socialist Workers Party (LAL - SWP), and Jane Gooler, a member of the Los Angeles Branch - Young Socialist Alliance (LAB - YSA). According to source, Geyer, Newcomb, Dave Gooler, Rodriguez, and Fruit are also members of the LAB - YSA.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17657.png
-
-Convert to Markdownand/or defection. A case in point would be the present Sovieterval Ateneo, Grigorii IKIF, who. A recent study of his background and habits indicated that his wife might be vulnerable to recruitment because also were having stronger relations with one of her immediate subordinates. A sample of the personality report Charles may be found in, for example, dated 17 May 1957, subject: "Loris Pavlovich." (TAK).
+and/or defection. A case in point would be the present Sovieterval Ateneo, Grigorii IKIF, who. A recent study of his background and habits indicated that his wife might be vulnerable to recruitment because also were having stronger relations with one of her immediate subordinates. A sample of the personality report Charles may be found in, for example, dated 17 May 1957, subject: "Loris Pavlovich." (TAK).
 
 ### h. Goods and Services Provided to the Soviet Embassy
 

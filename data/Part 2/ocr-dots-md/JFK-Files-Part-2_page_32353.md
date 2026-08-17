@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32353.png
-
-Convert to Markdownon Cuban merchant ships. Efforts are being made to obtain
+on Cuban merchant ships. Efforts are being made to obtain
 more information and to encourage stricter controls by the
 Mexican authorities.
 

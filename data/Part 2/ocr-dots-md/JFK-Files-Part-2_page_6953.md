@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6953.png
-
-Convert to Markdown13-00000
+13-00000
 
 CIA's Sequestered Collection, this voluminous body of records (approximately
 280,000 pages) ranges widely in relevance to the assassination.

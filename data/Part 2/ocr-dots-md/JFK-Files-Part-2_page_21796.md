@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21796.png
-
-Convert to Markdown1. Mr. Wides. I thought so. I thought in '66 or '67, that is what I meant, that he had worked on the history of the AMUFTS group.
+1. Mr. Wides. I thought so. I thought in '66 or '67, that is what I meant, that he had worked on the history of the AMUFTS group.
 
 2
 

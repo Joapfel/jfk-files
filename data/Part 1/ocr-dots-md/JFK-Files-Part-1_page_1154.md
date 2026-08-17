@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1154.png
-
-Convert to Markdown<table><tr><td>1971</td></tr></table>
+<table><tr><td>1971</td></tr></table>
 
 <table><tr><th>TO : DIRECTOR<br>FROM : MEXICO CITY<br>ACTION: WH 8<br>INFO : DOP, DODS/L, DODS 4, SPOG 2, CI/OPS, FI, SAS 8, RF, CR</th></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9357.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 14 August 1950
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_500.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CABLE SECRETARIAT DISSEMINATION</th><th>ASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td>PERSON/UNIT NOTIFIED</td><td colspan="2">SECRET<br>(When Filled In)</td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLOTTED</td><td colspan="2">GROUP I<br>EXCLUDED FROM AUTOMATIC<br>SIGNATURE CHECK AND<br>DECLARATION</td></tr><tr><td>BY ____ AT ____</td><td colspan="2">REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td>DISSEM BY ____ PER ____</td><td>INDEX ☐ YES ☐ NO<br>CLASSIFY TO FILE NO.<br>X-REF TO FILE NO.<br>FILE ID ☐ RET. TO BRANCH ☐ DESTROY ☐ SIG.</td><td></td></tr><tr><td>ACTION<br>WH 8 ☑ NO COPY</td><td>INFO.<br>F.I.E. VR.<br></td><td>c/OPS/CICA, FI</td></tr></tbody></table>
 

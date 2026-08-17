@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35287.png
-
-Convert to Markdown# CLANDESTINENESS
+# CLANDESTINENESS
 
 July 31, 1962
 

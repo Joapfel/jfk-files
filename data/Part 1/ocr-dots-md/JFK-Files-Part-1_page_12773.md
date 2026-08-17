@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12773.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">OUTGOING MESSAGE:</th></tr><tr><td>100</td><td>.</td><td>.</td><td>.</td></tr></thead><tbody><tr><td>C135</td><td>.</td><td>.</td><td>.</td></tr><tr><td>D128</td><td>.</td><td>.</td><td>.</td></tr><tr><td>G157</td><td>.</td><td>.</td><td>.</td></tr></tbody></table>
+<table><thead><tr><th colspan="4">OUTGOING MESSAGE:</th></tr><tr><td>100</td><td>.</td><td>.</td><td>.</td></tr></thead><tbody><tr><td>C135</td><td>.</td><td>.</td><td>.</td></tr><tr><td>D128</td><td>.</td><td>.</td><td>.</td></tr><tr><td>G157</td><td>.</td><td>.</td><td>.</td></tr></tbody></table>
 
 OMF 0 0 0 0 0 0
 

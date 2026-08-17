@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28122.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FITNESS REPORT FOR: Frederick C. RANDALL
 

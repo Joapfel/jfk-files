@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24092.png
-
-Convert to MarkdownSECRET
+SECRET
 RYBAT
 
 26 September 1967

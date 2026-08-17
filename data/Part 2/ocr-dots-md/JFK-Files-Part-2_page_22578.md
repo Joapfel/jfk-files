@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22578.png
-
-Convert to Markdowninformed me that he would then go ahead and file his return to IRS. Mr. Powell, however, of the Covert Tax Committee, did say that they had some questions concerning Subject's expenses under Schedule C. Specifically, whether Subject's trunk line to New York City, cable address, and trips to Washington had been reimbursed by the Agency. I informed Mr. Powell that we had no record of any such reimbursement and that these expenses were assumed by Subject, solely.
+informed me that he would then go ahead and file his return to IRS. Mr. Powell, however, of the Covert Tax Committee, did say that they had some questions concerning Subject's expenses under Schedule C. Specifically, whether Subject's trunk line to New York City, cable address, and trips to Washington had been reimbursed by the Agency. I informed Mr. Powell that we had no record of any such reimbursement and that these expenses were assumed by Subject, solely.
 
 "It was indicated by Subject that it was hopeful his throat ailment would soon clear which would make it possible for him to visit Washington within the next week or two.
 

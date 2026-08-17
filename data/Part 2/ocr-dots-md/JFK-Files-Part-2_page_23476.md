@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23476.png
-
-Convert to MarkdownThe latter location should absorb no more than 200. Mr. Douglas cautioned that the use of DOD facilities should at the present time be considered as a holding operation rather than a continuation or stepping up of present training. The possibilities of establishing a kind of CCC under the Voorhees auspices should be examined.
+The latter location should absorb no more than 200. Mr. Douglas cautioned that the use of DOD facilities should at the present time be considered as a holding operation rather than a continuation or stepping up of present training. The possibilities of establishing a kind of CCC under the Voorhees auspices should be examined.
 
 3. Advice to Assistant Attorney General
 

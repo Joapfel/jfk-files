@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21656.png
-
-Convert to Markdownin contact, but we didn't see it as such a sure thing; even though this says, probably by General Viaux and so forth.
+in contact, but we didn't see it as such a sure thing; even though this says, probably by General Viaux and so forth.
 
 Miss Culbreth. Was there any question in your mind as principal operating officer here in the states that there was a delineation or a demarcation of function between the Viaux group and the Valenzuela group, or did you regard them as one big group down there accomplishing this, or did you really regard them as separate groups?
 

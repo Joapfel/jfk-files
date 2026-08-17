@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21771.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 (SEVENTH DEPARTMENT - January 1962-1964)
 

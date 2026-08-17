@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25283.png
-
-Convert to MarkdownFrank Sturgis in Cuba: "I stole and photographed hundreds of secret documents."
+Frank Sturgis in Cuba: "I stole and photographed hundreds of secret documents."
 
 (Continued from page 3)
 

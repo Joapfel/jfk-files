@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30357.png
-
-Convert to Markdown1 don't you take Mr. Oswald to the hospital and notify the American embassy?
+1 don't you take Mr. Oswald to the hospital and notify the American embassy?
 
 2
 

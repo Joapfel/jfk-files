@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11133.png
-
-Convert to MarkdownCommunist Party members, review field office files, pretext interviews, surveillances, special agents attending mass meetings, etc.
+Communist Party members, review field office files, pretext interviews, surveillances, special agents attending mass meetings, etc.
 
 4. Internal Security Act of 1950
 To insure successful proceedings against a communist front organization under this act, a preponderance of admissible evidence must be secured to [show] extent to which

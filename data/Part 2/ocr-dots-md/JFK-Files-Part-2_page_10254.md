@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10254.png
-
-Convert to Markdown09 MAY 1972
+09 MAY 1972
 
 # Foreign Support for Activities Planned to Disrupt or Harass the Democratic National Convention
 

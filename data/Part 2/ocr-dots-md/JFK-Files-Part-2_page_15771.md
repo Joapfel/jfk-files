@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15771.png
-
-Convert to Markdownmilitant to get a fair trial, then I say
+militant to get a fair trial, then I say
 our judicial system today is irrelevant to
 the needs of the people and it's about time
 we change it. It's about time we realize

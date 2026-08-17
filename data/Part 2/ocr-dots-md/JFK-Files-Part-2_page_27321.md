@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27321.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 Aa - Metropolitan Police Department (Locks & Picks) etc. CONFIDENTIAL
 

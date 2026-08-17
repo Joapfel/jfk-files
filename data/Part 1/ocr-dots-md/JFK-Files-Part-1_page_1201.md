@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1201.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr><tr><td>SECRET</td><td></td></tr></thead><tbody><tr><td>TO : DIRECTOR</td><td rowspan="5"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td colspan="2">GROUPING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION : DODS 4</td></tr><tr><td>INFO : DODS/L, CI/OPS, EE 4, WH 78 VR</td></tr><tr><td>REF : MEXI 7218 (1)</td></tr></tbody></table>
 

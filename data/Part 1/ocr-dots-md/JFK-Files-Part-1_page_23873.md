@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23873.png
-
-Convert to MarkdownI hereby acknowledge that I have voluntarily provided information to the United States Government, for which I received compensation. I have no further claim against the United States Government for this activity.
+I hereby acknowledge that I have voluntarily provided information to the United States Government, for which I received compensation. I have no further claim against the United States Government for this activity.
 
 I further understand and agree that the entirety of this relationship is confidential and that nothing relating to it will be revealed by me to anyone.
 

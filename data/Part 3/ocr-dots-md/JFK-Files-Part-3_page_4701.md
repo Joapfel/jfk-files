@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4701.png
-
-Convert to MarkdownREVIEWED BY EOVJFK TASK FORCE
+REVIEWED BY EOVJFK TASK FORCE
 
 ON
 

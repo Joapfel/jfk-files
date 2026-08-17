@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15370.png
-
-Convert to MarkdownAlso he was very rough with the airplane in pitch control. On ILS approaches he would vary the manifold pressure from 12" to 30" to try and stay on the glide slope. On short field landing and takeoff after about six of them he started approaching the procedures I was trying to show him, but I was convinced as soon as I left the area he would return to his own style of flying. I recommended that at the end of his six month contract which was about 30 days away he be terminated.
+Also he was very rough with the airplane in pitch control. On ILS approaches he would vary the manifold pressure from 12" to 30" to try and stay on the glide slope. On short field landing and takeoff after about six of them he started approaching the procedures I was trying to show him, but I was convinced as soon as I left the area he would return to his own style of flying. I recommended that at the end of his six month contract which was about 30 days away he be terminated.
 
 e. **Iden F** - This man had previous C-46 experience of about 2000 hours. He showed great interest and did a good job from the beginning. I recommended he be used as PIC in C-46's.
 

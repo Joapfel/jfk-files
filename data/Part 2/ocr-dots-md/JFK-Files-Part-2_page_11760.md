@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11760.png
-
-Convert to Markdownreferred to Bureau by local law enforcement agencies or where Bureau fugitives are taken into custody by local law enforcement officers. They should also be advised of violations of local laws coming to the attention of the FBI.
+referred to Bureau by local law enforcement agencies or where Bureau fugitives are taken into custody by local law enforcement officers. They should also be advised of violations of local laws coming to the attention of the FBI.
 
 b. Visits to Washington
 When the field requests special courtesies be afforded certain individuals, including law enforcement officers, coming to Washington, D. C., the communication so advising the Bureau shall contain biographical data and a brief summary of information in the field office files concerning the visitor.

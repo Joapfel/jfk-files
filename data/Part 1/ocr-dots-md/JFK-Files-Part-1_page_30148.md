@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30148.png
-
-Convert to Markdown# SECRET
+# SECRET
 Security Information
 
 ## SEC. VIII. PUBLICATIONS

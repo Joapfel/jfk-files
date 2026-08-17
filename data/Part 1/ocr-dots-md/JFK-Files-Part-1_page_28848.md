@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28848.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">16. RELATIVES WHOSE EXPRESSIONS IN FOREIGN COUNTRIES</th></tr><tr><th>NAME</th><th>RELATIONSHIP</th><th>ACCESS</th><th></th></tr></thead><tbody><tr><td>NONE</td><td></td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="4">16. RELATIVES WHOSE EXPRESSIONS IN FOREIGN COUNTRIES</th></tr><tr><th>NAME</th><th>RELATIONSHIP</th><th>ACCESS</th><th></th></tr></thead><tbody><tr><td>NONE</td><td></td><td></td><td></td></tr></tbody></table>
 
 <table><caption>15. FOREIGN LANGUAGES (Replaces Item 1 on Form 57)</caption><thead><tr><th colspan="5">List and indicate the extent of your competence, i.e., Excellent, Good, Fair</th></tr><tr><th>A. LANGUAGE</th><th>B. READ</th><th>C. WRITE</th><th>D. SPEAK</th><th>F. UNDERSTAND</th></tr></thead><tbody><tr><td>Spanish</td><td>Ex</td><td>Ex</td><td>Ex</td><td>Ex</td></tr><tr><td>French</td><td>Good</td><td></td><td></td><td>Poor</td></tr><tr><td>Russian</td><td>Slight</td><td></td><td></td><td></td></tr></tbody></table>
 

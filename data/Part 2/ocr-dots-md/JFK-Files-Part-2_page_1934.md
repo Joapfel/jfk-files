@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1934.png
-
-Convert to Markdown2057 Flying Hills Lane
+2057 Flying Hills Lane
 Mal Cajon, Calif., 92020
 
 November 27, 1973

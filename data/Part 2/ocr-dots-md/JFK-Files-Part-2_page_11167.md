@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11167.png
-
-Convert to MarkdownSECTION 87. SECURITY INVESTIGATIONS
+SECTION 87. SECURITY INVESTIGATIONS
 
 i. Dissemination of information to Secret Service regarding plots against the President
 

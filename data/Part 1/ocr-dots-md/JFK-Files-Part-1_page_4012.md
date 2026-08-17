@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4012.png
-
-Convert to MarkdownP A K A M A , R E P U B L I C A D E P A K A M A
+P A K A M A , R E P U B L I C A D E P A K A M A
 
 TELEFONO: 3-1000 (NO LÍNEAS)
 

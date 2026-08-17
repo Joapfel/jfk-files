@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13714.png
-
-Convert to Markdown195
+195
 
 9 in Mexico City then started putting the entire Soviet apparatus in Mexico City under surveillance and pulling the records, and I don't want to read this into the record because it uses a true name.
 

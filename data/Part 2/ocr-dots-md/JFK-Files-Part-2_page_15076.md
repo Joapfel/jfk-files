@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15076.png
-
-Convert to Markdown# ANTIRIOT LAWS
+# ANTIRIOT LAWS
 
 ## Chicago Cases
 

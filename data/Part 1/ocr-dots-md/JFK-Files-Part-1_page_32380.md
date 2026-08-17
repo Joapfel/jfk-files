@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32380.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NAME OF EMPLOYEE<br/>Daniel Flores</td><td>DATE OF ARRIVAL IN U.S.<br/>22May79</td><td>NAME OF SUPERVISOR<br/>Lawrence Sternfield</td><td>DATE (July 1st - Sept 30th)<br/>22May79</td></tr><tr><td>SUPPLEMENTAL USE NO<br/>5 June 1979</td><td>STATION NUMBER<br/>JEMST-14447</td><td>STATION RECEIVED BY NEW SUPERVISOR<br/></td><td>HOME BASE COMPONENT<br/>LA</td></tr><tr><td>DATE OF BIRTH<br/>J Aug 5S</td><td>CURRENT POSITION ON GRADUATE SCHOOL<br/>DQG Ops Officer, GS-13</td><td>STATION ON BOSTON<br/>MEXICO CITY</td><td>CURRENT SUPERVISOR<br/></td></tr></table>
 

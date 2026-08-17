@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23473.png
-
-Convert to MarkdownVAIVADA's contract with the termination coming on 31 July 1955. At that time the project may be renewed for a year to coincide with the second year of VAIVADA's present contract. The Mission will be notified when approval is granted.
+VAIVADA's contract with the termination coming on 31 July 1955. At that time the project may be renewed for a year to coincide with the second year of VAIVADA's present contract. The Mission will be notified when approval is granted.
 
 J. C. KING
 Chief, VHD

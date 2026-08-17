@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9288.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>(Indicate page, name of newspaper, city and state.)</td>
   </tr>

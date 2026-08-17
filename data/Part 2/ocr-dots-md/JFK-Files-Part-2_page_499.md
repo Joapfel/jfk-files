@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_499.png
-
-Convert to MarkdownCABLE SECRET AT DISSEMINATION CLASSIFIED MESSAGE TOTAL COPIES ROUTING AND/OR INITIALS - SEEN BY
+CABLE SECRET AT DISSEMINATION CLASSIFIED MESSAGE TOTAL COPIES ROUTING AND/OR INITIALS - SEEN BY
 
 <table><tr><td rowspan="2">PERSON/UNIT NOTIFIED</td><td colspan="4" style="text-align:center;">SECRET<br/>(When Filed In)</td><td>GROUP I<br/>MELANINE FROM AUTOMATIC COMPUTERS AND<br/>VOCATIONAL TRANSPARENCY</td><td rowspan="2"><table><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></table></td></tr><tr><td colspan="4"></td><td>REPRODUCTION OF THIS COPY PROHIBITED</td><td></td></tr><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td><td>SLOTTED ☑</td><td colspan="3">INDEX ☐ YES ☐ NO</td><td></td></tr><tr><td>BY:</td><td>AT:</td><td></td><td colspan="3">CLASSify TO FILE NO.:</td><td></td></tr><tr><td>DISSENT BY:</td><td>30 PER</td><td>*</td><td colspan="3">X-REF TO FILE NO.:</td><td></td></tr><tr><td>ACTION</td><td>WHD</td><td>☑ NO COPY</td><td>FILE ID:</td><td>BRAND:</td><td>DESTROY:</td><td>SIG.</td></tr><tr><td></td><td></td><td></td><td>VOw w/cOG8 ci claps c/c/c2</td><td></td><td></td><td></td></tr></table>
 

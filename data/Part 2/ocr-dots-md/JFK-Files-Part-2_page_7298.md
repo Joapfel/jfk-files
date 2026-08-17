@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7298.png
-
-Convert to Markdown5. We are also providing you as attachments B, C and D copies of memoranda from EUR, AF and EA Divisions which provides additional background on division attitudes and caveats concerning the provision of this material to the Select Committee.
+5. We are also providing you as attachments B, C and D copies of memoranda from EUR, AF and EA Divisions which provides additional background on division attitudes and caveats concerning the provision of this material to the Select Committee.
 
 /s/ Donald J. Purcell
 

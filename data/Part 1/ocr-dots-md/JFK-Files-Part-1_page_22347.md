@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22347.png
-
-Convert to MarkdownTaken together, these facts suggest the possibilities that the KGB sent NOSENKO to Geneva on both occasions for the purpose of contacting CIA, that the KGB wanted the opportunity to gauge CIA's reactions to the walk-in in 1962 and to the defection plans in 1964, and that the KGB guided NOSENKO after contact was established in both years.
+Taken together, these facts suggest the possibilities that the KGB sent NOSENKO to Geneva on both occasions for the purpose of contacting CIA, that the KGB wanted the opportunity to gauge CIA's reactions to the walk-in in 1962 and to the defection plans in 1964, and that the KGB guided NOSENKO after contact was established in both years.
 
 A further examination of the operational circumstances in Geneva lends credence to these possibilities. During the 1962 meetings, NOSENKO would frequently answer CIA questions by saying: "I will have to think about that tonight," or "I will have some time tonight to jot down and prepare a good answer for you," or "I don't want to give you an answer to that right off--I am afraid to mislead you." He would return to a later meeting with the information, after having visited the Legal Residency. In 1964 there were other examples of what may have been backstage guidance by the KGB:
 

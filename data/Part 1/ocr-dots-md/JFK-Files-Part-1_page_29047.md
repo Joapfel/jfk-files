@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29047.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">NOTIFICATION OF ESTABLISHMENT<br>OF MILITARY COVER BACKSTOP</th><th>DATE</th></tr></thead><tbody><tr><td rowspan="3">TO:<br>(Check)</td><td>X CHIEF, RECORDS AND SERVICES DIVISION</td><td>7 August 1962</td></tr><tr><td>CHIEF, OPERATING COMPONENT, WH</td><td>ESTABLISHED FOR<br>(NEE: ZEHRUNG)</td></tr><tr><td>ATTN:</td><td>BUSTOSVIDELA, Charlotte Z.</td></tr><tr><td>REF:</td><td>WH/SS Mr. Mullane</td><td>FILE NO.<br>3190</td></tr><tr><td colspan="2">Verbal Request for Cover, Form 1322 Dated 31 Jul 62</td><td>ID CARD NO.</td></tr><tr><td colspan="2">MILITARY COVER BACKSTOP ESTABLISHED</td><td></td></tr><tr><td colspan="2">U.S.Army Element, Joint Operations Group (8739)</td><td></td></tr></tbody></table>
 

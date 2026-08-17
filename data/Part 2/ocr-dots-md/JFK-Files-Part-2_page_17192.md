@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17192.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 In addition, Captain Samuels noted that Black Panther leaders Bobby Lee Rush, Yvonne King and Ann Campbell attended both sessions of the mock trial.
 

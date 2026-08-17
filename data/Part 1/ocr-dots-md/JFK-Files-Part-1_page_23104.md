@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23104.png
-
-Convert to Markdown<table><tr><td>SECRET 221724Z JAN 72 CITE BOGOTA 18310</td></tr></table>
+<table><tr><td>SECRET 221724Z JAN 72 CITE BOGOTA 18310</td></tr></table>
 
 22 Jan. 519758
 

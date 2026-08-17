@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2027.png
-
-Convert to Markdown7. Subsequent to the meeting expedite credit checks on the Subject and her husband revealed no record at either the Credit Bureau or Stone's. It has subsequently been learned that Subject's father had visited the Embassy and had been asked to give a short history and the names of his children. * Subject was listed by her father in her maiden name. Consequently no further difficulty is expected in this matter. The Office of Security is to be kept advised of further developments in this case by T. K. Chalmers, Subject's supervisor.
+7. Subsequent to the meeting expedite credit checks on the Subject and her husband revealed no record at either the Credit Bureau or Stone's. It has subsequently been learned that Subject's father had visited the Embassy and had been asked to give a short history and the names of his children. * Subject was listed by her father in her maiden name. Consequently no further difficulty is expected in this matter. The Office of Security is to be kept advised of further developments in this case by T. K. Chalmers, Subject's supervisor.
 
 ACTION:
 

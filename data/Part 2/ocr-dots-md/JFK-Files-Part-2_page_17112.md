@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17112.png
-
-Convert to MarkdownMC CARTHY, MICHAEL, Lieutenant of Education, Illinois BPP.
+MC CARTHY, MICHAEL, Lieutenant of Education, Illinois BPP.
 
 O'NEAL, WILLIAM MC KINLEY, born December 9, 1949, Chief of Staff, Illinois BPP.
 

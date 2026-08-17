@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26227.png
-
-Convert to MarkdownIt has meant too the the State Department, often apprised of an
+It has meant too the the State Department, often apprised of an
 operation only in its later stages, is under great pressure to
 endorse the operation, as already mounted because of the alleged
 evil consequences or exercising a veto. I well remember Tom

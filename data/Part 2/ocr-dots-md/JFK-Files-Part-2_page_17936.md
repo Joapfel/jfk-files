@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17936.png
-
-Convert to MarkdownNR 09 PG PLAIN
+NR 09 PG PLAIN
 
 7:35 PM NITEL MARCH 25, 1975 RGM
 

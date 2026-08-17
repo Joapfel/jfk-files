@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29092.png
-
-Convert to Markdown(When filled I-)
+(When filled I-)
 
 <table>
   <tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13979.png
-
-Convert to MarkdownNYL-0625
+NYL-0625
 
 5 August 1969
 

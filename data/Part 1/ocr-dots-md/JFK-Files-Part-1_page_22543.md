@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22543.png
-
-Convert to MarkdownSECRET-ESTS ONLY
+SECRET-ESTS ONLY
 
 name, . . . 50 fragmentation grenades, . . . ten 64mm tank
 rockets. . . . ."

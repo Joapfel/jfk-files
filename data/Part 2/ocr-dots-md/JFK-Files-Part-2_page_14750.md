@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14750.png
-
-Convert to Markdown**UNITED STATES DEPARTMENT OF DEFENSE**
+**UNITED STATES DEPARTMENT OF DEFENSE**
 
 # Memo Symposium
 

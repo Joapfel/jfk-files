@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4178.png
-
-Convert to Markdownthe Pakistannis or the Afganistans to chance their policy on India.
+the Pakistannis or the Afganistans to chance their policy on India.
 
 These forces were there long before we came on the scene and we cannot
 do much about it -- we cannot settle all the disputes, but we want to

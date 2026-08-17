@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4747.png
-
-Convert to MarkdownRH 92-264
+RH 92-264
 
 RE: EUGENE T. TISON
 2424 Lunceford Lane

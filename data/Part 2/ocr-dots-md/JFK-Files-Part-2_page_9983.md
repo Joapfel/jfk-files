@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9983.png
-
-Convert to Markdowncould be given to clarifying this in the regulations.
+could be given to clarifying this in the regulations.
 
 A part from the above suggestions regarding the security regulations, it is noted that the abolition of the Civil Service Commission's regional loyalty boards and the Loyalty Review Board will affect the adjudication procedure required by Executive Order 10422. This is being called to your attention so that the necessary action may be taken to insure that there is no undue delay in connection with the adjudication of cases being investigated under Executive Order 10422.
 

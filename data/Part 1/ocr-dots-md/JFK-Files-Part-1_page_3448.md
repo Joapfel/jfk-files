@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3448.png
-
-Convert to Markdownthat we will be too first to know of RAY's
+that we will be too first to know of RAY's
 arrival in Cuba.; Szule reiterated his basic
 theme that RAY's effort is the last hope to
 free Cuba. I told Szule that I certainly felt

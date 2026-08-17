@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23500.png
-
-Convert to Markdown# Interview Questions For Gordon Gray
+# Interview Questions For Gordon Gray
 
 ## TRUJILLO
 

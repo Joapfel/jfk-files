@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20879.png
-
-Convert to MarkdownAR 9171
+AR 9171
 
 TELETYPING
 

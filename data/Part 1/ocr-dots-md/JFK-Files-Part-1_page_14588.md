@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14588.png
-
-Convert to Markdowntreated by the Embassy's Spanish doctor VILLALANDA (fmu), who prescribed cortisone. His condition was diagnosed as incurable, since it was doubted that the injury to his spine could be corrected by an operation. RUIZ was further told that the condition would continue to grow worse, and that within six to ten years he would have a defective walk. RUIZ planned to send the diagnosis and X-rays to ROA in Havana, who would pass them to the Cuban specialist MARTINEZ-PAZ for review.
+treated by the Embassy's Spanish doctor VILLALANDA (fmu), who prescribed cortisone. His condition was diagnosed as incurable, since it was doubted that the injury to his spine could be corrected by an operation. RUIZ was further told that the condition would continue to grow worse, and that within six to ten years he would have a defective walk. RUIZ planned to send the diagnosis and X-rays to ROA in Havana, who would pass them to the Cuban specialist MARTINEZ-PAZ for review.
 
 ## TRAVELS
 

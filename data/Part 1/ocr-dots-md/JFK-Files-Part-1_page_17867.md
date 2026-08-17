@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17867.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>INDEX: [ ] YES [ ] NO</td><td rowspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>X-REF TO FILE NO.</td><td></td></tr><tr><td>FILE RID [ ] NET. TO BRANCH [ ]</td><td></td></tr><tr><td>DESTROY [ ] SIC.</td><td></td></tr><tr><td>FROM</td><td></td></tr><tr><td>ACTION</td><td>[x] RID COPY</td><td>ADVANCE COPY<br/>[ ] Issued [ ] Released [ ] Tumed</td><td>UNIT</td><td>TIME</td><td>BY</td></tr><tr><td>INFO</td><td colspan="5">FILE is being transferred by air.</td></tr></table>
 

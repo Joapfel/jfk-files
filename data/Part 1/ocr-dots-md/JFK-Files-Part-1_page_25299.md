@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25299.png
-
-Convert to MarkdownLEONOV, Nikolai Sersegevich
+LEONOV, Nikolai Sersegevich
 
 **MEXI-839**
 27 Jun 56

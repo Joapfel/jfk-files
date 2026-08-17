@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10404.png
-
-Convert to MarkdownSUBJECT: Sensitive Activities Performed by the Office of
+SUBJECT: Sensitive Activities Performed by the Office of
 Logistics
 
 action would be more economical and eliminate the need for

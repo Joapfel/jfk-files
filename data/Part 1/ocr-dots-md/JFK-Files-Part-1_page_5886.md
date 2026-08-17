@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5886.png
-
-Convert to MarkdownTo: Chief, Special Security Division
+To: Chief, Special Security Division
 Attn: Mr. Clayton
 
 FR'N: STC 87B

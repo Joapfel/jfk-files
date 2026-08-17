@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6493.png
-
-Convert to Markdown13-00000
+13-00000
 
 7. Hijacking attempts against civil air and surface craft should appear to continue as harassing measures condoned by the government of Cuba. Concurrently, genuine defections of Cuban civil and military air and surface craft should be encouraged.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9631.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : PBT
 

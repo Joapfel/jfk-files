@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_5308.png
-
 , Dr. Herve Boyer and reportedly the No. 3 man.</td>
    </tr>
    <tr>

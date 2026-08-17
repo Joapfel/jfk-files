@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31214.png
-
-Convert to Markdown0002255
+0002255
 
 P.32 Edwards recalls smutty advice a cent
 who worked in a restaurant figures

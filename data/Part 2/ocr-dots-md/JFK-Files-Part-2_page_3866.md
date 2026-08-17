@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3866.png
-
-Convert to Markdown4. NOVEL remains mysterious. Although the press has devoted much space to him, few facts have emerged. He has been described as a 29 year old former owner of a bar in the French quarter of New Orleans and as an expert in electronics. (New Orleans States - Item, 25 April 1967.) An FBI report (DDB-79248, 27 April 1967) terms him a former electronics salesman.
+4. NOVEL remains mysterious. Although the press has devoted much space to him, few facts have emerged. He has been described as a 29 year old former owner of a bar in the French quarter of New Orleans and as an expert in electronics. (New Orleans States - Item, 25 April 1967.) An FBI report (DDB-79248, 27 April 1967) terms him a former electronics salesman.
 
 5. Nothing has been printed about the source or sources of his money since he left New Orleans for Columbus, Ohio, in mid-March 1967. It is known, however, that he is at liberty on a $10,000 bond. The New Orleans States - Item said on 25 April 1967 that NOVEL lives in a rent-free apartment in Columbus and drives a used car with dealer's tags.
 

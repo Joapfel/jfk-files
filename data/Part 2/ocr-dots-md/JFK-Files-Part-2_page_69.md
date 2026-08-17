@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_69.png
-
-Convert to Markdown13. Father - full name occupation, present residence, year and place of birth, nationality at birth and subsequent nationalities.
+13. Father - full name occupation, present residence, year and place of birth, nationality at birth and subsequent nationalities.
 
 Antonio Ferre; La Albabra, Ponce, P. R.; born in Cuba, 9 June 1877; came to Puerto Rico 1894; American.
 

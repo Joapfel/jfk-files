@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31585.png
-
-Convert to Markdown22 July 1953
+22 July 1953
 
 MEMORANDUM FOR: Chief, International Organizations
 

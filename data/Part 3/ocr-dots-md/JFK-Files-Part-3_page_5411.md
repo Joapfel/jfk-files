@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5411.png
-
-Convert to MarkdownENCLOSURE
+ENCLOSURE
 
 84 AUG 1 1 1975
 

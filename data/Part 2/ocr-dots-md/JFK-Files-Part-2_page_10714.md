@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10714.png
-
-Convert to Markdown"this or the other one," During the conversation SA ECELSTON said if he had a moral obligation to the people who he served in his own capacity as a member of his city council, Yes, I also have an obligation to the city of Camden."
+"this or the other one," During the conversation SA ECELSTON said if he had a moral obligation to the people who he served in his own capacity as a member of his city council, Yes, I also have an obligation to the city of Camden."
 
 SA P.G. MISTON then asked Mr. BILLMAN why would anyone want to break into a draft board now in view of ten years ago that Congress is finally allowing the state to make changes within the Selective Service System and that at the present time no one is being drafted, and that it appears that any action against the draft board appears to be useless at the present time.
 

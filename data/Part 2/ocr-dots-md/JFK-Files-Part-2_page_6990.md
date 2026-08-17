@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6990.png
-
-Convert to Markdownat first was rough and difficult and fraught with suspicion. That has changed.
+at first was rough and difficult and fraught with suspicion. That has changed.
 There's been a sea change as these agencies have realized that release of this
 information is not going to harm our national security, that perhaps it's time
 simply to trust the American people with access to important information about

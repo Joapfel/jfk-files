@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30864.png
-
-Convert to Markdown16 DEC 1970
+16 DEC 1970
 
 MEMORANDUM FOR : Director of Central Intelligence
 

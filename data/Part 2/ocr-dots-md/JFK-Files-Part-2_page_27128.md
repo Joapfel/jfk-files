@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27128.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 On 1 January 1949 a report was submitted to the
 National Security Council at its request by men whom it had

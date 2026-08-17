@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10788.png
-
-Convert to Markdown"friendly" or "neutral" country embassies in Washington in the early 1940's and frequently referred to the fact that this was being done by OSS with knowledge that its jurisdiction in this country was based only on the theory that a foreign Embassy is not American soil and is technically outside the jurisdiction of the FBI, which had full jurisdiction for counterintelligence in the western hemisphere.
+"friendly" or "neutral" country embassies in Washington in the early 1940's and frequently referred to the fact that this was being done by OSS with knowledge that its jurisdiction in this country was based only on the theory that a foreign Embassy is not American soil and is technically outside the jurisdiction of the FBI, which had full jurisdiction for counterintelligence in the western hemisphere.
 
 Our file on the OSS is replete with incidents indicating OSS recruitment and counterespionage activities in this country during the early 1940's.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25714.png
-
-Convert to Markdown# FBI Withheld Data on JFK Slaying
+# FBI Withheld Data on JFK Slaying
 
 By Jack Anderson
 and Les Whitten

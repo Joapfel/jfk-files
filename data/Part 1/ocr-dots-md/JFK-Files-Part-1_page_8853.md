@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8853.png
-
-Convert to Markdown20 May 1965
+20 May 1965
 
 MORatorium FOR: Cl/oa
 ATTENTION : Mr. Lally

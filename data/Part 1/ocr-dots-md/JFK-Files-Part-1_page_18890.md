@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18890.png
-
-Convert to MarkdownForm 1058-1
+Form 1058-1
 
 WAR DEPARTMENT
 STRATEGIC SERVICES

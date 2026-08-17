@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24380.png
-
-Convert to MarkdownMany of the events under consideration occurred as long as fifteen years ago. With one exception, they occurred during the administrations of Presidents now dead. Other high officials, whose testimony might have additional light upon the thorny issues of authorization and control, are also dead. Moreover, with the passage of time, the memories of those still alive have dimmed.
+Many of the events under consideration occurred as long as fifteen years ago. With one exception, they occurred during the administrations of Presidents now dead. Other high officials, whose testimony might have additional light upon the thorny issues of authorization and control, are also dead. Moreover, with the passage of time, the memories of those still alive have dimmed.
 
 The Committee often faced the difficult task of distinguishing refreshed recollection from speculation. In many instances, witnesses were unable to testify from independent recollection and had to rely on documents contemporary with the events to refresh their recollections. While informed speculation is of some assistance, it can only be assigned limited weight in judging specific events.
 

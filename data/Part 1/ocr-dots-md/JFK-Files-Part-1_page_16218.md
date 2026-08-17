@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16218.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th>DATE</th><th>CORP</th><th>AEP</th><th>TLOG</th><th>THE</th></tr></thead><tbody><tr><td>E</td><td></td><td></td><td></td><td>R/C-03</td></tr><tr><td>1</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

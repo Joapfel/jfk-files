@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24988.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE : 6 AUG 63</td><td>30</td><td>S E C R E T</td></tr><tr><td colspan="2">TO : DIRECTOR</td><td rowspan="4"></td></tr><tr><td colspan="2">FROM : DODS</td></tr><tr><td>ACTION: WH 8.</td><td>(WH & IW NOTIFIED AND COPY SLOTTED AT<br/>1715 6 AUG 5P)</td></tr><tr><td>INFO : DCI, D/DCI, DDP, ADDP, SOD 6, DODS/L, DODS 4, CA 2<br/>CA/PEG, CA/PROP, CA/O 4, CI/OPS, CI/IC 2, FI,<br/>FI/D, FI/INT, IW, DD/I, AD/CI 2, RF 2.</td></tr></table>
 

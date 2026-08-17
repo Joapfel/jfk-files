@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18362.png
-
-Convert to Markdown12 September 1947
+12 September 1947
 
 **MEMORANDUM TO:** Chief, Personnel Branch
 Executive for A & M

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26263.png
-
-Convert to Markdown15. The Italian Communist Party is believed to be the "directing" Party" for several Latin America Communist Parties. In your view, how influential is the role of the Italian CP in Latin America.
+15. The Italian Communist Party is believed to be the "directing" Party" for several Latin America Communist Parties. In your view, how influential is the role of the Italian CP in Latin America.
 
 16. What is the effect in Latin America of the Sino-Soviet split and of the crisis in international Communism?
 

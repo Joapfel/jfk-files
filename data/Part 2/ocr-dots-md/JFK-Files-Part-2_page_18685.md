@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18685.png
-
-Convert to MarkdownIV. Newly requested materials; delivery requested by Friday, August 18, 1975:
+IV. Newly requested materials; delivery requested by Friday, August 18, 1975:
 
 A. The following materials referred to in memoranda previously delivered to SSC regarding FBI Legal Attaches:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29345.png
-
-Convert to MarkdownTampa, Fla.
+Tampa, Fla.
 12 Feb 1976
 
 Director of Personnel

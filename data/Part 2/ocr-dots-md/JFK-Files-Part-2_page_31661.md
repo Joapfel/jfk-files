@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31661.png
-
-Convert to MarkdownSF 14 - 207
+SF 14 - 207
 
 BAY AREA PROGRESSIVE LABOR PARTY, aka
 Bay Area Progressive Labor Movement,

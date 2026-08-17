@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25375.png
-
-Convert to Markdown# Roselli Probe
+# Roselli Probe
 
 By RON LABRECQUE
 Original story by Ron Labrecque

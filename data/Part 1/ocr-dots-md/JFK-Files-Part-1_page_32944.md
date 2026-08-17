@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32944.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 3 JMWAVE 6980 SECRET
 

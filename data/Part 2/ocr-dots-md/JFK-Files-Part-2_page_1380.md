@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1380.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 11 June 1954
 

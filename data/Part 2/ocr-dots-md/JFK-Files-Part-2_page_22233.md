@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22233.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Lansdale</td><td>31 Oct 1962</td><td>Mongoose<br>Cuba<br>S G</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Lansdale</td><td>31 Oct 1962</td><td>Mongoose<br>Cuba<br>S G</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

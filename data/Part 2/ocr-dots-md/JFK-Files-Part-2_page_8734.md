@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8734.png
-
-Convert to Markdown13-00000
+13-00000
 
 DIRECTOR 34099 Dated 20 April 1963
 Cable from Hqs. to the Hamb and Fran, stating sabotage program against Cuban shipping of sufficiently high priority to require utilization any appropriate asset.

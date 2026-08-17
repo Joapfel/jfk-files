@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_648.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>CONTINUATION OF DISPATCH</td><td>CLASSIFICATION</td><td>OPERATION SYMBOL AND NUMBER</td></tr></thead><tbody><tr><td></td><td>SECRET</td><td>UFGA-4703</td></tr></tbody></table>
 

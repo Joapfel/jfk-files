@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3133.png
-
-Convert to Markdowna) ¿Se puede decir lo que ha dicho la policía, más bien es a su respecto.
+a) ¿Se puede decir lo que ha dicho la policía, más bien es a su respecto.
 
 b) ¿Al tratarse deriebles enación (en conversación con sus connacionales) es "negro" o "subyضا".
 

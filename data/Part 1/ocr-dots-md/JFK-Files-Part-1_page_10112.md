@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10112.png
-
-Convert to MarkdownEMMA - 33695
+EMMA - 33695
 
 19 December 1967
 

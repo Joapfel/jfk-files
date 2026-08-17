@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9653.png
-
-Convert to Markdown(1)
+(1)
 
 LEVELLER'S CONDOURY
 

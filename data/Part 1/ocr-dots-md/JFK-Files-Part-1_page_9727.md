@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9727.png
-
-Convert to MarkdownSECRET
+SECRET
 
 22Nov68 IN40270
 

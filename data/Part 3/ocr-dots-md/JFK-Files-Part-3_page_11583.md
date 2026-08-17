@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11583.png
-
-Convert to MarkdownAs a result of dissemination of advance information developed
+As a result of dissemination of advance information developed
 by this source, authorities were able to further control
 these demonstrations and reduce the violence arising out of
 such activity.

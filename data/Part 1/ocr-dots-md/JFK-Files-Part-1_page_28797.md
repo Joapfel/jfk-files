@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28797.png
-
-Convert to MarkdownNOTIFICATION OF SECURITY CLEARANCE UNDER E.O. 10450
+NOTIFICATION OF SECURITY CLEARANCE UNDER E.O. 10450
 
 TO: Director, Office of Personnel Attn: Mr. John Orlaway
 

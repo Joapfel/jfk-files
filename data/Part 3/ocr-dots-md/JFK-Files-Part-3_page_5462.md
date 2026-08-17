@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5462.png
-
-Convert to MarkdownJuly 28, 1975
+July 28, 1975
 
 SUPERCEDING REQUEST FOR FBI MATERIALS
 

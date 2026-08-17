@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17117.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, FI
 SUBJECT : Project LIEPTY Amendment

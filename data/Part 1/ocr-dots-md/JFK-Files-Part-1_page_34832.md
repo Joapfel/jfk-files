@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34832.png
-
-Convert to Markdown<table><tr><td>ORIG:</td><td>T.J. FLORES/yb</td></tr><tr><td>UNIT:</td><td>C/WH/C</td></tr><tr><td>DATE:</td><td>7 JUNE 68</td></tr></table>
+<table><tr><td>ORIG:</td><td>T.J. FLORES/yb</td></tr><tr><td>UNIT:</td><td>C/WH/C</td></tr><tr><td>DATE:</td><td>7 JUNE 68</td></tr></table>
 
 C FILE NO:
 C MBOX:

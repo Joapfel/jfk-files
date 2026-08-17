@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25489.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. On 8 July 1970 Mrs. Roos de Alvarez appeared at the main gate of Headquarters building, and subsequently was interviewed by Mr. Paul Leverone, the Security Duty Officer; and a statement was taken from her. Mrs. Roos was given an Agency Security office telephone number for future contact while in the U.S., and on 13 July 1970, her brother, Mr. Maurite Roos, called the Agency and informed us that his sister had returned to Mexico and could be reached there at a certain address, so we are certain that Mr. Roos is aware of the fact that his sister was employed at one time by this Agency in Mexico City.
 

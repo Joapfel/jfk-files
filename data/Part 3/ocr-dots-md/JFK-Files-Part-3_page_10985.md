@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10985.png
-
-Convert to Markdownintelligence Division
+intelligence Division
 
 INFORMATIVE NOTE
 

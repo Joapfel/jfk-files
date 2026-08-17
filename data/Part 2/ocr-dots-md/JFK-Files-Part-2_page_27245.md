@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27245.png
-
-Convert to MarkdownBGG-IV (J)
+BGG-IV (J)
 
 A - Memo to Gray from Cargill - 31 Mar 75 w/attachment which is SECRET
 

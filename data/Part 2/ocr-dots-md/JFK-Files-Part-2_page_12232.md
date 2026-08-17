@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12232.png
-
-Convert to Markdown2. Communications - use of symbols
+2. Communications - use of symbols
 a. After Bureau is advised of the permanent symbol, in subsequent communications true name of informant should not be set forth; use symbol number.
 b. In all communications after the initial letter, Bureau and field office file numbers for informant must be set forth.
 c. In communications between offices, the same procedure is to be followed.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16973.png
-
-Convert to MarkdownSerial number information regarding weapons confiscated by police during the raid as set forth in the LHM are being processed and appropriate action will be taken with respect to possible ARL violation.
+Serial number information regarding weapons confiscated by police during the raid as set forth in the LHM are being processed and appropriate action will be taken with respect to possible ARL violation.
 
 Information set-forth in the enclosed LHM concerning statements by Sergeant DANIEL GROTH with respect to the shooting of Deputy Chairman FRED HAMPTON reflects that HAMPTON was found in the rear bedroom with a loaded .45 pistol in his hand and a shotgun by his side. GROTH advised that an individual appeared in the doorway and later was identified as HAMPTON with both the shotgun and the pistol in his hand firing at police officers. As a result of this, the officers returned the fire, killing HAMPTON.
 

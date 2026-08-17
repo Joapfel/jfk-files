@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10275.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 SUBJECT: Technical Operation Against IDEN-76 Embassy
 in 1971 and 1972

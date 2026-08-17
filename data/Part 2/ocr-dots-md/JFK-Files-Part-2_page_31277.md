@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31277.png
-
-Convert to MarkdownThe 6 Branch also relied upon the CIA's Contacts Division and the FBT as sources of this type of information, as well as collecting information from the State Department and the press concerning Americans in the Soviet Union. (Ibid., p.4)
+The 6 Branch also relied upon the CIA's Contacts Division and the FBT as sources of this type of information, as well as collecting information from the State Department and the press concerning Americans in the Soviet Union. (Ibid., p.4)
 
 During his interview (Casarin) collection of the discussion mentioned in the 25 November 1963 memo was that it took place during the last days of his tenure with the 6 Branch. This would have placed the discussion sometime in July 1962. He stated that he dated him to the discussion in the memos must have been erroneous as he was travelling with his family between assignments in the summer of 1960 and did not begin this assignment until the 6 Branch until September of that year. (Ibid., pp. 4-5)
 

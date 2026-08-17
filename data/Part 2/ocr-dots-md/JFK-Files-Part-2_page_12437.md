@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12437.png
-
-Convert to Markdown# "SECRET - NO FOREIGN DISSEMINATION"
+# "SECRET - NO FOREIGN DISSEMINATION"
 
 **b. Control**
 - of information foreign intelligence services obtain;

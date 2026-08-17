@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3482.png
-
-Convert to MarkdownMiami, 5 April 1964
+Miami, 5 April 1964
 
 FROM: INOCENCIO ALONSO
 TO : AMYUM-19

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6858.png
-
-Convert to Markdown**FORM**
+**FORM**
 3 DEC 56
 
 610 USE PREVIOUS EDITIONS

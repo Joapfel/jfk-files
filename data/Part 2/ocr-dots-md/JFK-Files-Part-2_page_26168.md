@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26168.png
-
-Convert to Markdownand he was not to tell on their bosses or anything, but usually personal worries and concern that waste or something going wrong would affect them. Later they moved in an educator--a military educator--[Paul D.] Harkins, and.
+and he was not to tell on their bosses or anything, but usually personal worries and concern that waste or something going wrong would affect them. Later they moved in an educator--a military educator--[Paul D.] Harkins, and.
 
 O'BRIEN: Well, [Lt. Gen. Lionel C.] McGarr comes in there before that, doesn't he?
 

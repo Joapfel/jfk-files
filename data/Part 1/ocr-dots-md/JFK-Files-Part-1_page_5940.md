@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5940.png
-
-Convert to Markdown<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH NUMBER AND NO.</th></tr></thead><tbody><tr><td></td><td>SECRET<br>MYBAT</td><td>BKUT-14000, 31 January 1962</td></tr></tbody></table>
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH NUMBER AND NO.</th></tr></thead><tbody><tr><td></td><td>SECRET<br>MYBAT</td><td>BKUT-14000, 31 January 1962</td></tr></tbody></table>
 
 Force or Navy has an assigned attaché plane to establish procedures whereby the Air or Naval Attaché will advise COS of any absence of the attaché plane, the point of designation of the aircraft, and the duration of the absence. There have been previous defections where attaché planes were used as the initial vehicle for black evacuation. In the evacuation plan of Stockholm for ARLADLE they informed us by cable that they proposed to use the attaché plane. We are of the opinion that when the statement was made Stockholm made the assumption the plane was immediately available. As was later discovered by us the particular plane in question was at Wiesbaden and not Stockholm. This, however, was some six hours after Stockholm stated its intent to use that aircraft. While in this particular case matters eventually worked out successfully the story might be otherwise in a different set of facts.
 

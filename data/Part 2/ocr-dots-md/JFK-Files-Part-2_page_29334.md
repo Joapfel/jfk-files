@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29334.png
-
-Convert to Markdown**Phillips, page 11.**
+**Phillips, page 11.**
 
 the DGI in Mexico was a man named "LUNA."
 

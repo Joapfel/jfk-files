@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16432.png
-
-Convert to Markdownarms. We therefore believe that all black people should arm themselves for self-defense.
+arms. We therefore believe that all black people should arm themselves for self-defense.
 
 8. We want freedom for all black men held in federal, state, county and city prisons and jails.
 

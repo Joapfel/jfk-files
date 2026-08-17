@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13248.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 And I told them, well, in war innocent people do get killed. If you are going to assassinate the man, the best place to do it is at the front gate when he approaches, and to just, if there is seven or eight jeeps, just to give everyone in all of the seven or eight jeeps, whether they are pro or anti -- if you are going to go ahead and kill him, people are going to get hurt.
 

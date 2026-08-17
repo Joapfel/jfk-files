@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7279.png
-
-Convert to Markdownsigner to administrative and/or legal action under
+signer to administrative and/or legal action under
 appropriate statutes;
 
 5) That there is no time limit on the terms of the agreement.

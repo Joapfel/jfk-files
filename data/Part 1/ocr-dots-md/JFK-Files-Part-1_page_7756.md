@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7756.png
-
-Convert to Markdown12.01.06 Do you have any idea how he feels about prostitutes? Yes
+12.01.06 Do you have any idea how he feels about prostitutes? Yes
 No
 
 12.01.07 If No, do you think he is the type who would go to a prostitute

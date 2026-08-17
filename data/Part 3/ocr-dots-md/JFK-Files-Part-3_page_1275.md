@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1275.png
-
-Convert to Markdown(3) The Department will furnish access at the Hoover Building in Room 4171 to those materials requested:
+(3) The Department will furnish access at the Hoover Building in Room 4171 to those materials requested:
 
 (a) only to the members of the Committee, where it is determined by the Attorney General that the materials involve peculiarly sensitive foreign intelligence sources and ongoing operations.
 

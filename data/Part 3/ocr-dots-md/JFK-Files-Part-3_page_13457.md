@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13457.png
-
-Convert to Markdownamt 20
+amt 20
 
 1. beavers, but my concern now is that they have had the
 2. daylights scared out of them and they will crawl off under

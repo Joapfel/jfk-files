@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3798.png
-
-Convert to Markdownbut it could develop into a problem, if the Communists exploit
+but it could develop into a problem, if the Communists exploit
 it skillfully.
 
 7-I also think that the Security Corps which continues to function under the orders of Montiel, who is also chief of Staff and also a merchant, loses all its efficiency because of the fact that Montiel cannot dedicate sufficient time to the Corps and as a result leaves its direction to Captain Willop, who I think is entirely incompetent for the job.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3229.png
-
-Convert to Markdown1841
+1841
 
 gsl 12
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22274.png
-
-Convert to Markdown681.
+681.
 
 via Naval Intelligence Points in Berlin, Rostock, and Sassnitz, but then said this was a lie he told because he felt his interrogators would not believe him if he had said he successfully turned down an assignment to these points, then closing down, and had travelled directly to Baltiysk. (As pointed out to NOSENKO, the assignment to the cold, damp Baltic climate of a recent TB-sufferer appears unthinkable, particularly when that person is a Government Minister's son; he acknowledged this but said, "There were no other positions available.")
 

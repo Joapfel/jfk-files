@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17290.png
-
-Convert to MarkdownHAN-A-11257
+HAN-A-11257
 KAPOR-1472
 
 d. Prepare monthly activities reports for all projects under his supervision.

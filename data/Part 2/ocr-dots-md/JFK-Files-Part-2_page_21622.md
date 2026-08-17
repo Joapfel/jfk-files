@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21622.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. assignment by the President and by the White House?
 2. Mr. Phillips. Senator, it doesn't make any difference

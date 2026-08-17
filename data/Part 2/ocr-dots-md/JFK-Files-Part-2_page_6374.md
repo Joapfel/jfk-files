@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6374.png
-
-Convert to Markdown33350 Federal Register / Vol. 60, No. 124 / Wednesday, June 28, 1995 / Rules and Regulations
+33350 Federal Register / Vol. 60, No. 124 / Wednesday, June 28, 1995 / Rules and Regulations
 
 records from sources identified in
 paragraphs (a) through (c) of this

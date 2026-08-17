@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21973.png
-
-Convert to Markdownn. Compromise of WILLERFORD
+n. Compromise of WILLERFORD
 
 NOSENKO'S INFORMATION: Frederick WILLERFORD was BARRETT's roommate during the 1959 exhibition in Moscow. Initially he was a target of the local KGB organization for the city of Moscow, which believed WILLERFORD to be an FBI agent and had been collecting materials on him. At the same time and, without knowing of the interest of the local organization, VOLKOV and YEFREMOV had made WILLERFORD'S acquaintance, and NOSENKO had arranged for compromising photographs of WILLERFORD and YEFREMOV in a Moscow hotel room. NOSENKO watched WILLERFORD and YEFREMOV through a two-way mirror and was able to describe the scene in detail. It was only after this compromising material had been obtained that NOSENKO learned of the local KGB's interest in WILLERFORD. NOSENKO's department and the local KGB unit then made a joint request for operational approval to approach WILLERFORD, but permission was refused because of the general ban on recruitment approaches at this time. The case file was retained by the Moscow KGB organization, and NOSENKO did not know whether WILLERFORD has been approached subsequently.
 

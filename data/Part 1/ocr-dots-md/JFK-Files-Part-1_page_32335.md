@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32335.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Continuation of Comments of Reviewing Officer
 

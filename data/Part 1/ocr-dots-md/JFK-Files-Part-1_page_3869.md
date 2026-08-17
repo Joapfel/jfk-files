@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3869.png
-
-Convert to MarkdownDR. MANUEL F. ARTIME
+DR. MANUEL F. ARTIME
 
 (2)
 

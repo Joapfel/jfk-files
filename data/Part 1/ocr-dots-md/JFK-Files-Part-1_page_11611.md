@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11611.png
-
-Convert to MarkdownChief of Station, Eotrut
+Chief of Station, Eotrut
 Chief, NEA
 
 CHILEAN CHIEF'S CHILEAN NEWSPAPER

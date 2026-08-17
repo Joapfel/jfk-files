@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27044.png
-
-Convert to MarkdownIII.
+III.
 
 The following staff members along with the senior staff of the
 Committee are presently working on this aspect of the Select Committee's

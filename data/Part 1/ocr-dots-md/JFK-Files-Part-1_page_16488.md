@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16488.png
-
-Convert to Markdown18 November 1975
+18 November 1975
 
 SUBJECT: Change of Address and Phone of SLANK-1 (S-1)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13875.png
-
-Convert to MarkdownEXCERPT
+EXCERPT
 
 29 APRIL 64
 

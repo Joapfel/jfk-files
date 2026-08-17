@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20980.png
-
-Convert to Markdown# SECRET/SCOPE (S)
+# SECRET/SCOPE (S)
 
 Memorandum to Mr. W. R. Wannall
 Re: Senstudy 75

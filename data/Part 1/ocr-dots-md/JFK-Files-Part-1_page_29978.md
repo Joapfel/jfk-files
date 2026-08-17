@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29978.png
-
-Convert to MarkdownSTATUS & EFFICIENCY REPORT
+STATUS & EFFICIENCY REPORT
 
 Section 6 (contd)
 

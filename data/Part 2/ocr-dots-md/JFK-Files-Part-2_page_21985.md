@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21985.png
-
-Convert to Markdown5. Memo from Chase to Bundy, 4 December 1963.
+5. Memo from Chase to Bundy, 4 December 1963.
 
 Plans for a meeting regarding Cuban policy. John Crimmins will present several options for discussion including unleashing of Cuban exiles and the intensification of the covert program.
 

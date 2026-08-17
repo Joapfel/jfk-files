@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21138.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 that CIA warned BELITSKIY against SHULGINA. The paper noted
 that CIA did not warn BELITSKIY against SHULGINA but BELITSKIY

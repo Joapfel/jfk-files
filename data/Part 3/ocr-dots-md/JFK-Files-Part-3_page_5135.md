@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5135.png
-
-Convert to Markdown3. The following materials pertaining to FBI activities in Mississippi:
+3. The following materials pertaining to FBI activities in Mississippi:
 
 a. All materials reflecting contacts and reports of contacts (and the substance thereof) between and/or among the FBI, the Meridian, Mississippi, or Jackson, Mississippi, police, and A. I. Botnick, from September 1, 1967, to March 31, 1970.
 

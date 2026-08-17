@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18369.png
-
-Convert to MarkdownWILLIAM P. BURKS
+WILLIAM P. BURKS
 
 6300 St. Charles Avenue, New Orleans 15, La.
 

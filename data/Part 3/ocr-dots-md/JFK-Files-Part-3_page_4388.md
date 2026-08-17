@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4388.png
-
-Convert to Markdown# Memorandum for the Attorney General
+# Memorandum for the Attorney General
 
 in December, 1970. It has also furnished information concerning membership figures of the White Panther Party of Michigan as well as the number of individuals who relate to White Panther Party ideas throughout this country. It further ascertained that this organization is in dire need of operating funds, that there is dissension within the organization and furnished the identities of new leaders and members in various White Panther Party chapters in the United States.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3191.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, Soviet Bloc Division
 Chief, Western Hemisphere Division

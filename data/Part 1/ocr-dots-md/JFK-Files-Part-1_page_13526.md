@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13526.png
-
-Convert to MarkdownChief of Base, Burek
+Chief of Base, Burek
 
 Chief of Station, Germany
 

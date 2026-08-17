@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22350.png
-
-Convert to MarkdownWatergate Contacts (continueud)
+Watergate Contacts (continueud)
 
 3. Assistance to E. Howard Hunt re Ellsberg Break-In
 

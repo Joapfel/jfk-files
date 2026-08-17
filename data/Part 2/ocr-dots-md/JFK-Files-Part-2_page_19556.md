@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19556.png
-
-Convert to MarkdownPOLITICAL ACTION IN 1968...
+POLITICAL ACTION IN 1968...
 
 Val Phillips, Wisconsin
 

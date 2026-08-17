@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10812.png
-
-Convert to MarkdownDate: August 25, 1971.
+Date: August 25, 1971.
 
 At approximately 4:35 a.m., the residence at 20 North 4th Street, Camden, N. J., was entered through the front door, which was open, and numerous other FBI agents were already in the house.
 

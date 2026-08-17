@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19563.png
-
-Convert to Markdowndifferent employers; the length of time employed by each;
+different employers; the length of time employed by each;
 salary paid in each instance, and the nature of the work
 performed; whether you resigned voluntarily or were discharged:
 April 1940 to Jan 1942 Employed as Clerk - Federal Bureau

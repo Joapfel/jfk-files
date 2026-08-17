@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21305.png
-
-Convert to Markdown4-41 (Rev. 1-25-61)
+4-41 (Rev. 1-25-61)
 
 CLASSIFIED BY Street 50/102
 DECLASSIFIED/ CN: 25X

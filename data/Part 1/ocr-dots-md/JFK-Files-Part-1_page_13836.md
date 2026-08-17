@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13836.png
-
-Convert to Markdown9. Mother
+9. Mother
 
 a) Address: Fasaje Jose 10410 entre 3a y Fin 1,
 San Juan de los Linos, playas de San riguel

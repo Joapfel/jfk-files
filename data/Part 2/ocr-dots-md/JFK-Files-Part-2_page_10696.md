@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10696.png
-
-Convert to MarkdownNY 52-10018-G
+NY 52-10018-G
 
 Scars
 

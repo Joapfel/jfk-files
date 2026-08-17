@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19820.png
-
-Convert to MarkdownUNITED STATES GO RNMENT
+UNITED STATES GO RNMENT
 Memorandum
 
 TO DIRECTOR, FBI

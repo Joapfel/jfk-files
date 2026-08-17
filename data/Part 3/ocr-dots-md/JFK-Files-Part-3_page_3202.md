@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3202.png
-
-Convert to Markdown1814
+1814
 
 COINTELPRO activities were required to send in status letters and report in annual results.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23998.png
-
-Convert to Markdownthe Army Attache without further informing any member of the Department of Defense of the White House. This possibility would be contrary to the sworn testimony of David Phillips, William Broe, Thomas Karamessines, and William Colby. Fourth, members of the White House staff authorized the CIA to convey orders to the Army Attache on the basis of high or highest government authority. Further, that the White House staff directed that the Army Attache's superiors in the Pentagon not be informed. This possibility would contradict the sworn testimony of Dr. Kissinger and General Alexander Haig.
+the Army Attache without further informing any member of the Department of Defense of the White House. This possibility would be contrary to the sworn testimony of David Phillips, William Broe, Thomas Karamessines, and William Colby. Fourth, members of the White House staff authorized the CIA to convey orders to the Army Attache on the basis of high or highest government authority. Further, that the White House staff directed that the Army Attache's superiors in the Pentagon not be informed. This possibility would contradict the sworn testimony of Dr. Kissinger and General Alexander Haig.
 
 ## D. The False Flag Base
 

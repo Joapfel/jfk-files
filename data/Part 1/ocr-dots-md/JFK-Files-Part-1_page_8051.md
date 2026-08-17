@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8051.png
-
-Convert to Markdownand keep friends with the FED (Federación Estudiantil Universidadaria) of Habana University, the Masonic youth movement of the AJLF, and various schools, and universities throughout the island.
+and keep friends with the FED (Federación Estudiantil Universidadaria) of Habana University, the Masonic youth movement of the AJLF, and various schools, and universities throughout the island.
 
 C. They carried out certain demonstrations or propaganda in support of the communist "Plan Cubano contra la Crisis" and the "Conferencia en Defensa de la Economía Nacional."
 

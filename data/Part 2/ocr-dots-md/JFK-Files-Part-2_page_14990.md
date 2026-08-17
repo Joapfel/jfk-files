@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14990.png
-
-Convert to MarkdownCOMMUNIST PARTY, USA
+COMMUNIST PARTY, USA
 
 The Communist Party, USA, is operating in an
 atmosphere of optimism as a result of the March 3, 1967,

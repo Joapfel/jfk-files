@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18232.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Page two of Cover Sheet
 

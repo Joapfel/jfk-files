@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5416.png
-
-Convert to Markdown8. Being a businessman in his own right, the business community with which he has dealt through the Chamber of Commerce and his bank will always have a dialogue with him and therefore will find him receptive to their suggestions and endeavours;
+8. Being a businessman in his own right, the business community with which he has dealt through the Chamber of Commerce and his bank will always have a dialogue with him and therefore will find him receptive to their suggestions and endeavours;
 
 9. Having dealt with elements of the actual regime who have his confidence, he will be able to control them in a way which will avoid unnecessary hardships should someone else - a complete stranger to them - be in a position of Government leadership;
 

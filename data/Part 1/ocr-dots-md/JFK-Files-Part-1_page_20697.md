@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20697.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="3">NOTIFICATION OF ESTABLISHMENT OR CANCELLATION<br>OF OFFICIAL COVER BACKSTOP</th><th>7 MAY 1975</th><th>FIL No.</th></tr></thead><tbody><tr><td rowspan="2">TC:<br>(Check)</td><td>X</td><td>CHIEF, CONTROL DIVISION, OF</td><td>CS NUMBER<br>391-24-4032</td><td rowspan="2">2500</td></tr><tr><td></td><td>CHIEF, CONTRACT PERSONNEL DIVISION, OF</td><td>EMPLOYEE NUMBER<br>024345</td></tr><tr><td></td><td>X</td><td>CHIEF, OPERATING COMPONENT (For action)</td><td>TO CARD NUMBER<br>LA</td><td></td></tr><tr><td colspan="2">ATTN:</td><td colspan="2">CHIEF SUPPORT STAFF</td><td></td></tr><tr><td colspan="2">REF:</td><td colspan="2">RETIREMENT</td><td>ESTABLISHED<br>X DISCONTINUED</td></tr><tr><td colspan="2">SUBJECT</td><td colspan="2">DAVID ATLEE PHILLIPS</td><td>UNIT<br>DEPARTMENT OF STATE</td></tr></tbody></table>
 

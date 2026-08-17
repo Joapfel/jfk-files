@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7199.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IMORANDUM FOR THE FILES
 

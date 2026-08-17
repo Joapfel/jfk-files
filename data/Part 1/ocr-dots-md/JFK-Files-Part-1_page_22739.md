@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22739.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Completed)
 
 5. I have been advised that, in the event I am called upon by the properly constituted authorities to testify or provide information which I am pledged hereby not to disclose, I will notify the Organization immediately; I will also advise said authorities of my secrecy commitments to our government and will request that my right or need to testify be established before I am required to do so.

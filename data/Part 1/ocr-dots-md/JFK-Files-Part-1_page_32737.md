@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32737.png
-
-Convert to Markdown# OUTGOING MESSAGE
+# OUTGOING MESSAGE
 
 <table><tr><td colspan="10">BORDERMESSAGE ONLY</td></tr><tr><td>CLASS: </td><td>SECRET</td><td>DATE-THIS GROUP: </td><td>CITY: </td><td>MESSAGE REFERENCE NUMBER: </td><td>DATE OF PUBLICATION: </td></tr><tr><td></td><td></td><td></td><td>CIA/DDO</td><td></td><td></td></tr></table>
 

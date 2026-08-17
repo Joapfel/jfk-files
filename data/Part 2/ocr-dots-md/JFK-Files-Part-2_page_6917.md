@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6917.png
-
-Convert to MarkdownThe Board's decisions are to be final unless the President himself intervenes to insist that some piece of information not be released. The bill giving the Board its powers is to "take precedence over any other law, judicial decision ..., or common law doctrine" that might be in conflict.
+The Board's decisions are to be final unless the President himself intervenes to insist that some piece of information not be released. The bill giving the Board its powers is to "take precedence over any other law, judicial decision ..., or common law doctrine" that might be in conflict.
 
 My comments on this bill are mostly cautionary. I question whether any legislation can achieve all that this bill seeks to achieve. I question giving to a court-appointed Review Board such broad responsibilities and powers. I believe that a Review Board differently selected, with a more limited mandate, could do a better job.
 

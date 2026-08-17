@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23039.png
-
-Convert to Markdown1
+1
 
 Mr. Baron. Did you ever hear any discussion to the
 effect that the Agency was attempting to achieve through Artime

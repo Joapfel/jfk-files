@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22592.png
-
-Convert to MarkdownSEP 30 1975
+SEP 30 1975
 
 CIA
 

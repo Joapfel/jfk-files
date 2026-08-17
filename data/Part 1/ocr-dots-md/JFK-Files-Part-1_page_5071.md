@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5071.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">01588 BY IID DEC JCR</td>
     <td></td>

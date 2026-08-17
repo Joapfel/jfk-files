@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8660.png
-
-Convert to MarkdownCOPIES MADE
+COPIES MADE
 
 USSR, Moscow
 

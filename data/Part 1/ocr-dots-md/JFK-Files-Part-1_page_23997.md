@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23997.png
-
-Convert to Markdown<table><thead><tr><th>FORM<br>5-60<br>(40)</th><th>CLASSIFICATION<br>S-E-C-R-B-T</th><th>PAGE NO.</th></tr></thead><tbody><tr><td>USE PREVIOUS EDITION.</td><td></td><td>2</td></tr></tbody></table>
+<table><thead><tr><th>FORM<br>5-60<br>(40)</th><th>CLASSIFICATION<br>S-E-C-R-B-T</th><th>PAGE NO.</th></tr></thead><tbody><tr><td>USE PREVIOUS EDITION.</td><td></td><td>2</td></tr></tbody></table>
 
 14-00000
 

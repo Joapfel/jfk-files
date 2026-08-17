@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2926.png
-
-Convert to Markdown13-00000
+13-00000
 
 TOP SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15208.png
-
-Convert to MarkdownMrs. Elbet isaves' brother's first wif
+Mrs. Elbet isaves' brother's first wif
 (friends)
 
 Mr & Mrs Dr. Louis Elbet

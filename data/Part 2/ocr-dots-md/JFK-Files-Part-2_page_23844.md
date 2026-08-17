@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23844.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The second issue is we have proposed that covert actions be funded either by line item or by the contingency reserve.
 

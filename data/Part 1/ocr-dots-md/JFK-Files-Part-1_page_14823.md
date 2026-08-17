@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14823.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">PERSON/UNIT</td>

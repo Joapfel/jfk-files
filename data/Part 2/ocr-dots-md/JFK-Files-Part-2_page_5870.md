@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5870.png
-
-Convert to Markdown* Russ Holmes Working Files to be completed and a declassified version transferred to NARA by December 1998.
+* Russ Holmes Working Files to be completed and a declassified version transferred to NARA by December 1998.
 
 * Mexico City tapes (186) to be completed and transferred to NARA by September 1999. [CIA-IR-15]
 

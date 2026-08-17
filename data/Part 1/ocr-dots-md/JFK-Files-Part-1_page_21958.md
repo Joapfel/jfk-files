@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21958.png
-
-Convert to MarkdownD.C., to report on observations enroute and while there. RYTOVA is married to a man who works in one of the military offices in Moscow and is a captain or a major. They have one daughter, approximately 14 years old.
+D.C., to report on observations enroute and while there. RYTOVA is married to a man who works in one of the military offices in Moscow and is a captain or a major. They have one daughter, approximately 14 years old.
 
 -Yevgeniya ("Jane") DANKO: KGB cryptonym "OKSANA." She worked in the American Express Company office in Moscow for Arsens FRIPPEL and later for FRIPPEL's successor, Michael JELISAVCIC.* DANKO was handled by I.A. KONSTANTINOV from about 1955 to 1957 and was then turned over to NOSENKO. She reported on JELISAVCIC, who was not approached, according to NOSENKO.
 

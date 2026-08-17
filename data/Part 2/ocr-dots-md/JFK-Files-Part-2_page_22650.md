@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22650.png
-
-Convert to Markdown1 that there is no forum which can adjudicate issues in the
+1 that there is no forum which can adjudicate issues in the
 2 intelligence community of a counter-intelligence nature.
 3 I may have allegations, very firm, that relate to somebody in
 4 high office. But there isn't anyone, ombudsman or somebody, to

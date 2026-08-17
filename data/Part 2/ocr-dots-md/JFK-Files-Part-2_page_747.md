@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_747.png
-
-Convert to Markdown<table><thead><tr><td>NAME OF EMPLOYEE (Last, First, Middle)</td><td>NAME AND RELATIONSHIP OF DEPENDENT</td><td>CLAIM NUMBER</td></tr></thead><tbody><tr><td>FOX, Jerome</td><td>Self</td><td>74-0096</td></tr></tbody></table>
+<table><thead><tr><td>NAME OF EMPLOYEE (Last, First, Middle)</td><td>NAME AND RELATIONSHIP OF DEPENDENT</td><td>CLAIM NUMBER</td></tr></thead><tbody><tr><td>FOX, Jerome</td><td>Self</td><td>74-0096</td></tr></tbody></table>
 
 There is on file in the Personal Affairs Branch, Benefits and Services Division, Office of Personnel, an Official Disability Claim File on the above named employee (or his dependent*) for an illness, injury, or death incurred on 30 June 1973.
 

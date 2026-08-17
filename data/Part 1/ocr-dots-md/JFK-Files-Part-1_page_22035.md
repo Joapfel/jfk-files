@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22035.png
-
-Convert to Markdown**Question:** JENNER left on the 31st.
+**Question:** JENNER left on the 31st.
 
 **KOSOLAKO:** I don't know. I don't know. I don't know. Maybe this is a mistake of Finnish officials. I don't know, but he was on the same train and he was returning from Helsinki with Paul JENNER. The same train,
 

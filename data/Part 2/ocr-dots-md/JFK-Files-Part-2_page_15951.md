@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15951.png
-
-Convert to Markdowncrushed pregnant Black women to death! A system that keeps us on a reservation and the bureaucrats who uphold and perpetuate this system don't give a damn if bread is on the reservation or not! What is ironic when we try to get off the reservation, they think they are justified in killing us!
+crushed pregnant Black women to death! A system that keeps us on a reservation and the bureaucrats who uphold and perpetuate this system don't give a damn if bread is on the reservation or not! What is ironic when we try to get off the reservation, they think they are justified in killing us!
 
 "If Black people or a handful in essence--one in every ten thousand should be given franchises to set up a monstrous machine in the Black colony it would be a counterpart to the tyrannical white Anglo Saxon's. Who would they exploit! It is understandable while the pig (sic) NIXON so readily endorsed Black Capitalism. Are we so blind until we cannot see that this is just another smoke screen to deny us of total equality?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30316.png
-
-Convert to MarkdownSwitzerland.
+Switzerland.
 
 The Chairman. And when you were placed under arrest,
 where were you placed in detention?

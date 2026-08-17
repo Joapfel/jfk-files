@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13961.png
-
-Convert to Markdown(4) That U. S. intelligence personnel be assigned
+(4) That U. S. intelligence personnel be assigned
 to overseas posts where best use can be made
 of their language abilities.
 

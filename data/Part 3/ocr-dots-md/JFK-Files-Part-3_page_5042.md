@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5042.png
-
-Convert to Markdown<table><thead><tr><th></th><th></th></tr></thead><tbody><tr><td>4-3 (Nov. 12-14-64)</td><td>Tel:cn</td></tr><tr><td>AIRGRAM ☐ CABLEGRAM XXXRADIO ☐ TELETYPE</td><td>Becinat</td></tr><tr><td></td><td>Mohr</td></tr><tr><td></td><td>DeLoach</td></tr><tr><td></td><td>Casper</td></tr><tr><td></td><td>Callahan</td></tr><tr><td></td><td>Conrad</td></tr><tr><td></td><td>Felt</td></tr><tr><td></td><td>Gale</td></tr><tr><td></td><td>Rosen</td></tr><tr><td></td><td>Sullivan</td></tr><tr><td></td><td>Tavel</td></tr><tr><td></td><td>Trotter</td></tr><tr><td></td><td>Tele. Room</td></tr><tr><td></td><td>Holmes</td></tr><tr><td></td><td>Gandy</td></tr></tbody></table>
+<table><thead><tr><th></th><th></th></tr></thead><tbody><tr><td>4-3 (Nov. 12-14-64)</td><td>Tel:cn</td></tr><tr><td>AIRGRAM ☐ CABLEGRAM XXXRADIO ☐ TELETYPE</td><td>Becinat</td></tr><tr><td></td><td>Mohr</td></tr><tr><td></td><td>DeLoach</td></tr><tr><td></td><td>Casper</td></tr><tr><td></td><td>Callahan</td></tr><tr><td></td><td>Conrad</td></tr><tr><td></td><td>Felt</td></tr><tr><td></td><td>Gale</td></tr><tr><td></td><td>Rosen</td></tr><tr><td></td><td>Sullivan</td></tr><tr><td></td><td>Tavel</td></tr><tr><td></td><td>Trotter</td></tr><tr><td></td><td>Tele. Room</td></tr><tr><td></td><td>Holmes</td></tr><tr><td></td><td>Gandy</td></tr></tbody></table>
 
 # DECODED COPY
 

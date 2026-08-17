@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13889.png
-
-Convert to MarkdownFORM 1903
+FORM 1903
 11-57
 
 (40

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9105.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 G. BURRIS ELLIS
 

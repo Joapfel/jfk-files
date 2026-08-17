@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11539.png
-
-Convert to MarkdownGautemala, 29. December, 1963.
+Gautemala, 29. December, 1963.
 
 Carlos,
 

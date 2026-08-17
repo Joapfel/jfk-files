@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10211.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 sonic alarm system, entering a vault, and entering a safe within the vault. The purpose of the operation was to determine whether the individual had any unauthorized classified information in his possession.

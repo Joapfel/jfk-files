@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10455.png
-
-Convert to Markdown<table><tr><td>10-1376</td></tr></table>
+<table><tr><td>10-1376</td></tr></table>
 
 **REPORT NO:** CO-4(6) 3, 252,678
 

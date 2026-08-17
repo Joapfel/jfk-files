@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7955.png
-
-Convert to MarkdownDECADE OF ASSASSINATIONS
+DECADE OF ASSASSINATIONS
 
 1963 – 1973
 

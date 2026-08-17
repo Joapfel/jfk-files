@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4353.png
-
-Convert to MarkdownLUKE A. HARRIS, milliardaire y C-3 viajo cienbro del Partido Comunista vevo en Valles yMAXIM Gómez
+LUKE A. HARRIS, milliardaire y C-3 viajo cienbro del Partido Comunista vevo en Valles yMAXIM Gómez
 
 Rafael Giraldo, connections por Capilla, milliardaire, trabaja en la agencia benaventura de Ojuela No. 30F-71, del sector vive en el barriolimits y Primera en el Residential barrioque.
 

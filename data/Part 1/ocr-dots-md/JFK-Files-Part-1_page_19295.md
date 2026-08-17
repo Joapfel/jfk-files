@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19295.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 4 January 1960
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2357.png
-
-Convert to Markdown# International Conference on Vietnam
+# International Conference on Vietnam
 
 Stockholm was the scene of the International Conference on Vietnam held from July 6 through July 9, 1967. The World Peace Council, an international communist front organization, was one of the principal organizers of this conference. Among the 452 persons who attended the conference were delegates from communist countries. Among those present from the United States were: CPUSA National Committee member; the Women's International League for Peace and Freedom; and, then an official of the National Conference of New Politics.
 

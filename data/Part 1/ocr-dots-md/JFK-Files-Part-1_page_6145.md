@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6145.png
-
-Convert to Markdown15. July 1975
+15. July 1975
 
 MEMORANDUM FOR: Freedom of Information Officer, DDO
 SUBJECT: Phillip A. Singerman

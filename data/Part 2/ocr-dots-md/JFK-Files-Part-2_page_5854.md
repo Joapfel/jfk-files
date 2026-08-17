@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5854.png
-
-Convert to MarkdownAttachment V. Tab 1
+Attachment V. Tab 1
 
 JFK Assassinations Records Review Board Requests
 for Additional Information and Records

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9663.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 ROY FRANKHOUSER
 133 South Fourth Street

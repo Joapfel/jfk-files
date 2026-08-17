@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11921.png
-
-Convert to MarkdownEach of the more than 1300 brigade members has been
+Each of the more than 1300 brigade members has been
 the subject of a security investigation which includes the
 identification and obtaining of background data as well as
 a personal interview with each brigade member. These

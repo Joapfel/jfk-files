@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5446.png
-
-Convert to Markdown4. Provent the return to the Haitian political scene of such "rabblerouser" so-called leaders as Daniel Fignole and Henri Vixamar;
+4. Provent the return to the Haitian political scene of such "rabblerouser" so-called leaders as Daniel Fignole and Henri Vixamar;
 
 5. Start the ground work for free elections as soon as possible.
 Mr. Charles feels that although it will probably be impossible to prevent acts of reprisals during the first 72 hours of the military take over, strong efforts should be made to avoid unnecessary bloodshed.

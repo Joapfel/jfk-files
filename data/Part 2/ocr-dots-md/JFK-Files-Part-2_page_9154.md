@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9154.png
-
-Convert to MarkdownFEDERAL JREAU OF INVESTIGATION
+FEDERAL JREAU OF INVESTIGATION
 
 <table>
     <tbody>

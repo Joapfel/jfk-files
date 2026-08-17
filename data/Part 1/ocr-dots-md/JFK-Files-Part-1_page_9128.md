@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9128.png
-
-Convert to MarkdownU. S. Steel Company
+U. S. Steel Company
 525 Mallinckrodt Place
 Pittsburgh, Pennsylvania
 

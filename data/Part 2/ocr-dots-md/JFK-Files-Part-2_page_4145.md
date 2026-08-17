@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4145.png
-
-Convert to Markdownoverthrow Castro. General LeMay wondered why we did not use
+overthrow Castro. General LeMay wondered why we did not use
 bombings. There was also a discussion of Navy and Air Force
 programs to protect raiders in international waters and in the
 event of hot pursuit. It was agreed that further planning would be

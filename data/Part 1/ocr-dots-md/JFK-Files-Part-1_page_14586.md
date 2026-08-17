@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14586.png
-
-Convert to Markdownfainting spells and overweight. These conditions are being treated by Dr. HERNANDEZ (fna) and Dr. MATA (fnu).
+fainting spells and overweight. These conditions are being treated by Dr. HERNANDEZ (fna) and Dr. MATA (fnu).
 
 24. Nilda is a pleasant woman who has not been known to quarrel with her husband or express political or religious opinions, although once she recited the Lord's Prayer by heart in front of others. A teacher by profession, she handles the bookkeeping at the Embassy on an informal basis. She appears to have a rather weak character, judging from the way she handles her boys. According to Severina ORTIZ Gomez, the maid, these are little beasts who treat the servants badly, even reviling them with obscenities, while referring to their mother as "la chula." Nilda does not permit the boys to be punished.
 

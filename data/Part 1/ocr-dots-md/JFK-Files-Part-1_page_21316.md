@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21316.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 13. UNGCV-258391 FEB 26 1976 1:00 PM
 

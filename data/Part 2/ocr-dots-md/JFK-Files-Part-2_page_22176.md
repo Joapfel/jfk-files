@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22176.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 Nester-SANCHEZ
 Robert F. KENNEDY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21255.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 however, he denied intimacies with the Soviet woman or agreement to collaborate with the KGB.
 

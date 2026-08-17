@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17711.png
-
-Convert to Markdown1 Februaury 1957
+1 Februaury 1957
 
 REORDER FROM: F/IPS - Projects Branch
 SUBJECT: Amendment to Project LIFETAT

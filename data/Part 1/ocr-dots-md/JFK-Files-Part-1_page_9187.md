@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9187.png
-
-Convert to MarkdownSECRET
+SECRET
 
 re STALIN PHOTO-BOOK
 From CFW's Log for 17 May 1951

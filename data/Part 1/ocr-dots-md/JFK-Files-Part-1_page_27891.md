@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_27891.png
-
 to the principal officer in handling matters of great complexity in an over overseas area. In the face of overwhelming pressures, Mr. Keenan demonstrated uncommonly good judgment and decisiveness in channeling resources toward the accomplishment of operational assignments, thereby helping to attain Agency objectives during a period of turmoil.</td>
         </tr>
         <tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20276.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="15">AES: 24 JUNE 1960</th></tr><tr><td colspan="13">NOTIFICATION OF PERSONNEL ACTION</td></tr><tr><th colspan="3">1 Serial No.</th><th colspan="3">2 Name (Last-First-Middle)</th><th colspan="3">3 Date Of Birth</th><th colspan="3">4 Yr. Old</th><th colspan="3">5 Sen</th><th colspan="3">6 CS-FOB</th></tr><tr><td>Mo.</td><td>Dg.</td><td>Yr.</td><td>Mo.</td><td>Dg.</td><td>Yr.</td><td>Peso.</td><td>Ky</td><td>Jn</td><td>St</td><td>Sa</td><td>Di</td><td>M</td><td>L</td><td>Pri</td><td>Pri</td><td>Tty</td><td>Rty</td></tr></thead><tbody><tr><td>527630</td><td></td><td></td><td>HIDALGO B N JR</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><th colspan="13">8 CSC Retd.</th><th colspan="3">9 CSC Or Other Legal Authority</th><th colspan="3"></th></tr><tr><th>Mo</th><th>Dg</th><th>Yr</th><th colspan="2">Yes. 1</th><th colspan="2">Code</th><th colspan="2">10 Aprt. Adm</th><th colspan="2">11 FEBRUARY</th><th colspan="2">12 NOV</th><th colspan="2"></th><th colspan="2">13 Mar - Jun</th><th colspan="2">Code</th></tr><tr><td>07</td><td>16</td><td>46</td><td>No.-2</td><td>1</td><td></td><td>50 USCA 403</td><td>A</td><td>Yes-1<br/>No-2</td><td>Code</td><td>Mo</td><td>Feb</td><td>Apr</td><td>May</td><td>Jun</td><td>Jul</td><td>Aug</td><td>Yes-1<br/>No-2</td><td>2</td></tr></tbody></table>
 

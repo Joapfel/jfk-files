@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8825.png
-
-Convert to Markdown# LAD (Cuba) Task Force to Investigate
+# LAD (Cuba) Task Force to Investigate
 ## Assassination of President Kennedy
 
 019-604-001

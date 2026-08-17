@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23704.png
-
-Convert to Markdownis not secret or clandestine and is available to the CIA and it
+is not secret or clandestine and is available to the CIA and it
 would be their job to compile it.
 
 And that does not exclude other functions. For example,

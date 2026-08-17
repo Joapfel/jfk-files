@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24081.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR THE RECORD
 

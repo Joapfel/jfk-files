@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21794.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 because several of the ~~AMUTS~~ were trained and several of them
 who were brought out of Cuba, because several of them were in

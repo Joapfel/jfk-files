@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27145.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 IV. RECOMMENDATIONS
 

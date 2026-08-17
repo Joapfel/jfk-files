@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8277.png
-
-Convert to Markdownname and whether she is married or not. L-1 should also mention to LOG the fact that he met Alla while waiting for him. Depending on the findings L-1 should consider inviting Alla to his house for lunch one Sat or Sun and take her with his wife and child to the Parque Asturiano to spend the afternoon. I told L-1 that I would pay for the expenses for lunch and possible entertainment. L-1 will discuss the matter with me before doing anything.
+name and whether she is married or not. L-1 should also mention to LOG the fact that he met Alla while waiting for him. Depending on the findings L-1 should consider inviting Alla to his house for lunch one Sat or Sun and take her with his wife and child to the Parque Asturiano to spend the afternoon. I told L-1 that I would pay for the expenses for lunch and possible entertainment. L-1 will discuss the matter with me before doing anything.
 
 11. L-1 reported that he had a 90 minutes talk with Karel WENDEL ( see Attachment) and I debriefed him on the same. There were very few facts which were not covered in the previous report on WENDEL.
 

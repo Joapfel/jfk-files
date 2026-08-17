@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14042.png
-
-Convert to Markdown- 79 -
+- 79 -
 
 Penkovskiy (for example, dropping a roll of tinfoil wrapped microfilm into a baby carriage pushed by the wife of a Britisher in a London park). The DCI said that apparently the Soviet officer's cooperation was motivated by an emotional resentment of the fact that he had been passed over in promotions. According to Mr. McCone, the officer was probably uncovered as a result of Soviet penetration of British intelligence, and it is known that he had no access to CIA or FBI. Mr. Coyne asked whether CIA or Penkovskiy had initiated the contact with CIA, and whether he could have been planted. Mr. McCone replied that CIA was of course worried about the possibility of a plant but decided that such was not the case.
 

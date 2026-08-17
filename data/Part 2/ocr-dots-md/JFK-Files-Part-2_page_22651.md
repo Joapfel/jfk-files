@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22651.png
-
-Convert to MarkdownWard & Paul
+Ward & Paul
 
 760011453
 

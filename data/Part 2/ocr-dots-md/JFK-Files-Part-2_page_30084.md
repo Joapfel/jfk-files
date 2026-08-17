@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30084.png
-
-Convert to MarkdownFebruary paid in March!
+February paid in March!
 
 DATE: March 8, 1977
 OFFICE NAME: Select Comm. on Assassinations

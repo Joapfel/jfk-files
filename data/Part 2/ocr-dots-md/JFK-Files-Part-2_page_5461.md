@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5461.png
-
-Convert to MarkdownAPR 15 '97 05:02PM
+APR 15 '97 05:02PM
 
 SECRET
 

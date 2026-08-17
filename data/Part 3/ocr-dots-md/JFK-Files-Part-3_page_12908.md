@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12908.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SA BY SSC
+RE: INTERVIEW OF RETIRED FBI SA BY SSC
 
 "Q. The appropriate administrative portion of such report would have so indicated.
 

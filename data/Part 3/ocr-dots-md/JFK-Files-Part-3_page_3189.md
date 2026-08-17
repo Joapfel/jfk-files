@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3189.png
-
-Convert to Markdowngsh 10
+gsh 10
 
 For what purpose have they been kept and has the Bureau ever undertaken to destroy or prune down any of these records?
 

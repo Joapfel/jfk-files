@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16856.png
-
-Convert to MarkdownJustice, Washington, D. C., where the registration state-
+Justice, Washington, D. C., where the registration state-
 ment of China Books and Periodicals, 2929-24th Street,
 San Francisco, 10, California, as an agent of Guozi
 Shudian of Peking, China, is available for inspection.

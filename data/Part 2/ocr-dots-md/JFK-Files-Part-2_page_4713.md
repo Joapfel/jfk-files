@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4713.png
-
-Convert to MarkdownSECRET
+SECRET
 
 when he was in Vietnam and she was in Vietnam. So I really don't know. Other people say that Bill was just being a good novice. Some people said he's going to end up in the monastery some day, even though he's got a new wife and all that, new company, and what have you. But, I've had all kinds of interpretations, but I don't even know if Bill knows why.
 

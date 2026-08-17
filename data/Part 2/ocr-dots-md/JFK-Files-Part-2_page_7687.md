@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7687.png
-
-Convert to MarkdownMr. ROWLEY. I think there are certain things that you have to allow the man who is operating as a politician, and not as head of state. I mean this makes a difference in your operation.
+Mr. ROWLEY. I think there are certain things that you have to allow the man who is operating as a politician, and not as head of state. I mean this makes a difference in your operation.
 
 Mr. RANKIN. Chief Rowley, did you give us a report of the activities in protecting the President at and around Parkland Hospital?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23387.png
-
-Convert to Markdown1. Mr. Tweedy. I expected this would result in a dialogue between the Station and ourselves as to what might be feasible.
+1. Mr. Tweedy. I expected this would result in a dialogue between the Station and ourselves as to what might be feasible.
 2.
 3. Mr. Baron. You were hoping?
 4. Mr. Tweedy. Gottlieb assisting the Chief of Station in his explorations.

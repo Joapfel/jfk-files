@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6320.png
-
-Convert to Markdown(d) sound and video recordings;
+(d) sound and video recordings;
 
 (e) machine readable information in any form; and
 

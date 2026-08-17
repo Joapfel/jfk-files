@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15745.png
-
-Convert to MarkdownWE DEMAND COMMUNITY CONTROL OF POLICE
+WE DEMAND COMMUNITY CONTROL OF POLICE
 
 We who live in Chicago, State of Illinois, must face an increasingly evident truth: we have no control over the institutions which govern our lives. For our survival and the survival of our freedoms, we must now demand control of these forces, particularly that one which we confront daily in our communities and which often makes the final decision regarding our lives. . . or deaths: the POLICE DEPARTMENT.
 

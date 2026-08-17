@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26675.png
-
-Convert to MarkdownD. C. ORAC POBL.
+D. C. ORAC POBL.
 D.P. N. REGIDON.
 
 ESTUDIO DE PRODUCCIONES.

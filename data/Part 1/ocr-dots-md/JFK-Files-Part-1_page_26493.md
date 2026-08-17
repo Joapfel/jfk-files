@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26493.png
-
-Convert to MarkdownC-J-N-P-I-D-J-N-T-I-e-l-
+C-J-N-P-I-D-J-N-T-I-e-l-
 
 ### C. Mexico to Czechoslovakia
 

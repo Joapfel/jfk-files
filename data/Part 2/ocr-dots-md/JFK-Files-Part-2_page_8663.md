@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8663.png
-
-Convert to MarkdownSECRET
+SECRET
 
 June 1977
 

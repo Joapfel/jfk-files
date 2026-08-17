@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29822.png
-
-Convert to MarkdownCITIZENSHIP
+CITIZENSHIP
 
 25 February 1968
 

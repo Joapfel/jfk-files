@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35318.png
-
-Convert to MarkdownHE RECIBIDO de "Judicatura Cubana Democrática la canti-
+HE RECIBIDO de "Judicatura Cubana Democrática la canti-
 dad de Ciento cuarenta y diez collares de cada uno
 importe de la asignación correspondiente al presente---
 mes.

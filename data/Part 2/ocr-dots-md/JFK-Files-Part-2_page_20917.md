@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20917.png
-
-Convert to MarkdownAL 100-22702
+AL 100-22702
 
 # NONSYMBOL SOURCE
 ## ADMINISTRATIVE PAGE.

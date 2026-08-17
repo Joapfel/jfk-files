@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31327.png
-
-Convert to MarkdownGPO: 1975 O - 57-255
+GPO: 1975 O - 57-255
 
 PAYROLL AUTHORIZATION FORM
 (Please Use Typewriter

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26863.png
-
-Convert to Markdown#87
+#87
 
 PERSOAL & TELEPHONE INFORMATION
 

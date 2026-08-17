@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25422.png
-
-Convert to Markdown23 January 1970
+23 January 1970
 
 Subject: World Associates (Hugh McDonald, Proprietor)
 

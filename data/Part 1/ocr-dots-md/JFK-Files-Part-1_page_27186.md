@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27186.png
-
-Convert to MarkdownSECRET
+SECRET
 SECURITY INFORMATION
 
 MEMORANDUM FOR: Special Assistant, Intelligence

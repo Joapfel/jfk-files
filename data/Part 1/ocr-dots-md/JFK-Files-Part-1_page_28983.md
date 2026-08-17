@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28983.png
-
-Convert to Markdown15 June 1974
+15 June 1974
 
 LUCIE CURIE
 

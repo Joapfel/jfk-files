@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6357.png
-
-Convert to MarkdownMr. W. C. Sulliván
+Mr. W. C. Sulliván
 
 J. J. Ballgardner
 

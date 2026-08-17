@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18885.png
-
-Convert to MarkdownUNITED STATES DEPARTMENT
+UNITED STATES DEPARTMENT
 Memorandum
 
 TO : DIRECTOR, FBI (105-28333)

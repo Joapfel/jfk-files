@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32460.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EXCERPT FROM DRAFT NIE 85-63, 4 FEBRUARY 1963
 

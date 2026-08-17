@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21331.png
-
-Convert to MarkdownSAC, New Orleans
+SAC, New Orleans
 
 9/23/60
 

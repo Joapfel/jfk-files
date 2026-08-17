@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3121.png
-
-Convert to Markdownthe FBI had been subjected to public scrutiny.
+the FBI had been subjected to public scrutiny.
 
 As painful as this process is, I hope the FBI itself
 would welcome the opportunity to let in some fresh air and

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10731.png
-
-Convert to Markdown# 1/Emorandum
+# 1/Emorandum
 
 TO: Director, FBI
 FROM: SAC, New Orleans

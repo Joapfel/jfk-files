@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7973.png
-
-Convert to MarkdownSECRET
+SECRET
 
 31. There was also a speech by Robert Salzman who was long-winded and technical. No useful coverage available.
 

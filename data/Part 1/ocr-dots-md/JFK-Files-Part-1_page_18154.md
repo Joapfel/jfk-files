@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18154.png
-
-Convert to Markdown14-00000
+14-00000
 
 14. An approved by Headquarters, the present LIENTRAP vehicle will be replaced by a new Ford "Econoline" truck in the near future. Before the old LIENTRAP vehicle is sold, it will be used to cover residences of the USPEAL/NYXIS opposition who are living in Mexico City.
 

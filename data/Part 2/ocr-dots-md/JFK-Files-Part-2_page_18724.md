@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18724.png
-
-Convert to Markdown# FBI
+# FBI
 
 Date: 7/8/59
 

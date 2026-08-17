@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28350.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Edward G. Tichborn
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31116.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① 12 Aug. 1960 Memo to Chief, Contact Division
 from: Chief: N.Y. Office

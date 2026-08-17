@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35279.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIG</td>
     <td>H.F.SWENSON: B&amp;B</td>

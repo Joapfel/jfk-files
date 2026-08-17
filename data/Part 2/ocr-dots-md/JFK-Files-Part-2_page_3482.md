@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3482.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The photograph was being reviewed for clearer guide lines as to construction time. He said he saw no reason to change the mid-'63 estimate of 125 to 150 launching sites, but there might be reason to change the future estimate. Dr. Langer asked how many sites there were with 18 pads and Mr. McCone replied, "Only one."
 

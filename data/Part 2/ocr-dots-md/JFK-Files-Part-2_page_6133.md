@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6133.png
-
-Convert to MarkdownAPR 04 '97 10:01AM
+APR 04 '97 10:01AM
 
 56 Md. L. Rev. 1, *5
 

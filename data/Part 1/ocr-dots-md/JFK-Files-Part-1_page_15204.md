@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15204.png
-
-Convert to MarkdownHow is Zouguette? And Sophie? I hope that you still see her
+How is Zouguette? And Sophie? I hope that you still see her
 and so tell her that I would really be happy to get a few lines
 from her, if she has no objections. Since I can't write her directly,
 you would be very kind to pass to her any answer I may write. It's

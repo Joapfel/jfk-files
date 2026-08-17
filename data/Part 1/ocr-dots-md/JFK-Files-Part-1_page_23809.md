@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23809.png
-
-Convert to Markdown**Asián-Africán Journalists' Association**
+**Asián-Africán Journalists' Association**
 (Persanían Wartawan Asia - África)
 
 Sources: Press House - Jakarta

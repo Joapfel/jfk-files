@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11335.png
-
-Convert to MarkdownThus, in discharging our basic responsibilities in the internal
+Thus, in discharging our basic responsibilities in the internal
 security field, it is imperative that information concerning member
 of the military services be referred immediately to the appro-
 priate branch having primary responsibility for its personnel.

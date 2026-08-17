@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19741.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 PAGE FOUR
 

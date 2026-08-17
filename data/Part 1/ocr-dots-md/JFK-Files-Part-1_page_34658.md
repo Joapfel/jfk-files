@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34658.png
-
-Convert to Markdown(2) Commando action as outlined in plan presented to me on 6 October.
+(2) Commando action as outlined in plan presented to me on 6 October.
 
 ### 3. Commando Plan
 

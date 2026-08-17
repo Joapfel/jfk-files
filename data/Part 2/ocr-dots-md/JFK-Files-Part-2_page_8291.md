@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8291.png
-
-Convert to MarkdownWednesday, August 4, 1965
+Wednesday, August 4, 1965
 
 # Julie Andrews Signed for Hitchcock Film
 

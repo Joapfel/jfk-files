@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22314.png
-
-Convert to Markdown1959. NOSENKO never mentioned that KOSOLAPOV, who he said was his immediate subordinate and shared NOSENKO'S office in KGB headquarters, was a member of this same delegation.
+1959. NOSENKO never mentioned that KOSOLAPOV, who he said was his immediate subordinate and shared NOSENKO'S office in KGB headquarters, was a member of this same delegation.
 
 NOSENKO did not know where ABIDIAN's office was located in the U.S. Embassy. He said he did not know and was unable to find out who ABIDIAN's secretary was. He reported that some agent told the KGB that ABIDIAN had a sign on the door of his office which said "Security Officer." There was no such sign.
 

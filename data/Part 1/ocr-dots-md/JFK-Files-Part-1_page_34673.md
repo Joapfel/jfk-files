@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34673.png
-
-Convert to MarkdownG. Support
+G. Support
 
 1. Bases
 

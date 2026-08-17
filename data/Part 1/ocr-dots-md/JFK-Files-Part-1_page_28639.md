@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28639.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 **ARTICLE XIII. Orders and Directives.** Orders and Directives received by the Employee from competent authority, including instructions received in briefing and training, shall be complied with by the Employee. No promises or commitments to the Employee of any nature whatsoever, beyond and in addition to the terms hereof, shall be binding on the Government unless and until such promise or commitment is reduced to writing and approved by an authorized official of CIA, and such writing placed with this contract there-by becoming an amendment hereto.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22895.png
-
-Convert to MarkdownMoore Mc Cormack Lines
+Moore Mc Cormack Lines
 
 GSMusulin/bm
 DCS/Operational Support Staff

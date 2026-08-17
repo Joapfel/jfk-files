@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19080.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 All of the above information came forth as was expressing his inability to understand why ABC had recalled him from Hong Kong. It was not possible to explore in depth the associations and activities of during his assignment in Hong Kong due to the short duration of the interview. However, this former informant expressed a continued willingness to cooperate with the Bureau to furnish information on a confidential basis.
 

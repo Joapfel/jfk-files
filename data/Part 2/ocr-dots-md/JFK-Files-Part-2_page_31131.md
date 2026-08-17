@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31131.png
-
-Convert to MarkdownDepartment filed a formal protest, but Langelle was told to leave the Soviet Union within three days. He left the Soviet Union in early October 1959.
+Department filed a formal protest, but Langelle was told to leave the Soviet Union within three days. He left the Soviet Union in early October 1959.
 
 Langelle first became aware of Lee Harvey Oswald when he heard in a conversation that a Marine had contacted the American consular office in Moscow to renounce his citizenship. He later heard that this individual had changed his mind and was returning to the United States. He does not recall the details of these conversations, but he believes they took place in the United States.
 

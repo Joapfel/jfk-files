@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23758.png
-
-Convert to Markdownlast and not a routine procedure. It is also intended to
+last and not a routine procedure. It is also intended to
 underline the Committee position that covert action again in
 the exceptional nature should be used only when other means
 will not do.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25692.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG: Anita Potocki
 UNIT: F1/D

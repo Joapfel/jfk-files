@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16916.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Suggest an alternative plan for the escape of the POWs and their captors.
 

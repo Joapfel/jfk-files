@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20468.png
-
-Convert to Markdownlow incomes who cannot afford to pay for a lawyer. A similar service for low-income workers is provided by the Tacoma Legal Assistance Office, 150 South "M" Street, Tacoma.
+low incomes who cannot afford to pay for a lawyer. A similar service for low-income workers is provided by the Tacoma Legal Assistance Office, 150 South "M" Street, Tacoma.
 
 2. **DO NOT GO TO COURT ALONE** and do not call the creditor without legal advice, or they may help you to confess judgment against yourself; and you can lose your wages and your case without any evidence or trial or opportunity to testify. Do not sign a confession of judgment without your lawyer's advice.
 

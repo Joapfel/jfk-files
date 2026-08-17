@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10036.png
-
-Convert to Markdown4/20/87
+4/20/87
 
 RECEIVED
 TELEYPERMUMIT

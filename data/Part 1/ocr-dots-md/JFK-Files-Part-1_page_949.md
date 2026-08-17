@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_949.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td><input type="checkbox"/> NOLY<br/><input type="checkbox"/> NO INDEX<br/><input type="checkbox"/> FILE IN CS FILE NO.</td></tr><tr><td style="vertical-align: top;"><table><tr><td>1267</td></tr><tr><td colspan="2">ROUTING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table></td><td style="vertical-align: top;"><div style="text-align: center;">DEFERRED</div><div style="text-align: center;">ROUTINE</div></td></tr></tbody></table>
 

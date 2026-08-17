@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16496.png
-
-Convert to Markdown# What Police Institutes Are About
+# What Police Institutes Are About
 
 The pigs are coming down on the people. The racist power structure is getting “aptight” because large numbers of black, brown and white people are understanding what this country and the pigs are all about. The more we understand, the harder we fight. And the harder we fight, the greater is the threat to the political, economic and social control of this country by the racist power structure. And when the people in power feel threatened they respond in the only way they can—with force and violence.
 

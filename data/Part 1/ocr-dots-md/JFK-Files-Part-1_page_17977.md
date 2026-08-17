@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17977.png
-
-Convert to Markdown<table><tr><td colspan="2">CONTINUATION OF<br/>DISPATCH</td></tr><tr><td>STAFF REPORTS</td><td>RE-10-05<br/>1967</td></tr></table>
+<table><tr><td colspan="2">CONTINUATION OF<br/>DISPATCH</td></tr><tr><td>STAFF REPORTS</td><td>RE-10-05<br/>1967</td></tr></table>
 
 **d. Security**
 

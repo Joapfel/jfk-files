@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17636.png
-
-Convert to MarkdownAttachment to IBM-A-10198
+Attachment to IBM-A-10198
 KAPOR-1401
 
 c. **Equipment**

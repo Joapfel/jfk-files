@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6353.png
-
-Convert to Markdown**Recommend:** Delete items (d) and (e). Subpart (a) should be confined to documents created by agencies (vice used) during their declassification review.
+**Recommend:** Delete items (d) and (e). Subpart (a) should be confined to documents created by agencies (vice used) during their declassification review.
 
 The inclusion of generic categories of information, i.e., those created independent of the assassination investigation(s) and review effort, appears to be a calculated effort to gain access to significant areas of information that are protected by other laws (i.e., circumvention of the FOIA.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1808.png
-
-Convert to Markdown# Coordination
+# Coordination
 
 We note your intention to abolish the present office of the
 Assistant for Coordination and to create in its stead an Assistant

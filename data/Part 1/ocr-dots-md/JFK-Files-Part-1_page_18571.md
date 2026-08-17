@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18571.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Request for Quality Step Increase
 Mr. Calvin W. HICKS, GS-13 (056361)

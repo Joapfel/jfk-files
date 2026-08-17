@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_961.png
-
-Convert to Markdown# Technical Corrections By NaraID
+# Technical Corrections By NaraID
 
 05-Oct-99
 

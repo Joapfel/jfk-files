@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3475.png
-
-Convert to MarkdownANWORLD Meeting in San Juan, P. R., 2-5 May 1964
+ANWORLD Meeting in San Juan, P. R., 2-5 May 1964
 
 SUBJECT: The Nature of the American Commitment
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35478.png
-
-Convert to Markdown11. On May 2, 1954, F/P Charlene, called on July 30 to be sent to Company C in New York City. It arrived at the airport and was met by Charles, who called a few minutes later and asked where he was. Charles told him that he had run out of gas and could not go any further. He called the New York station to tell them that he would return to the city when he had more gas. While waiting for some help from the other stations, Charles waited until he was sure to have it before leaving the area.
+11. On May 2, 1954, F/P Charlene, called on July 30 to be sent to Company C in New York City. It arrived at the airport and was met by Charles, who called a few minutes later and asked where he was. Charles told him that he had run out of gas and could not go any further. He called the New York station to tell them that he would return to the city when he had more gas. While waiting for some help from the other stations, Charles waited until he was sure to have it before leaving the area.
 
 On April 6, Charles called back to find out how his friends were doing. His first call was to Bill, who was in the hospital. The second one was to Bob, who was in the hospital with a broken arm. His third was to Joe, who was in the hospital with a broken foot. His fourth was to John, who was in the hospital with a broken leg. He also called the Red Cross for help, but they didn't help because they thought Charles was still at home, which was not true.
 

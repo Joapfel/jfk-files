@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22681.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Angleton. He knew, because even before I went into
 this I told him what I was going to do, and he agreed, and

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1740.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>Communist Political Association, its subdivisions, subsidiaries, and affiliates, including:</td>
     <td>Alabama People's Educational Association<br/>Florida Press and Educational League<br/>Oklahoma League for Political Education<br/>People's Educational and Press Association of Texas<br/>Virginia League for People's Education</td>

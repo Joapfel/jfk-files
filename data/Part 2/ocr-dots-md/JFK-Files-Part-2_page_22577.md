@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22577.png
-
-Convert to MarkdownSECRET
+SECRET
 
 phase out of this activity at the end
 of the month. They'll turn it over to

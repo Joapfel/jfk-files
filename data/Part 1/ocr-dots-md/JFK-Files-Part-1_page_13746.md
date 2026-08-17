@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13746.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>ACTION:</td><td>DATE:</td></tr><tr><td>INFO:</td><td>FILE:</td></tr><tr><td colspan="2">CLASSIFICATION</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>ACTION:</td><td>DATE:</td></tr><tr><td>INFO:</td><td>FILE:</td></tr><tr><td colspan="2">CLASSIFICATION</td></tr></table>
 
 <html><body><table><tr><td rowspan="2">DEFERRED</td><td>PRIORITY</td><td>INITIALS</td><td>DIG</td><td rowspan="2">INCOMING NUMBER</td></tr><tr><td>OPERATIONAL IMMEDIATE</td><td>INITIALS</td><td></td></tr></table></body></html>
 

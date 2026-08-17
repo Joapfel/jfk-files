@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21793.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 instructions. I handled them for a long time.
 

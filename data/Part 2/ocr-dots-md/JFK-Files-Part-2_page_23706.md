@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23706.png
-
-Convert to MarkdownMr. Kirbow. And the bracketed information, Mr. Chairman,
+Mr. Kirbow. And the bracketed information, Mr. Chairman,
 was that I didn't feel at the time we considered this and I
 asked that it be bracketed, that the Attorney General who is
 never going to operate in this area alone, he is not going

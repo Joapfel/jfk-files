@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24843.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DATE:</td>
     <td>27 Sept. 1966</td>

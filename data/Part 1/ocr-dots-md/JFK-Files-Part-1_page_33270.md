@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33270.png
-
-Convert to MarkdownCABLE SEC. CODED BY PER
+CABLE SEC. CODED BY PER
 
 TOTAL COPY SUN BY
 

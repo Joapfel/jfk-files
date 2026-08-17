@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6721.png
-
-Convert to MarkdownRENE P. GUITART (RODRIGO'S)
+RENE P. GUITART (RODRIGO'S)
 was business representative of in Santiago
 & several conditions firm
 

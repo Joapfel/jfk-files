@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22711.png
-
-Convert to Markdownnegotiate peace, and let war stand aside while the people of
+negotiate peace, and let war stand aside while the people of
 
 # Two Ex-Majors Arrested in Cuba As CIA Agents
 

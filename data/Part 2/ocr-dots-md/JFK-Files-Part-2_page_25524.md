@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25524.png
-
-Convert to MarkdownML: No he was not.
+ML: No he was not.
 
 FS: Do you know the name of the two agents that made the entry?
 

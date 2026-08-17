@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30100.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 <table><tr><td colspan="10">NOTIFICATION OF PERSONNEL ACTION</td></tr><tr><td>WTS:13 MAY 1960</td><td colspan="8"></td></tr><tr><td rowspan="2">1. Send No.</td><td>2. Name (Last,First,Middle)</td><td>3. Date Of Birth</td><td>4. Ver. Pref.</td><td>5. Sex</td><td colspan="3">6. CS-FOD</td></tr><tr><td>KIMSEY HERMAN E</td><td>Mo. 12 Ds. 11 Yr. 16</td><td>Nons. 0 5 Pr-1 10 Pt-2</td><td>Cado 1 M 1</td><td colspan="3">Mo. 03 Ds. 23 Yr. 53</td></tr><tr><td rowspan="2">7. SD</td><td>8. CSC Retd.</td><td>9. CSC Or Other Legal Authority</td><td>10. Apat. Affidav.</td><td>11. H.G.I.</td><td>12. LCD</td><td colspan="3">13. Bill. Data, Credit, etc.</td></tr><tr><td>Yes-1 Code Yes-2 Code</td><td>No.</td><td>Yes-1 Code</td><td>Yes-2 Code</td><td>Yes-1 Code</td><td>Yes-2 Code</td><td>Yes-1 Code</td><td>Yes-2 Code</td></tr><tr><td>MS. TO.</td><td>DS TO</td><td>MS. FROM</td><td>SDS FROM</td><td>SDS TO</td><td>SDS FROM</td><td>SDS TO</td><td>SDS FROM</td><td>SDS FROM</td></tr></table>

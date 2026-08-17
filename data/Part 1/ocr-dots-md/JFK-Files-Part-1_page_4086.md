@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4086.png
-
-Convert to MarkdownSECRET
+SECRET
 
 W/C 65-403
 19 July 1965

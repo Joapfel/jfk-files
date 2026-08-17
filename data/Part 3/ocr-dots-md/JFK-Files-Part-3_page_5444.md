@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5444.png
-
-Convert to MarkdownMemorandum to Mr. W. O. Cregar
+Memorandum to Mr. W. O. Cregar
 Re: Senstudy 75
 
 Item 6. Three Special Agents, Neil Rice, Larry McWilliams, and John McCaffrey, attended this Soviet Operations course at CIA Headquarters. The course ran from May 14 to May 25, 1973. Special Agent McCaffrey only attended one week while Rice and McWilliams attended for two weeks.

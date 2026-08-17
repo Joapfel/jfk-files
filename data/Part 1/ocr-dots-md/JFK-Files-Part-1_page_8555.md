@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8555.png
-
-Convert to Markdownin Cuernavaca; the son speaks only Russian and English and LOG is looking forward to the fact that his son will be obliged to speak english all day; LOG's wife speaks a little Spanish and there will be no problem for her and Josephine to understand each other. S promised to be there.
+in Cuernavaca; the son speaks only Russian and English and LOG is looking forward to the fact that his son will be obliged to speak english all day; LOG's wife speaks a little Spanish and there will be no problem for her and Josephine to understand each other. S promised to be there.
 
 12. Last moment assignment for S; LOG hold an info that TANG speaks Russian. If S succeeds to verify this fact LOG would like to know where did TANG learn Russian.
 

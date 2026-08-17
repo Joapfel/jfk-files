@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22320.png
-
-Convert to Markdown727.
+727.
 
 NOSENKO said that the Bulgarian service became aware of LUNT's homosexual tendencies only after he saw LUNT'S name or heard it mentioned; he recognized the name as that of a professor who had been assessed as a homosexual when earlier visiting Moscow, and traces with the KGB Second Chief Directorate confirmed that this was the same man. In statements made to U.S. authorities after the approach, LUNT said he had had homosexual relations at least five different times with a Bulgarian during an earlier trip to Sofia. LUNT gave this Bulgarian travellers' checks, which the latter planned to sell on the blackmarket, was on one occasion stopped on the street with him by a Bulgarian civil police-man, and corresponded with him in the interim between his first visit and the one during which the approach took place. LUNT had written the Bulgarian homosexual that he was returning to Sofia before arriving on the second occasion.
 

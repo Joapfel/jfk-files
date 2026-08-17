@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19564.png
-
-Convert to MarkdownWASHINGTON CULTURAL ASSOCIATION
+WASHINGTON CULTURAL ASSOCIATION
 
 On February 23, 1960, a meeting reported the Communist Party (CP), Northwest District Committee, at a meeting in January, 1960, decided to prepare for opening a cooperative bookstore and directed the CP State Board to set up a Party committee for this purpose.
 

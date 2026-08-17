@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14606.png
-
-Convert to MarkdownCIN-18, 21 July 1960, F. M. D., in
+CIN-18, 21 July 1960, F. M. D., in
 
 Huehueten, Calakmul
 

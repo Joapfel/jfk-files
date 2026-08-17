@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2532.png
-
-Convert to Markdown14 November 1977
+14 November 1977
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 

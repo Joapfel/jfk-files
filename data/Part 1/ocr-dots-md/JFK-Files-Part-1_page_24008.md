@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24008.png
-
-Convert to MarkdownGroups have placed ads in the magazine. What did they pay for the space? How?
+Groups have placed ads in the magazine. What did they pay for the space? How?
 
 38. Any info on GIBSON contacts with members of the pro-Chinese Communist Party of Switzerland (formerly disallowed PDT of Montréal).
 

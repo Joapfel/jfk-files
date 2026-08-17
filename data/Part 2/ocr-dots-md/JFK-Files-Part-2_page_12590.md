@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12590.png
-
-Convert to Markdown(3)] When all logical leads have been exhausted in case of important [security subject,]consider requesting Bureau authority to circularize all field offices with subject's photograph and background information.
+(3)] When all logical leads have been exhausted in case of important [security subject,]consider requesting Bureau authority to circularize all field offices with subject's photograph and background information.
 
 [4.] Individuals traveling abroad (Also see section 105G, volume IV, of this manual.)
 

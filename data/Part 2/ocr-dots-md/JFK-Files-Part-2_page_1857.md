@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1857.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET
 (When P Ille d In)

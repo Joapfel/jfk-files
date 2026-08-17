@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2384.png
-
-Convert to MarkdownSECRET
+SECRET
 
 knew and was in contact with other officers of the First Section and GOLITSYN has attributed his knowledge of certain cases or activities of the First Department, SCD, primarily to his association with certain officers in the First Department, SCD.
 

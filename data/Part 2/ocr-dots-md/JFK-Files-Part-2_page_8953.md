@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8953.png
-
-Convert to MarkdownSource #1 Source #2
+Source #1 Source #2
 
 said, but under the given circumstances of how and acquired the information, certain discrepancies should be expected.
 

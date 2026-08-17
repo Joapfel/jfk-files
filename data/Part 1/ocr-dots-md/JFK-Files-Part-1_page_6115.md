@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6115.png
-
-Convert to MarkdownJUL 28 7 27 AH '75
+JUL 28 7 27 AH '75
 
 22 July, 1975
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5164.png
-
-Convert to MarkdownUJIGUI, J. MESSAGE
+UJIGUI, J. MESSAGE
 
 SIGNAL CANTEN U.S. ONLY
 

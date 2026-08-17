@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2433.png
-
-Convert to MarkdownDE 66-9
+DE 66-9
 
 8. Bureau letter to Boston, 5/31/61, captioned
    "SAM SURVEY, ESPIONAGE - R"

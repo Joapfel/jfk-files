@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3248.png
-
-Convert to MarkdownIrving Amron
+Irving Amron
 260 Marshall Court
 Long Branch, New Jersey
 

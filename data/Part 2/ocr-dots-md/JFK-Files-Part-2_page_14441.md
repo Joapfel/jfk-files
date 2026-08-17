@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14441.png
-
-Convert to Markdown(b) The interim report suggested by paragraph 3 of Mr. Karamessines' memo.
+(b) The interim report suggested by paragraph 3 of Mr. Karamessines' memo.
 
 7. **Annex C.**
 

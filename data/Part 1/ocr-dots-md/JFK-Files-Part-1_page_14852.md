@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14852.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG</td><td>George Fill</td></tr><tr><td>UNIT</td><td>SR/DCB</td></tr><tr><td>EXT</td><td>8331</td></tr><tr><td>CAT.</td><td>21.723-2577</td></tr></table>
 

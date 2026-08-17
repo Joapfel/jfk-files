@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7748.png
-
-Convert to Markdown10.04.05
+10.04.05
 
 Does he play chess?
 If Yes, do you know he is good believe he is probably good

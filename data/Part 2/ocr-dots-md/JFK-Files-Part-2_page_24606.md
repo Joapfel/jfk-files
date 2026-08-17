@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24606.png
-
-Convert to MarkdownSince Helms did not claim any higher specific authorization for or knowledge of the AM/LASH assassination plot, however, the additional issue posed by that testimony does not really arise.
+Since Helms did not claim any higher specific authorization for or knowledge of the AM/LASH assassination plot, however, the additional issue posed by that testimony does not really arise.
 
 (continued)
 

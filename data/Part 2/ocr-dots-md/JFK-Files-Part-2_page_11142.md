@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11142.png
-
-Convert to Markdownd. Other Mariaray Dictionary groups
+d. Other Mariaray Dictionary groups
 
 A long-established, top secret organization would come under this category if it is the Proletarian Party of America, a relatively small organization.
 

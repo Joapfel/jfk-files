@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4230.png
-
-Convert to MarkdownSTORY
+STORY
 
 recession had created a body of opinion among the military, the Security
 Forces and the public that would carry off a coup and establish a new

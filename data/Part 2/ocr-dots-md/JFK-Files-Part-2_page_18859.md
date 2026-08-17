@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18859.png
-
-Convert to Markdownat one time or another in the surveillance on foot and three different
+at one time or another in the surveillance on foot and three different
 automobiles were used at various times. Surveillance agents and
 automobiles were interchanged frequently and according to the agents,
 no situation arose indicating that their surveillance had been in

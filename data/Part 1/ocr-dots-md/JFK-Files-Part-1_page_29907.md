@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29907.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">CONFIDENTIAL FUNDS PERSONNEL ACTION</td></tr><tr><td>NAME<br/>MURPHY, David Edward</td><td>DATE<br/>27 February 1950</td></tr><tr><td>NATURE OF ACTION<br/>Amendment to Transfer of<br/>Officer</td><td>EFFECTIVE DATE<br/>13 February 1950</td></tr><tr><th>TITLE</th><th>FROM</th><th>TO</th></tr><tr><td>GRADE AND SALARY</td><td>Intell. Officer (Ops) GS-12<br/>08-12 $6600.00</td><td>Intell. Officer (Ops) 08-12 Soviet<br/>08-12 $6600.00</td></tr><tr><td>OFFICE</td><td>OBO</td><td>OBO</td></tr><tr><td>DIVISION</td><td>PIL</td><td>PIL - 738</td></tr><tr><td>BRANCH</td><td></td><td>Intell. Ops Branch</td></tr><tr><td>OFFICIAL STATION</td><td>Yokohama</td><td>Yokohama</td></tr></table>
 

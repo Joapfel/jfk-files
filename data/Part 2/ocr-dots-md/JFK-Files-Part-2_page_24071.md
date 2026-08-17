@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24071.png
-
-Convert to MarkdownHelms, who had considerable experience as a covert operator, gave precisely the opposite meaning to the same words, interpreting them as conveying authority for assassination.
+Helms, who had considerable experience as a covert operator, gave precisely the opposite meaning to the same words, interpreting them as conveying authority for assassination.
 
 Helms repeatedly testified that he felt that explicit authorization was unnecessary for the assassination of Castro in the early 1960's, but he said he did not construe the intense pressure from President Nixon in 1970 as providing authority to assassinate anyone. As Helms testified, the difference was not that the pressure to prevent Allende from assuming office was any less than the pressure to remove the Castro regime, but rather that "I had already made up my mind that we weren't going to have any of that business when I was Director."
 

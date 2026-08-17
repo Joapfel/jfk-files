@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5456.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 It should be emphasized that the above exceptions
 are the result of a preliminary review of the request. It is

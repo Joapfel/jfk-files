@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21601.png
-
-Convert to MarkdownINTERVIEW AND MEETING SUMMARY
+INTERVIEW AND MEETING SUMMARY
 
 The accepted view at CIA was that it was impor-
 tant to determine if there was foreign support or

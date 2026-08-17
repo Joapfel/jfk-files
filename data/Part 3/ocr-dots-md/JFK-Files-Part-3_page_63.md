@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_63.png
-
-Convert to MarkdownSECRET
+SECRET
 
 STANDARD SUBFILE LIST
 FOR FOREIGN COUNTRIES

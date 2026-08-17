@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14243.png
-
-Convert to MarkdownMr. Bannerman stated that the prescribed procedure was followed on
+Mr. Bannerman stated that the prescribed procedure was followed on
 the question of possible exploitation. State Department people discussed this
 with counterintelligence officers in CIA (including Mr. Angelton) and it was
 decided that no exploitation was possible because the Soviets had undoubtedly

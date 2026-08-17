@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24657.png
-
-Convert to Markdownb. 1965: April. Subject was Fidel Castro's interpreter during the latter's tear of the Soviet Union. The file contains many photos of the two with all the big-wigs of the USSR. The event was reported in El Mundo with a picture of Subject, Fidel, etc. on 8 May 65.
+b. 1965: April. Subject was Fidel Castro's interpreter during the latter's tear of the Soviet Union. The file contains many photos of the two with all the big-wigs of the USSR. The event was reported in El Mundo with a picture of Subject, Fidel, etc. on 8 May 65.
 
 c. 1965: May. Subject was observed in a meeting with a former Mexican army captain Lorenzo CARDENAS barajas who was supposed to be an arms snapper to the Guatemala guerillas. A station inspired article appeared in the 31 May 65 edition of Atletico, Mexican newspaper, accused Subject and Cardenas of being the key figures in Central American revolution plans. The source of the information was attributed to a former lawyer exiled from Cuba. The article was picked up and played in the 31 May 65 edition of El Imparcial. A photo copy of the article is in Vol. 3 of Subject's file attached to MMA 33295, 16 Oct 65.
 

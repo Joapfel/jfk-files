@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2194.png
-
-Convert to MarkdownRESUME
+RESUME
 
 U. S. GOVERNMENT SERVICE
 

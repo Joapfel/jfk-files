@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8681.png
-
-Convert to Markdown4.10.03 Comparado con la mayorfa, cama,
+4.10.03 Comparado con la mayorfa, cama,
 
 Mis rápido ____ Mis despacio ____ A igual velocidad ____
 

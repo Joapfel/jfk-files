@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13989.png
-
-Convert to Markdowncases whether involving U. S. military personnel or civilians; and another recommendation dealing with the criteria for selection of the heads of sensitive agencies such as the NSA. The Chairman stated that these proposed recommendations would be taken up at the next Board meeting.
+cases whether involving U. S. military personnel or civilians; and another recommendation dealing with the criteria for selection of the heads of sensitive agencies such as the NSA. The Chairman stated that these proposed recommendations would be taken up at the next Board meeting.
 
 Chairman Clifford directed Board members' attention to the report and recommendations which had been completed by the Board Panel on Signals Intelligence. There was agreement with Mr. Clifford's suggestion that the report and its recommendations be forwarded to Mr. Bundy for consideration and action with the agencies involved, rather than presenting this complex subject to the President today.
 

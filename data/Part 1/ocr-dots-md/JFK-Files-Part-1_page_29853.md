@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29853.png
-
-Convert to Markdown# MEMORANDUM FOR THE RECORD.
+# MEMORANDUM FOR THE RECORD.
 
 David E. Murphy
 

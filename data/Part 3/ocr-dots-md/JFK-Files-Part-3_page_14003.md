@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14003.png
-
-Convert to MarkdownSECRET
+SECRET
 
 I have known for some time, as I told you, that there are people in this Government, most particularly in the State Department, who enjoy harassing CIA in the press. I think, although I cannot prove it, that they have not been inclined to pass up this opportunity.
 

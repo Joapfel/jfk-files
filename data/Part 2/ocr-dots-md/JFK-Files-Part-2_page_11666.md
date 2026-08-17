@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11666.png
-
-Convert to Markdown[[(3)] Letters advising the Bureau of changes are to be set up as indicated:
+[[(3)] Letters advising the Bureau of changes are to be set up as indicated:
 
 | Page No. | City         | Deleted             | Added          | Remarks      |
 | :------- | :----------- | :------------------ | :------------- | :---------- |

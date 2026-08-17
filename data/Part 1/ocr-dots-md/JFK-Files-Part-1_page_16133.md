@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16133.png
-
-Convert to Markdown<table><thead><tr><td colspan="2">7-71 WFG. 2/75</td></tr></thead><tbody><tr><td>CABLE SEC DISSEMS BY</td><td>PER</td></tr><tr><td>TOTAL COPIES</td><td>RUN BY</td></tr><tr><td></td><td>SECRET</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td></td></tr><tr><td colspan="2">ADVANCE COPY ISSUED SLIPPED</td></tr><tr><td>ACTION UNIT</td><td>BY AT</td></tr><tr><td rowspan="3">ACTION #</td><td>RF FILE VR</td></tr><tr><td></td></tr><tr><td>INFO</td></tr><tr><td>STAFF</td><td></td></tr><tr><td></td><td>1 4</td></tr><tr><td></td><td>2 5</td></tr><tr><td></td><td>3 6</td></tr></tbody></table>
+<table><thead><tr><td colspan="2">7-71 WFG. 2/75</td></tr></thead><tbody><tr><td>CABLE SEC DISSEMS BY</td><td>PER</td></tr><tr><td>TOTAL COPIES</td><td>RUN BY</td></tr><tr><td></td><td>SECRET</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td></td></tr><tr><td colspan="2">ADVANCE COPY ISSUED SLIPPED</td></tr><tr><td>ACTION UNIT</td><td>BY AT</td></tr><tr><td rowspan="3">ACTION #</td><td>RF FILE VR</td></tr><tr><td></td></tr><tr><td>INFO</td></tr><tr><td>STAFF</td><td></td></tr><tr><td></td><td>1 4</td></tr><tr><td></td><td>2 5</td></tr><tr><td></td><td>3 6</td></tr></tbody></table>
 
 T 504725 EIA377
 

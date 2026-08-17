@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7283.png
-
-Convert to Markdown4.03.03 Eyeglass lens Thick ____ Average ____ Bifocal ____
+4.03.03 Eyeglass lens Thick ____ Average ____ Bifocal ____
 
 4.03.04 Eyeglass style Heavy frame ____ Rimless ____
 Average frame ____ Contact lens ____

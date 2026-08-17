@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9628.png
-
-Convert to MarkdownProject III listed the end of this chapter may make it possible for the organization to contact you and render assistance should you ever find it necessary to go into hiding with little advance notice.
+Project III listed the end of this chapter may make it possible for the organization to contact you and render assistance should you ever find it necessary to go into hiding with little advance notice.
 
 Project IV is a first step toward learning more about your enemies and at the same time, confusing them as to which side you are really on.
 

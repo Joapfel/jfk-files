@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7897.png
-
-Convert to MarkdownCaption on Folder or File: (Print)
+Caption on Folder or File: (Print)
 
 ATTORNEY GENERAL
 (SUBMISSION OF MEMORANDA BY FBI)

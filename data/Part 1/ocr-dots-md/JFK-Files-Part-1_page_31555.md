@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31555.png
-
-Convert to Markdownhere. Highlights are:
+here. Highlights are:
 
 a. Roughly 150,000 people under his jurisdiction.
 

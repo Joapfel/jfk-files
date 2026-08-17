@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_26903.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tbody><tr><td>Contractor's Name and Title:</td><td></td><td>Exact TITLE OF YOUR POSITION:</td><td>SARAH OR EARNINGS: Starting: 5/6/78, Final: 9/3/78, Paid $2,600 PEA YR.</td></tr><tr><td colspan="4">Signature of Contractor and Title:</td></tr><tr><td colspan="4">Dated:</td></tr><tr><td>DATE OF EMPLOYMENT (Month, Year):</td><td>TO:</td><td>EXACT TITLE OF YOUR POSITION:</td><td>SARAH OR EARNINGS: STARTING: 5/6/78, FINAL: 9/3/78, PAID $2,600 PEA YR.</td></tr><tr><td colspan="4">Signature of Contractor and Title:</td></tr><tr><td colspan="4">Dated:</td></tr><tr><td>FORM OF EMPLOYMENT (MONTHS, YEAR):</td><td>From:</td><td>EXACT TITLE OF YOUR POSITION:</td><td>SARAH OR EARNINGS: STARTING: 5/6/78, FINAL: 9/3/78, PAID $2,600 PEA YR.</td></tr><tr><td colspan="4">Signature of Contractor and Title:</td></tr><tr><td colspan="4">Dated:</td></tr><tr><td>DATE OF EMPLOYMENT (MONTH, YEAR):</td><td>From:</td><td>EXACT TITLE OF YOUR POSITION:</td><td>SARAH OR EARNINGS: STARTING: 5/6/78, FINAL: 9/3/78, PAID $2,600 PEA YR.</td></tr><tr><td colspan="4">Signature of Contractor and Title:</td></tr><tr><td colspan="4">Dated:</td></tr></tbody></table>

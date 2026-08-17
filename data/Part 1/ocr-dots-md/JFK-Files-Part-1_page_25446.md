@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25446.png
-
-Convert to Markdown4. After meeting with McDonald on two occasions now I have come to the conclusion that he has some grandiose plans but has nothing to back them up.
+4. After meeting with McDonald on two occasions now I have come to the conclusion that he has some grandiose plans but has nothing to back them up.
 
 R. P. B. Lo
 

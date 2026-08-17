@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24739.png
-
-Convert to MarkdownSECRET
+SECRET
 
 According to a report dated 1 August 1969 from the same reliable source of paragraph 3a, during his Peruvian visit Subject contacted one Edwards - FRFZ, Traffic & border of Faucci Airlineo, and offered to sell him a small aircraft on very attractive terms. Source stated that PEREZ is interested in planes for a small private air service which he runs apart from his job with Faucci Airlines.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25121.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 LODGE, Henry Cabot
 DIEM

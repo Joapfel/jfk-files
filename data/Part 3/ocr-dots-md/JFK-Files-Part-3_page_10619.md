@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10619.png
-
-Convert to MarkdownGrand Dragon WILLIAMS, according to informants, is active in politics in Bowie County, Texas, is a former member of the Board of Regents of Texarkana Junior College, Texarkana, Texas, and in recent months has been elected for election to the Board of Regents of that college and defeated as a candidate for the City Council of Texarkana, Texas. He cannot afford to become involved in any illegal activities because of his activities in legitimate enterprises. He has continually cautioned Texarkana Klavern members as well as members of other klaverns attending state meetings against any violence and/or illegal activities.
+Grand Dragon WILLIAMS, according to informants, is active in politics in Bowie County, Texas, is a former member of the Board of Regents of Texarkana Junior College, Texarkana, Texas, and in recent months has been elected for election to the Board of Regents of that college and defeated as a candidate for the City Council of Texarkana, Texas. He cannot afford to become involved in any illegal activities because of his activities in legitimate enterprises. He has continually cautioned Texarkana Klavern members as well as members of other klaverns attending state meetings against any violence and/or illegal activities.
 
 No recommendation is being made for counterintelligence against the Texarkana Klavern except as it is effected by a recommendation set out hereafter under the Pine Bluff Klavern.
 

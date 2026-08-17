@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13613.png
-
-Convert to MarkdownUnited Press International
+United Press International
 Lee Harvey Oswald
 
 Continued From Page 1, Col. 2

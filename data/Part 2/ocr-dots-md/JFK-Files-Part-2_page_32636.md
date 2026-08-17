@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32636.png
-
-Convert to MarkdownSECRET
+SECRET
 
 times, with regularly scheduled and special broad-
 casts to specific countries as well as general trans-

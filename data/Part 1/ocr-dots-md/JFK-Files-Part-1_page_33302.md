@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33302.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>771 MFG. 3/74</td>
         <td></td>

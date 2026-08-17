@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19602.png
-
-Convert to MarkdownSEC. 18. GIVE THREE NEIGHBORS AT YOUR LAST NORMAL RESIDENCE IN THE U.S. — (Give residence and business addresses where possible.)
+SEC. 18. GIVE THREE NEIGHBORS AT YOUR LAST NORMAL RESIDENCE IN THE U.S. — (Give residence and business addresses where possible.)
 
 | | Street and Number | City | State |
 | :--- | :--- | :--- | :--- |

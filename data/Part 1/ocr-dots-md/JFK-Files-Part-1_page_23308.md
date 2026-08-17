@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23308.png
-
-Convert to MarkdownFROM: CABLE
+FROM: CABLE
 ACTION SECRET
 ROUTING AND RECORD SHEET
 

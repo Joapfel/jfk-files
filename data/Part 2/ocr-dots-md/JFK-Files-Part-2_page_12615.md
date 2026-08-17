@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12615.png
-
-Convert to Markdown(c) When all logical leads have been exhausted in case of missing important functionary, consider requesting Bureau authority to circularize all field offices with subject's photograph and background information.
+(c) When all logical leads have been exhausted in case of missing important functionary, consider requesting Bureau authority to circularize all field offices with subject's photograph and background information.
 
 d. Individuals traveling abroad (Also see section 105G, volume IV, of this manual.)
 

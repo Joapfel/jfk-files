@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25904.png
-
-Convert to MarkdownFBI DOCUMENT
+FBI DOCUMENT
 
 DATE: 21 JULY 1977
 

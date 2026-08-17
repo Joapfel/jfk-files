@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_718.png
-
-Convert to MarkdownREPORT
+REPORT
 
 (PAGE FIVE)
 

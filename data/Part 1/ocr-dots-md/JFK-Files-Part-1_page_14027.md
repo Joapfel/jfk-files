@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14027.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. In terms of vulnerability from the LNHARP standpoint, the intelligence/security personnel at this point appear to offer little in the way of approach potential. Jorge BOLANOS Suarez (if he comes) and Gustavo Adolfo PLAZA Peterssen, on the basis of known information, seem the likeliest targets for us as of now. Both the Base and LNERGO, however, continue to look at all of them in this regard.
 

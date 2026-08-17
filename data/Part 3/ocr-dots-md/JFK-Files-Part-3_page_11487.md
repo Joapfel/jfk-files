@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11487.png
-
-Convert to MarkdownIt may be argued that we should concentrate on the reform of the intelligence agencies for the future, not on the punishment of individuals for misdeeds of the past. This is a beguiling argument. But the truth is that we can ill-afford to overlook the lawlessness of the past if we wish to avoid a repetition in the future. As two scholars from the Center for National Security Studies, Jerry J. Berman and Morton H. Halperin, noted in a recent New York Times article:
+It may be argued that we should concentrate on the reform of the intelligence agencies for the future, not on the punishment of individuals for misdeeds of the past. This is a beguiling argument. But the truth is that we can ill-afford to overlook the lawlessness of the past if we wish to avoid a repetition in the future. As two scholars from the Center for National Security Studies, Jerry J. Berman and Morton H. Halperin, noted in a recent New York Times article:
 
 > One key element in bringing the intelligence agencies under democratic control is to insure that officials of intelligence agencies are prosecuted when they violate the law. Unless there is a thorough investigation by an impartial prosecutor followed by indictments and a report, the threat of criminal penalties will not deter future abuses.
 

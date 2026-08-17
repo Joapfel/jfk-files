@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12898.png
-
-Convert to MarkdownT 317C69
+T 317C69
 
 EIA647
 

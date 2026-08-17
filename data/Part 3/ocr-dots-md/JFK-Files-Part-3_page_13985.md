@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13985.png
-
-Convert to Markdownadded, that it is difficult for our Government to equate its policy of
+added, that it is difficult for our Government to equate its policy of
 wheat sales to Russia with a policy of economic denial against Cuba;
 however the President has said that he wants to push the economic denial
 program. Mr. Fitzgerald remarked in this connection that the volatility

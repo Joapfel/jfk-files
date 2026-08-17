@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23859.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 ## COMMITTEE MEETING
 

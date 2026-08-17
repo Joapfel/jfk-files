@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7967.png
-
-Convert to MarkdownSEGRETO
+SEGRETO
 
 28 SET. 1964
 

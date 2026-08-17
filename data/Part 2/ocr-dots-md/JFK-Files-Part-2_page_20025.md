@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20025.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (Mount Clipping In Space Below)
 

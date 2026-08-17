@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9886.png
-
-Convert to Markdown2 October,1967
+2 October,1967
 
 Subject: SGS&IRL Examination of LIRING/3.
 

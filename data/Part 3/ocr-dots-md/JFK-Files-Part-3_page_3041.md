@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3041.png
-
-Convert to MarkdownNR Ø3Ø WA CODE
+NR Ø3Ø WA CODE
 
 5:53PM NITEL 9/5/75 PMJ
 

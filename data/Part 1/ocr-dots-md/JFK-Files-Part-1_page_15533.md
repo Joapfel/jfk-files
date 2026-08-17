@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15533.png
-
-Convert to Markdown# General Information on WIRGUE/1:
+# General Information on WIRGUE/1:
 
 ## A. Pertinent Biographical Information:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35555.png
-
-Convert to MarkdownThe following charges, an ad valorem tax, and license rental, to be paid on other organizations:
+The following charges, an ad valorem tax, and license rental, to be paid on other organizations:
 
 Studio location - 2/50 70.00
 Studio match and setup - 1/50 114.00

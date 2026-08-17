@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4884.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On May 8, 1967, ROTHMAN's Pontiac was observed at his residence at 425 Surfside Boulevard, Surfside, Florida, at 3:15 P. M.
 

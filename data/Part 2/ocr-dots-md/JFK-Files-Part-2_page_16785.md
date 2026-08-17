@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16785.png
-
-Convert to MarkdownREPORT
+REPORT
 of the
 LABORATORY
 FEDERAL BUREAU OF INVESTIGATION

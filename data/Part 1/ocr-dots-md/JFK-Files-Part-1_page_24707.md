@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24707.png
-
-Convert to Markdown2. According to LEONOV'S 201 file, he is scheduled to attend the 1976 session of the United Nations General Assembly (UNGA) in New York.
+2. According to LEONOV'S 201 file, he is scheduled to attend the 1976 session of the United Nations General Assembly (UNGA) in New York.
 
 22 October 1976
 

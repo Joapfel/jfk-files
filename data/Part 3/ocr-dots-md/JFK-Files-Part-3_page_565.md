@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_565.png
-
 instructor Richard Lund is a communist, as is his wife Nancy Rosenfeld Lund, citing testimony before House Committee on Un-American Activities as source.
 
 On January 9, 1961, it was determined Lund's employment had been terminated at the request of the YMCA Personnel Committee.

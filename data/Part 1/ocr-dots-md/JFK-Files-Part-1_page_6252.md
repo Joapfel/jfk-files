@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6252.png
-
-Convert to MarkdownTHE EVENTS IN THE CONGO A PROOF OF WHAT COMMUNISM IS
+THE EVENTS IN THE CONGO A PROOF OF WHAT COMMUNISM IS
 
 Recent happenings in the Congo have rocked the civilised world, leaving in their wake a deep preoccupation in the hearts of all who believed in even the most basic principles of humanity and who see in these acts a vengeful boast of cruelty against the most elemental principles of kindness and respect.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22033.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Finnish Travel Manifests for 31 March and 2 April 1960 (See
 Part V.E.3.c.iii)

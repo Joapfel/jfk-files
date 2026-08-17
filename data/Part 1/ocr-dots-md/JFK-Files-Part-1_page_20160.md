@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20160.png
-
-Convert to MarkdownAPPOINTMENT AFFIDAVITS
+APPOINTMENT AFFIDAVITS
 
 IMPORTANT.—Before swearing to these appointment affidavits, you should read and understand the attached information for appointee
 

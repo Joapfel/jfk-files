@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24691.png
-
-Convert to Markdown# Jinete sobre el espíndazo de América
+# Jinete sobre el espíndazo de América
 
 El 'Cháro'
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16258.png
-
-Convert to Markdown14-00690
+14-00690
 
 that I would return home as (o) I wanted to see the family
 and so on. I thought it was better to stay at home a little while

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5296.png
-
-Convert to MarkdownTHIS COPY IS NOT
+THIS COPY IS NOT
 FOR RELEASE.
 
 IS this true? FOR THE RECORD

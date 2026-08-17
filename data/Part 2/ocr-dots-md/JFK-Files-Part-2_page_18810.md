@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18810.png
-
-Convert to MarkdownNY 134-new
+NY 134-new
 
 On 10/30/57, SAM JAFFE and a CBS camera crew made a feature film in the NYO, which was telecast in two parts over certain CBS affiliate stations on 11/13 and 14/57. JAFFE was in charge of making this film, and subsequently informed this office that CBS was highly pleased with the results obtained in this office. A review of correspondence dealing with JAFFE's participation in the taking of pictures in the NYO reveals that while doing same, he reciprocated in kind for the cooperation which the Bureau was giving him.
 

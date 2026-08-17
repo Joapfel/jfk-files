@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34069.png
-
-Convert to Markdown# CUBAN TRADING
+# CUBAN TRADING
 
 Economic Research Bureau,
 Unidad Revolutionaria,

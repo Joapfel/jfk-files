@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9570.png
-
-Convert to Markdowncomplications. If we deal with the situation in simple terms, we can understand it better. Words do not mean a thing. What is important is action and results."
+complications. If we deal with the situation in simple terms, we can understand it better. Words do not mean a thing. What is important is action and results."
 
 I said: "But action is tied to thought ... and Fateh, as a revolutionary movement, must have a clear ideology. Not every person who carries a gun is a revolutionary. In this complex battle which was imposed on the Palestinian people and
 

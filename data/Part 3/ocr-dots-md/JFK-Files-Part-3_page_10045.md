@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10045.png
-
-Convert to MarkdownMAR 25 1975
+MAR 25 1975
 
 NRO05 IP CODE
 

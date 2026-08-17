@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34353.png
-
-Convert to MarkdownE.I. Harrison/sp
+E.I. Harrison/sp
 WII/C/CA/PP
 6678
 : 18 Aug 65

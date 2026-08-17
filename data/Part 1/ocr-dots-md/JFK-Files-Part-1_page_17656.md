@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17656.png
-
-Convert to Markdown# 10. Soviet Military Activities
+# 10. Soviet Military Activities
 
 Monthly reports are prepared from LIAT information on contacts between Soviet and Texan military personnel. They reflect the identities of the local military figures with whom the Soviets maintain contact and in most cases contain some data on the reasons for the contact. These reports are of particular interest to the U.S. service attaches in Mexico.
 

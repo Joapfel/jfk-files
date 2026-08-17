@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25665.png
-
-Convert to Markdown# Jack Anderson and Les Whitten
+# Jack Anderson and Les Whitten
 ## CIA Withheld Data in JFK Probe
 
 After President John F. Kennedy was struck down on Nov. 22, 1963, the Central Intelligence Agency received evidence suggesting that Cuban Premier Fidel Castro arranged the assassination in retaliation for attempts on his life.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34555.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 <table><tr><td colspan="2">UNCLASSIFIED when blank- TOP SECRET when attached to Top Secret Document - Automatically downgraded to SECRET when filled in form is detached from controlled document.</td></tr><tr><td>CONTROL AND COVER SHEET FOR TOP SECRET DOCUMENT</td><td></td></tr></table>
 

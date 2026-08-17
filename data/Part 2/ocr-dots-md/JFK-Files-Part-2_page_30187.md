@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30187.png
-
-Convert to MarkdownAPPLICANT
+APPLICANT
 
 TO OBTAIN CLASSIFIED FINGERPRINTS:
 

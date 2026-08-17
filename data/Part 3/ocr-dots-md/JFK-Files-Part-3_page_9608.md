@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9608.png
-
-Convert to MarkdownLEROY ELDRIDGE CLEAVER
+LEROY ELDRIDGE CLEAVER
 
 bringing its own axe to grind, such organizations as the anarchist New Left group named Students for a Democratic Society; the Trotskyist Socialist Workers Party and its youth group, the Young Socialist Alliance; the Communist Chinese-oriented Progressive Labor Party; the Communist Party, USA, and its youth affiliate, the W. E. B. DuBois Clubs of America; and militant campus groups, black and white, began to gather in support of the Panthers, who were willing not only to defy the establishment, but to destroy it.
 

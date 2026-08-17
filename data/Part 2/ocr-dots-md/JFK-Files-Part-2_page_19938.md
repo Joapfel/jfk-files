@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19938.png
-
-Convert to MarkdownCONFESSIONAL
+CONFESSIONAL
 
 # Vietnam Issue Viewed
 ## As Peace, Not Politics

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14076.png
-
-Convert to Markdown30.131.- 8 marzo 65.
+30.131.- 8 marzo 65.
 
 761.- Salida al 154138.- 1250h.s.. Jorrín con la esiosa del Sr. Herrera Pranyuti le dice que el embajador está enfermo ¿cuierc que el supase a viento.- YF sino en segunda que llegue lo avisa.- ---804.-
 

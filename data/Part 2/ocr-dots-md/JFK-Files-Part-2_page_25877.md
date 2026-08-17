@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25877.png
-
-Convert to MarkdownMemorandum A. Rosen to A. H. Belmont
+Memorandum A. Rosen to A. H. Belmont
 
 Re: THE PRESIDENT'S COMMISSION
 

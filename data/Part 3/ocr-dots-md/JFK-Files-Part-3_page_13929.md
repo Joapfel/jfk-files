@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13929.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 As to the fifth and last item in Mr. Clifford's list (inviting suggestions for increasing the Board's access to covert action matters and Special Group activities) Mr. Bundy said that he frankly did not know the Board's present method of covering NSC 5412/2 matters. Dr. Langer said that the Board Panel on the subject gets briefings from time to time on covert action operations. Mr. Bundy stated that he himself looks to CIA for reports asked for concerning the status of particular programs, but he did not want to have in his office a compilation of all of such sensitive activities.
 

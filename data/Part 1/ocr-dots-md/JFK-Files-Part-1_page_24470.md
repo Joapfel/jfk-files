@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24470.png
-
-Convert to MarkdownSECRET
+SECRET
 
 APPENDIX C
 

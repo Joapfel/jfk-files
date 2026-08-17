@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28371.png
-
-Convert to Markdown13 May 1964
+13 May 1964
 
 MEMORANDUM FOR: Contract Personnel Division
 SUBJECT : Edward G. TICHBORN

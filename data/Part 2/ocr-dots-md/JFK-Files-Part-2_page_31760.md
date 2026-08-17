@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31760.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH/dp
 
 The November 1967 issue of "Ramparts" magazine contains a 13-page article entitled, "A NASSER Thesis" by ROBERT SCHEEP. In this article, SCHEEP analyzes the Middle East situation from 1952 to the present, giving his recital of the relationship of the various countries to each other, the rise to power by GAMAL ABDUL NASSER, the Suez war in the middle 1950's, and the six-day Arab-Israel war in June, 1967.

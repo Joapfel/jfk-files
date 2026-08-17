@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3559.png
-
-Convert to MarkdownTOP SECRET DINAR
+TOP SECRET DINAR
 
 CUBAN EXILE AND REFUGEE ACTIVITIES - cont'd
 

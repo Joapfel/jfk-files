@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6632.png
-
-Convert to MarkdownJAMES BEVEL
+JAMES BEVEL
 
 BEVEL, in early March, 1966 was observed to be present at the offices of the West Side Y.M.B. DuBois Club in Chicago (DCC). Discussion took place at this time centering around reaction to a recent notification that the Attorney General of the United States intended to label the DuBois Clubs as a Communist front. BEVEL, in conversation, stated that he would have ignored this notification, and kept about the work in which he was engaged. He felt that if the DuBois Clubs have a real program of help for the people, then people would answer for the clubs despite any labels applied to them.
 

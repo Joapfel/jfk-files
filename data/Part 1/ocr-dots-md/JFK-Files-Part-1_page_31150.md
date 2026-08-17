@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31150.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled In)
 
 <table><thead><tr><th colspan="12">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td>MCM</td><td>17 APRIL 59</td><td>X</td><td>XM</td><td></td><td rowspan="2">3. Date Of Birth<br/>Mo.</td><td rowspan="2">Da.</td><td rowspan="2">Yr.</td><td rowspan="2"></td><td rowspan="2">4. Vt., Prof.<br/>Non-0<br/>5 Pt.-1<br/>10 Pt.-9</td><td rowspan="2">Cdo<br/>1</td><td rowspan="2">M</td><td rowspan="2">1</td><td rowspan="2">5</td></tr><tr><td colspan="12">1. Serial No.</td><td>WIGREN LEE H</td><td>106198</td></tr><tr><td rowspan="2">7. SCD<br/>Mo.</td><td rowspan="2">Da.</td><td rowspan="2">Yr.</td><td rowspan="2">8. CSC Retmt.<br/>Yes. 1<br/>No. - 9</td><td rowspan="2">9. CSC Or Other Legal Authority<br/>Code<br/>1</td><td rowspan="2">10. App't. Affidav.<br/>Yes. 1<br/>No.-9</td><td rowspan="2">Cdo<br/></td><td rowspan="2">Mo.</td><td rowspan="2">Da.</td><td rowspan="2">Yr.</td><td rowspan="2"></td><td rowspan="2">11. TEGI<br/>Code<br/></td><td rowspan="2">12. LCD<br/>Mo.</td><td rowspan="2">Da.</td><td rowspan="2">Yr.</td><td rowspan="2"></td></tr><tr><td></td><td></td><td></td></tr><tr><td>13. Min. sery. Group, Ten<br/>Mo.</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>

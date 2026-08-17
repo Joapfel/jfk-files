@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9523.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 Chicago on American Airlines Flight 193, December 15, 1970,
 have a brief conference at the airport with members of the

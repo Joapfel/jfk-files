@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8043.png
-
-Convert to MarkdownNR DD5 SF CODE
+NR DD5 SF CODE
 
 9:27 PM NITEL 7/18/75 CJC
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14911.png
-
-Convert to Markdown29. (Continued)
+29. (Continued)
 
 b) worked as night watchman.
 7) welder.

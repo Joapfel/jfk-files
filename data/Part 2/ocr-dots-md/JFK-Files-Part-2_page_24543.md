@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24543.png
-
-Convert to Markdownc. Helms Testimony that he Doubted Whether he had Authorized a Specific Assassination Attempt or was Informed of the Passage of the Pills
+c. Helms Testimony that he Doubted Whether he had Authorized a Specific Assassination Attempt or was Informed of the Passage of the Pills
 
 There is some doubt whether Helms ever authorized a specific attempt at Castro's assassination, or was informed of the passage of the pioson pills to Roselli in April, 1962. Although Helms testified that Harvey regularly reported to Helms on Harvey's Mongoose work (Helms, 6/13, p.95), and Helms "would have thought" that Harvey would have reported to Helms the transfer of the pills into Cuba (Helms, 6/13, p.105), Helms does not recall Harvey ever telling him that the pills were delivered to Roselli. (Helms, 7/17, p.22).
 

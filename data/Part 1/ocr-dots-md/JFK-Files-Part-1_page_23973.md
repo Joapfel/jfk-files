@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23973.png
-
-Convert to MarkdownWashington))
+Washington))
 
 Exactly. At first the whole idea was that there was going to be a Black State. This was originally. But no one had any real. . . except for Elijah Mohammed's people -- I think that some of them did have. You saw the London Times article today? One of the things that disgusted him with the Elijah group was this talks with the American Nazi Party and with the Ku Klux Klan, particularly with the Klan, to buy a county, if you will, a county in Georgia, which the Ku Klux Klan was going to sell. They were going to see that all property in the country was turned over and this was going to be the nucleus of a Black State. He felt that the Muslims were seeking to perpetuate segregation for their purposes. He really was not a segregationist nor - did he at the end believe in -- he wasn't a racist.
 

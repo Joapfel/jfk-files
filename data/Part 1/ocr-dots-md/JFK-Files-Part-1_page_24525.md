@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24525.png
-
-Convert to Markdownfor Yu. Kuznetsov
+for Yu. Kuznetsov
 
 International Information
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11103.png
-
-Convert to MarkdownEmbajada de Cuba: 230795.-
+Embajada de Cuba: 230795.-
 
 19 abril 67.-
 

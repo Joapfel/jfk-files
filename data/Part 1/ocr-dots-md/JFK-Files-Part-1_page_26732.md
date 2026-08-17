@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26732.png
-
-Convert to Markdown**From 2230, 1 May (Saturday) to 0845, 2 May 1965**
+**From 2230, 1 May (Saturday) to 0845, 2 May 1965**
 
 2.0 Out to 09. Victor Rico Galan (VKG) with long distance operator. VKG has been reporting in from the phone of a friend's house, but he is now at home. As soon as they have communication to Cuba, call him here. With Sr. Orlando Fundora ur with Sr. Vinas, radio Habana.
 

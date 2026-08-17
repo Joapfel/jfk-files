@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15577.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 29 MAR 61<br/>TO : DIRECTOR<br/>FROM : LEOPOLDVILLE<br/>ACTION : C/AF 3 (TEMPO COPY SLOTTED FOR AF AT 0935 29 MAR)<br/>INFO : COP, C/CA, C/CI, C/FI 2, S/C 2</td><td>SECRET</td><td>ROUTING<br/><table><tr><td>1</td><td>E. L.</td><td>4</td></tr><tr><td>2</td><td>E. P.</td><td>5</td></tr><tr><td>3</td><td>L. M. H.</td><td>6</td></tr></table><br/>MAR 29 1981 61<br/><br/>PRIORITY<br/><br/>IN 27093</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 29 MAR 61<br/>TO : DIRECTOR<br/>FROM : LEOPOLDVILLE<br/>ACTION : C/AF 3 (TEMPO COPY SLOTTED FOR AF AT 0935 29 MAR)<br/>INFO : COP, C/CA, C/CI, C/FI 2, S/C 2</td><td>SECRET</td><td>ROUTING<br/><table><tr><td>1</td><td>E. L.</td><td>4</td></tr><tr><td>2</td><td>E. P.</td><td>5</td></tr><tr><td>3</td><td>L. M. H.</td><td>6</td></tr></table><br/>MAR 29 1981 61<br/><br/>PRIORITY<br/><br/>IN 27093</td></tr></tbody></table>
 
 PRITY DIR CITE LEOP 1087
 

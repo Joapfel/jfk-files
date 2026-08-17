@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5924.png
-
-Convert to MarkdownIn Reply, Please Refer to
+In Reply, Please Refer to
 File No.
 157-3597
 

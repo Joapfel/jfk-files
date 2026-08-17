@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5257.png
-
-Convert to Markdown# SUGGESTION MEMORANDUM
+# SUGGESTION MEMORANDUM
 
 ## BOND DEFAULT MATTERS
 

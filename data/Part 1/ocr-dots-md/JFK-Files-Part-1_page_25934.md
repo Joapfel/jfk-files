@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_25934.png
-
 .
 
 Requesting any information

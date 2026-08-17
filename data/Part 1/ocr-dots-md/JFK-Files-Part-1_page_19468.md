@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19468.png
-
-Convert to MarkdownSECRET
+SECRET
 
 18 March 1974
 

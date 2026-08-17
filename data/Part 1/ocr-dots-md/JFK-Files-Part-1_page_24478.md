@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24478.png
-
-Convert to MarkdownFirst Chinese nuclear device was成功的, 9. the Russian view of Revolution was made clear in Proadia on June 3 in an article attaching China, containing the following passages: "fractionist groups ... are also involved in the publication in several languages, with Beijing's approval of a new "international" journal with the high-class title of Revolution."
+First Chinese nuclear device was成功的, 9. the Russian view of Revolution was made clear in Proadia on June 3 in an article attaching China, containing the following passages: "fractionist groups ... are also involved in the publication in several languages, with Beijing's approval of a new "international" journal with the high-class title of Revolution."
 
 ## The English Edition
 

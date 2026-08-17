@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3641.png
-
-Convert to Markdown1 Federal building shall be held to be a reference to the
+1 Federal building shall be held to be a reference to the
 
 2 F.B.I. Building"
 

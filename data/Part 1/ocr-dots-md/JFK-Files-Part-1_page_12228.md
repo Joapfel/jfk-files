@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12228.png
-
-Convert to MarkdownSEC
+SEC
 
 IN 695722
 

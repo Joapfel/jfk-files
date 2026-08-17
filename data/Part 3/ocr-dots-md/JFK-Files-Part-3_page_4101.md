@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4101.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      ALL INFORMATION CONTAINED

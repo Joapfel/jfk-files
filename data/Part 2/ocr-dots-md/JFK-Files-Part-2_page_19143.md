@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19143.png
-
-Convert to MarkdownWomen's Bail Fund
+Women's Bail Fund
 
 Chicago, Illinois, until February, 1970. Internal factionalism during 1969 produced three main factions: Weatherman, Revolutionary Youth Movement (RYM), and Worker Student Alliance (WSA). The Weatherman and RYM no longer consider themselves associated with the SDS. The WSA faction continues to use the name SDS.
 

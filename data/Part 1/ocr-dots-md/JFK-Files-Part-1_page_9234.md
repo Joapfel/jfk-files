@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9234.png
-
-Convert to Markdownto para. 4 of the above-mentioned agreement (16 Sept. 1950), according
+to para. 4 of the above-mentioned agreement (16 Sept. 1950), according
 to which "You will be required to transfer the gross royalties to CIA...,"
 (This agreement was also drafted by Mr. Kelley). There doesn't seem to
 be any difficulties of substance there.

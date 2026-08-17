@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10208.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 I. SURVEILLANCES

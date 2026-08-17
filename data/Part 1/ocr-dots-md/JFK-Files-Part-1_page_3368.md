@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3368.png
-
-Convert to MarkdownSEPARATE COVER ATTACHMENT TO: UFGA-16512 dated
+SEPARATE COVER ATTACHMENT TO: UFGA-16512 dated
 
 TO : Deputy Chief, WH/SA
 

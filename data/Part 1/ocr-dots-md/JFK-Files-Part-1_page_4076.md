@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4076.png
-
-Convert to Markdown-23-
+-23-
 
 FORTUNES Y VENTAS DE FONIOS
 

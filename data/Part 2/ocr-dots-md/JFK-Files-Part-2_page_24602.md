@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24602.png
-
-Convert to Markdowncommunications with the United States. Thereafter Howard served as an intermediary in arranging Atwood's meetings with the Cubans. (Atwood, pp. 4, 18)).
+communications with the United States. Thereafter Howard served as an intermediary in arranging Atwood's meetings with the Cubans. (Atwood, pp. 4, 18)).
 
 Atwood also testified that he arranged for a French journalist, Jean Daniel, to visit the White House prior to Daniel's scheduled trip to see Castro. (Atwood, p. 19.) (According to an article by Daniel in December, 1963, Daniel met with President Kennedy on October 24, 1963. They discussed the prospects for reestablishing U.S.-Cuba relations and President Kennedy asked Daniel to report back to him after seeing Castro.)
 

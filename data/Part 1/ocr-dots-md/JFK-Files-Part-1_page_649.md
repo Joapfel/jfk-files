@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_649.png
-
-Convert to Markdown2. Maria del Carmen TRUEBA y de la Campa
+2. Maria del Carmen TRUEBA y de la Campa
     born 8 August 1929, Guanabacoa, Havana
     Reside Calle 24 #106, Apt. 2, Miramar, Havana
 

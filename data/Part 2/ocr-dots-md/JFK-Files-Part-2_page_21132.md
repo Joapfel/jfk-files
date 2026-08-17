@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21132.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 newspapers until the 8th or 9th)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10832.png
-
-Convert to MarkdownCiudadanos Ma-
+Ciudadanos Ma-
 uni, ha sido pro-
 el alcalde Ste-
 en la fecha del

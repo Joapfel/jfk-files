@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13779.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 8. Special Broadcasts
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14867.png
-
-Convert to Markdownit. The reduction would be effected by not filling vacancies as they occur and by not establishing new positions. The letter further directs that agency plans for personnel reductions or facts as to why an agency head believes the requested 2% reduction is impracticable be presented to the Budget Bureau with the October financial plan.
+it. The reduction would be effected by not filling vacancies as they occur and by not establishing new positions. The letter further directs that agency plans for personnel reductions or facts as to why an agency head believes the requested 2% reduction is impracticable be presented to the Budget Bureau with the October financial plan.
 
 In connection with the 2% savings program in effect during the fiscal year 1959, the Bureau advised the Attorney General that it would be impossible to make any such reduction as the Bureau's operations were already on a "strict austerity" basis.
 

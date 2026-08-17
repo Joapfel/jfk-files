@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12573.png
-
-Convert to Markdowna. Communist-action organizations
+a. Communist-action organizations
 
 (1) Definition (§ 782)
 

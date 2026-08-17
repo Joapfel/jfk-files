@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1177.png
-
-Convert to MarkdownATTACHMENT C
+ATTACHMENT C
 
 Orlando PIEDRA
 Orlando Eleno PIEDRA-NEGUERLA (201-247879)

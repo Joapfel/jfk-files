@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3850.png
-
-Convert to MarkdownAuthorizing legislation should indicate whether domestic
+Authorizing legislation should indicate whether domestic
 intelligence is necessary for any or all of these specific prob-
 lems. For example, revolutionary violence in an attempt to
 overthrow the government may be a remote and speculative danger,

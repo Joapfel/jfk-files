@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4535.png
-
-Convert to Markdown2 July 1960
+2 July 1960
 
 TO : C/WH/4
 

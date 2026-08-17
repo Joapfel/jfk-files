@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2362.png
-
-Convert to MarkdownDEPARTMENT OF DEFENSE
+DEPARTMENT OF DEFENSE
 Armed Forces Security Agency
 
 Washington 25, D. C.

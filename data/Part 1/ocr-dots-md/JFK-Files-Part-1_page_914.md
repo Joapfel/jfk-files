@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_914.png
-
-Convert to Markdown104-10076-10000
+104-10076-10000
 
 CLASSIFIED MESSAGE
 

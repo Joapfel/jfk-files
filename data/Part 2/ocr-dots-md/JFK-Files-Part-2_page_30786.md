@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30786.png
-
-Convert to MarkdownSEP 28 '98 10:46AM
+SEP 28 '98 10:46AM
 
 10
 

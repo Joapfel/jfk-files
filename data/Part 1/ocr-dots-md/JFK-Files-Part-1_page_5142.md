@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5142.png
-
-Convert to Markdown<table><tr><td>10 VISAS</td></tr><tr><td>VISA No.494672.</td></tr><tr><td>PARTIDA DE INGRACION REPÚBLICA COSTA RICA</td></tr><tr><td>SEÑALERA SANCHEZ</td></tr><tr><td>Est. No. 12577012-15/15/08</td></tr><tr><td>Por 2673</td></tr></table>
+<table><tr><td>10 VISAS</td></tr><tr><td>VISA No.494672.</td></tr><tr><td>PARTIDA DE INGRACION REPÚBLICA COSTA RICA</td></tr><tr><td>SEÑALERA SANCHEZ</td></tr><tr><td>Est. No. 12577012-15/15/08</td></tr><tr><td>Por 2673</td></tr></table>
 
 VISAS
 

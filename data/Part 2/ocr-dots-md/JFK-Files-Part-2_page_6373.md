@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6373.png
-
-Convert to Markdownwhich access to such materials shall be allowed.
+which access to such materials shall be allowed.
 
 ## Implementing the JFK Act—Notice of Assassination Records Determination
 

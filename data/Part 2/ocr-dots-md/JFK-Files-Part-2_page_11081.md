@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11081.png
-
-Convert to Markdownout the full extent of the communist influence in racial matters. They should separate words and intentions from actions; mere participation from direct influence; and the bona fide communist from the mere "do-gooder." They should not include information concerning legitimate efforts in the racial movement where there is no communist taint.
+out the full extent of the communist influence in racial matters. They should separate words and intentions from actions; mere participation from direct influence; and the bona fide communist from the mere "do-gooder." They should not include information concerning legitimate efforts in the racial movement where there is no communist taint.
 
 b. Information should be reported according to the following outline. All main headings dated by Roman numerals must be accounted for. If there is no information to report under a particular main heading, the heading should appear, followed by a statement "No information developed."
 

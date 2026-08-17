@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24565.png
-
-Convert to MarkdownCorreos y Telecomunicaciones
+Correos y Telecomunicaciones
 del Perú
 
 ......

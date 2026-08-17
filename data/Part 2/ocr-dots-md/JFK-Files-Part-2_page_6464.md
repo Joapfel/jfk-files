@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6464.png
-
-Convert to MarkdownTOP SECRET - SENSITIVE
+TOP SECRET - SENSITIVE
 
 Rev. 5/13/63)
 

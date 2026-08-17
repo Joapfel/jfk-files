@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5126.png
-
-Convert to MarkdownEXILES VS.
+EXILES VS.
 CASTRO—
 A Relentless
 Pursuit

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14760.png
-
-Convert to Markdown# OUTGOING MESSAGE
+# OUTGOING MESSAGE
 
 <table><thead><tr><th>DATE</th><th>HOUR</th></tr></thead><tbody><tr><td>09</td><td>21</td></tr><tr><td>10</td><td>21</td></tr><tr><td>11</td><td>22</td></tr><tr><td>12</td><td>23</td></tr><tr><td>13</td><td>24</td></tr></tbody></table>
 

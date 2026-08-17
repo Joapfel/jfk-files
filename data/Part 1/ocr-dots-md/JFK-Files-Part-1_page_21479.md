@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21479.png
-
-Convert to MarkdownР. С. Ф. С. Р.
+Р. С. Ф. С. Р.
 
 ИСПОЛНИТЕЛЬНЫЙ КОМИТЕТ
 

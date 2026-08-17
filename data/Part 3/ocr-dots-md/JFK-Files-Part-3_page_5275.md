@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5275.png
-
-Convert to MarkdownRE: SENSTUDY
+RE: SENSTUDY
 
 The following are comments prepared by the Radio Engineering Section of the FBI Laboratory and relate to copies of excerpted pages from a report written by the Central Intelligence Agency. Comments are keyed to page numbers which appear in the lower right-hand corner of each sheet.
 

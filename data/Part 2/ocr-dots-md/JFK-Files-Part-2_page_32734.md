@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32734.png
-
-Convert to Markdownadequate, U.N.-supervised arrangements for verification of removal of
+adequate, U.N.-supervised arrangements for verification of removal of
 offensive weapons and safeguards against their reintroduction had been
 achieved. The U. S. assurance against invasion or supporting an invasion of
 Cuba was dependent on adequate safeguards that offensive weapons were not

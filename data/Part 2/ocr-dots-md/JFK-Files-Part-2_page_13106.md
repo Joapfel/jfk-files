@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13106.png
-
-Convert to MarkdownAirtel to Washington Field Office
+Airtel to Washington Field Office
 
 Re: Senstudy 75
 62-116395

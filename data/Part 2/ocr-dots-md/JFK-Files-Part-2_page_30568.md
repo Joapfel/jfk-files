@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_30568.png
-
 to the DDO, Seymour Bolton.
 
 "Mr. Bolten appeared satisfied and advised that no further action appeared necessary at this time."

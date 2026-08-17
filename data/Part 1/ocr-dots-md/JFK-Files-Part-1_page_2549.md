@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2549.png
-
-Convert to MarkdownV. ANNEX
+V. ANNEX
 
 SECRET
 

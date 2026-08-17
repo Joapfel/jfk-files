@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14898.png
-
-Convert to MarkdownSECRET
+SECRET
 
 actually did what he claimed to have done. His case officer would have to be especially alert for double-dealing, careful to build in checks and counterbalances, and tough and firm in handling style. Despite the limitations noted it was felt that this man is worth the risks involved.
 

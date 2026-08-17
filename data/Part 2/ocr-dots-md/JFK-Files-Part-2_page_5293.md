@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5293.png
-
-Convert to Markdown104-10331-10140
+104-10331-10140
 
 SECRET
 JFK Working Paper - Internal Use Only

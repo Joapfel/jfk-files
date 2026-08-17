@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6521.png
-
-Convert to Markdown(d) Facts on the decrease in living standards within Cuba since the rise of Castro.
+(d) Facts on the decrease in living standards within Cuba since the rise of Castro.
 
 (a) Facts on terror and repression in Cuba.
 

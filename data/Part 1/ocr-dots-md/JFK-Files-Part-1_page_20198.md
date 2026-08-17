@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20198.png
-
-Convert to Markdown- 4 -
+- 4 -
 
 Silver Shirt Legion of America
 Slovenian-American National Council

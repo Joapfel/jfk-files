@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9409.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 - W. O. Cregar
 1 - Mr. J. P. Lee

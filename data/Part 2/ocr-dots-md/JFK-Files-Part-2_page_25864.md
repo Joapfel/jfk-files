@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25864.png
-
-Convert to MarkdownNotes for DCI and Weekend Reading June-1Dec 1963
+Notes for DCI and Weekend Reading June-1Dec 1963
 
 Briefing Memoranda 1962
 

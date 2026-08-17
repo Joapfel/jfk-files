@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10935.png
-
-Convert to Markdowninterest and CIA contact would not jeopardize any FBI investigations, we would grant CIA approval to proceed with its contact with proviso we be kept informed of information developed of possible interest to us.
+interest and CIA contact would not jeopardize any FBI investigations, we would grant CIA approval to proceed with its contact with proviso we be kept informed of information developed of possible interest to us.
 
 (2) Where it appeared source would be returning to a foreign country shortly we would normally grant CIA clearance for preliminary contact with proviso we be kept informed of results. We reserved the right to take direct access to the source as our needs required.
 

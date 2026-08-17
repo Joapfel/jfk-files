@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24581.png
-
-Convert to MarkdownMcCone also testified that McNamara agreed that the Lansdale Memorandum should be withdrawn for the same reason expressed by McCone, i.e. because the topic of a Castro assassination had not been given consideration by the Special Group Augmented. (McCone, p. 39).
+McCone also testified that McNamara agreed that the Lansdale Memorandum should be withdrawn for the same reason expressed by McCone, i.e. because the topic of a Castro assassination had not been given consideration by the Special Group Augmented. (McCone, p. 39).
 
 ## (2) Testimony of Harvey
 

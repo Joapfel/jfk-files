@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32928.png
-
-Convert to MarkdownAttachment #2 to UFGA-27552
+Attachment #2 to UFGA-27552
 
 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24412.png
-
-Convert to Markdown(4) Poison Pills Are Prepared and Delivered
+(4) Poison Pills Are Prepared and Delivered
 ---
 
 to Cuba

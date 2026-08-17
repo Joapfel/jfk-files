@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24957.png
-
-Convert to Markdown1975 SEP 26 FM
+1975 SEP 26 FM
 
 SELECT COMMITTEE
 INTELLIGENCE ACTIV

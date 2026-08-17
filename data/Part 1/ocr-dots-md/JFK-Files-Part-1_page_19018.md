@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19018.png
-
-Convert to MarkdownCS-311 '06103-69
+CS-311 '06103-69
 
 membership and others are dropping out quietly. In March the paid-up
 membership was about 300.)

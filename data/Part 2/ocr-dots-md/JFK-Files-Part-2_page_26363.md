@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26363.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CONFIDENTIAL<br/>(WHEN FILLED IN)</td>
     <td>NO FOREIGN DISSEM</td>

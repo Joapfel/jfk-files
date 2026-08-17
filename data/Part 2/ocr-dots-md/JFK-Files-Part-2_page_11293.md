@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11293.png
-
-Convert to Markdown(6) Character
+(6) Character
 
 (a) Key figures and top functionaries
 

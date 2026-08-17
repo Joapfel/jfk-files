@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2095.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 Criminal Division
 
 ATTENTION: Mr. Robert L. Keuch

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9385.png
-
-Convert to MarkdownIII SOME LARGE-SCALE LONG-RANGE PROPOSALS
+III SOME LARGE-SCALE LONG-RANGE PROPOSALS
 
 1.  **Film Proposal:** a series of DOCUMENTARY films, possibly produced in connection with other organizations. Suggestion for a first film: a full-length feature on World-Communism, a script for which (The Hammer & The Sickle") has been outlined by H.J. Jarry and Stuart Schulberg (one of the leading U.S. documentary-makers, who would most probably be available in Europe for it). These could have normal commercial distribution, special schools, and universities distribution.
 

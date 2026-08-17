@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1082.png
-
-Convert to MarkdownFile No. K-1480
+File No. K-1480
 
 21 July 1960
 

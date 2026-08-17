@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10496.png
-
-Convert to MarkdownNR Ø11 LV CODE
+NR Ø11 LV CODE
 
 838 PM NITEL MARCH 25, 1975 MLP
 TO DIRECTOR, FBI

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6087.png
-
-Convert to MarkdownChairman, Task Force on Institutional Evaluation, 1977-1982, (see
+Chairman, Task Force on Institutional Evaluation, 1977-1982, (see
 Publications)
 Member, Committee on Education and Professional Development, 1976-
 1985

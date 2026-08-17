@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23389.png
-
-Convert to MarkdownI tell you.
+I tell you.
 
 In other words, the degree to which he thought he would have to refer further to Washington on, I have no idea.
 

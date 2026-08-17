@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11847.png
-
-Convert to MarkdownQ. CORRECTIVE ACTION OF FALSE INFORMATION
+Q. CORRECTIVE ACTION OF FALSE INFORMATION
 
 1. When it is determined that informant or ex-informant furnished false information while informant, promptly advise Bureau of complete facts.
 

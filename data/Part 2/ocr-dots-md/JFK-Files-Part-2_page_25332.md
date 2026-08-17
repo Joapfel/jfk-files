@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25332.png
-
-Convert to MarkdownATTORNEY GENERAL LEVI
+ATTORNEY GENERAL LEVI
 RE: RAPHAEL GENER
 
 October 26, 1976

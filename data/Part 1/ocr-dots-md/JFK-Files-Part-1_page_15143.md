@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15143.png
-
-Convert to Markdown12-
+12-
 
 General
 

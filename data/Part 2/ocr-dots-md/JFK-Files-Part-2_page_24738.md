@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24738.png
-
-Convert to Markdowndiscussion of executive action with Bissell, which, he said, might have transpired in "early January" (Harvey, 6/25/75, p. 52). When Bissell was shown these notes, he agreed with Harvey about the timing of their initial discussion (Bissell, 7/17/75, p. 10).
+discussion of executive action with Bissell, which, he said, might have transpired in "early January" (Harvey, 6/25/75, p. 52). When Bissell was shown these notes, he agreed with Harvey about the timing of their initial discussion (Bissell, 7/17/75, p. 10).
 
 had -- or that Bissell had discussed the question of assassination with Arnold Silver, and this discussion, at the very least, had to take place after I know Bissell already had discussed the matter with Silver. (Harvey, 6/25/75, p. 52).
 

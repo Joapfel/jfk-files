@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31776.png
-
-Convert to Markdown# SECURITY INFORMATION
+# SECURITY INFORMATION
 
 ## PRESS CONTRIBUTIONS
 

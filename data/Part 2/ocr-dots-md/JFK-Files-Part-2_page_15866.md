@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15866.png
-
-Convert to MarkdownSource advised on January 5, 1970, that approximately 1500 people of all ages with about 25 per cent white attended the rally at the Afro-Arts Theater. A Negro musical group called the "Pharaohs" furnished the entertainment. Approximately $2,686. was collected.
+Source advised on January 5, 1970, that approximately 1500 people of all ages with about 25 per cent white attended the rally at the Afro-Arts Theater. A Negro musical group called the "Pharaohs" furnished the entertainment. Approximately $2,686. was collected.
 
 Source stated that ISH FLORY, leader of the Afro-American Heritage Association (AAHA), called the meeting to order and presided as the master of ceremony. FLORY spoke concerning his own AAHA and the BPP, and explained how these two organizations were helping the people. FLORY also stated that conditions between the races were improving.
 

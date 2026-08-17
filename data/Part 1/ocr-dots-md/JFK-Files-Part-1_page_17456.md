@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17456.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 MEX 960
 IN 17:39

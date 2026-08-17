@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16941.png
-
-Convert to MarkdownCSCI-316/04400-66
+CSCI-316/04400-66
 
 Distribution:
 

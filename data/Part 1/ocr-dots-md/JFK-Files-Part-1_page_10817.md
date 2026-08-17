@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10817.png
-
-Convert to MarkdownUN COLEGA "El Sol de Hialash", nueva publicación dirigida por el Joven Raúl L. Martínez, Primogénito de "China". Es el primer periódico latino de la ciudad que programa. Su confección tipográfica magnífica. Una organa más para la cuna cubana.
+UN COLEGA "El Sol de Hialash", nueva publicación dirigida por el Joven Raúl L. Martínez, Primogénito de "China". Es el primer periódico latino de la ciudad que programa. Su confección tipográfica magnífica. Una organa más para la cuna cubana.
 
 SUBASTAS. Por el Canal 2 TV. Iniciada el 21 hasta el 26 de abril. Pinturas, Esculturas, en venta. Para ayudar a la WTHS (canal 2) en el programa Educacional del Condado de Dade. En su servicio comunal. Convocados expertos de Arte. Para discutir los trabajos de arte y el talento artístico de donantes.
 

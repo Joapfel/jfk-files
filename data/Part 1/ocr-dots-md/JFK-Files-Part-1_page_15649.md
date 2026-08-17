@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15649.png
-
-Convert to Markdown52. Subject feels that a friend would regard him as unstable, affectionate, and a day dreamer.
+52. Subject feels that a friend would regard him as unstable, affectionate, and a day dreamer.
 
 53. Subject feels that a critic would say of him that the majority of his commercial undertakings have brought results which are considerably lower than hoped for. Consequently, he feels he is either an optimist or a joker, or else his views on the possibilities of accomplishing things are not very healthy.
 

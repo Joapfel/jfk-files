@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31008.png
-
-Convert to Markdownsource are reported on the Form 2555 (Statement to Support Exclusion of Income Earned Abroad) and excluded under the bona fide residence exclusion.
+source are reported on the Form 2555 (Statement to Support Exclusion of Income Earned Abroad) and excluded under the bona fide residence exclusion.
 
 Any tax liability resulting from overt filing will be set by you separately from the covert tax assessment funds collected by the Organization.
 

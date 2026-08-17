@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15321.png
-
-Convert to Markdown-23-
+-23-
 
 5. The Period after .11:
 

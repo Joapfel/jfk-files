@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13777.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 3 June 64
 

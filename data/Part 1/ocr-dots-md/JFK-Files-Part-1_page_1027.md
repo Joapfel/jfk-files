@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1027.png
-
-Convert to Markdown1. HSCA Request, 22 December 1977 (OLC #77-5685/4) for access to files or documents on or referring to:
+1. HSCA Request, 22 December 1977 (OLC #77-5685/4) for access to files or documents on or referring to:
 
 5. David Atlee Phillips. Former CIA employee who was in charge of the Cuban desk in the U.S. Embassy in Mexico City in 1963.
 

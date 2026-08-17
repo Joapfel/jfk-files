@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17749.png
-
-Convert to Markdown... es mejor que se legmlico bien, o sequence un pasaporte mexicano de la nina porque sino después van a descubrir el truco de que cuando llego o donde está la visa de la niña, etc. y hay que aclarar que ellaacio en México. LIDONEY quo está bien y pregunta si TAPIA sale de vacaciones. TAPIA dico que no podrá salir. LIDONEY si algo se le ofrece le llamaré a la embajada.
+... es mejor que se legmlico bien, o sequence un pasaporte mexicano de la nina porque sino después van a descubrir el truco de que cuando llego o donde está la visa de la niña, etc. y hay que aclarar que ellaacio en México. LIDONEY quo está bien y pregunta si TAPIA sale de vacaciones. TAPIA dico que no podrá salir. LIDONEY si algo se le ofrece le llamaré a la embajada.
 
 - 353-
 

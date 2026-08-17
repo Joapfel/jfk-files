@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9806.png
-
-Convert to Markdown<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>HMA - 34484</td></tr></tbody></table>
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>HMA - 34484</td></tr></tbody></table>
 
 surveillance by the LIEMBRACES. The results, at least in the PBRUMEN phase of this operation, have been unspectacular so far. The main usefulness of LIRING-3 and LIRING-4 has been a) as access agents to LIRING, (although this has been largely reduced to the LIRING Consulate), and b) to introduce Wallace B. ROWTON to visiting PBRUMEN officials and members of the local leftist community with access to PBRUMEN and LIRING. A major effort was started recently to take this operation up one more notch and, taking advantage of a recent crisis in the relations between LIRING-3 and LIRING-4, send the latter to PBRUMEN on a mission to assess and hopefully recruit new sources of information. The exploitation of LIRING-3's contacts with representatives of the Guatemalan FAR rebel movement was the object of separate correspondence. LIRING-3's renewed contacts with these representatives do not at this time involve PBRUMEN, although the latter clearly supports at least some of their activities.
 

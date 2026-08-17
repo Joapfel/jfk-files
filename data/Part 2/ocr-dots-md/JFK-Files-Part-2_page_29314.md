@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29314.png
-
-Convert to Markdown# Agency Information
+# Agency Information
 
 AGENCY : HSCA
 RECORD NUMBER : 180-10107-10006

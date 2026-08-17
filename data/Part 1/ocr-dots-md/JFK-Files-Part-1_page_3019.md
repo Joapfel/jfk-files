@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3019.png
-
-Convert to MarkdownRECORDED COPY
+RECORDED COPY
 
 <table>
     <tbody>

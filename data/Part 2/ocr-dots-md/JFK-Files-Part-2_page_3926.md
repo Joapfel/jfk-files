@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3926.png
-
-Convert to MarkdownGI Death Probe
+GI Death Probe
 Turns to Poison
 
 TOKYO, March 15 (AP)—The undergoing psychiatric treatment.

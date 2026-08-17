@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13740.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① State of Security - William G. Gardner
 Third Agency delivari - one sealed envelope.

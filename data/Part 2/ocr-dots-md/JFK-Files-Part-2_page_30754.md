@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30754.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① 5 March 1977 Cable IV. 207098
 

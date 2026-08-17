@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2914.png
-
-Convert to MarkdownSEVENTH DEPARTMENT - January 1962-January, 1964)
+SEVENTH DEPARTMENT - January 1962-January, 1964)
 
 Operational Activities - July 1962-January 1964: Summary
 

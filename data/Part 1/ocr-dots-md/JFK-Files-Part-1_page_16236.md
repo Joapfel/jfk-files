@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16236.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES:
 
 SECRET

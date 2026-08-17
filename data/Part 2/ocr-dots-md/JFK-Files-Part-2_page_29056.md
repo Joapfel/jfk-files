@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29056.png
-
-Convert to MarkdownSALESMAN: Barlo & Co Commission NUMBER:
+SALESMAN: Barlo & Co Commission NUMBER:
 
 WEEK ENDING
 

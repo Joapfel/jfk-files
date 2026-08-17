@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6826.png
-
-Convert to MarkdownMemorandum to Mr. Tolson
+Memorandum to Mr. Tolson
 
 he was very greatly concerned about this entire matter and that, in order
 for honesty and justice to prevail, an arbitrator should be set up who would

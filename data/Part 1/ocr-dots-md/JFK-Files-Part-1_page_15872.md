@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15872.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>27</td><td>SECRET</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td></tr><tr><td colspan="2"></td></tr><tr><td colspan="2">ADVANCE COPY</td></tr><tr><td>[BOXED] ISSUED</td><td>[BOXED] SLIPPED</td><td>[BOXED] TYPED</td><td>UNIT</td><td>TIME</td><td>BY</td></tr><tr><td colspan="3">ACTION</td><td colspan="3"></td></tr><tr><td colspan="3">INFO</td><td colspan="3"></td></tr><tr><td colspan="6">VR. FILE C.D.C., WEB, C.C./O.R., F1, F1/04, 11F-4</td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>27</td><td>SECRET</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td></tr><tr><td colspan="2"></td></tr><tr><td colspan="2">ADVANCE COPY</td></tr><tr><td>[BOXED] ISSUED</td><td>[BOXED] SLIPPED</td><td>[BOXED] TYPED</td><td>UNIT</td><td>TIME</td><td>BY</td></tr><tr><td colspan="3">ACTION</td><td colspan="3"></td></tr><tr><td colspan="3">INFO</td><td colspan="3"></td></tr><tr><td colspan="6">VR. FILE C.D.C., WEB, C.C./O.R., F1, F1/04, 11F-4</td></tr></table>
 
 SECRET 121709Z
 

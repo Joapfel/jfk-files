@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16721.png
-
-Convert to MarkdownSECURITY
+SECURITY
 
 (o) Alternative A would be more expensive in terms of US units required than Alternative B.
 

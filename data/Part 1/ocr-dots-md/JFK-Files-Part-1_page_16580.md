@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16580.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>(DATE AND TIME FILLED)</th></tr></thead><tbody><tr><td>SECRET</td><td>02 22 72Z FEB 71</td></tr><tr><td colspan="2">CITE DIRECTOR 107366 P</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>(DATE AND TIME FILLED)</th></tr></thead><tbody><tr><td>SECRET</td><td>02 22 72Z FEB 71</td></tr><tr><td colspan="2">CITE DIRECTOR 107366 P</td></tr></tbody></table>
 
 MADRID INFO: WH/MIAMI
 

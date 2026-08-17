@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_696.png
-
-Convert to Markdownin that city. In addition, AMBANG-1 will attempt to see and talk
+in that city. In addition, AMBANG-1 will attempt to see and talk
 to Venezuelan Government officials including President Betancourt.
 
 Some time after this trip AMBANG-1 intends to visit Central America principally Costa Rica and if he can procure a visa, Mexico. The purpose of all his travel is the raising of funds, the general tightening of his organization and discussions necessary to coordinate their efforts.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26111.png
-
-Convert to Markdowntalking so much.
+talking so much.
 
 O'BRIEN: Was he pretty tough?
 

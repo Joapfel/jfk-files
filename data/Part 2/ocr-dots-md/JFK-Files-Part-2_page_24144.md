@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24144.png
-
-Convert to Markdown54. Stock Account #3
+54. Stock Account #3
 
 A Delaware corporation with an address in Baltimore which purchases arms, ammunition, and police related equipment in a manner which cannot be traced to the United States Government; the company has no employees and is managed by Headquarters officials in alias.
 

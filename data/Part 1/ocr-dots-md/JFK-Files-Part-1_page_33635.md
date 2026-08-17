@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33635.png
-
-Convert to Markdownat various meetings in this country and at gatherings, such as the European Movement, abroad.
+at various meetings in this country and at gatherings, such as the European Movement, abroad.
 
 ### b. Psychological Warfare
 

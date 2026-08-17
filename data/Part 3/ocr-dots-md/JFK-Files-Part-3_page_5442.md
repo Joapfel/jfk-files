@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5442.png
-
-Convert to MarkdownThere is no question whatsoever because that which I say applies
+There is no question whatsoever because that which I say applies
 to others should also apply to me. But, I do feel that I have
 control of the organization. I have known of no disruptive tactics that
 might have been launched to unseat me and again were there any

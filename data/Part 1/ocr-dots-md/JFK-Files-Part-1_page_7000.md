@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7000.png
-
-Convert to MarkdownTO: Director
+TO: Director
 Federal Bureau of Investigation
 
 Attention: Mr. S. J. Rapideh

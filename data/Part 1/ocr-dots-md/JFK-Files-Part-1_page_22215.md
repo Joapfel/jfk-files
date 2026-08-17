@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22215.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 "NOSENKO'S Claim to Have Been a Komsomol Secretary in the Second Chief Directorate, KGB
 

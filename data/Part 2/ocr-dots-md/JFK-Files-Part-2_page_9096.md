@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9096.png
-
-Convert to Markdown(Revised 2/24/75)
+(Revised 2/24/75)
 
 BLACK PANTHER PARTY
 FORMERLY KNOWN AS THE BLACK PANTHER PARTY FOR SELF-DEFENSE

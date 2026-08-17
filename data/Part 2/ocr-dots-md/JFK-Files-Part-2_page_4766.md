@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4766.png
-
-Convert to MarkdownSECRET
+SECRET
 
 worldwide network of offices engaged largely in what -- this
 again was a critic's view -- largely excessive, self-defeating

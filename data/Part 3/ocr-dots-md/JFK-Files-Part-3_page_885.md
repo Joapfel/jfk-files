@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_885.png
-
-Convert to Markdownthat the results of such surveillance should not be disclosed where no Fourth Amendment rights of any individual have been violated because to do otherwise would reveal information which would make the surveillance valueless in the future,
+that the results of such surveillance should not be disclosed where no Fourth Amendment rights of any individual have been violated because to do otherwise would reveal information which would make the surveillance valueless in the future,
 
 To conclude otherwise would be to put the Government to an untenable election. It would have to elect between disclosure of a vital and proper intelligence operation, on the one hand, and prosecution of a criminal who may have blundered or even intruded himself on the other. Such a construction would even give to a criminal the power to prevent his prosecution — simply taking steps to ensure that a conversation of his is overheard during the course of a foreign intelligence surveillance.
 

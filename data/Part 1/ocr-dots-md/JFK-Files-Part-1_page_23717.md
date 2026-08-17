@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23717.png
-
-Convert to MarkdownDIAZ, Pedro Martinez
+DIAZ, Pedro Martinez
 
 Martinez Diaz, Pedro
 

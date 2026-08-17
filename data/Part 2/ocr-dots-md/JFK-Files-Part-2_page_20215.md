@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20215.png
-
-Convert to Markdown# ADMINISTRATIVE DATA
+# ADMINISTRATIVE DATA
 
 Second source referred to in LHM is ROBERT J. DAVIDS, 917-15th Street, N. W.
 

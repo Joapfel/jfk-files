@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6934.png
-
-Convert to Markdownbecause they determine the amount of material which may be withheld.
+because they determine the amount of material which may be withheld.
 
 Before discussing the limitations on the term "assassination material" as related to the assassination of President John F. Kennedy, I note that this section excludes records on the assassinations of Senator Robert F. Kennedy and Dr. Martin Luther King, Jr. The House Select Committee on Assassinations ("HSCA") conducted an extensive investigation on Dr. King's assassination and concluded that his murder probably involved a conspiracy. Public belief that Dr. King was killed as a result of a conspiracy and that this crime remains unsolved is widespread. The alleged assassin, James Earl Ray, denies that he shot Dr. King. Unless the importance of historical issues is to be determined by whether a movie has been made about them, there is no justification for excluding the King assassination records from this legislation.
 

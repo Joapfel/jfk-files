@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23752.png
-
-Convert to Markdownyou're now directing another committee to do many things within
+you're now directing another committee to do many things within
 a short period of time and they may have more important
 recommendations that they consider too.
 

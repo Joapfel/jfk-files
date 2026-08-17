@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6926.png
-
-Convert to MarkdownMr. Chairman and members of the Committee:
+Mr. Chairman and members of the Committee:
 
 I am honored to have this opportunity to testify before you on the legislation to require the government to release its records pertaining to the assassination of President John F. Kennedy. I appear on behalf of the Assassination Archives and Research Center ("the AARC"), of which I am President. The AARC is a private, non-profit organization which collects, preserves and disseminates information and materials on political assassinations. The AARC is funded by membership dues and donations from the public. I am an attorney specializing in Freedom of Information Act litigation, and have litigated well over 100 such lawsuits. Over the past twenty years I have represented nearly all of the major authors and researchers who have litigated their Freedom of Information Act requests for records pertaining to the assassination of President Kennedy. To date, I have handled over fifty such lawsuits.
 

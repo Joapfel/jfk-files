@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16208.png
-
-Convert to Markdown10/4/89
+10/4/89
 
 # PACK TWO
 

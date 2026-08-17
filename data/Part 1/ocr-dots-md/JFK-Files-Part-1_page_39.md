@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_39.png
-
-Convert to Markdown13-00000
+13-00000
 
 not make exception in this sort of thing."
 

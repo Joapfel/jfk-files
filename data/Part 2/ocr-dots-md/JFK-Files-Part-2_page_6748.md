@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6748.png
-
-Convert to MarkdownOUTLINE OF TESTIMONY ON JFK RESOLUTION
+OUTLINE OF TESTIMONY ON JFK RESOLUTION
 
 A. Agreement with Principles of Legislation.
 

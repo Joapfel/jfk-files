@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26520.png
-
-Convert to MarkdownThat is all we got as their reply. So in effect they refuse to attend
+That is all we got as their reply. So in effect they refuse to attend
 the meetings of the substitute command but want a meeting of the titular
 command. In that regard, the [several words] a meeting to [take up] the
 points, this note must be answered. The line that we conclude from this

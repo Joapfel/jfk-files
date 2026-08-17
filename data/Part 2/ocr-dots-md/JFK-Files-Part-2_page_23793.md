@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23793.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 prohibited from using American media organizations for
 2 cover. That is the extent of it.

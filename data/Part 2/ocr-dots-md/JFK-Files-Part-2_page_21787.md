@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21787.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 anybody. It was to provide information to them because their name would come up somewhere in a case.
 

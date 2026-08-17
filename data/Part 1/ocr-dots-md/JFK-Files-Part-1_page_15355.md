@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15355.png
-
-Convert to Markdown14-09-65
+14-09-65
 
 MESSAGE FORM
 TOTAL COPIES: 26

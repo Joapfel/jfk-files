@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5607.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Reconsideration of Releases in Scelso Testimony and Lopez Report
 

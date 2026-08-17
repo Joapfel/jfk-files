@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10232.png
-
-Convert to MarkdownMemorandum J. B. Hotis to Mr. Dalbey
+Memorandum J. B. Hotis to Mr. Dalbey
 Re: FBI AUTHORITY IN DOMESTIC
 INTELLIGENCE MATTERS
 

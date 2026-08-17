@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21989.png
-
-Convert to Markdown29. Memo, Chase to Bundy, 12 November 1964, and attachment (apparently a Bundy memo for a meeting with LBJ on 7 April 1964).
+29. Memo, Chase to Bundy, 12 November 1964, and attachment (apparently a Bundy memo for a meeting with LBJ on 7 April 1964).
 
 The Bundy memo suggests that LBJ approved various options "short of war to get rid of the Castro regime," including the possible contamination of sensitive Cuban imports (not food). The Chase memo indicates that a Fitzgerald operation was underway in November 1964 to ship contaminating elements into Cuba.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24904.png
-
-Convert to Markdown-24-
+-24-
 
 Helms, who had considerable experience as a covert operator,
 gave precisely the opposite meaning to the same words, interpret-

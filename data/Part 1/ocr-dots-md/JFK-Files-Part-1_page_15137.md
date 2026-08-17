@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15137.png
-
-Convert to Markdown-19-
+-19-
 
 rief in russischer Sprache. Ich hörte Stimmen und Fuss-
 tritte im Haus, aber niemand öffnete. Ich kletterte auf

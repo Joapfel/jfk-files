@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7097.png
-
-Convert to Markdown# The Organization of the Senate Select Committee - Rough Structure
+# The Organization of the Senate Select Committee - Rough Structure
 
 The Committee will organize into four Task Forces - each with a Task Force Director, each with a lawyer or lawyers assigned and each with several researchers. Total professionals - 30/40.
 

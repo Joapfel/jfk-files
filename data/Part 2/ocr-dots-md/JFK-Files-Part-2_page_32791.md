@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32791.png
-
-Convert to Markdown4) Task 23, Counterfeit Currency to Increase Cuban economic problems is concierred feasible within 30-60 days upon a limited basis and in considerable scale within six months. CIA asks the Group approval before proceeding with this action.
+4) Task 23, Counterfeit Currency to Increase Cuban economic problems is concierred feasible within 30-60 days upon a limited basis and in considerable scale within six months. CIA asks the Group approval before proceeding with this action.
 
 Other Tasks.
 

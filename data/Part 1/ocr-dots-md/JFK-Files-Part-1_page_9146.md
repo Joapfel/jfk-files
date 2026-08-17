@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9146.png
-
-Convert to MarkdownJuly 5, 1967
+July 5, 1967
 
 Eva's food
 Cot forces + tip

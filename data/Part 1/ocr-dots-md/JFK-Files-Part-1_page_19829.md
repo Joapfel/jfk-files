@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19829.png
-
-Convert to Markdown(4)
+(4)
 
 OCCUPATION ... HIS/SELF ... LAST EMPLOYER ... NA
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4808.png
-
-Convert to MarkdownExtrañoislamiento del doctor Bosch
+Extrañoislamiento del doctor Bosch
 
 Del Movimiento Costa Rica Libre, recibimos la siguiente comunicación:
 

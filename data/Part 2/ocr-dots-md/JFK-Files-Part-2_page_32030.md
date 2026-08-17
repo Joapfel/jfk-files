@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32030.png
-
-Convert to MarkdownSECRET FOR OFFICIAL USE ONLY
+SECRET FOR OFFICIAL USE ONLY
 
 <table><tr><td>US ARMY REGULAR</td></tr><tr><td>OFFICIAL AGENCY CHECK</td></tr></table>
 

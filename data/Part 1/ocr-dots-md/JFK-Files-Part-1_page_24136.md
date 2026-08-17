@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24136.png
-
-Convert to Markdownbut we never had a reply. He wanted to have an interview with Castro for a magazine -- Playboy Magazine.
+but we never had a reply. He wanted to have an interview with Castro for a magazine -- Playboy Magazine.
 
 Q: Playboy Magazine.
 

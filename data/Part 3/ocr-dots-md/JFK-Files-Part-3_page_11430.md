@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11430.png
-
-Convert to MarkdownFebruary 12, 1976
+February 12, 1976
 
 Mr. William H. Lawrence
 314 Swiss-Pine-Lake-Drive

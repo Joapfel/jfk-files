@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17404.png
-
-Convert to Markdown# BLACK PANTHER PARTY (BPP)
+# BLACK PANTHER PARTY (BPP)
 
 ## Jeldean Eldridge
 

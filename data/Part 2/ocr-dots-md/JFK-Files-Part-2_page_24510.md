@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24510.png
-
-Convert to Markdownoral instructions conveyed to Assistant Secretary of State Woodward*, a plan is
+oral instructions conveyed to Assistant Secretary of State Woodward*, a plan is
 desired for the indicated contingency."
 
 Related documents indicate that the subject matter of the contingency

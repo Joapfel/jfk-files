@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30350.png
-
-Convert to MarkdownDEPARTMENT OF THE AIR FORCE
+DEPARTMENT OF THE AIR FORCE
 HEADQUARTERS UNITED STATES AIR FORCE
 
 Office of Special Investigations

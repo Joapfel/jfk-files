@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22662.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG : S. D. BURTON
 UNIT : WHD

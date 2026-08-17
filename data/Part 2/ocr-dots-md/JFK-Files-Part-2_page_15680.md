@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15680.png
-
-Convert to MarkdownDEPIALS:
+DEPIALS:
 
 The following characterization is not to be read in
 in the appendix section of this report:

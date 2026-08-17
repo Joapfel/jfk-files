@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5393.png
-
-Convert to MarkdownSUBJECT: Pending ARRB (JFK Board) Issues
+SUBJECT: Pending ARRB (JFK Board) Issues
 
 time. We are also exploring with the DO senior management whether the blanket release of pocket litter (whether lawfully obtained or forged) might present media or operational issues today. Accordingly, we have requested that the issue be postponed until the May meeting.
 

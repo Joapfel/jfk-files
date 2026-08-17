@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5033.png
-
-Convert to MarkdownRosen to DeLoach Memorandum
+Rosen to DeLoach Memorandum
 
 RE: EUGENE THOMAS
 

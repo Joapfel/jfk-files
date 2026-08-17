@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21569.png
-
-Convert to Markdown14-0000
+14-0000
 
 support assets. Also included are letters in correspondence, references of foreign tourist firms, and foreign tourists.
 

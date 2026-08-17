@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10808.png
-
-Convert to Markdown"JACKIE GUDE (CAXI)
+"JACKIE GUDE (CAXI)
 Century Asso.
 7315 Wisconsin
 #320

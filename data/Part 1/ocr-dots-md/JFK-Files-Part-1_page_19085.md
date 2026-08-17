@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19085.png
-
-Convert to Markdown14-00000
+14-00000
 
 CONTRIBUTION
 INCE OF FISCAL YEAR.

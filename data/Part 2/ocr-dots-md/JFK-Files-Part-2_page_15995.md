@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15995.png
-
-Convert to Markdown# W.E.B. DU BOIS CLUBS OF CHICAGO (DCC)
+# W.E.B. DU BOIS CLUBS OF CHICAGO (DCC)
 
 On May 3, 1965, a source advised that on June 30, 1964, a group of young people who attended the founding convention of the W.E.B. DuBois Clubs of America (DCA) met in Chicago and adopted a statement of purpose and constitution forming the DCC as an affiliate of the national DCA.
 

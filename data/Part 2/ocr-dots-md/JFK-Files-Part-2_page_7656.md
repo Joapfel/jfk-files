@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7656.png
-
-Convert to MarkdownMr. BELMONT. I have covered that in some considerable detail, Mr. McCloy, and I will make a positive statement that Oswald was not, never was, an agent or an informant of the FBI.
+Mr. BELMONT. I have covered that in some considerable detail, Mr. McCloy, and I will make a positive statement that Oswald was not, never was, an agent or an informant of the FBI.
 
 Mr. McCLOY. In the course of your investigation do you have any reason to make you believe that he was an agent of any other country?
 

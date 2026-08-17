@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28233.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. Authorized instructions which you receive from CIA in briefing, training, or in any other way are a part of this memorandum of agreement and are incorporated herein to the extent that such instructions are not inconsistent with the terms hereof.
 

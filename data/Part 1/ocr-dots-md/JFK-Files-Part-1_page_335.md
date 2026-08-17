@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_335.png
-
-Convert to Markdown14-00000
+14-00000
 
 MARTIN, ELWOOD D
 Route 2 Box 100

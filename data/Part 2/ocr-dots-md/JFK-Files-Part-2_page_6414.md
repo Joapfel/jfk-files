@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6414.png
-
-Convert to Markdown13-00000
+13-00000
 
 JOINT STAFF PAPERS (147 documents)
 

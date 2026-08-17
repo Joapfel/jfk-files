@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1472.png
-
-Convert to MarkdownFD-36 (Rev. 7-27-76)
+FD-36 (Rev. 7-27-76)
 
 <table><tr><td>Assoc. Dir.</td></tr><tr><td>Dep. AD Adm</td></tr><tr><td>Dep. AD Inv</td></tr><tr><td>Asst. Dir:</td></tr><tr><td>Adm. Serv.</td></tr><tr><td>Crim. Inv.</td></tr><tr><td>Fin. & Pers.</td></tr><tr><td>Ident.</td></tr><tr><td>Intell.</td></tr><tr><td>Laboratory</td></tr><tr><td>Legal Coun.</td></tr><tr><td>Plan. & Insp.</td></tr><tr><td>Rec. Mgmt.</td></tr><tr><td>Spec. Inv.</td></tr><tr><td>Tech. Serv.</td></tr><tr><td>Training</td></tr><tr><td>Public Aids. Off.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director's Sec'y</td></tr></table>
 

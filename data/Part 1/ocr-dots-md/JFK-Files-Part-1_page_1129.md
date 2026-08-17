@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1129.png
-
-Convert to MarkdownHR 20-55
+HR 20-55
 
 PERSONNEL
 

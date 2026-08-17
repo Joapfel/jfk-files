@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10768.png
-
-Convert to MarkdownMemorandum to Mr. Belmont
+Memorandum to Mr. Belmont
 
 RE: AGREEMENT REACHED IN CONNECTION WITH
 THE PROPOSED REASSIGNMENT OF SUPERVISORY

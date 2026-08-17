@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34200.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 161807Z
 

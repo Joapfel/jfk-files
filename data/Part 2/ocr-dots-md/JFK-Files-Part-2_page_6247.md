@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6247.png
-
-Convert to MarkdownMAR 18 '97 06:59PM
+MAR 18 '97 06:59PM
 
 4/3/78
 HARDWAY

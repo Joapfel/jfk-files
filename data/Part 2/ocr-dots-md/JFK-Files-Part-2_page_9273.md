@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9273.png
-
-Convert to MarkdownDE T-2
+DE T-2
 September 4, 1972
 
 ## 3. Free Bussing Program

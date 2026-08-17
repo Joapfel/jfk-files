@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11592.png
-
-Convert to Markdown**CLASSIFIED MESSAGE**
+**CLASSIFIED MESSAGE**
 
 ORIG : J.W. ISADEN
 UNIT : VE/BR.I

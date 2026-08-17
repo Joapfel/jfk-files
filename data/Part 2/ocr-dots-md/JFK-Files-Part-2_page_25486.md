@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25486.png
-
-Convert to MarkdownNocco, and they were, they were sloppier, and the agent Al Chestone told me convince them, you know, case 'em, keep going up and down the steps, what time they throw their garbage out. Garbage was the most valuable source of information for the Bureau, and that was...
+Nocco, and they were, they were sloppier, and the agent Al Chestone told me convince them, you know, case 'em, keep going up and down the steps, what time they throw their garbage out. Garbage was the most valuable source of information for the Bureau, and that was...
 
 FS: Garbage and trash.
 

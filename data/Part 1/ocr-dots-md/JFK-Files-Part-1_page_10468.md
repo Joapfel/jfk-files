@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10468.png
-
-Convert to MarkdownChief, Washington Field Office
+Chief, Washington Field Office
 
 16 June 1972
 

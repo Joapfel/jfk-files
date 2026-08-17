@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25803.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 knowledge, does not know the location of any of the LIFEAT Base houses).
 

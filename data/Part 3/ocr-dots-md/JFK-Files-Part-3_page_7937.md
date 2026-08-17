@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7937.png
-
-Convert to MarkdownCaption. on Folder or File: (Print)
+Caption. on Folder or File: (Print)
 
 FOREIGN INFLUENCE IN THE BLACK EXTREMIST MOVEMENT
 

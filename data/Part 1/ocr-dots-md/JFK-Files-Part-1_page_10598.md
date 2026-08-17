@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10598.png
-
-Convert to MarkdownMAR 10 1965
+MAR 10 1965
 
 Federal Bureau of Investigation
 

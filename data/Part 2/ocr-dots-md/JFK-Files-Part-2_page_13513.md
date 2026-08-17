@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13513.png
-
-Convert to MarkdownAtlanta, Georgia
+Atlanta, Georgia
 
 May 12, 1975
 

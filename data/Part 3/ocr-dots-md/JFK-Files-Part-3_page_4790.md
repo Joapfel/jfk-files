@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4790.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 The following investigation was conducted by SA WILLIAM R. LISTON, Muncie, Indiana, on May 27, 1968:
 

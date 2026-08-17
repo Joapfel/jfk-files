@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28868.png
-
-Convert to Markdown4 October 1973
+4 October 1973
 
 Ron -
 

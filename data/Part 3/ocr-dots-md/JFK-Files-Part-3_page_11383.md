@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11383.png
-
-Convert to MarkdownNRO02 SV CODE
+NRO02 SV CODE
 
 715 PM NITEL 3/25/75 PNR
 

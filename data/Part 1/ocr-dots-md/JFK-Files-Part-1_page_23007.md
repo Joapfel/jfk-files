@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23007.png
-
-Convert to Markdown24 September 1951
+24 September 1951
 
 THRU:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6381.png
-
-Convert to MarkdownCERTIFICATION FOR 6 MARCH 1995 SI/TK/G&B
+CERTIFICATION FOR 6 MARCH 1995 SI/TK/G&B
 
 David Marwell 080-30-7709
 Thomas J. Gunn 529-74-8907

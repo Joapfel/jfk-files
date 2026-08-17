@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17291.png
-
-Convert to MarkdownHMM-A-11257
+HMM-A-11257
 KAPQK-1472
 
 b. Protect the security of LIENTRAP and report all operational security developments involving the operation.

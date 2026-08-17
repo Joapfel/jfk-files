@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4401.png
-
-Convert to MarkdownMovimiento de Re recuperación Revolucionaria
+Movimiento de Re recuperación Revolucionaria
 
 3212 N. 6. & CO.
 MIAMI, FLORIDA

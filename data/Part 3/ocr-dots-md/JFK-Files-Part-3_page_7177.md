@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7177.png
-
-Convert to Markdown4
+4
 
 (2) The conduct of domestic intelligence or counterintelligence operations against United States citizens by the Federal Bureau of Investigation or any other Federal agency.
 

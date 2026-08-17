@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34683.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">"DO" RECORD MATERIAL</th><th>DUE DATE</th></tr></thead><tbody><tr><td>1.</td><td>THIS DOCUMENT IS CHARGED TO YOU.</td><td>5/8/76 - 5/9/76</td></tr><tr><td>2.</td><td>RETURN THIS DOCUMENT TO IP/ARCHIVES, RM GE-3S, ON OR BEFORE DATE INDICATED.</td><td></td></tr><tr><td>3.</td><td>IF YOU FORWARD THIS DOCUMENT TO ANOTHER INDIVIDUAL PLEASE CALL EXTENSION 4598</td><td></td></tr><tr><td colspan="3">DO NOT REMOVE THIS FORM</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">"DO" RECORD MATERIAL</th><th>DUE DATE</th></tr></thead><tbody><tr><td>1.</td><td>THIS DOCUMENT IS CHARGED TO YOU.</td><td>5/8/76 - 5/9/76</td></tr><tr><td>2.</td><td>RETURN THIS DOCUMENT TO IP/ARCHIVES, RM GE-3S, ON OR BEFORE DATE INDICATED.</td><td></td></tr><tr><td>3.</td><td>IF YOU FORWARD THIS DOCUMENT TO ANOTHER INDIVIDUAL PLEASE CALL EXTENSION 4598</td><td></td></tr><tr><td colspan="3">DO NOT REMOVE THIS FORM</td></tr></tbody></table>
 
 (47)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1799.png
-
-Convert to MarkdownCIA Personnel Under State Cover
+CIA Personnel Under State Cover
 
 We recommend that CIA personnel under the Department of
 State cover make greater efforts to truly live their cover. We believe

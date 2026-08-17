@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31445.png
-
-Convert to Markdown12 September 1952
+12 September 1952
 
 MEMORANDUM FOR: Chief, IO Division
 SUBJECT: Current U. S. Attempt to form a Unified Romanian Refugee Organization

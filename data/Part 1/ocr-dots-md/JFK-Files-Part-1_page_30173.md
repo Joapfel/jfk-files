@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30173.png
-
-Convert to MarkdownRECORD OF
+RECORD OF
 
 PREVIOUS GOVERNMENT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21389.png
-
-Convert to MarkdownNY 3877-S* advised that on 7/30/63, an individual who identified himself as Taylor Adams, "an old publicity man retired from business for some years now" and a friend of Richard Gibson with whom he had done some work on the FPCC, had been in contact with Enrique Trujillo, Third Secretary, Cuban Mission to the UN, (62-77787-210) NYC.
+NY 3877-S* advised that on 7/30/63, an individual who identified himself as Taylor Adams, "an old publicity man retired from business for some years now" and a friend of Richard Gibson with whom he had done some work on the FPCC, had been in contact with Enrique Trujillo, Third Secretary, Cuban Mission to the UN, (62-77787-210) NYC.
 
 62-77787-210-800 ep.1
 (2)

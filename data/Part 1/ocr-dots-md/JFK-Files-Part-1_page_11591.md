@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11591.png
-
-Convert to MarkdownDATE : 4 FEB 54
+DATE : 4 FEB 54
 
 TO : DIRECTOR
 FROM : SANTIAGO

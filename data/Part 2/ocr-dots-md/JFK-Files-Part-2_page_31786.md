@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31786.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH/dp
 
 This newspaper account of the PAT MICHAEL's television show on KTVU, Channel 2, was verified by former SA MARVIN BUCHANAN, 2150 Franklin Street, Oakland, California, on June 19, 1968.

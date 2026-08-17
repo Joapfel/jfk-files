@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24447.png
-
-Convert to Markdown# Jacques Verges
+# Jacques Verges
 
 10 March 1984
 

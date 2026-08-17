@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2350.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 21 OCT 1965

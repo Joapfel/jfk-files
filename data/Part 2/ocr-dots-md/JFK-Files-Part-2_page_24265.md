@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24265.png
-
-Convert to Markdown# X: ISSUES POSED, CONCLUSIONS, AND RECOMMENDATIONS
+# X: ISSUES POSED, CONCLUSIONS, AND RECOMMENDATIONS
 
 The preceding sections provide a general picture of the nature,
 extent, purpose, function and problems of proprietaries. Not unlike

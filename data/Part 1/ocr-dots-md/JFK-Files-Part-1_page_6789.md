@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6789.png
-
-Convert to Markdownlugar, ha sido sumamente exagerado y ha dejado de satisfa-
+lugar, ha sido sumamente exagerado y ha dejado de satisfa-
 cer en todos sentidos, sociales o económicos, las necesidades
 de desarrollo de la región. Para concretar, la característica
 decisiva de este desarrollo es que dejó de proporcionar o

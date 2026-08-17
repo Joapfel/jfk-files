@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7734.png
-
-Convert to Markdown9.01.03 Does he use his own Lighter ____ Matches ____
+9.01.03 Does he use his own Lighter ____ Matches ____
 
 9.01.04 Is he the kind of person who
 Is always asking for a light

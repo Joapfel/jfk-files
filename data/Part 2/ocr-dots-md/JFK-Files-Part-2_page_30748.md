@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30748.png
-
-Convert to Markdown#1
+#1
 
 I. CIA statements to N.C. (#988-927-BD, #1038-405-B, testimony affixit) 
 

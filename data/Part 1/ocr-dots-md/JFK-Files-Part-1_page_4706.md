@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4706.png
-
-Convert to MarkdownCIA
+CIA
 115000
 
 SECRET

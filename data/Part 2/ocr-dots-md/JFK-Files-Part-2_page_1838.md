@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1838.png
-
-Convert to Markdownif not prevent the reoccurrence of this pile-up of paper
+if not prevent the reoccurrence of this pile-up of paper
 is not lost on this officer. He constantly thinks in terms
 of procedures and controls to accomplish this end.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34548.png
-
-Convert to Markdownstarted it first?" Who made the decision on the amount to pay Oswald?
+started it first?" Who made the decision on the amount to pay Oswald?
 Why was it decided to pay him 700 rubles a month instead of 500 or
 1000? What was your salary as a KGB officer? Approximately
 400 rubles a month, new money? Isn't it true that Oswald received

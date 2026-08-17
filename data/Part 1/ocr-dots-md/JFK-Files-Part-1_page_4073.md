@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4073.png
-
-Convert to Markdown## Resumen de Financiería:
+## Resumen de Financiería:
 
 Inversión (adquisición) INVERSIÓN de US$ 2,000.00, y US$ 1,000.00 por DIVIDENDO.
 

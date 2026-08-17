@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6102.png
-
-Convert to Markdown# PROFESSIONAL EXPERIENCE
+# PROFESSIONAL EXPERIENCE
 
 ## Academic
 

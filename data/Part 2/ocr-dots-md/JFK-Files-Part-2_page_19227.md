@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19227.png
-
-Convert to Markdown"10,000 women have sat back and let their sons be killed in Vietnam. If we had 10,000 women willing to go to jail, if necessary, we could stop the war. You cannot have wars without women."
+"10,000 women have sat back and let their sons be killed in Vietnam. If we had 10,000 women willing to go to jail, if necessary, we could stop the war. You cannot have wars without women."
 
 Jeannette Rankin made the above statement in May of this year, when the country was told that 10,000 American boys had died in Vietnam. Fifty years ago as the first woman elected to Congress in the United States she said, "I want to stand by my country but I cannot vote for war."
 

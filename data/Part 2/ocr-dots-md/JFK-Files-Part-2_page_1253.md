@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1253.png
-
-Convert to Markdown# Secret
+# Secret
 
 ## COMMENDATION
 

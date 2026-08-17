@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18038.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ## Problems and Security
 

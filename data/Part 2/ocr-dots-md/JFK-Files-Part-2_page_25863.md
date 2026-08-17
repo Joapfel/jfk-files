@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25863.png
-
-Convert to MarkdownMiscellaneous John McCone Papers
+Miscellaneous John McCone Papers
 
 Tai Pilots
 

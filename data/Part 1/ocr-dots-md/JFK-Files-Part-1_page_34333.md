@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34333.png
-
-Convert to Markdown14-0000
+14-0000
 
 OFFICE
 105 E. 9 St.

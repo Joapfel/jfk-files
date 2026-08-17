@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29885.png
-
-Convert to MarkdownIN ACCORDANCE WITH THE PROVISIONS OF P. L. 86-568 AND SEC. 1329, MEMO DATED 1 AUGUST 1964, SALARY IS ADJUSTED AS FOLLOWS EFFECTIVE TO JULY 1960.
+IN ACCORDANCE WITH THE PROVISIONS OF P. L. 86-568 AND SEC. 1329, MEMO DATED 1 AUGUST 1964, SALARY IS ADJUSTED AS FOLLOWS EFFECTIVE TO JULY 1960.
 
 <table><thead><tr><th>SD</th><th>NAME</th><th>SERIAL</th><th>ORGAN</th><th>GR-ST</th><th>OLD SALARY</th><th>NEW SALARY</th></tr></thead><tbody><tr><td>01</td><td>MURPHY DAVID E</td><td>556700</td><td></td><td>52 20</td><td>GS-16 2</td><td>$14,430</td><td>$15,515</td></tr></tbody></table>
 

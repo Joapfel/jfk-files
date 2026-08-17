@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6077.png
-
-Convert to Markdown43. "Sempre que seja passivo, o Instituto Nacional de Reforma Agraria fomentará cooperativas agrárias. As cooperativas agrárias organízadas pelo Instituto Nacional de Reforma Agrária são terras de que肢iam-se em virtude do determinado na Lei, estabelecida a sua de reção, reservando-se o direito de designar os administradores das mesmas com o objetivo de assegurar o seu melhoria desenvolvimento na etapa inicial dêsse tipo de organização comumista e social, até que se evada por lei a sua mais ampla autonomia."
+43. "Sempre que seja passivo, o Instituto Nacional de Reforma Agraria fomentará cooperativas agrárias. As cooperativas agrárias organízadas pelo Instituto Nacional de Reforma Agrária são terras de que肢iam-se em virtude do determinado na Lei, estabelecida a sua de reção, reservando-se o direito de designar os administradores das mesmas com o objetivo de assegurar o seu melhoria desenvolvimento na etapa inicial dêsse tipo de organização comumista e social, até que se evada por lei a sua mais ampla autonomia."
 
 Como se vê, a lei pretende organizar graujas estatais e o fatode se referir a uma "etapa inicial" não diminui tal juízo, ja que nãosemania os princípios cooperativos. Tudo fica nas mãos do I.N.R.A.,que não procedem a qualquer regulamentação tensente a "mais amplo autonomia". E, além disso, não se "fomentou" senão que se "fez"isto é, não foi permitida a livre iniciativa do campo.
 

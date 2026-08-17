@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7202.png
-
-Convert to Markdown13-00000
+13-00000
 
 SECRET 240620Z OCT 75 STAFF
 

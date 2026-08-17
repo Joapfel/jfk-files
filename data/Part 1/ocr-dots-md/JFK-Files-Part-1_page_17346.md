@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17346.png
-
-Convert to Markdown14-00000
+14-00000
 
 FEBRÚR
 sílabo 11 mayo 253

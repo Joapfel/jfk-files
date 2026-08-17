@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5859.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 Journal, a daily Atlanta newspaper, Page 2A, published an article entitled, "ABERNATHY Says Soul Force, March to Solve Ills of Poor". This article revealed that on May 8, 1968, ABERNATHY addressed the weekly forum of the Atlanta Hungry Club on the theme, "The Poor People's Campaign, A Memorial to Dr. KING". ABERNATHY declared that the PPC was neither begging nor threatening violence but demanding "with a thrust from a non-violent sword".
 

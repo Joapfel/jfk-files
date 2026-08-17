@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24140.png
-
-Convert to MarkdownStates Government. The complex also underwrites insurance risks of certain proprietary organizations and administers the pension plans of these organizations. In addition, the complex has been used to provide a limited amount of support to other Agency operations -- specifically, the acquisition of operational real estate and as a conduit for the funding of selected foreign covert activities. Twelve full-time employees are involved in the management of the complex, with the assistance of three proprietary management firms. All expenses except for the salaries of Government employees assigned to the complex are paid from earned income. The companies involved are:
+States Government. The complex also underwrites insurance risks of certain proprietary organizations and administers the pension plans of these organizations. In addition, the complex has been used to provide a limited amount of support to other Agency operations -- specifically, the acquisition of operational real estate and as a conduit for the funding of selected foreign covert activities. Twelve full-time employees are involved in the management of the complex, with the assistance of three proprietary management firms. All expenses except for the salaries of Government employees assigned to the complex are paid from earned income. The companies involved are:
 
 27. **MHANVIL/A**
 

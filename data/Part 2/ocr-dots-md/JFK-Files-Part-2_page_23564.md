@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23564.png
-
-Convert to Markdown8.
+8.
 
 (the other 2200 are presumably under military or other non-state
 official cover). Originally the use of State Department cover for

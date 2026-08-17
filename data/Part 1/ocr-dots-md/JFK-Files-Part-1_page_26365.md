@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26365.png
-
-Convert to Markdown# FIELD INFORMATION REPORT
+# FIELD INFORMATION REPORT
 
 GRADING OF SOURCE: A Completely reliable. B Usually reliable. C Somewhat reliable. D Not usually reliable. I Not reliable (Applied to sources of doubtful honesty or loyalty, regardless of their competence.) F Reliability cannot be judged (Applied to untested or insufficiently tested sources.)
 

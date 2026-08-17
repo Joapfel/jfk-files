@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7146.png
-
-Convert to MarkdownMemorandum to Mr. W.R. Wannall
+Memorandum to Mr. W.R. Wannall
 RE: CENTRAL INTELLIGENCE AGENCY (CIA) EMPLOYEE
 SECRECY AGREEMENTS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6755.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 3 Mar 62 Note saying Navy message of this date is missing from CD 692 sent from Archives
 5 26 Apr 62 Collection of Navy Memo to Hoover/FBI plus Navy, USMC, and press items

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29175.png
-
-Convert to Markdown10. Girl Scouts - High St ool - West C街ton, Ohio USA
+10. Girl Scouts - High St ool - West C街ton, Ohio USA
 
 II. Hennepin. 465 - Westminstor Presbyter Church - Dayton 9,0. U.S.A.
 

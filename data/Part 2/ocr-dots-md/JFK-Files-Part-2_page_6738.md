@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6738.png
-
-Convert to MarkdownOCA 1123-92
+OCA 1123-92
 
 1. Did the CIA retain possession of records requested by or developed on behalf of the House Select Committee on Assassinations? If so, how many pages of such records does the Agency have in its possession? What is the nature of these records?
 

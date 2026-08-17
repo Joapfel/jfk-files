@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31550.png
-
-Convert to MarkdownThe interview of Klementy attached to the diaries and Consulates on forso's station in the United States. July 9, 1945 - February 27, 1946. United States Government Printing Office, Washington 1946-48.
+The interview of Klementy attached to the diaries and Consulates on forso's station in the United States. July 9, 1945 - February 27, 1946. United States Government Printing Office, Washington 1946-48.
 
 On page 7 one can read the testimony of Mr. Joseph Ignac Jolín, agent of F.R.H.N. speaking of Mr. Erwin Funk, former organizer of Czech Red Espionage network in USA, Mr. Jolín said:
 

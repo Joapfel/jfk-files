@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4681.png
-
-Convert to MarkdownUS AIR FORCE CABLE
+US AIR FORCE CABLE
 
 FROM JCS
 

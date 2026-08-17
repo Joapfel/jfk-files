@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9315.png
-
-Convert to MarkdownHuey P. Newton
+Huey P. Newton
 Minister of Defense
 Black Panther Party
 

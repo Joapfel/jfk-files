@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23285.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. For the purposes of the record, it should be noted that VAIVADA received prior Covert Training during October and November 1953. The present training was more in the nature of a refresher.
 

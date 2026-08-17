@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24142.png
-
-Convert to Markdown41. MHPIQUE
+41. MHPIQUE
 
 A Florida company which provides payroll cover for three non-staff personnel who handle the Cuban dependents program payments and correspondence; three employees.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1903.png
-
-Convert to Markdown# PERSONAL HISTORY STATEMENT
+# PERSONAL HISTORY STATEMENT
 
 ## 1008
 

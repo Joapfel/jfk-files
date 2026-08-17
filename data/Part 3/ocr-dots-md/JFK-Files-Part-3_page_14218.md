@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14218.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 conducted vigorously as a matter of urgency. Following the misfortune at the Bay of Pigs, there was a decrease in the clandestine effort against Cuba. Even so, from April 15, 1961 through December 1961 the Clandestine Services of CIA disseminated 608 information reports on Cuba, of which 406 reports came from sources inside Cuba. The Contact Division/00 of CIA disseminated 1764 reports on Cuba during the period April 8 to December 1961. During the period from April 1961 through December 1961, seventeen resident agents were recruited in Cuba and are still active. In addition, five resident assets, two with sub-assets, recruited prior to April 1961, were maintained during this same eight-month period and are still active. There were other recruitments and numerous attempts that failed.
 

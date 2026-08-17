@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_550.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">R. WAGNER<br>E/TF<br>1872<br>22 SEPT 70</td>
     <td>TOTAL COPIES:</td>

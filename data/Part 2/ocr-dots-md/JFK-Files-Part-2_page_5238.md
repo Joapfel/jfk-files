@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5238.png
-
-Convert to MarkdownNOV 07 '97 10:33AM
+NOV 07 '97 10:33AM
 
 Request for Funds for Declassification of Korean Documents
 

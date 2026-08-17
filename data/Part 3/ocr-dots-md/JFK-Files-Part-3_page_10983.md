@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10983.png
-
-Convert to Markdown# Serial Scope:
+# Serial Scope:
 
 Released under the John F. Kennedy
 Assassination Records Collection Act of

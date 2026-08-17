@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13838.png
-
-Convert to Markdown90. Telephone Contacts
+90. Telephone Contacts
 
 a) Lorenzo DELAY, number - Mexican delegate in Mexico - sent Gustavo Carrasco, to see Subject. Carrasco was Venezuelan instructor in use of farm machinery and the son of revolutionary group in Venezuela who could not return to his country and who was practically discharged from his teaching job at Charingo because of his ideology. (LIEVOC 6 Aug 61)
 

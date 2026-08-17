@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31432.png
-
-Convert to MarkdownSECRET
+SECRET
 SECURITY INFORMATION
 
 13 October 1952

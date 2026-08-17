@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20798.png
-
-Convert to MarkdownMEMORANDUM FOR PR/C130
+MEMORANDUM FOR PR/C130
 
 ATTENTION : Training Officer
 

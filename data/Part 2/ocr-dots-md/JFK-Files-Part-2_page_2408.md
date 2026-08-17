@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2408.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 TO : Chief, Communications
 FROM : Chief, Personnel Security Branch

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19011.png
-
-Convert to Markdown# Information Requested by "Slava"
+# Information Requested by "Slava"
 
 In response to inquiries, Jaffe stated "Slava" was especially interested in important current events such as "the Cuban crisis - things like that - what our (U.S.) reactions would be." Jaffe also stated: "He would ask me about some guy" at the American Embassy, such as Dick Gabey and Manuel Oliver." Jaffe indicated that his responses would be that he did not get close to these people or he only had a drink with them but did not learn anything significant. Jaffe continued: "He ('Slava') would say 'They talk to some of the correspondents.' I would say 'I never have any occasion, because with radio (ABC) you don't go into depth.'"
 

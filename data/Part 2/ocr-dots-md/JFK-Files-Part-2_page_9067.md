@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9067.png
-
-Convert to Markdown(12) BUREAU OPERATIONS IN BRAZIL - 1959
+(12) BUREAU OPERATIONS IN BRAZIL - 1959
 
 In 1959 the U. S. Ambassador in Brazil accused our Legal Attache of engaging in uncoordinated covert intelligence activity "of a nature which I believe exceeds his terms of reference." The Ambassador further indicated that CIA was unhappy over the Legal Attache's activities and the Agency allegedly had told the Ambassador that the Legal Attache had disseminated information from a source who was a fabricator or a provocator. This situation arose as a result of the Legal Attache's operation of an informant in Brazil. Some of the information that he received from the informant was of a derogatory nature and related to a Brazilian who was being touted as a Presidential candidate. CIA asked for the identity of the informant and we told the Agency that the person could not be identified because he did not wish that his identity be disclosed. This case is being cited because CIA may have evidence that we had been operational in Brazil, had not coordinated pursuant to Directives, and that the matter was further aggravated because of the alleged unreliability of the information. (Memorandum Roach to Belmont, May 1, 1959, re: "William I. Friedman, Legal Attache, Rio de Janeiro," 67-429840) and (Memorandum Roach to Belmont, May 25, 1959, re: "Soviet-Satellite Activities - Brazil," 134-7007-48)
 

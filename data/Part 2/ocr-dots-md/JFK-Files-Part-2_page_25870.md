@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25870.png
-
-Convert to MarkdownNRO 1963 thru 1965 (also includes one 6 Sept 61 ltr to DCI frmDefense re Management of NRO)
+NRO 1963 thru 1965 (also includes one 6 Sept 61 ltr to DCI frmDefense re Management of NRO)
 
 CYPRUS 1964 material on Cyprus & the DCI trip in Sept 1964
 

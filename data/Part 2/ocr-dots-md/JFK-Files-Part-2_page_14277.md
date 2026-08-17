@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14277.png
-
-Convert to Markdown# Memorandum to Mr. Adams
+# Memorandum to Mr. Adams
 
 Re: SENSTUDY 75
 FORMER SUPERVISOR LISH WHITSON

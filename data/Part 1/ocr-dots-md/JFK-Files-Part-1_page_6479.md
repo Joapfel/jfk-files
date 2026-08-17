@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6479.png
-
-Convert to MarkdownSECRET
+SECRET
 
 voluntary action, the program should "and other means through
 other contractors, or third" its own offices, of arranging dis-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4745.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the Carter administration. That scared the pants off Carter and, what the hell was his name -- Jody Powell, who was the press officer and Brzezinski -- to the point where they even made public statements about, you know, you've got to protect all this kind of relationships and what have you and what have you. Where Senator Moynihan said Jimmy Carter suddenly discovered CIA, which he campaigned against. You remember his litany about Watergate, Vietnam, and CIA were part of Jimmy Carter's campaign litany. Then Moynihan said something to the effect of: "Jimmy Carter, despite the campaign, has suddenly discovered that the CIA is now his." You know.
 

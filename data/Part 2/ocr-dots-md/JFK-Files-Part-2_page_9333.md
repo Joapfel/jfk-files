@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9333.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 The following is the text of an article which appeared in the March 27, 1971 edition of "The Black Panther" newspaper, page three, and according to DE T-2, was written by WAYNE THEODORE ROBERTSON:
 

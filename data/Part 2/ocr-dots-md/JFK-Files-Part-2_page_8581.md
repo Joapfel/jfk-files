@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8581.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DDA 77-2412
 28 APR 1977

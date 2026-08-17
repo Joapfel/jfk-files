@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26337.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO BE FURNISHED U.S. GOVERNMENT CONTROLLED
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13304.png
-
-Convert to Markdown# P. 10
+# P. 10
 
 What actions did CIA take in Dallas or in Washington after Kennedy was shot or after Oswald was arrested?
 

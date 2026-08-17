@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23141.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 direct liaison on a working level between the people in the Counterintelligence shop of the Station and what I think the Bureau used to call the Tumale Squad, which were former Bureau agents who had been down in Havana, who had left when Fidel canm into power, and were still working In Miami. And one third liaison was essentially with people who were working specific cases, where the new trace mechanism between ourselves and the Bureau would show some motuality of interest in a particular case.
 

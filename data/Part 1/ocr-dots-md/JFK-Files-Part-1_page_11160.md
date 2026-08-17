@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11160.png
-
-Convert to Markdown3.
+3.
 
 L-9 said he was into LILAC -3 on the street and L-3 has been trying to talk with him. L-9 said he is what embarrassed and asked about the propriety of getting in touch with him. He was told to go ahead but to rely only discuss the amenities of life and not get into详细 discussion to which he agreed heartily.
 

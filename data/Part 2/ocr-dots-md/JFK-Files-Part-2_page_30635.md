@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30635.png
-
-Convert to Markdown# Mexico
+# Mexico
 
 Π HMMA-2245-2 also cites other cables that reported Americans in contact with the Cuban Embassy. MEX16591 reported an call from Herb Provost for him Vegas claiming to be a student working with the Cubembo. The dispatch says: "Further dissemination was left to Headquarters." Meri 16615 reported contact between NYT writer Herbert Matthews and the Cubembo. The dispatch says: "No Binocular action was taken by the Mexico Station."
 

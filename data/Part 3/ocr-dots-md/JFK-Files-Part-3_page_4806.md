@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4806.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 The records of the Credit Bureau of Greater
 New York as furnished by PAULINE DE FIORE to IC JOHN L.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_692.png
-
-Convert to Markdown14 Sept XX IX 56
+14 Sept XX IX 56
 
 Washington
 

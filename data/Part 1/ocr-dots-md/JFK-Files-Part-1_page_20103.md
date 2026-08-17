@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20103.png
-
-Convert to MarkdownSECRET
+SECRET
 When Filed In)
 
 <table><tr><td colspan="2">SECTION E NARRATIVE DESCRIPTION OF MANNER OF JOB PERFORMANCE</td></tr><tr><td colspan="2">Stress strengths and weaknesses demonstrated in current position. Indicate suggestions made to employee for improvement of his work. Give recommendations for his training. Describe, if appropriate, his potential for development and for assuming greater responsibilities. Amplify or explain, if appropriate, ratings given in SECTIONS B, C, and D to provide the best basis for determining future personnel actions.</td></tr><tr><td>Mr. [REDACTED]</td><td>has a good knowledge of Soviet matters and generally is very well informed. He continually demonstrates much initiative and a high degree of productivity. He is stimulating to his associates, businesslike and delegates work easily. He appears very self-confident and he is dynamic.</td></tr><tr><td>[REDACTED]</td><td>supervises a very large and key branch engaged in a wide variety of activities, a difficult job which he does well.</td></tr></table>

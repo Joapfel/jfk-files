@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21162.png
-
-Convert to MarkdownHW 50953 DocId:32318825 Page 48
+HW 50953 DocId:32318825 Page 48
 
 TOP SECRET
 

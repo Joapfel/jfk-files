@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7831.png
-
-Convert to Markdown15. CONTACTS: Continued
+15. CONTACTS: Continued
 
 b. Non-Soviet:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24493.png
-
-Convert to MarkdownEL TIEMPO
+EL TIEMPO
 
 BoGA, COLOMBIA #/ 1969, VIERNES 25 DE JULIO
 

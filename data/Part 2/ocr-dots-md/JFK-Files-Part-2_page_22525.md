@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22525.png
-
-Convert to MarkdownSECRET
+SECRET
 
 that it would be impossible to bring a big group to Algiers and would in fact be dangerous because of the attitude of the Moroccan government. Wiley believes that it would be best to have a small team of 3 to 6 trained individuals who could proceed to the Youth Festival at Algiers and who would be directed not at disruption or propaganda, but would aim at intelligence gathering. Wiley himself stated that he would again volunteer to go to Algiers at this time, not ostensibly connected with the aforementioned group, and only as a free lance newspaperman. Wiley pointed out that undoubtedly he is now the top news authority in the U.S. on CP Youth Festivals. Wiley states that he believes he can arrange financing from private organizations and individuals for the 3 to 6 individuals mentioned above and possibly enough for travel by himself although this may not be obtainable. Wiley requests a study of this matter and advice.
 

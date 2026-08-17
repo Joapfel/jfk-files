@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7915.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>S E C R E T</td><td>DISPATCH SYMBOL: ENTRADA</td></tr><tr><td colspan="2"></td><td>HMMA - 31099</td></tr></table>
 

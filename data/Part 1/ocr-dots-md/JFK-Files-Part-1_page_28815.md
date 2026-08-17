@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28815.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th>1. NAME (Mr./Mrs.)</th>

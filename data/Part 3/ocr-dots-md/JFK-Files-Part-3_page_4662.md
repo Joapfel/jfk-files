@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4662.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 11:45 AM November 6, 1962. Source stated SANTO stayed but for a few minutes and left alone. He crossed the street from the Columbia Restaurant to a shoe shine parlor, sat down for a shoe shine and his whereabouts after such time were unknown.
 

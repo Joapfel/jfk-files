@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14299.png
-
-Convert to Markdownd. "Use of information in the FBI files to respond to or discredit critics. Again, the Bureau files document a very small number of instances in which derogatory information legitimately obtained by the Bureau was disseminated to other members of the Executive Branch to enable them to discredit their critics.
+d. "Use of information in the FBI files to respond to or discredit critics. Again, the Bureau files document a very small number of instances in which derogatory information legitimately obtained by the Bureau was disseminated to other members of the Executive Branch to enable them to discredit their critics.
 
 e. "Use of the FBI in connection with other legitimate law enforcement activities. There was one documented instance where the FBI was used to conduct an inquiry for what might be described as political purposes, relating to an investigation properly conducted by other Executive Branch officials."
 

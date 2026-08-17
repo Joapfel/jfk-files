@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_404.png
-
-Convert to Markdown29. KARTY, Floryan Randolph EOD: 1-28-52 ISD NOT UNDER COVER DOB: 1-6-12 RET: 1-31-72
+29. KARTY, Floryan Randolph EOD: 1-28-52 ISD NOT UNDER COVER DOB: 1-6-12 RET: 1-31-72
 
 30. PRIMACK, Oliver N. No Record

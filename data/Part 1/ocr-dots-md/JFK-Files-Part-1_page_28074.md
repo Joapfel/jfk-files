@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28074.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEMORANDUM FOR: Frederick C. Randall
 SUBJECT : Acknowledgment of Evaluation Board Functional Category

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28932.png
-
-Convert to MarkdownLieut. Emile Coella
+Lieut. Emile Coella
 
 11 May 1943
 

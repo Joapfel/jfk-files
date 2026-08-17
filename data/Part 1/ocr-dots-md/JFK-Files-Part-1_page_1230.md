@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1230.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG:</td><td colspan="3">RECLASSIFIED</td></tr><tr><td>UNIT:</td><td colspan="3">F/CIO&P</td></tr><tr><td>EXT:</td><td colspan="3">5661</td></tr><tr><td>DATE:</td><td colspan="3">12 OCTOBER 1968</td></tr><tr><td></td><td>[ ] INDEX</td><td>[ ] NO:INDEX</td><td>[ ] FILE IN CS FILE NO.</td></tr></table>
 

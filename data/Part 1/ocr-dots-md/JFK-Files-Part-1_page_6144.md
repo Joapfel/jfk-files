@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6144.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Despite the detailed explanation provided Mr. Singerman, we note in his letter of appeal that he continues to seek a basis for the decision. With regard to these documents, we believe and agree that releasing them to Mr. Singerman would violate protection of sensitive sources and methods. The original denial is correct and should be upheld by the Information Review Committee.
 

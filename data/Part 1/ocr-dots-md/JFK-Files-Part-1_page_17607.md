@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17607.png
-
-Convert to Markdown17 July 1958
+17 July 1958
 
 MEMORANDUM FOR: Chief, W/III
 SUBJECT: LIMUS Phase of LIFEAT Project

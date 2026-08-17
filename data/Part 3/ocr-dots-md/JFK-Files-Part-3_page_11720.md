@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11720.png
-
-Convert to MarkdownYard and its Special Branch with the result that we receive splendid cooperation in both criminal and security investigations in the London area. There are always a large number of Americans in England and Ireland and there will always be a need for our representation there.
+Yard and its Special Branch with the result that we receive splendid cooperation in both criminal and security investigations in the London area. There are always a large number of Americans in England and Ireland and there will always be a need for our representation there.
 
 ## Productivity
 

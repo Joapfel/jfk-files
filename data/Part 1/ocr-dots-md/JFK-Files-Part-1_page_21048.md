@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21048.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Thomas B. Casasin
 

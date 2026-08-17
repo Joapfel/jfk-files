@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19542.png
-
-Convert to Markdown24 November 1956
+24 November 1956
 
 To: Chief, SFB. FPD
 Subject: Mr. J. Walton Moore, Agent, Contact Office, Dallas, Texas

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14762.png
-
-Convert to Markdown20 April 1977
+20 April 1977
 
 On 20 April 1977 the FBI telephonically granted approvals on Boris BRODETSKYY, Boris PALANT, and Sergey UZLOV.
 

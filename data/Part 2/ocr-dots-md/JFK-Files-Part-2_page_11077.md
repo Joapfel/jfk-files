@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11077.png
-
-Convert to MarkdownThe Communist Party, USA, is divided into districts and state organizations, then into county, city, section, and club organizations. The number and nature of these subdivisions are dependent on the number of members in the various localities. Every party member must belong to a party club.
+The Communist Party, USA, is divided into districts and state organizations, then into county, city, section, and club organizations. The number and nature of these subdivisions are dependent on the number of members in the various localities. Every party member must belong to a party club.
 
 The Communist Party strategy and policy is based primarily on the loyal support and defense of the Soviet Union. The party line changes from time to time depending upon the current program of the international communist movement.
 

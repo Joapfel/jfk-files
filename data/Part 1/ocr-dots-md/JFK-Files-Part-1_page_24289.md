@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24289.png
-
-Convert to MarkdownSECRET
+SECRET
 
 B. This image of JKLANCE as a powerful, professional organization has been enhanced in Q/1's case by the circumstances of his agent relationship, which require very professional handling. Indeed Q/1 has probably come to hold a rather glamorous "storybook" image of JKLANCE and of the importance of his contribution to the JKLANCE effort. This is a very human trait and should not be exaggerated in his case, but every one of the wild anti-JKLANCE stories which he heard probably only serves to accentuate the feeling on his part of being a member of a very impressive outfit.
 

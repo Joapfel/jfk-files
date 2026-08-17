@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23085.png
-
-Convert to MarkdownEl traidor Humberto Sorí Marín, con cuá tro contrarrevolucionarios más, se in-- filtraron en marzo de 1961, por la cos- ta norte de La Habana con el objetivo - de reagrupar a las organizaciones con-- trarrevolucionarias, realizar un atenta- do al Comandante en Jefe y desarrollar- todo tipo de actividades subversivas pa ra apoyar la invasión de Playa Girón.
+El traidor Humberto Sorí Marín, con cuá tro contrarrevolucionarios más, se in-- filtraron en marzo de 1961, por la cos- ta norte de La Habana con el objetivo - de reagrupar a las organizaciones con-- trarrevolucionarias, realizar un atenta- do al Comandante en Jefe y desarrollar- todo tipo de actividades subversivas pa ra apoyar la invasión de Playa Girón.
 
 Para tales fines fueron entrenados y ar mados por la CIA, ocupándoseles gran can tidad de material bélico y otros equipos al ser detenidos.
 

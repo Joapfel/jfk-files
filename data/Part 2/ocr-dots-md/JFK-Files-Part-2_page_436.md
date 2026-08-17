@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_436.png
-
-Convert to Markdown<table><thead><tr><th></th></tr></thead><tbody><tr><td>Western Trade With Cuba Down</td></tr><tr><td>MIAMI, Sept. 14 (AP)—An exile organization reported today that Western world trade with Communists: Cuba declined sharply last month compared</td><td>manist countries called at Cu-ban ports last month. This was a drop of 65.8 per cent compared with August, 1965, the group said.</td></tr><tr><td>Revolutionary Unity (UR), which claims it obeys track of ship dockings in Cuba, said only 14 ships from non-Com</td><td>ing in Cuba last month, eight belonged to Britain, three to Greece, and one each to Lebanon, France and Italy, the re-port said.</td></tr></tbody></table>
+<table><thead><tr><th></th></tr></thead><tbody><tr><td>Western Trade With Cuba Down</td></tr><tr><td>MIAMI, Sept. 14 (AP)—An exile organization reported today that Western world trade with Communists: Cuba declined sharply last month compared</td><td>manist countries called at Cu-ban ports last month. This was a drop of 65.8 per cent compared with August, 1965, the group said.</td></tr><tr><td>Revolutionary Unity (UR), which claims it obeys track of ship dockings in Cuba, said only 14 ships from non-Com</td><td>ing in Cuba last month, eight belonged to Britain, three to Greece, and one each to Lebanon, France and Italy, the re-port said.</td></tr></tbody></table>
 
 JANE
 URING - 3

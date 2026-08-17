@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9892.png
-
-Convert to MarkdownNOTE
+NOTE
 
 1. By the end of the interview, ROWTON and Subject had made a
 appointment for a meeting that same evening, indicating that it is quite

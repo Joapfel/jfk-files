@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31477.png
-
-Convert to MarkdownCouncils or Committees, the idea being that the National Councils should themselves undertake such activities in order to gain for themselves the necessary standing in their respective emplacements. This was not altogether inconsistent with NCFE's policy of emphasis upon direct assistance only to the intellectual and political elite, but was a subsequent development therein.
+Councils or Committees, the idea being that the National Councils should themselves undertake such activities in order to gain for themselves the necessary standing in their respective emplacements. This was not altogether inconsistent with NCFE's policy of emphasis upon direct assistance only to the intellectual and political elite, but was a subsequent development therein.
 
 The most ambitious and long-lived of these National Councils' refugee projects has been the Refugee Service of the Hungarian National Council, which is the best and almost sole surviving example of NCFE's origin 1 theory. The record, however, even of this prize example, is an extremely spotty one (details to follow in a descriptive report to be submitted separately). More importantly, the reasons for the spottiness of the MNC's record are not all attributable to the HRC itself; many, indeed, are due to the situation in which the HCR's approach to the refugee problem, which has provided financial support, but little or no guidance or moral support. A refugee activity has had to exist apart from other activities at least to act as a buffer.
 

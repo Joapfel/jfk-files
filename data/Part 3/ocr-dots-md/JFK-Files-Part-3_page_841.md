@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_841.png
-
-Convert to MarkdownThe RCMP has shown that all three missions can
+The RCMP has shown that all three missions can
 be accommodated in one agency, although the distinctive
 character of each mission requires internal adjustments of
 policy, structure, administration, personnel considerations,

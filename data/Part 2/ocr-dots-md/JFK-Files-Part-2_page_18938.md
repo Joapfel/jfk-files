@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18938.png
-
-Convert to Markdown5/28/69
+5/28/69
 
 SAC, WFO (105-1871) (#)
 

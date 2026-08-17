@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22159.png
-
-Convert to MarkdownID #
+ID #
 
 157 -10011- 10008
 

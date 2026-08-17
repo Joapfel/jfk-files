@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5392.png
-
-Convert to Markdown14-00000
+14-00000
 
 TDCSDB-315/00106-68
 HTP-1126

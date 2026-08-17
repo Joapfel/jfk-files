@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14914.png
-
-Convert to Markdown# PENDING PROSECUTION - CASES DEVELOPED AFTER U. S. ATTORNEYS' CONFERENCE
+# PENDING PROSECUTION - CASES DEVELOPED AFTER U. S. ATTORNEYS' CONFERENCE
 
 **JAMES KNOX VAN ARSDALE III**, an advertising executive in Sarasota, Florida, who on April 6, 1960, advised a stewardess aboard an airborne Eastern Airlines plane just after departing Louisville, Kentucky, that he had a bomb in his possession, was arrested on April 7, 1960. He was released on bond returnable at Louisville, Kentucky, and the trial date has not been set.
 

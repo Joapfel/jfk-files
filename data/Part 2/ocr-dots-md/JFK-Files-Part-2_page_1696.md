@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1696.png
-
-Convert to MarkdownARS: 27 JAN 71
+ARS: 27 JAN 71
 
 SECRET
 (When Filled In)

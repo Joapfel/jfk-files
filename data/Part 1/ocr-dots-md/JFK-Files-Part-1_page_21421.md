@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21421.png
-
-Convert to MarkdownORIG : LOUISE LYON
+ORIG : LOUISE LYON
 UNIT : SR/CI/RED 1534
 EXT : .8251
 DATE : 14 SEPTEMBER 1961

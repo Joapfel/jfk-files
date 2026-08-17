@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28949.png
-
-Convert to Markdown18 March 1963
+18 March 1963
 
 1. FE/Pers will not honor promotion recommendation to GS-11. equiv. until field sends in a specific recommendation. This is the way FE Operates. FE Division feels they is their employee until his tour in Saigon is completed. If SOD wants to take action re the fitness report recommendation, Mr. Jorgenson should discuss this with Paul Breitwiser.
 

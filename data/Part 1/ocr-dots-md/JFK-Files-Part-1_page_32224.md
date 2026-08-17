@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32224.png
-
-Convert to MarkdownSECRET
+SECRET
 (19 Apr 1967)
 
 <table>

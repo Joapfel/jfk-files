@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11669.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 The Black Panther Party (BPP), a black extremist organization, continues to be extremely active throughout the country. Formed during late 1966 in Oakland, California, for the ostensible purpose of patrolling the black community to prevent alleged police brutality, it was originally known as the Black Panther Party for Self-Defense.
 

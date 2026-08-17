@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13765.png
-
-Convert to Markdown**TAB 2 - HAVANA'S International Broadcasting**
+**TAB 2 - HAVANA'S International Broadcasting**
 
 This tab contains a recent summary of Havanna's broadcasting program with examples of Cuban propaganda inciting revolt in Latin America. Additionally this tab contains four separate items indicating in greater detail the types of broadcast information currently being disseminated.
 

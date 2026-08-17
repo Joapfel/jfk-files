@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6993.png
-
-Convert to Markdown3 JUN '66
+3 JUN '66
 
 TO : Director
 Federal Bureau of Investigation

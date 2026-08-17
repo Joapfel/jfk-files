@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9323.png
-
-Convert to Markdown27 June '90
+27 June '90
 
 Re: "STALIN'S PHOTO-BOOK.
 

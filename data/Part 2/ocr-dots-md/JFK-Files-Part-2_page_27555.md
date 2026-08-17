@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27555.png
-
-Convert to MarkdownNancy S. Jenkins
+Nancy S. Jenkins
 
 **REFERENCES:**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31123.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① 11 July 1962. Dispatch UFG-1223 (? poor copy) Report from Cuban businessman on Planned Formation of a new group by Manuel Ray Rivero. Manuel Ray, Felipe Pazos, Raúl Chibie and Ramon Barquin, among others, planning & form new, yet unnamed, organization. Ray has sent Rogelio Caneyos D'Manie to contact various epile personalities for this purpose.
 

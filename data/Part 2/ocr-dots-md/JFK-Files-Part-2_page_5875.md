@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5875.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (AIUO)-- CIA anti-Cuban operations 1960-64 (Mongoose, etc.) if they involve JFK figures (see comment on Meagher's "index" below); most US anti-Castro activities in 1963 are considered relevant.
 

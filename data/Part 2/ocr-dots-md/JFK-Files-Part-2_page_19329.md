@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19329.png
-
-Convert to MarkdownWOMEN'S INTERNATIONAL LEAGUE FOR PEACE AND FREEDOM (WILPF)
+WOMEN'S INTERNATIONAL LEAGUE FOR PEACE AND FREEDOM (WILPF)
 
 In a leaflet dated January, 1962, WILPF described
 itself as follows:

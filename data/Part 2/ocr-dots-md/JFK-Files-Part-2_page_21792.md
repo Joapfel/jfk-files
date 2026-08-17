@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21792.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Wides. That you know of received --
 2. Mr. Sarno. Not a single one that I know of.

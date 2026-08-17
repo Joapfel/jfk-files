@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7026.png
-
-Convert to Markdown# BAYARD RUSTIN
+# BAYARD RUSTIN
 
 In "The Saturday Evening Post," issue of July 11 - 18, 1964, page 76, BAYARD RUSTIN is the subject of a feature article captioned; "The Lone Wolf of Civil Rights." In it, RUSTIN is said to have come to New York in 1938, as an organizer for the Young Communist League (YCL), and as such, he had the job of recruiting students for the "Party." Furthermore, the article reports that during his first years in New York, RUSTIN gave most of his earnings to the "Party." He reportedly left the "Party" in 1941, the article states.
 

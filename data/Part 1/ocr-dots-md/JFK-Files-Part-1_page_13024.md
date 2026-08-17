@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13024.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>THE SECRETARY</td>
    </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15142.png
-
-Convert to MarkdownCHILE
+CHILE
 
 Translation from German
 

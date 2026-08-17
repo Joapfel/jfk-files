@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24592.png
-
-Convert to Markdown# H. The Question of Authorization for the 1963 Assassination Plot
+# H. The Question of Authorization for the 1963 Assassination Plot
 
 ## 1. The 1963 Assassination Plot
 

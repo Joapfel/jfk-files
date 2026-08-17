@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33026.png
-
-Convert to MarkdownS E G R F P
+S E G R F P
 
 G R A D E S
 

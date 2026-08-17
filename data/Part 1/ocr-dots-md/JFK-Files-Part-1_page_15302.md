@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_15302.png
-
 director; two teachers, sisters Adenolselles CASTAGNIET; Frehel PEINE - one of the neighbors in the dormitory;
    De BASSONPIERRE, a pupil of a higher class, was shot during the war as a "collaborateur"; an other pupil: Le CUDONEC.
    The pupils wore navy-type uniforms with a coat of arms on the sleeve showing the letters "ND" (Notre Dame).

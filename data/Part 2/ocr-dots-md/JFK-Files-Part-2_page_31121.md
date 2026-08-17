@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31121.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Handwritten notes and annotations on a document, likely regarding the Democratic Revolutionary Front - FRD. DDO - Five Volumes.
 

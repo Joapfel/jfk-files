@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2963.png
-
-Convert to Markdown1901
+1901
 
 1 Do you solemnly swear the testimony you are about to give
 2 before this Committee is the truth, the whole truth, and nothing

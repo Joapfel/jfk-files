@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4759.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTERVIEWER: Did not?
 

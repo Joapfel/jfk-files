@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22310.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Maheu. I beg your pardon?
 2. Mr. Madigan. You were just telling him about it?

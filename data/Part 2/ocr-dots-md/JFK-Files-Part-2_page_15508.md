@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15508.png
-
-Convert to MarkdownMemorandum Mr. W. R. Wannall to Mr. W. C. Sullivan, 5/12/66
+Memorandum Mr. W. R. Wannall to Mr. W. C. Sullivan, 5/12/66
 Re: INTELLIGENCE COVERAGE OF NON-SOVIET-BLOC COUNTRIES
 65-63113
 

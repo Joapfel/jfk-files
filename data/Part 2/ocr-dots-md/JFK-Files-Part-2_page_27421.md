@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27421.png
-
-Convert to MarkdownApril 22, 1975
+April 22, 1975
 
 Mr. E. Henry Knoche
 Central Intelligence Agency

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22600.png
-
-Convert to Markdown1 end of December.
+1 end of December.
 
 2 Mr. Schwarz. 1974?
 

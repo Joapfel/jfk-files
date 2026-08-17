@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1441.png
-
-Convert to Markdown1 to 9:
+1 to 9:
 
 CCS recommends deletion of that part of the last sentence, following
 the semi-colon of the first paragraph on page 10 of Chapter XI, which

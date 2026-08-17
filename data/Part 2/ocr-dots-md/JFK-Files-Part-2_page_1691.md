@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1691.png
-
-Convert to MarkdownSECRET
+SECRET
 (when filed in)
 
 LML: 13 FEB 73

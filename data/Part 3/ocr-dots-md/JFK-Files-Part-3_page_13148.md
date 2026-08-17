@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13148.png
-
-Convert to Markdown(continued)
+(continued)
 
 off the Cuban revolutionary activities; were engaged in smuggling instead of anticommunist warfare; and were misappropriating funds designed for commando and infiltration activity against the present government of Cuba. MM 639-S continued that it was claimed that Artime's men returned from Central America very disenchanted, or with large sums of money earned through illegal activity.
 

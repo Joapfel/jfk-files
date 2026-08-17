@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29697.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 The President of the United States takes pleasure in commending
 the NATIONAL PHOTOGRAPHIC INTERPRETATION CENTER for

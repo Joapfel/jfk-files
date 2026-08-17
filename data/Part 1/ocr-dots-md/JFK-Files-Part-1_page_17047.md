@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17047.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Misc Expenses
 Ops entertainment $   165   $   300   $    100   $    100

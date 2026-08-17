@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29352.png
-
-Convert to MarkdownPAGE SEVEN.
+PAGE SEVEN.
 
 Mr. Arehart said that Ann was so efficient that it was often very irratating. He said that Win Scott was also very efficient.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26590.png
-
-Convert to MarkdownOFFICIAL USE ONLY
+OFFICIAL USE ONLY
 
 # VENEZUELA
 Selected railroad

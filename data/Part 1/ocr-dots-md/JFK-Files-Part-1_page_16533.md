@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16533.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, Mexico City
 Chief, Western Hemisphere Division

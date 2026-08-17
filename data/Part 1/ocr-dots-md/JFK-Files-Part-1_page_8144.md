@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8144.png
-
-Convert to MarkdownEncuesta Mundial
+Encuesta Mundial
 Henry P. López o la Votación
 Mexicana en los Estados Unidos
 

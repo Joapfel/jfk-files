@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4611.png
-
-Convert to MarkdownFBI DOCUMENTS
+FBI DOCUMENTS
 
 **DATE:** 6 OCTOBER 1966
 **CLASSIFICATION:** NONE GIVEN

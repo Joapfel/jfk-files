@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21986.png
-
-Convert to Markdownaction up to or including invasion."
+action up to or including invasion."
 
 18. Memo, Chase to Bundy, 21 April 1964.
 

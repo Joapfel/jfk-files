@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2638.png
-
-Convert to MarkdownSECRET
+SECRET
 
 COMMENTS OF REVIEWING OFFICIAL (contd)
 

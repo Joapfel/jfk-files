@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_566.png
-
-Convert to Markdown<table><thead><tr><th>MESSAGE FORM<br>TOTAL COPIES</th><th>BOUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>27</td><td>19830</td></tr><tr><td>SIGNATURE</td><td>15</td></tr></tbody></table>
+<table><thead><tr><th>MESSAGE FORM<br>TOTAL COPIES</th><th>BOUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>27</td><td>19830</td></tr><tr><td>SIGNATURE</td><td>15</td></tr></tbody></table>
 
 CABLE SECRETARIAT DISSEMINATION
 

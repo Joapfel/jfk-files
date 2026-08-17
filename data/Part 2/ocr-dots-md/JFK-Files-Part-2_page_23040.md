@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23040.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 money. I was opposed to it at the time. And once it was set
 2 up, and I did what I was supposed to do, which was to train

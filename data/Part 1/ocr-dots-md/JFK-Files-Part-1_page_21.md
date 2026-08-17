@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21.png
-
-Convert to MarkdownNAME OUT OF SOVIET TO BE ALLOWED AFTER ARRIVAL
+NAME OUT OF SOVIET TO BE ALLOWED AFTER ARRIVAL
 
 Stern-Zaslavsky
 no not as of three years after marriage

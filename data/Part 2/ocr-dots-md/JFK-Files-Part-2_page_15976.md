@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15976.png
-
-Convert to Markdown# K. Uniforms and Firearms of Chicago BPP
+# K. Uniforms and Firearms of Chicago BPP
 
 Members of the Chicago BPP normally do not wear uniforms in public, however, on several occasions, when BPP leaders spoke at university and college campuses, members of BPP were observed displaying firearms and dressed in jackets and berets. At several public demonstrations, members also seen BPP conventional uniform.
 

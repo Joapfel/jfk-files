@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34147.png
-
-Convert to Markdown## 2.- Polarización:
+## 2.- Polarización:
 
 a) Azúcar crudo: En épocas anteriores al régimen comunista, Cuba no producía azúcares crudos con polarizaciones menores de 97.0 a 97.5 %, y para muchos mercados extranjeros se producían azúcares crudos con polarizaciones superiores a 98.0%. En la actualidad un porcentaje significativo de la producción no alcanza esos valores, dándose casos de azúcares crudos con polarizaciones de 96.0 y 95.0 %.
 

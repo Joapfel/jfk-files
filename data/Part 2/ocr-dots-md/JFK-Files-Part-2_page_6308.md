@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6308.png
-
-Convert to MarkdownSecret - Working Paper
+Secret - Working Paper
 
 Notes from Briefing of ARRB Staff on Stations
 (11 October 1995 - ARRB conf. room)

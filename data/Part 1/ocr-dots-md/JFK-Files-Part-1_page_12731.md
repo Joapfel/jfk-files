@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12731.png
-
-Convert to Markdown14-0000
+14-0000
 
 CABLE SEC DISSEM BY ______ PER ______ TOTAL COPIES ______ TUP BY ______
 PERSON/UNIT NOTIFIED _______________________________ SECRET

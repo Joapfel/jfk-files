@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24076.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 himself had not been straight-forwardly told about the operation.*
 

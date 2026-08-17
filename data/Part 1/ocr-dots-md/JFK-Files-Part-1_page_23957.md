@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23957.png
-
-Convert to Markdownhimself from Algiers to Brazzaville. And he was threatened by the MPLA people, who are of course Soviet-backed to the hilt, in fact more so Dr. Neto, apparently more than ever now. And the Algésians, Ben Bella, who had supported the MPLA up until the great fiasco when people discovered that they didn't have what they claimed to have - and only having it because they have given their support to the UPA. Nevertheless, the MPLA people still remain and they are promising to reform and really carry out things.
+himself from Algiers to Brazzaville. And he was threatened by the MPLA people, who are of course Soviet-backed to the hilt, in fact more so Dr. Neto, apparently more than ever now. And the Algésians, Ben Bella, who had supported the MPLA up until the great fiasco when people discovered that they didn't have what they claimed to have - and only having it because they have given their support to the UPA. Nevertheless, the MPLA people still remain and they are promising to reform and really carry out things.
 
 ideologically
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1582.png
-
-Convert to MarkdownOUTGOING TELEPOUCH
+OUTGOING TELEPOUCH
 
 R
 O

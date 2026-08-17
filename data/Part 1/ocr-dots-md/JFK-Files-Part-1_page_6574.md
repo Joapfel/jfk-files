@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6574.png
-
-Convert to Markdown2.
+2.
 
 INTERNATIONAL RESCUE COMMITTEE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23337.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 454 JB/JM/MR
 

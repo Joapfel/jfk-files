@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7683.png
-
-Convert to Markdown15. CONTACTS.
+15. CONTACTS.
 
 a. Soviet Contacts:
 

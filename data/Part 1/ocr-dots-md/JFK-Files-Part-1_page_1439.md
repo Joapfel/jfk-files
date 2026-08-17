@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1439.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 7 Jan 76
 

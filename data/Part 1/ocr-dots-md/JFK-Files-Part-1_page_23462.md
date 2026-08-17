@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23462.png
-
-Convert to MarkdownCOVER PREPARATION - (Arthur G. Valvada) (Cont'd)
+COVER PREPARATION - (Arthur G. Valvada) (Cont'd)
 
 Along these same lines, I took advantage of the opportunity presented when an old friend and AAF companion came down on a visit in July 1955. Warrant Officer Francis Williams has been in the AISS (Air Intelligence) since 1940, actually one of the founders of the service and has written AISS technical bulletins for 15 years. Williams was practically present upon my entry into this organization (if not actually instrumental in my recruitment.) I discussed the plan in general terms with Williams and learned that one of his section AI Officers is currently in the publishing business. William is assures me that when the right time approaches, he can "arrange" a substantial contact with this company, with practically no security hazards. We have left this pending. ((His address: 5846 Access Road, Page Manor, Wright-Patterson AFB, Dayton, Ohio.))
 

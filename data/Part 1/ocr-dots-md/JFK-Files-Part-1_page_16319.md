@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16319.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>A, B, C, D, E, F</td><td>REDACTED</td></tr><tr><td>G, H, I, J, K, L, M</td><td>REDACTED</td></tr><tr><td>O, P, Q, R, S, T</td><td>COPYING IN PROGRESS</td></tr><tr><td>U, V, W, X, Y, Z</td><td>REDACTED</td></tr><tr><td>E, F, G, H, I, J, K, L, M, N, O, P, Q, R, S, T</td><td>REDACTED</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>A, B, C, D, E, F</td><td>REDACTED</td></tr><tr><td>G, H, I, J, K, L, M</td><td>REDACTED</td></tr><tr><td>O, P, Q, R, S, T</td><td>COPYING IN PROGRESS</td></tr><tr><td>U, V, W, X, Y, Z</td><td>REDACTED</td></tr><tr><td>E, F, G, H, I, J, K, L, M, N, O, P, Q, R, S, T</td><td>REDACTED</td></tr></tbody></table>
 
 1. Transcripts hereafter are photostatic copies of first two installments of SEC-505's Diary which was furnished by Mrs. SEC-503.
 

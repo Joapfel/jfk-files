@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22212.png
-
-Convert to MarkdownDEPARTMENT OF STATE
+DEPARTMENT OF STATE
 
 ☐ Retain class'n ☐ Change/classify to ☐ With concurrence of ☐ Declassify ☑ In part and excise as shown EO 12356, Sec. 1.3 (a) FPC/HDR by JAS 6 / 8 / 9 / 93 arounds 6 (1)(B)
 

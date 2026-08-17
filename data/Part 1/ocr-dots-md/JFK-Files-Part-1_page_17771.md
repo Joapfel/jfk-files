@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17771.png
-
-Convert to MarkdownEMBAJADA DOMINICANA.- 28-77-85.
+EMBAJADA DOMINICANA.- 28-77-85.
 
 6 mayo 66.
 

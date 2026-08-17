@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18318.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>NAME</td>
     <td>RELATIONSHIP</td>

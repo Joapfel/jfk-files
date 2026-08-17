@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7650.png
-
-Convert to Markdown④ COPIES MADE
+④ COPIES MADE
 
 and unfortunately really didn't know of any. LOGINOV said that he probably really ought to take English lessons from a Britisher. He added that he had once taken a few lessons from a "girl from Texas," but he had had to stop because of her "Texas accent."
 

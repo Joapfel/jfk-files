@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6857.png
-
-Convert to MarkdownGATES: I don't know whether that's the case or not. Only the documents that we had from them have been released as part of the file we released. They may have other documents pre-November 22nd, 1963 that we didn't have.
+GATES: I don't know whether that's the case or not. Only the documents that we had from them have been released as part of the file we released. They may have other documents pre-November 22nd, 1963 that we didn't have.
 
 REP. MINK: In other words, in reference to Oswald everything that you had in your possession, regardless of whether it belonged to other agencies, because you found them to be declassified, have all been released?
 

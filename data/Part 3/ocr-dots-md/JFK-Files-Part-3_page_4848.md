@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4848.png
-
-Convert to MarkdownSECRET
+SECRET
 
 | Date | Location | Number | Other Data |
 |---|---|---|---|

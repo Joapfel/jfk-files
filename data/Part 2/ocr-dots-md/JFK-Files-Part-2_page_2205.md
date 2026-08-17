@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2205.png
-
-Convert to MarkdownNational Conference of Bar Examiners
+National Conference of Bar Examiners
 
 AMERICAN BAR CENTER
 1155 EAST 60TH STREET

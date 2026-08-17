@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4822.png
-
-Convert to MarkdownSECRET
+SECRET
 
 with Congress?
 

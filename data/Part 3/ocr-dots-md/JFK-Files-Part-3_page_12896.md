@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12896.png
-
-Convert to MarkdownQ. Can you give an example of such reference?
+Q. Can you give an example of such reference?
 
 A. There is only one particular conversation that comes to mind at the moment and I have no recollection with whom the conversation was held; during which reference was made to a wonderful sermon they had preached together on somebody's kitchen floor.
 

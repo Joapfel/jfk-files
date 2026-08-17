@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14246.png
-
-Convert to MarkdownMártir, 22 de diciembre de 19 67
+Mártir, 22 de diciembre de 19 67
 
 Asunto: ORESTES-GUILLERMO RUIZ PEREZ, ENCARGADO
 DE NEGOCIOS DE CUBA EN MADRID.

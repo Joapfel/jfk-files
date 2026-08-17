@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25432.png
-
-Convert to MarkdownSUBJECT: Case 52722
+SUBJECT: Case 52722
 
 LA 416-70
 

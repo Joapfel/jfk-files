@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20637.png
-
-Convert to Markdown23 October 1968
+23 October 1968
 
 MEMORANDUM FOR: Secretary, Clandestine Services
 Career Service Board

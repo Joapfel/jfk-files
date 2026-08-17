@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23367.png
-
-Convert to MarkdownSECRET
+SECRET
 
 agent of Project AMPHODARCH. He is under student cover and is actually working for his BA degree at the University of Habana, for which he has approximately 1 more year of academic work to complete.
 

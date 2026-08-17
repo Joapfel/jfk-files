@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3788.png
-
-Convert to Markdown8 April 1976
+8 April 1976
 
 MEMORANDUM FOR: Chief, Operations Support Branch
 SUBJECT : Gordon Novel #526 113

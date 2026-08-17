@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16681.png
-
-Convert to MarkdownDate 1/31/70
+Date 1/31/70
 
 On the afternoon of January 27, 1970, a call was received at his place of employment in New York, from a certain microscope slides concerning his examination of a Chicago, Illinois residence in December, 1969, and was willing to turn these slides over to the FBI, as he had been directed so by an attorney with the United States Department of Justice. Arrangements were made to obtain these slides from the FBI on the evening of January 27, 1970, as he stated they were presently at his residence.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7135.png
-
-Convert to Markdown2. Subject appears to be about 40-45 years old, 170 lbs., thinning redish hair, blue eyes, small brown mustache.
+2. Subject appears to be about 40-45 years old, 170 lbs., thinning redish hair, blue eyes, small brown mustache.
 
 He is well dressed and speaks native American English. I asked him about his contacts with the Soviets and he said that he had not had any extended contact with the Soviets for some time. During August 1965 he was approached by YATSKOV whom he knows as the Soviet Consul and was asked passenger by him to prepare a chart of all commercial ships operating between Veracruz and New York City "for the month of September".
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13826.png
-
-Convert to Markdown33. Shops.
+33. Shops.
 
 34. Church.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22248.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>WAINWRIGHT, William<br>LASH, A. M.<br>FEPEDINO, Carlos<br>McCONE ✓</td><td>August 10-11<br>1962</td><td>CASTRO</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>WAINWRIGHT, William<br>LASH, A. M.<br>FEPEDINO, Carlos<br>McCONE ✓</td><td>August 10-11<br>1962</td><td>CASTRO</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

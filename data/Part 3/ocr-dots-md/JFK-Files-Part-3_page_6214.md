@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6214.png
-
-Convert to MarkdownLA 157-2325
+LA 157-2325
 
 ## ARREST. RECORD
 

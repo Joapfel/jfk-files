@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29005.png
-
-Convert to Markdown11 December 1953
+11 December 1953
 
 Dear Dick,
 

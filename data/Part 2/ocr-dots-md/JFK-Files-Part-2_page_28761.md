@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28761.png
-
-Convert to MarkdownJune 16, 1977
+June 16, 1977
 
 Mrs. Joan Talbert Thornell
 3175 Apple Road, N.E.

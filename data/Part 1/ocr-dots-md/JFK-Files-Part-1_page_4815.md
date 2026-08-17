@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4815.png
-
-Convert to Markdown14-0000
+14-0000
 
 CJIG01.16, U.S. SERVICE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26404.png
-
-Convert to MarkdownAlmost all Montagnard refugees are at least temporarily resettled and receiving minimum food, shelter and security.
+Almost all Montagnard refugees are at least temporarily resettled and receiving minimum food, shelter and security.
 
 The Embassy comments that while this information somewhat reduces the urgency of the problem, it does not change the problem's magnitude or importance. Difficulties stemming from the absence of a well directed, national Montagnard relief program, limited relief resources, and the Vietnamese prejudice against the Montagnard continue. But the principal and most encouraging aspect is the fact that the Montagnard have fled the VC pressures and more may do so.
 

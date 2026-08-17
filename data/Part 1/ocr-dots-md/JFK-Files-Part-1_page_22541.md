@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22541.png
-
-Convert to MarkdownSECRET-ENCS ONLY
+SECRET-ENCS ONLY
 
 The station cabled headquarters on 4 March:
 

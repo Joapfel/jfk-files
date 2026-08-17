@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2905.png
-
-Convert to MarkdownCUBAN REVOLUTIONARY COUNCIL
+CUBAN REVOLUTIONARY COUNCIL
 INTERNAL SECURITY - CUBA
 
 to government sources. The article said that exile leaders

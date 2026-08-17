@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15874.png
-
-Convert to MarkdownDickson, Bruce Allan
+Dickson, Bruce Allan
 
 Arrested: 6/4/69
 Charge: Harboring a Federal Fugitive

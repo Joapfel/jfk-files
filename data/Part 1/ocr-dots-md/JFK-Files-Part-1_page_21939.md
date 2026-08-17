@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21939.png
-
-Convert to MarkdownC. To June 1955 (American Department)
+C. To June 1955 (American Department)
 
 1. Introduction
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_24601.png
-
 , and journalist Lisa
 Howard. (Howard had initially placed Atwood in contact with the
 Cuban Ambassador after reporting to Atwood that during a

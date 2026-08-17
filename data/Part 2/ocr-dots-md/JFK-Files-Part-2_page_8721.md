@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8721.png
-
-Convert to MarkdownFOLDER #25 -
+FOLDER #25 -
 
 25 NOVEMBER 1963
 

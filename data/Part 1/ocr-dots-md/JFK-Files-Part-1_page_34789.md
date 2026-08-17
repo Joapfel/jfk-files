@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34789.png
-
-Convert to MarkdownJ. W. C. Hare's and his company
+J. W. C. Hare's and his company
 to come from SPECIMEN, or other possible ways.
 Theقبлиш Скириш муамن
 Измани is 3880 W. 5th Ave., Miami, Fla.

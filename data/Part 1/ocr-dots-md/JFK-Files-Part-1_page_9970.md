@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9970.png
-
-Convert to Markdown28 July, 1967
+28 July, 1967
 
 Subject: Wallace E. Rowton Meeting with LIRING/3.
 

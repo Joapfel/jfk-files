@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8080.png
-
-Convert to MarkdownOUTGOING C...MESSAGE
+OUTGOING C...MESSAGE
 
 <table><thead><tr><th colspan="7">SIGNAL CENTER USE ONLY</th></tr><tr><th>DATE</th><th>VENUE</th><th>TIME</th><th>TO</th><th>FROM</th><th>REF</th><th>CLASS</th></tr></thead><tbody><tr><td>01-28-76</td><td>G. R. HARRIS</td><td>MAY 21</td><td>1976</td><td>MRH/1005</td><td>934495</td><td>CONFIDENTIAL</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11895.png
-
-Convert to MarkdownEast Coast Conspiracy
+East Coast Conspiracy
 
 matter and probably will return additional indictments at a later
 date. According to Goodwin, the Grand Jury will return indictments

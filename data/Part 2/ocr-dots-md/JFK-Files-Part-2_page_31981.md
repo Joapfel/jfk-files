@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31981.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>4. REPORT OF FINDINGS</td>
         <td>(CREDIT AGENCY) On 2 October 1968, Pauline DiFiore, Chief Records Clerk, Credit Bureau of Greater New York, 330 West 34th Street, New York, New York, consulted pertinent files in search of records concerning Manuel MARTI, NMN, and furnished the following information:<br/>There was no record concerning SUBJECT or any name similar to that of SUBJECT.</td>

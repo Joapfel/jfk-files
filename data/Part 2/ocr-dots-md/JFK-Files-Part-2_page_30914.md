@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30914.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Betsy palmer
 

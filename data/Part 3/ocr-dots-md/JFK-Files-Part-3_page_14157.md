@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14157.png
-
-Convert to Markdown(57. 8/23/62 Continued_
+(57. 8/23/62 Continued_
 
 
 "4. The line of activity projected for operation MONGOOSE PLAN B PLUS should be developed with all possible speed."

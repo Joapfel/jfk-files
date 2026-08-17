@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1953.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 **EYES ONLY**
 

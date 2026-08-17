@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2989.png
-
-Convert to MarkdownSECRET
+SECRET
 
 available to SR/CI/Research on that particular sub-
 ject. Some of these studies were sterilized sub-

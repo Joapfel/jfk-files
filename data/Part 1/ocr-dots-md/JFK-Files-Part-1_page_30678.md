@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30678.png
-
-Convert to MarkdownSECRET
+SECRET
 
 No special recognition is planned at this time.
 

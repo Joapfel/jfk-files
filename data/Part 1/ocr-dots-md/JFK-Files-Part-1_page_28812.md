@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28812.png
-
-Convert to Markdown<table><thead><tr><th>Request for<br>Travel Authorization</th><th>CHECK<br>STATUS</th><th>OPERATING<br>COAT</th><th>PURCHASE ORDER<br>PURCHASE ORDER NO.</th><th>SIGNATURE<br>(APPROVED)</th><th>SIGNATURE<br>(AUTHORIZED)</th><th>DATE</th><th>TOTAL<br>TO: (F.O. NO.)</th></tr></thead><tbody><tr><td colspan="4"></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="8">DUE TO: 5/30</td></tr></tbody></table>
+<table><thead><tr><th>Request for<br>Travel Authorization</th><th>CHECK<br>STATUS</th><th>OPERATING<br>COAT</th><th>PURCHASE ORDER<br>PURCHASE ORDER NO.</th><th>SIGNATURE<br>(APPROVED)</th><th>SIGNATURE<br>(AUTHORIZED)</th><th>DATE</th><th>TOTAL<br>TO: (F.O. NO.)</th></tr></thead><tbody><tr><td colspan="4"></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="8">DUE TO: 5/30</td></tr></tbody></table>
 
 PER: PCO: WROS: 1200
 

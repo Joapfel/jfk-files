@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_377.png
-
-Convert to Markdown9 November, 1966.
+9 November, 1966.
 
 Subject: Review and Assessment of LIRING Operation.
 

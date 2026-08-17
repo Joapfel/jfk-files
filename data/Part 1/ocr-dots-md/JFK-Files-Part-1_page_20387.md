@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20387.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">DIVISION OF FOREIGN SERVICE PERSONNEL<br/>DEPARTMENT OF STATE<br/>ECONOMIC COOPERATION ADMINISTRATION</td>
     <td>DATE<br/>6-9-48</td>

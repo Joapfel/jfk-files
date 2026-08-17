@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8723.png
-
-Convert to Markdown15.01.01. ¿Hay algún tema que tiende a ponerlo colérico? Sí No Sí
+15.01.01. ¿Hay algún tema que tiende a ponerlo colérico? Sí No Sí
 En caso afirmativo, ¿cúdi es?
 
 15.02

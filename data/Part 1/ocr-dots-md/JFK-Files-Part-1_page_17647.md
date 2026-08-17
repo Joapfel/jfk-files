@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17647.png
-
-Convert to MarkdownMEMORANDUM FOR: FL/OPS - Project Branch
+MEMORANDUM FOR: FL/OPS - Project Branch
 
 CRITICAL LIFETIME DIVISION STATION
 ---

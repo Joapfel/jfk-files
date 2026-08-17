@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21230.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 <table><thead><tr><th colspan="3">1 EMP. SERIAL NO.</th><th colspan="2">2 NAME</th><th colspan="2">3 ASSIGNED CSGAN.</th><th colspan="2">4 FUNDS</th><th colspan="2">5 ALLOTMENT</th></tr></thead><tbody><tr><td>125798</td><td></td><td></td><td colspan="2">WILCOTT, JAMES B JR</td><td colspan="2">DDS/COMPT</td><td colspan="2"></td><td colspan="2">V-20</td></tr></tbody></table>

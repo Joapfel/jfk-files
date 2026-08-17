@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11490.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 On January 26, 1976, Special Agent Seymour Fred Phillips of this Bureau conferred with Mr. John T. Elliff, Director, Domestic Intelligence Task Force, SSC, and told Elliff of our findings both as to what our files contained and what Elder had told us. Inquiry was made of Elliff as to the necessity or pertinence of the SSC requesting of the FBI access to materials which CIA had furnished to the FBI inasmuch as the SSC had already had access to such material at CIA. Mention was made of the Third Agency consideration which Elliff indicated he was cognizant of, but he stated the SSC's purpose in making the request was in the form of a double check to insure the SSC gained access to all of the material it desired.
 

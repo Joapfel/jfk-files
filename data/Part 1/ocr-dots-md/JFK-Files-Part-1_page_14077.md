@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14077.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2 March 1965
 LX-2460

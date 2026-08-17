@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9988.png
-
-Convert to Markdown3. If they are unwilling to appear at a scheduled hearing or unable to be present, whether they are willing to have their statements read verbatim to the individual under investigation and his counsel;
+3. If they are unwilling to appear at a scheduled hearing or unable to be present, whether they are willing to have their statements read verbatim to the individual under investigation and his counsel;
 
 4. If they do not appear, whether they are willing to have their names disclosed at the hearing.
 

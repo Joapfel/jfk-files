@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7650.png
-
-Convert to MarkdownM. A. Jones to Mr. Bishop Memo
+M. A. Jones to Mr. Bishop Memo
 
 RE: SUGGESTED NAME CHANGE, CRIME RECORDS DIVISION
 

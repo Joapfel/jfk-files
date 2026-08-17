@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3434.png
-
-Convert to MarkdownSECRET
+SECRET
 
 evidence that the ambassador would strongly object to Agency support for IIEE propaganda activities. In addition, of a total annual budget of $16,000, $6,000 goes for the salary of a U.S. businessman; cutout (LINOFF-1) while $6,000 goes to the support of KRO and $4,000 to support other activities of the IIEE. This is an incredibly high sum for the services of a cutout in proportion to the total cost of the proposed project. These points, taken together, constitute a valid basis for terminating operations in connection with LINOFF.
 

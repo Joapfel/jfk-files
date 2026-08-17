@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8148.png
-
-Convert to Markdown# Memorandum to Mr. Adams
+# Memorandum to Mr. Adams
 Re: Senate Select Committee on Intelligence
 
 of FBI matters, in which Mohr told me that he has been called to be interviewed at 10:00 a.m. on Friday, May 9, 1975, at Room G-308 in the New Senate Office Building. Mark Gittenstein was identified as the interviewer. I told Wilderotter this concerned me because we have no basis on which to advise Mr. Mohr as to the appropriate guidelines that may be followed during the course of such an interview and in the absence of knowledge of the subject matter of the interview we have no way of counseling him as to sensitive areas that should be deferred for discussion with members of the Committee or with the Chairman of the Committee.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29584.png
-
-Convert to Markdown23 February 1961
+23 February 1961
 
 MEMORANDUM FOR: Chief, Personnel Security Division, Office of Security
 SUBJECT : LYNCH, Grayston LeRoy #189184,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8030.png
-
-Convert to MarkdownThe PSE grew from an effort to improve a polygraph. Standard polygraphs measure four variables: pulse, blood pressure, respiration and perspiration. Some also measure additional physiological variables. The more variables measured, the more reliable the polygraph.
+The PSE grew from an effort to improve a polygraph. Standard polygraphs measure four variables: pulse, blood pressure, respiration and perspiration. Some also measure additional physiological variables. The more variables measured, the more reliable the polygraph.
 
 Bell and McQuiston discovered that the frequencies composing the human voice are not fixed; they shift very slightly from right to fourteen times every second. But when the speaker is under stress, this normal frequency modulation disappears. That remains are the pure component frequencies of the voice. And a strong indication that the speaker is lying.
 

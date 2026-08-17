@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25770.png
-
-Convert to MarkdownSECRET-SENSITIVE
+SECRET-SENSITIVE
 
 By the same token, the failure or elimination of one of these mutually supporting courses of action jeopardizes the others and thus compromises the entire program.
 

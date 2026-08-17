@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1312.png
-
-Convert to MarkdownIn a friendly conversation that followed for approximately ten to fifteen minutes, SA Ward advised Seidel that he had only been assigned the Cointelpro/Black Panther Party matter for three months and had no knowledge that would be of value to Seidel. The Cointelpro/Black Panther Party matter was not further discussed. The rest of the time was involved in discussing points of interest in the Los Angeles basin of tourist value, such as Marineland, Palos Verdes, and Sunset Boulevard, Los Angeles.
+In a friendly conversation that followed for approximately ten to fifteen minutes, SA Ward advised Seidel that he had only been assigned the Cointelpro/Black Panther Party matter for three months and had no knowledge that would be of value to Seidel. The Cointelpro/Black Panther Party matter was not further discussed. The rest of the time was involved in discussing points of interest in the Los Angeles basin of tourist value, such as Marineland, Palos Verdes, and Sunset Boulevard, Los Angeles.
 
 SA Ward advises that he is aware that the Director waived his employment agreement with certain exceptions regarding privileged areas. With this in mind, SA Ward reviewed his employment agreement and concluded, after noting the following quotation, that he could not disclose any information without following the prescribed procedure:
 

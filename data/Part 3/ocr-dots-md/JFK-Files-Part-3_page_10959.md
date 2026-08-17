@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10959.png
-
-Convert to MarkdownOur role in preparation of National Intelligence Estimates would be more active as a result of our increased contribution under this program. It might be necessary to utilize the assistance of highly trained personnel of other agencies to assist us periodically on interviews dealing with complicated military or scientific matters.
+Our role in preparation of National Intelligence Estimates would be more active as a result of our increased contribution under this program. It might be necessary to utilize the assistance of highly trained personnel of other agencies to assist us periodically on interviews dealing with complicated military or scientific matters.
 
 (c) **Manpower:**
 

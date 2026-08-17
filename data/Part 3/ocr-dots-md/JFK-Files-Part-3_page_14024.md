@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14024.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 ELINT. For example in connection with a Soviet missile shot on Kamchatka there was a suspicion that the test would include a Soviet anti-ICBM shot, but our Alaskan radar site was not alerted, the radars were not up, and we missed coverage of any anti-ICBM test. Mr. McCone agreed with Dr. Baker's observation that there is a relationship between the activities of the new Center and the responsibilities to be assigned under the Defense ELINT Plan, and the DCI added that there may well be resistance from some elements of the military.
 

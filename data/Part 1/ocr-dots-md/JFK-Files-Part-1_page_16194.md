@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16194.png
-
-Convert to Markdownnews. Flores and WER BELL discussed the Dominican Republic and Cuba. On 3 August Flores phoned WER BELL and told him that his clearance had not been granted and that he should not predicate his activities on the expectation of the clearance at any given time. WER BELL said that the Pedraza group was air lifting and dropping material into Cuba.
+news. Flores and WER BELL discussed the Dominican Republic and Cuba. On 3 August Flores phoned WER BELL and told him that his clearance had not been granted and that he should not predicate his activities on the expectation of the clearance at any given time. WER BELL said that the Pedraza group was air lifting and dropping material into Cuba.
 
 h. A 9 September 1959 Memorandum for the Record signed by T. J. Flores reported that WER BELL called Flores on 9 September 1959 to provide information on Cuba. He was told by Flores that his clearance had not yet been processed.
 

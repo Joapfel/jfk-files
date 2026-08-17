@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22464.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q And the AMUKES are the AMOTS?
 

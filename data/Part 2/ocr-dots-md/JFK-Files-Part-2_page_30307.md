@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30307.png
-
-Convert to Markdown1. Mr. Nosenko. "On the basis of Nosenko's evaluation of Oswald, he instructed Krupnov to advise Oswald through the Intourist interpreter Oswald would not be permitted to remain in the U.S.S.R. permanently and that he would have to depart at the expiration of his visa, and thereafter seek reentry as a permanent resident through routine channels at the Soviet Embassy in the United States."
+1. Mr. Nosenko. "On the basis of Nosenko's evaluation of Oswald, he instructed Krupnov to advise Oswald through the Intourist interpreter Oswald would not be permitted to remain in the U.S.S.R. permanently and that he would have to depart at the expiration of his visa, and thereafter seek reentry as a permanent resident through routine channels at the Soviet Embassy in the United States."
 
 8. Mr. Klein. Did you ever say that?
 

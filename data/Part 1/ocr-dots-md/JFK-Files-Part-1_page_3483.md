@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3483.png
-
-Convert to MarkdownOTHER INFORMATION OF BERNARDO NIEVARES, OF HAVANA, KNOWN BY "BERRY",
+OTHER INFORMATION OF BERNARDO NIEVARES, OF HAVANA, KNOWN BY "BERRY",
 ON MILITARY INTELLIGENCE
 
 Proclaims having knowledge that in the place known as "La Puntilla",

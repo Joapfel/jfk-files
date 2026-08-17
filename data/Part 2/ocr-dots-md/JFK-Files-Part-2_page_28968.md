@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28968.png
-
-Convert to MarkdownForm 4798
+Form 4798
 Department of the Treasury
 Internal Revenue Service
 

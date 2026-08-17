@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8290.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 RE: INTERVIEW OF RETIRED FBI SA BY OSC
 

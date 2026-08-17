@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2893.png
-
-Convert to Markdownsmn 2
+smn 2
 
 1 pursue it to the point of prosecution.
 

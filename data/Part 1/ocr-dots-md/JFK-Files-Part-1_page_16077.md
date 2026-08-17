@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16077.png
-
-Convert to Markdown(2) Training Facility
+(2) Training Facility
 
 A sniper training facility will be constructed to accommodate 30 students. The facility should include a 40 point firing range and adjacent classrooms. The range should be built with target facilities at 150, 300, 600, and 900 meters.
 

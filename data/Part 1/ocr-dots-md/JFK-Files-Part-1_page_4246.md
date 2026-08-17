@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4246.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CO-CommandoTroops. None of Gutierrez's friends in such position. In Caracas it is essential control or neutralize minimum four key units, Bolivar Inf. BN., Ayacucho Artillery GP., Bermúdez Tank BN., and Presidential Guard, to say nothing of National Guard Mobile Detachment and military police En. Garrisons in Maracaibo, Oriente (presumably Maturing) and Ciudad Bolivar reportedly controlled by so-called Centralist movement. Station has no info PJ involved in any plot.
 

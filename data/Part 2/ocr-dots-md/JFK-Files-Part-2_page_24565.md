@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24565.png
-
-Convert to Markdowndays without the senior members know it, and I understand the contradiction that this carries with respect to the face." (McNamara, p. 4.) He further emphasized that for the President or Robert Kennedy to have approved a Castro assassination was "totally inconsistent with everything I know about the two men." (McNamara p. 90.)
+days without the senior members know it, and I understand the contradiction that this carries with respect to the face." (McNamara, p. 4.) He further emphasized that for the President or Robert Kennedy to have approved a Castro assassination was "totally inconsistent with everything I know about the two men." (McNamara p. 90.)
 
 f. Testimony of Gilpatric
 

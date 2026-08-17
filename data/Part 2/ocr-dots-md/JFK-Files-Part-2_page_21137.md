@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21137.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 IONOV and KARETNIKOV of OTU whom he had known since
 1953.

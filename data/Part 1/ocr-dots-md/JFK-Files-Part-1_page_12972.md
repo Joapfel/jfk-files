@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12972.png
-
-Convert to MarkdownECC - 6792
+ECC - 6792
 
 15 September 1949
 

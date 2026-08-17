@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5415.png
-
-Convert to Markdown1. Prevent the return to the Haitian political scene of such "rabble-rouser" so-called leaders as Daniel Fignole and Henri Vixamar;
+1. Prevent the return to the Haitian political scene of such "rabble-rouser" so-called leaders as Daniel Fignole and Henri Vixamar;
 
 2. Start the ground work for free elections as soon as possible.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35224.png
-
-Convert to MarkdownDEMOCRATIC REVOLUTIONARYFRONT
+DEMOCRATIC REVOLUTIONARYFRONT
 
 Desk Supplies
 Month. of July 1960

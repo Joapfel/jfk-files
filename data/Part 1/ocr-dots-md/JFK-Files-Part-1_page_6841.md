@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6841.png
-
-Convert to MarkdownSECRET/NOFORN
+SECRET/NOFORN
 CONTINUED CONTROL
 
 - II -

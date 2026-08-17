@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32254.png
-
-Convert to MarkdownALL
+ALL
 
 L48 304 015
 

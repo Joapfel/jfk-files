@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23087.png
-
-Convert to MarkdownDespués del descalabro de Playa Girón, la Agencia Central de Inteligencia continuó sus actividades subversivas contra nuestro país, iniciando el reagrupamiento de las dispersas organizaciones contrarrevolucionarias bajo la organización "Unidad Resistencia".
+Después del descalabro de Playa Girón, la Agencia Central de Inteligencia continuó sus actividades subversivas contra nuestro país, iniciando el reagrupamiento de las dispersas organizaciones contrarrevolucionarias bajo la organización "Unidad Resistencia".
 
 Esa labor fue llevada a cabo por los agentes de la CIA infiltrados: Emilio Adolfo Rivero Caro (Brand), Adolfo Mendoza (Raúl) y Jorge García Rubio (Tony) entre otros. Se guidamente se dieron a la tarea de desarrollar todo tipo de actividades subversivas, incluyendo un atentado contra el Comandante de División Raúl Castro Ruz durante el desarrollo del acto provincial - del 26 de julio de 1961 en Oriente; la autoagresión a la Base Naval de Guantánamo, con el fin de justificar la agresión por parte de las Fuerzas Armadas norteamericanas; así como ataques a las repúblicas cercanas para provocar un conflicto internacional.
 

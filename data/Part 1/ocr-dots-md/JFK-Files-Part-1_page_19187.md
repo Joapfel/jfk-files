@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19187.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>STANDARD FORM 50 (3 PART)<br/>REV APRIL 1981<br/>PROMulgated By<br/>U.S. CIVIL SERVICE COMMISSION<br/>CHAPTER B, FEDERAL PERSONNEL MANUAL</td>
     <td>CENTRAL INTELLIGENCE AGENCY</td>

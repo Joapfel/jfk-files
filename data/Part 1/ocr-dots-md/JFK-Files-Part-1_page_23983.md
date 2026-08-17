@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23983.png
-
-Convert to MarkdownThe Fidelista youth were not Marxist. They are more so today than they were before, but they have had this experience of dealing with the United States - - I have had a lot of arguments with them about it.
+The Fidelista youth were not Marxist. They are more so today than they were before, but they have had this experience of dealing with the United States - - I have had a lot of arguments with them about it.
 
 For instance when they came to the United States inx- - &8 March of 59,
 you remember, Felipe Pasos (?) came, Fidel went to Washington and he went

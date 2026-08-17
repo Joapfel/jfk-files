@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18905.png
-
-Convert to MarkdownS-S-C-R-E-T
+S-S-C-R-E-T
 
 Cable Writing Refresher
 Training Certification

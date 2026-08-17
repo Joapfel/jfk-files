@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21164.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 included (1) The Agent net of the 1st Section,
 (2) Knowledge that ROY RHODES furnished the

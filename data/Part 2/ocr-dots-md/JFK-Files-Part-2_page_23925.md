@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23925.png
-
-Convert to Markdown"presumably would be used against key members of the Trujillo regime." The memorandum recommended that the arms be provided, since the fall of the Trujillo regime appeared inevitable, and therefore U.S. relations with the opposition should be as close as possible. "Providing the arms as requested would contribute significantly toward this end."
+"presumably would be used against key members of the Trujillo regime." The memorandum recommended that the arms be provided, since the fall of the Trujillo regime appeared inevitable, and therefore U.S. relations with the opposition should be as close as possible. "Providing the arms as requested would contribute significantly toward this end."
 
 (CIA memo, 7/1/60)
 

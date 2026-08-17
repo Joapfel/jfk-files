@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1482.png
-
-Convert to MarkdownLIMITED OFFICIAL USE
+LIMITED OFFICIAL USE
 
 FBB778
 

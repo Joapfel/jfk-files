@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3119.png
-
-Convert to Markdown1731
+1731
 
 That is what we meant by a free government, and our
 forefathers were convinced that it can exist only through the

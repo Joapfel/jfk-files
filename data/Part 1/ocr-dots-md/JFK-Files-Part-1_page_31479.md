@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31479.png
-
-Convert to Markdownthe price of a meal or a night's lodging which would carry them over the necessary period of time which it always takes until the machinery of other agencies can be pernicious to start grinding for the assistance of these people. However, as time went on, NOPE assistance was also being given, directly or indirectly, to agencies which gave particular attention to material aid, as for instance the APOCR and Humanitarian Welfare, neither of which has any clear and responsible relation with a National Council, yet each of which has been the victim, to some extent, of the vagaries of exile politics.
+the price of a meal or a night's lodging which would carry them over the necessary period of time which it always takes until the machinery of other agencies can be pernicious to start grinding for the assistance of these people. However, as time went on, NOPE assistance was also being given, directly or indirectly, to agencies which gave particular attention to material aid, as for instance the APOCR and Humanitarian Welfare, neither of which has any clear and responsible relation with a National Council, yet each of which has been the victim, to some extent, of the vagaries of exile politics.
 
 Some of the elements which seem, either consciously or unconsciously, to have been operative in the development of this NOPE policy of only limited and indirect concern with the over-all problem of refugees from Eastern Europe were the following:
 

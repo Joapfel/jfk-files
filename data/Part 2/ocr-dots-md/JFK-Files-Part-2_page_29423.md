@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29423.png
-
-Convert to MarkdownClassification: UU DEUTL
+Classification: UU DEUTL
 
 (This form is to be used for material extracted from CIA-controlled documents.)
 

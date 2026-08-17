@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29246.png
-
-Convert to MarkdownSUPPLEMENT:
+SUPPLEMENT:
 
 DD 398 STATEMENT OF PERSONAL HISTORY
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1100.png
-
-Convert to Markdown<table><thead><tr><th>Series No.</th><th>Name</th><th>Cost Center Number</th><th>LWOP Code</th></tr></thead><tbody><tr><td>007894</td><td>Smith, James</td><td>51 720</td><td>CF</td></tr><tr><td colspan="2">OLD SALARY RATE</td><td colspan="2">NEW SALARY RATE</td></tr><tr><td>GS 14 4</td><td>$16,204<br/>$11,600</td><td>GS 14 5</td><td>$16,712<br/>$13,000</td></tr></tbody></table>
+<table><thead><tr><th>Series No.</th><th>Name</th><th>Cost Center Number</th><th>LWOP Code</th></tr></thead><tbody><tr><td>007894</td><td>Smith, James</td><td>51 720</td><td>CF</td></tr><tr><td colspan="2">OLD SALARY RATE</td><td colspan="2">NEW SALARY RATE</td></tr><tr><td>GS 14 4</td><td>$16,204<br/>$11,600</td><td>GS 14 5</td><td>$16,712<br/>$13,000</td></tr></tbody></table>
 
 PAY CHANGE NOTIFICATION
 

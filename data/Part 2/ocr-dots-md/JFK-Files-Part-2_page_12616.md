@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12616.png
-
-Convert to Markdown(6) Advise Bureau promptly by LHM of subject's return from travel abroad. If such individual has traveled behind Iron Curtain, also furnish Bureau recommendations as to interview and state whether additional investigation is contemplated.
+(6) Advise Bureau promptly by LHM of subject's return from travel abroad. If such individual has traveled behind Iron Curtain, also furnish Bureau recommendations as to interview and state whether additional investigation is contemplated.
 
 3. File reviews
 

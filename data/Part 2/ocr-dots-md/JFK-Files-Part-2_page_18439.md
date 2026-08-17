@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18439.png
-
-Convert to MarkdownJune 27, 1975
+June 27, 1975
 
 Within the Committee mandate, contained in S. Res. 21, there are four broad subjects relating to the intelligence community which we are required to investigate and study in order to determine the facts and ultimately to decide whether to make recommendations for legislative or other changes. They are:
 

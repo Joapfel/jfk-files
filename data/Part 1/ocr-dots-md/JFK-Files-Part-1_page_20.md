@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20.png
-
-Convert to MarkdownTOTAL CASES: 26
+TOTAL CASES: 26
 
 FOREIGNER LEFT USR WITHOUT SOVIET SPOUSE
 

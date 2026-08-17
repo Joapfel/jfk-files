@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15697.png
-
-Convert to Markdown# INDICT HANRAHAN !!
+# INDICT HANRAHAN !!
 
 EDWARD V. HANRAHAN
 

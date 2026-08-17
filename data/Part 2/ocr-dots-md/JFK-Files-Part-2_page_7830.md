@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7830.png
-
-Convert to Markdown<table><thead><tr><td>DATE</td><td>TIME</td><td>Page</td></tr></thead><tbody><tr><td>AUG 10</td><td>3 42 PH.76</td><td>82</td></tr></tbody></table>
+<table><thead><tr><td>DATE</td><td>TIME</td><td>Page</td></tr></thead><tbody><tr><td>AUG 10</td><td>3 42 PH.76</td><td>82</td></tr></tbody></table>
 
 SECRET
 

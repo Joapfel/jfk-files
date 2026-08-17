@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7758.png
-
-Convert to MarkdownV. FAMILY SET
+V. FAMILY SET
 
 I3. Marital Status
 

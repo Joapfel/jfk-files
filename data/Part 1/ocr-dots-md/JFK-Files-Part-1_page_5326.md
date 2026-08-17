@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5326.png
-
-Convert to MarkdownSECRET
+SECRET
 BACKGROUND USE ONLY
 
 <table>

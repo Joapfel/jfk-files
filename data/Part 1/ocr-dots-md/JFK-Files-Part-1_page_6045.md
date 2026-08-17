@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6045.png
-
-Convert to Markdown# DEFICIENCIES AND DIFFICULTIES
+# DEFICIENCIES AND DIFFICULTIES
 
 During more than one year of vigorous working, the Section of International Relations has encountered countless deficiencies and difficulties, many of which have been already surpassed, though others still prevail. We will state below the main difficulties which we are actually facing and which we endeavor to surpass as soon as possible.
 

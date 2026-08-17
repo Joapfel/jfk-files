@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20690.png
-
-Convert to MarkdownCU 152-32715
+CU 152-32715
 
 PAGE TWO
 

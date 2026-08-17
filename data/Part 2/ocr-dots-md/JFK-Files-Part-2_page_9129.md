@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9129.png
-
-Convert to MarkdownASSIGNMENT TO UNITS
+ASSIGNMENT TO UNITS
 
 CONFIDENTIAL
 

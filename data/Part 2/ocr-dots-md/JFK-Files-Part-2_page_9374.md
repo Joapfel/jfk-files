@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9374.png
-
-Convert to MarkdownDE T-14 advised on February 28, 1971, that DAVID HILLIARD, BPP Chief of Staff, purged ELDRIDGE CLEAVER, BPP Minister of Information, and his Algerian associates from the BPP.
+DE T-14 advised on February 28, 1971, that DAVID HILLIARD, BPP Chief of Staff, purged ELDRIDGE CLEAVER, BPP Minister of Information, and his Algerian associates from the BPP.
 
 On February 28, 1971, representatives of the New York BPP met and decided to separate from the California-based BPP headed by HUEY P. NEWTON and to support CLEAVER.
 

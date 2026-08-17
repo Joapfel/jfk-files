@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1528.png
-
-Convert to MarkdownThe attention of the Government of the USA is invited to
+The attention of the Government of the USA is invited to
 the fact that in the present situation the violation of the airspace of
 the USSR by an American military aircraft takes on a particularly
 dangerous character since, as has been repeatedly reported, Ameri-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9417.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 JOLLY did when he and MC CLURE were at the BPP Constitutional Convention at Philadelphia, Pennsylvania, September 5 to 7, 1970.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4677.png
-
-Convert to MarkdownSECRET
+SECRET
 
 sources, for God's sakes. You don't even tell the guy who's sitting and working next to you who your source is. But anyway this was done and after (I wish I could remember his name), anyway, after this fellow had gone through all this nonsense and all the information, he came up with a report that simply, in effect, said to the DDI people involved, "You don't know what you are missing. These are honest, bona fide sources by and large and," he said, "I think you are crazy for not using them." So from that point of view it starts to break down. The animosity, the differences of approach on how you work this thing, and it was a good thing from that point of view, and I must say not one of our sources was ever revealed by this man. He kept it, you know - integrity.
 

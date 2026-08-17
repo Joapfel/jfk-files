@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7587.png
-
-Convert to MarkdownCE INTELLIGENCE AGENCY
+CE INTELLIGENCE AGENCY
 
 This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
 

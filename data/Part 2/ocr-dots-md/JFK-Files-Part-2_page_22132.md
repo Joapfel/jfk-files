@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22132.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES: TOP SECRET</th></tr></thead><tbody><tr><td>HARVEY, William ✓<br/>Chief, FI Staff, CIA<br/>QJWIN</td><td>27 June 1963<br/>4-24-63</td><td>EXECUTIVE ACTION</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES: TOP SECRET</th></tr></thead><tbody><tr><td>HARVEY, William ✓<br/>Chief, FI Staff, CIA<br/>QJWIN</td><td>27 June 1963<br/>4-24-63</td><td>EXECUTIVE ACTION</td></tr></tbody></table>
 
 OCCURRENCE:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1717.png
-
-Convert to MarkdownOS/SRS/BLSoliente - 16 October 1961
+OS/SRS/BLSoliente - 16 October 1961
 
 Attachment:
 

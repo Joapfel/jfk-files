@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7673.png
-
-Convert to MarkdownSPR PREPARED BY: Jonathan L. WEENING
+SPR PREPARED BY: Jonathan L. WEENING
 
 DATE: 14 August 1967
 

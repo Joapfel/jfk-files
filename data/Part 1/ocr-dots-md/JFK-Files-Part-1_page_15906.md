@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15906.png
-
-Convert to MarkdownFollow #1 to Richmond
+Follow #1 to Richmond
 
 Turn RIGHT off #1 on #161 approximately 2 miles <u>before</u> you reach Richmond City limits.
 

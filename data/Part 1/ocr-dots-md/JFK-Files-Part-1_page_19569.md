@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19569.png
-
-Convert to MarkdownBWS
+BWS
 
 SECRET
 (When filled in)

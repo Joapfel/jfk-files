@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11809.png
-
-Convert to MarkdownAdequacy of Personnel
+Adequacy of Personnel
 New Left Section 6-E
 
 4. At time of last inspection, this Section had a complement of 24 clerical personnel as compared to present assigned complement of 28 clerical personnel. This increase was occasioned by the transfer of the Protest and Trotskyist Groups Unit with accompanying personnel from Internal Security Section to the New Left Section.

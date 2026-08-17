@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5887.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DECLARATION OF BECKY L. RANT
 

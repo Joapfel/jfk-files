@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13399.png
-
-Convert to Markdown# CONTENTS
+# CONTENTS
 
 TESTIMONY OF:
 

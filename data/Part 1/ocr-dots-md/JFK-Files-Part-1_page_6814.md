@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6814.png
-
-Convert to MarkdownThursday, Sept. 1, 1963 THE WASHINGTON POST
+Thursday, Sept. 1, 1963 THE WASHINGTON POST
 
 Halperin, U. S. Ex-Aide,
 Is Now a Soviet Official

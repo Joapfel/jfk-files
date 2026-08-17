@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5171.png
-
-Convert to Markdown137-4867
+137-4867
 137-4680
 137-5260
 

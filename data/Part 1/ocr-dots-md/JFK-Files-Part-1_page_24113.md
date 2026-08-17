@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24113.png
-
-Convert to MarkdownCONTINUING BRITISH IMMIGRATION PROBLEM
+CONTINUING BRITISH IMMIGRATION PROBLEM
 
 Returning to London from Stockholm on 10 July, I was again queried by British Immigration about my failure to register as a permanent resident. My excuse has always been that I did in fact go to the Home Office, but no action was ever taken because I rarely remained in the country more than a month. However, this tale is wearing thin and I fear that I may have much more serious trouble in the near future.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5219.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Subject: CIA Employees
 

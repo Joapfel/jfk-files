@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10023.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 Volume II, which contains instructions to be followed for investigations carried out pursuant to EO 10450, as amended. This should be referred to for an understanding of the FBI's policy and procedures.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15356.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>INDEX ☐ YES ☐ NO</td>
     <td rowspan="2">CLASSIFIED MESSAGE</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23071.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1 Mr. Halley. I do not know if your question means the same thing to me. I would prefer to say we had a liaison relation- ship with the FBI, that is, on matters dealing with counter- intelligence matters. There was a regular exchange of data with the FBI. There was an exchange of name traces on people that they were conducting investigations on, for : counterintelli- gence purposes>We would trace certain individuals and with the FBI there wers a couple of counterintelligence cases that we discovered that were turned over to the FBI.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8987.png
-
-Convert to Markdown4. Niega que ninguna persona tanto de la embajada, como del consulado cubano le haya dado la idea, aconsejado o invitado a que se fuera a La Habana, Cuba, inclusive dice que en ningún momento lo ha pensado primeramente por no dejar a su familia y no tener los medios para ir y en segundo lugar porque no tiene objeto dicho viaje.
+4. Niega que ninguna persona tanto de la embajada, como del consulado cubano le haya dado la idea, aconsejado o invitado a que se fuera a La Habana, Cuba, inclusive dice que en ningún momento lo ha pensado primeramente por no dejar a su familia y no tener los medios para ir y en segundo lugar porque no tiene objeto dicho viaje.
 
 **29 de noviembre del 63.**
 

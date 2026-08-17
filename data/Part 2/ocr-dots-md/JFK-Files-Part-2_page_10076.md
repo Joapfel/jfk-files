@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10076.png
-
-Convert to Markdown# TREAT AS YELLOW
+# TREAT AS YELLOW
 
 3791 (6.75) NW 88326 DocId:32989603 Page 117
 

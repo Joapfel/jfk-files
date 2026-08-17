@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30407.png
-
-Convert to Markdownor was of interest and so on and maybe there are reasons for
+or was of interest and so on and maybe there are reasons for
 debriefing, I can visualize a 201 being opened if the matter
 were of apparent continuing interest. I can see no reason why
 a 201 would be opened in this case.

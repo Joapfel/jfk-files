@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11551.png
-
-Convert to MarkdownAt the seat of Government a careful appraisal will be made of the field's recommendation, following which the office will be advised concerning the Bureau's decision on the recommendation.
+At the seat of Government a careful appraisal will be made of the field's recommendation, following which the office will be advised concerning the Bureau's decision on the recommendation.
 
 (c) Regulations governing top functionaries
 

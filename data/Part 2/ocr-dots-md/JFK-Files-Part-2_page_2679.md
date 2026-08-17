@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2679.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="3">CONTRACT INFORMATION AND CHECK LIST</th><th>CASE OFFICER</th><th>DIVISION</th></tr></thead><tbody><tr><td colspan="3"><strong>INSTRUCTIONS:</strong> Use HR 20-53 and HB 20-1000-1 for guidance. Complete all items, inserting "NA" when items are not applicable. Forward original and TWO copies for preparation of contract.</td><td>Maurice Currie</td><td>WHD</td></tr><tr><td colspan="3"></td><td>TELEPHONE EXTENSION</td><td>DATE</td></tr><tr><td colspan="2"></td><td></td><td>6032</td><td>15 June 1966</td></tr></tbody></table>
 

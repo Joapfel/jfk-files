@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9363.png
-
-Convert to Markdowncontinue its backing. I repeat my request that this be delivered to the field as an instruction and that it be so regarded and acted upon within this headquarters. I do not wish to create the impression that I am in any way opposed to the continuation of the operation, provided it can be sanitized and handled with a greater degree of sophistication and technical expertise than has characterized our performance up to date. However, I do not wish to be associated with any repetition of what we have seen thus far.
+continue its backing. I repeat my request that this be delivered to the field as an instruction and that it be so regarded and acted upon within this headquarters. I do not wish to create the impression that I am in any way opposed to the continuation of the operation, provided it can be sanitized and handled with a greater degree of sophistication and technical expertise than has characterized our performance up to date. However, I do not wish to be associated with any repetition of what we have seen thus far.
 
 F.G.M.
 

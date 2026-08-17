@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3435.png
-
-Convert to MarkdownSECRET
+SECRET
 
 countries. Because of the relative ineffectiveness of the Mexican police and security services, Soviet activities in Mexico are not subjected to the same scrutiny as they are in the U.S. by the FBI and in Canada by the Royal Canadian Mounted Police. Soviet personnel in Mexico thus have a freedom of movement which facilitates the conduct of clandestine operations targeted not only against the U.S., but also against other Latin American countries where there is no Soviet official presence. In addition, Mexico's long border with the U.S. has only minimal guards. Travel between the U.S. and Mexico is heavy and clandestine border crossing can be relatively simple. The Soviet Embassy in Mexico City, therefore, assumes more than the usual interest normally attached to similar Soviet installations as targets for U.S. intelligence.
 

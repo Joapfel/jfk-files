@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6958.png
-
-Convert to Markdownanticipated. And although we believe that Congress should not indefinitely continue funding federal entities that were intended to be temporary, Chairman Burton and this subcommittee support the request for a one-year extension of the board's reauthorization. I believe that by releasing these documents to the public we serve an important public right to know and advance the cause of total accountability to the people of this country.
+anticipated. And although we believe that Congress should not indefinitely continue funding federal entities that were intended to be temporary, Chairman Burton and this subcommittee support the request for a one-year extension of the board's reauthorization. I believe that by releasing these documents to the public we serve an important public right to know and advance the cause of total accountability to the people of this country.
 
 At this time I would like to recognize the gentleman from Wisconsin, Mr. Barrett.
 

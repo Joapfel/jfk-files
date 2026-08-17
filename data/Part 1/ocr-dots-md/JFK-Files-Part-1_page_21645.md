@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21645.png
-
-Convert to MarkdownSECRET
+SECRET
 
 pages would be repetitious and in many instances superfluous. It is
 considered that even if the statements were accepted in toto, there

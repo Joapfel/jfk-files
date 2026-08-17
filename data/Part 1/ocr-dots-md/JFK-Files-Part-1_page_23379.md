@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_23379.png
-
 that the latter is resigning
 
 <table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>

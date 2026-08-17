@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1865.png
-
-Convert to Markdown29 November 1956
+29 November 1956
 
 Korea Station wishes to express its appreciation to James S. Woods for his most diligent performance of duty during his recent TDY hero, his highly cooperative attitude and above all, his extreme eagerness to get a job done well and expeditiously.
 

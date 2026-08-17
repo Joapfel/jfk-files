@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5198.png
-
-Convert to Markdownhave been identified by sources of your office? What are your plans for effecting identification of other La Cosa Nostra members residing in your territory? Has your intelligence developed any indication of a change in leadership or operations of La Cosa Nostra in your division? If so, advise of your contemplated action with respect to this situation.
+have been identified by sources of your office? What are your plans for effecting identification of other La Cosa Nostra members residing in your territory? Has your intelligence developed any indication of a change in leadership or operations of La Cosa Nostra in your division? If so, advise of your contemplated action with respect to this situation.
 
 3. Identify by symbol number any top-echelon criminal informants who are members of La Cosa Nostra or other organized criminal groups in your territory. Outline your prospects for development of additional informants of this type.
 

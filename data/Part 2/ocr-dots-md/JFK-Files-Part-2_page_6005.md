@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6005.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 division summary, much as it is today. The RMDs from year-to-year could and often did change with the operational requirements the Agency was expected to fulfill. As such, the RMDs for each station had value only as data to the larger examination of how the Agency performed its intelligence mission in a given year and what trends or changes this review would suggest for the ensuing year.
 

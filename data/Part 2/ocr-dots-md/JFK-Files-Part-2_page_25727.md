@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25727.png
-
-Convert to Markdown# Only a Ho-lum Murder
+# Only a Ho-lum Murder
 
 By Russell Baker
 

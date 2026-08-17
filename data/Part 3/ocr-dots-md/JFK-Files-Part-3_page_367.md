@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_367.png
-
-Convert to MarkdownPROPOSED PROCEDURES
+PROPOSED PROCEDURES
 
 or the Senior Staff.
 

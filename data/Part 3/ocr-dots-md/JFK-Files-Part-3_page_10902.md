@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10902.png
-
-Convert to Markdown"I want to make certain that the activities and the functions of the Central Intelligence Agency were carefully confined to international matters, to military matters, and to matters of national security. We have enough people now running around butting into everybody else's business in this country without establishing another agency to do so.
+"I want to make certain that the activities and the functions of the Central Intelligence Agency were carefully confined to international matters, to military matters, and to matters of national security. We have enough people now running around butting into everybody else's business in this country without establishing another agency to do so.
 
 "What we ought to do is to eliminate 90 percent of the present snoopers instead of adding to them.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35129.png
-
-Convert to Markdown14-00000
+14-00000
 
 # REVOCACIÓN AÑO DE CIVILICO
 ## DE SEPTI, AÑO DE FINANZAS DE MUNICIPIO

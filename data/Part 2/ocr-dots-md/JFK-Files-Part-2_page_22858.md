@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22858.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of others that did not all fall within one jurisdiction. Anytime you get that kind of problem you have an organization problem. And the solution of 1961, which took sometime to work out, as the passage of time suggests, was the creation of a Special Committee under the Chairmanship of General Taylor and with General Lansdale as its operating officer.
 

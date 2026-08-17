@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15323.png
-
-Convert to Markdown# II. ANALYSIS.
+# II. ANALYSIS.
 
 1. The debriefer was instructed to conduct the debriefing in a most friendly way, so that David would not get suspicious about the purpose of this debriefing.
 

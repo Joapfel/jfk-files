@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21440.png
-
-Convert to Markdown14-00000
+14-00000
 
 DATE : 255
 11 APR 61

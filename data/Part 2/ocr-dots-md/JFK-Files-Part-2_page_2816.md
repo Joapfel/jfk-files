@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2816.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 <table><tbody><tr><td>1. EMP. SERIAL NO.</td><td>2. NAME</td><td>3. ASSIGNED ORGAN.</td><td>4. FUNDS</td><td>5. ALLOTMENT</td></tr><tr><td>159198</td><td>KENT, WILLIAM M.</td><td>DDP/WH</td><td>V-20</td><td></td></tr></tbody></table>

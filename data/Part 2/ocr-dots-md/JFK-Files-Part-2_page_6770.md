@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6770.png
-
-Convert to MarkdownDraft: 14 May 1992
+Draft: 14 May 1992
 
 STATEMENT OF ROBERT M. GATES
 DIRECTOR OF CENTRAL INTELLIGENCE

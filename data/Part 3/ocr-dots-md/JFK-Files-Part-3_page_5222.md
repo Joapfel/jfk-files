@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5222.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 INSPECTOR ARNOLD C. LARSON:
 

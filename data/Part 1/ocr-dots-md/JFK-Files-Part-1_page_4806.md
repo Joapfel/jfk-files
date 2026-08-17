@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4806.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">CABLE SEC DISEN BY 29 PER</td>

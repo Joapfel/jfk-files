@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7186.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td colspan="2">CABLE SEC DISSEMIN BY ____ PER ____</td><td>TOTAL COPIES</td><td>RUN BY</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td>SECRET</td><td>REPRODUCTION BY OTHER THAT<br/>ISSUING OFFICE IS PROHIBITED</td></tr><tr><td colspan="2">ADVANCE COPY ISSUED/SLOTTED</td><td>BY AT Z</td><td>STAFF</td></tr><tr><th>ACTION UNIT</th><th>I<br/>N<br/>F<br/>O</th><th>RF. FILE VR.</th><th>1</th><th>4</th></tr><tr><td></td><td></td><td></td><th>2</th><th>5</th></tr><tr><th>ACTION #</th><td></td><td></td><th>3</th><th>6</th></tr></table>
 

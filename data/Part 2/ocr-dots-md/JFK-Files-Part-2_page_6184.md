@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6184.png
-
-Convert to Markdown12 July 1996
+12 July 1996
 
 Visit for 22 July 1996; 10:00 a.m.
 

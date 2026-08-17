@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6065.png
-
-Convert to Markdown16. Honors and awards:
+16. Honors and awards:
 
 "Native Americans and Higher Education," Summer Institute for Native American high school students, The Coca-Cola Foundation, 1994-1997.
 

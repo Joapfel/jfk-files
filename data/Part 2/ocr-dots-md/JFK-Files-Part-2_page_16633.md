@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16633.png
-
-Convert to Markdown3. Records of the Illinois Bell Telephone Company in response to Item Number 1 covering the period October 14, 1969, through December 13, 1969, consisting of 13 items together with a Xerox copy of the same consisting of 7 pages.
+3. Records of the Illinois Bell Telephone Company in response to Item Number 1 covering the period October 14, 1969, through December 13, 1969, consisting of 13 items together with a Xerox copy of the same consisting of 7 pages.
 
 The subpoena was executed by Special Agent of the Chicago Office of the Federal Bureau of Investigation (FBI) by delivery to Security Department, Illinois Bell Telephone System, 225 West Randolph Street, Chicago, Illinois. At that time advised it would be necessary to secure these records from the warehouse, and that the earliest response would be on or about March 2, 1970.
 

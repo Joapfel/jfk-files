@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13723.png
-
-Convert to Markdown# Exhibit I
+# Exhibit I
 
 ## An Extract From Kennedy's Address to Press
 

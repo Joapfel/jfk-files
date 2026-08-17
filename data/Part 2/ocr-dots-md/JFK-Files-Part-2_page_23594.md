@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23594.png
-
-Convert to MarkdownFILE:
+FILE:
 
 the President probably did not know of the gun transfer, but he said that the assassination and the U.S. role with respect to it would have come as no surprise to the President. He doubted that the CIA even would have had to clear the transfer, although a general policy of that sort might have been passed by the Special Group.
 

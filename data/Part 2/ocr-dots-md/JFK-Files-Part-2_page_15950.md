@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15950.png
-
-Convert to MarkdownThe following two articles by RUFUS WALLS, who is the Minister of Information, Chicago Chapter BPP, appeared in the first spring semester edition of the "Phoenix", an underground-type newspaper published by Negro militants at Crane Junior College, 2250 West Van Buren, Chicago, Illinois. The newspaper was distributed on Crane campus on February 12, 1969.
+The following two articles by RUFUS WALLS, who is the Minister of Information, Chicago Chapter BPP, appeared in the first spring semester edition of the "Phoenix", an underground-type newspaper published by Negro militants at Crane Junior College, 2250 West Van Buren, Chicago, Illinois. The newspaper was distributed on Crane campus on February 12, 1969.
 
 ## "BLACK CAPITALISM
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12133.png
-
-Convert to MarkdownSECTION 107
+SECTION 107
 
 NATIONAL SECURITY INFORMATION
 Unauthorized Disclosure

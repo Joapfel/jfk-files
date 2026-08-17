@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1806.png
-
-Convert to Markdown# ORGANIZATION AND ACTIVITIES OF THE DEPUTY DIRECTOR (RESEARCH)
+# ORGANIZATION AND ACTIVITIES OF THE DEPUTY DIRECTOR (RESEARCH)
 
 The Office of the Deputy Director (Research) having already been created, we now make the following recommendations as to those units which should be included under this Deputy.
 

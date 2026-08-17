@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24128.png
-
-Convert to MarkdownSpeas Company) was engaged to estimate a fair market value for the complex. Although an intensive search for competitive bidders was made, the Agency was unable to find buyers for any of the affiliated companies except the Taipei maintenance facility. The sale of this company as a going concern to the successful bidder was closed on 31 January 1975. The remaining parts of Air America are being liquidated by sale of individual assets upon completion of existing contracts. Funds realized from the sales could be as much as $25 million and will be returned to the Treasury.
+Speas Company) was engaged to estimate a fair market value for the complex. Although an intensive search for competitive bidders was made, the Agency was unable to find buyers for any of the affiliated companies except the Taipei maintenance facility. The sale of this company as a going concern to the successful bidder was closed on 31 January 1975. The remaining parts of Air America are being liquidated by sale of individual assets upon completion of existing contracts. Funds realized from the sales could be as much as $25 million and will be returned to the Treasury.
 
 Agency financial support for Radio Liberty and Radio Free Europe, both sizeable proprietaries, was terminated in FY 1971 and responsibility for their funding and operation was assumed by the Department of State.
 

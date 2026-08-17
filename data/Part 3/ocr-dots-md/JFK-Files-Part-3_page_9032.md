@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9032.png
-
-Convert to MarkdownITEM III.
+ITEM III.
 
 I cannot be certain that there may have been briefly indicated King was necessarily aware of the past or present C.P. Connections of this persons
 

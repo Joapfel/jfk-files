@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21387.png
-
-Convert to MarkdownNY 3164-S advised on 8/23/62, that Richard Gibson had indicated that a split had developed in NYC between the pro-Castro Cubans and the Trotskyites, followers of the SWP, and that the split was especially apparent at the Casa Cuba Club, 691 Columbus Ave., NYC.
+NY 3164-S advised on 8/23/62, that Richard Gibson had indicated that a split had developed in NYC between the pro-Castro Cubans and the Trotskyites, followers of the SWP, and that the split was especially apparent at the Casa Cuba Club, 691 Columbus Ave., NYC.
 
 Add. info.
 

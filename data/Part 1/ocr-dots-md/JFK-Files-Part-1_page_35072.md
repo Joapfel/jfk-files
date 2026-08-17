@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35072.png
-
-Convert to MarkdownBASTOS P. A. T. V. C/S CHEQUE No. 419
+BASTOS P. A. T. V. C/S CHEQUE No. 419
 
 FOR $6,937.52 - "PAULA AND SOSA"
 

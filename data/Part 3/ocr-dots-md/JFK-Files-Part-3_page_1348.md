@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1348.png
-
-Convert to MarkdownTELETYP
+TELETYP
 ROUTINE
 
 EFTO

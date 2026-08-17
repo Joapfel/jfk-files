@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27187.png
-
-Convert to MarkdownS-M Files
+S-M Files
 
 III. Miscellaneous Files
 

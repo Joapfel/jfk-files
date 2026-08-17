@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4195.png
-
-Convert to MarkdownSSC REQUEST 11-25-75
+SSC REQUEST 11-25-75
 
 ITEM 8C
 

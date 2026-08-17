@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19309.png
-
-Convert to MarkdownSECRET
+SECRET
 
 I, J. WALTER MOORE do solemnly swear (or affirm) not to divulge any classified information concerning the department of the U.S. Government to which I am attached as of this date, including but not limited to its communications, communication channels and facilities, cryptographic systems, personnel, location, and methods of operation.
 

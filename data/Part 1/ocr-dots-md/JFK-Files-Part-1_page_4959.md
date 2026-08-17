@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4959.png
-
-Convert to Markdown**PRIORITY**
+**PRIORITY**
 IN 067103
 
 # Intelligence Information Cable

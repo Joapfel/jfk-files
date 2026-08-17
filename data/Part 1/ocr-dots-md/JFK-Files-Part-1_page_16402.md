@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16402.png
-
-Convert to MarkdownCuba - Dominican Republic
+Cuba - Dominican Republic
 
 Target Analysis Summary Report
 

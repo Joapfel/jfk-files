@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8724.png
-
-Convert to Markdown# VII. HISTORIAL MEDICO
+# VII. HISTORIAL MEDICO
 
 ## 16. Estado de salud
 

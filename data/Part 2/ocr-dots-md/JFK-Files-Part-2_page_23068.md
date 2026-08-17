@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23068.png
-
-Convert to Markdown1 Mr. Baron. Do you have any recollection of Cuesta Valle's specific activities with the CIA?
+1 Mr. Baron. Do you have any recollection of Cuesta Valle's specific activities with the CIA?
 
 2
 

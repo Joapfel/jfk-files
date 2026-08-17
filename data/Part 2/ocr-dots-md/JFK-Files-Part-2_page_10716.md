@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10716.png
-
-Convert to MarkdownFH 52-7165 Sub S
+FH 52-7165 Sub S
 
 TERRY EDWARD BUCKALEW
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21741.png
-
-Convert to MarkdownFirst Section, First Department. This information was furnished to NOSENKO primarily because of his friendship with GRYAZNOV and not as the result of mutual operations.
+First Section, First Department. This information was furnished to NOSENKO primarily because of his friendship with GRYAZNOV and not as the result of mutual operations.
 
 However, NOSENKO learned of certain cases or
 was furnished additional details as a result of a request

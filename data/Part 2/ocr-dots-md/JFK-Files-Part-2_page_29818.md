@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29818.png
-
-Convert to MarkdownS - and he stopped in and was with who
+S - and he stopped in and was with who
 
 D - his brother JOe and his sister-in-law and Patrick Sherman
 

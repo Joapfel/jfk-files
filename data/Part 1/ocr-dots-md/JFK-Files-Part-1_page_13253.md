@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_13253.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">SECRET</th><th></th><th>DISPATCH SYMBOL AND NUMBER<br>HVCW-7776</th><th>DATE<br>A DEC 1987</th><th>CLASSIFICATION<br>SECRET</th><th>NOS FILE NUMBER<br>201-300985</th></tr></thead><tbody><tr><td>CROSS REFERENCE TO</td><td colspan="3">CS COPY</td><td rowspan="2"><table><tbody><tr><td>ORIGINATING</td><td>OFFICE - WH/3/V</td><td>TYPIS C. Cox CS</td><td>(I) 4521</td></tr><tr><td colspan="4"><table><tbody><tr><td>COORDINATING</td><td>OFFICE SYMBOL</td><td>DATE</td><td>ORDER'S NAME</td></tr><tr><td></td><td>C/WH/3/V</td><td>4 Dec.</td><td>E. Tsikerdanos</td></tr></tbody></table></td></tr><tr><td>Distribution:<br>1 - RI<br>1 - Chrono</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>ABSTRACT X</td><td></td><td>LACKS-</td><td></td><td></td><td>REMITTING</td><td>DISPATCH</td></tr></tbody></table></td></tr></tbody></table>

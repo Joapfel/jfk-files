@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9292.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>REPORTING OFFICE<br/>DETROIT</td>

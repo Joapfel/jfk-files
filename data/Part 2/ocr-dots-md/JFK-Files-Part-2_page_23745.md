@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23745.png
-
-Convert to Markdownto be before 1971, 1973.
+to be before 1971, 1973.
 
 Senator Huddleston. Is there any chance that anybody would be denied the product of this investigation if we changed it?
 

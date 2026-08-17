@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20672.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>STANDARD FORM 52<br/>FROM DATE BY THE<br/>MSA NO. 1890 CONFIDENTIAL AGRICULTURAL PERSONNEL<br/>BANKING SECTION</td>
     <td colspan="3">REQUEST FOR PERSONNEL ACTION</td>

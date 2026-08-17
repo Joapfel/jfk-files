@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19067.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 MERKATZ, HANS JOACHIM VON, and WOLFGANG METZNER, eds. Germany today: facts and figures. Frankfurt a.M., A. Metzner, 1954. 413p. DD259.M372 DLC; DD259.M372 CIA.
 

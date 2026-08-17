@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23650.png
-
-Convert to Markdownyou were associated with it well.
+you were associated with it well.
 
 Mr. Kirbow. I want to talk about the testimony that was given before the committee on this from two of the former DCIs. Mr. Colby, at both the breakfast briefings he gave and in testimony, favored the use of individual intelligence offices around in these various agencies, originating estimates and everything else: whereas Mr. Helms, when he testified here, says I really don't know how that system is working right now. I didn't favor it when Mr. Colby established it, and I had the other system and it worked well for me.
 

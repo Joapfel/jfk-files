@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17268.png
-
-Convert to MarkdownRE: BPP
+RE: BPP
 
 "We have gotten together a staff of lawyers who will be on call for party cases and who will try to put a stop to false arrests by being on the scene as soon as possible after the arrest.
 

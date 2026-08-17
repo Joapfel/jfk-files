@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33179.png
-
-Convert to Markdownconsidering trying to recruit "Flores" using Gonzalez. Gonzalez returned to
+considering trying to recruit "Flores" using Gonzalez. Gonzalez returned to
 Havana in 1964-65.
 
 In 1960, a sensational case involving Gonzalez was the talk of the day

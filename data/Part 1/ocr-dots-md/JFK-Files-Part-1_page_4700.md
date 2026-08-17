@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4700.png
-
-Convert to MarkdownSECRET
+SECRET
 
 THE following information has been requested:
 

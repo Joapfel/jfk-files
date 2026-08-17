@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16428.png
-
-Convert to MarkdownA 23-page pamphlet captioned "Black Panther Coloring Book", was observed at the BPP Headquarters, 2350 West Madison Street, Chicago, Illinois, on June 4, 1969.
+A 23-page pamphlet captioned "Black Panther Coloring Book", was observed at the BPP Headquarters, 2350 West Madison Street, Chicago, Illinois, on June 4, 1969.
 
 Numerous copies of this pamphlet were observed.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32451.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 ORIENTATION TO INTELLIGENCE FOR CT'S
 (Class of December 1967)

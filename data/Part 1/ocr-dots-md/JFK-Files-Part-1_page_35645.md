@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35645.png
-
-Convert to MarkdownCarlos Miguel Publico Jerroa
+Carlos Miguel Publico Jerroa
 
 1952, Cuba, Febrero 27, 1947
 

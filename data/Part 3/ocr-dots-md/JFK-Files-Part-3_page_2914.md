@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2914.png
-
-Convert to Markdownaccordance with what they think is proper and may even have some reservation, but they do it on my orders. I accept that responsibility.
+accordance with what they think is proper and may even have some reservation, but they do it on my orders. I accept that responsibility.
 
 I think that it should rest on those who instructed that that be done.
 

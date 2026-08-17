@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29878.png
-
-Convert to MarkdownDLS: 17 OCT 63
+DLS: 17 OCT 63
 
 <table>
     <tbody>

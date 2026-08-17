@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21023.png
-
-Convert to Markdown4/3/67
+4/3/67
 
 airtel
 

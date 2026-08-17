@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6929.png
-
-Convert to MarkdownWeisberg obtained important records on these scientific tests,
+Weisberg obtained important records on these scientific tests,
 including records that the FBI had first said did not exist, then
 claimed were missing or destroyed. Other records were never
 located or were meaningless. From the date of the first request,

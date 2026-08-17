@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27856.png
-
-Convert to Markdown<table><tr><td>Executive Registry</td></tr><tr><td>76-2746</td></tr></table>
+<table><tr><td>Executive Registry</td></tr><tr><td>76-2746</td></tr></table>
 
 DEPARTMENT OF THE ARMY
 US ARMY WAR COLLEGE

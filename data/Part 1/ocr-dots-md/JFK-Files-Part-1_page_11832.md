@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11832.png
-
-Convert to MarkdownSECRET
+SECRET
 
 21 MAY 1976
 

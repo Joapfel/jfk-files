@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2586.png
-
-Convert to Markdown## Substantial Response
+## Substantial Response
 
 6. All memoranda or other materials reflecting approval or knowledge of any COINTELPRO program by any government official outside the FBI, including, but not limited to, any Attorney General, Member of Congress, or President. (C.19.) (A substantial response to this request was received on July 8, 1975. Analysis of the materials may indicate the need for additional documents.)
 

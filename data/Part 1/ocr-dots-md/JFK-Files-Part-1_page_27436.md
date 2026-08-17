@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27436.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>SECTION D.</td>
     <td colspan="2">Speaking (43)</td>

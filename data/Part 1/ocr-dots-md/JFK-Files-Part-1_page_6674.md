@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6674.png
-
-Convert to MarkdownS O B R I J O
+S O B R I J O
 
 A : C-300.
 

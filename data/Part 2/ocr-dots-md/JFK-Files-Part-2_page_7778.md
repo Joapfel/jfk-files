@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7778.png
-
-Convert to Markdown1963 - 1973
+1963 - 1973
 
 PROGRAM
 

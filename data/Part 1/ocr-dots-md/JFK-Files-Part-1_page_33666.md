@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33666.png
-
-Convert to Markdown"a. Radio Free Europe reports indicate probably Czech currency reform scheduled for early 1952 affecting larger notes and with at least 50% devaluation.
+"a. Radio Free Europe reports indicate probably Czech currency reform scheduled for early 1952 affecting larger notes and with at least 50% devaluation.
 
 b. MOB concurs this estimate situation.
 

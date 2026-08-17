@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32466.png
-
-Convert to MarkdownSECRET-NO FOREIGN DISSEM
+SECRET-NO FOREIGN DISSEM
 
 Panama is relatively quiet. Although Panama has failed to receive any commitment for a long-sought renegotiation of the Canal Zone treaty, continuing talks on areas of disagreement and some concessions have eased tensions and softened violent anti-US propaganda. Public emotion may again be aroused, however, by the recent petition, filed by a Communist lawyer, requesting the Supreme Court to declare the treaty unconstitutional. President Chiari has also indicated he expects to press for increased compensation during the forthcoming talks. On the internal scene, President Chiari has failed to provide a strong administration. Corruption continues; the cabinet is divided by conflicting loyalties and ambitions; badly needed reforms have not yet been adopted; and the chronically depressed economy remains stagnant.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5583.png
-
-Convert to Markdownhave a say in what happens with respect certainly was involved with decisions on to end, but I was not the controlling
+have a say in what happens with respect certainly was involved with decisions on to end, but I was not the controlling
 
 There were three major agency reports that the Nosenko case; specifically there was by the Soviet Russia Division, another of the Office of Security report, and then a related to as the Hart report.
 

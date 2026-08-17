@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15533.png
-
-Convert to Markdown23 - 29, 1969, edition of the Chicago Defender,
+23 - 29, 1969, edition of the Chicago Defender,
 
 Chicago, Illinois newspaper:
 

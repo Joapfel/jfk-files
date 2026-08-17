@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2935.png
-
-Convert to Markdownsnn 13
+snn 13
 
 2522
 

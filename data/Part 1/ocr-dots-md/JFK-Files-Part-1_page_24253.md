@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24253.png
-
-Convert to MarkdownSECRET/RYDBAI
+SECRET/RYDBAI
 
 QRPHONE/1 his impressions of it all, his reaction to the STFLIMFLAM proposal, and whether he would accept its demanding obligations. QRPHONE said he certainly would and that he found it a real challenge to his intellect and his operational skills. The tedious study of the dialectic would not deter him. His only concern was how he should actually play it as he developed relationships with appropriate party members and, ultimately, the Chinese in SMORANGE. I pointed out he needn't concern himself with the last point because that would be part of the purpose of the ten-day training program in SMORANGE in September which would be given him by the Headquarters STFLIMFLAM officer. I said the training would require total emersion for ten days straight, probably in some secluded beach house on the coast where all involved could reside full time. He said this would present no problem cover-wise; he would simply tell his family he had gone to the continent. I said that PAUPEROS would be working out the details of this with him, probably after his return from vacation.
 

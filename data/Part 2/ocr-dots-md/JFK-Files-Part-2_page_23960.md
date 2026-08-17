@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23960.png
-
-Convert to Markdownprepared at the request of Richard Goodwin and was thereafter
+prepared at the request of Richard Goodwin and was thereafter
 circulated within the State Department.* This document,
 entitled "Program of Covert Action for the Dominican Republic"
 reported:

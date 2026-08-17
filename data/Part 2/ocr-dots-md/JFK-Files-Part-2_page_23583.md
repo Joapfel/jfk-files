@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23583.png
-
-Convert to MarkdownNovember 22, 1963
+November 22, 1963
 
 Bob--
 

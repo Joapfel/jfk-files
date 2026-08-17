@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7557.png
-
-Convert to MarkdownPacific Northwest Laboratories
+Pacific Northwest Laboratories
 Battelle Boulevard
 Richland, Washington 99352
 

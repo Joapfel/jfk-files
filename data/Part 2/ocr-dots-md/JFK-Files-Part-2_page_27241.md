@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27241.png
-
-Convert to MarkdownB-G-G (II-Y)
+B-G-G (II-Y)
 
 A - Memo to Belin from Clapper - 29 May 75
 

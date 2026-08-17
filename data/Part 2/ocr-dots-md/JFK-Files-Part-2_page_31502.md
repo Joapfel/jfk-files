@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31502.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/evs
 
 such areas as Cuba, Vietnam, the Soviet Union and China.

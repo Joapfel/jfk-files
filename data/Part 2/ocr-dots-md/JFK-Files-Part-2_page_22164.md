@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22164.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>JFK<br/>Maxwell Taylor</td><td>27 Sept 62</td><td>Special Group Augmented<br/>MOONGOOSE<br/>Diem</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>JFK<br/>Maxwell Taylor</td><td>27 Sept 62</td><td>Special Group Augmented<br/>MOONGOOSE<br/>Diem</td></tr></tbody></table>
 
 OCCURRENCE:
 

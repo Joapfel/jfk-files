@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_645.png
-
-Convert to Markdown<table><thead><tr><td>REPRODUCTION PROHIBITED</td></tr></thead><tbody><tr><td>R.E.</td><td>0</td><td>7</td></tr><tr><td>NL.</td><td>1</td><td>6</td></tr><tr><td>P.O.</td><td>2</td><td>C</td></tr></tbody></table>
+<table><thead><tr><td>REPRODUCTION PROHIBITED</td></tr></thead><tbody><tr><td>R.E.</td><td>0</td><td>7</td></tr><tr><td>NL.</td><td>1</td><td>6</td></tr><tr><td>P.O.</td><td>2</td><td>C</td></tr></tbody></table>
 
 SECRET 05228GZ SITE MEXICO CITY 7928
 

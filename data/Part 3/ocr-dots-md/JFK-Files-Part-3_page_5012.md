@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5012.png
-
-Convert to MarkdownThe following is a summary of a four page report, dated 11/20/73, furnished by Mary Jo Cook, a former FBI informant.
+The following is a summary of a four page report, dated 11/20/73, furnished by Mary Jo Cook, a former FBI informant.
 
 Report concerns a meeting of the VVAW/WSO Steering Committee held 11/10/73. Five identified individuals were present. There was a discussion of finances and some displeasure at the financial record system. Plans for a benefit at a bar were discussed. Information was presented concerning a newsletter to be mailed out which will discuss the VVAW/WSO's position on amnesty, the upgrading of discharges, information about the Women's group and about a strike at a Buffalo firm.
 

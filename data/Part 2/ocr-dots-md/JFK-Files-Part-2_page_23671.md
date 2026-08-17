@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23671.png
-
-Convert to Markdown Senator Mathias. Can that in effect today except for
+Senator Mathias. Can that in effect today except for
 the titles?
 
 Mr. Aaron. Not exactly because he still reports to the

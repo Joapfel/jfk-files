@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19593.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 UNITED STATES DEPARTMENT OF JUSTICE
 

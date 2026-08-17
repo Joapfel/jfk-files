@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1636.png
-
-Convert to MarkdownOG0014 0052317
+OG0014 0052317
 
 JAN 5 6 25 PH '78
 

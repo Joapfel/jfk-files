@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10690.png
-
-Convert to MarkdownF. Altamaha Men's Club #72, Baxley, Ga.
+F. Altamaha Men's Club #72, Baxley, Ga.
 
 This klavern is the newest active klavern and has about 40 members, of which about 16 are active. They ousted one Exalted Cyclops who indicated he favored aggressive action, and several members have quit because of the views of this Exalted Cyclops. This is the only klavern in the Savannah Division believed to have an "action" group within the klavern.
 

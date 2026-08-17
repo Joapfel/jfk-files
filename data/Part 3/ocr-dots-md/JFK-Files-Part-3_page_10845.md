@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10845.png
-
-Convert to Markdownwith the Bureau during World War II. It was during these years that an atmosphere of mistrust and lack of confidence was created.
+with the Bureau during World War II. It was during these years that an atmosphere of mistrust and lack of confidence was created.
 
 3) CIA was established as our first over-all, worldwide intelligence agency. The events and the maneuvering which led to this certainly did not bring with them a harmonious relationship.
 

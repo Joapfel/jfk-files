@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13927.png
-
-Convert to Markdownbut largely the initiative is with State, Defense, and CIA in making these current intelligence submissions.
+but largely the initiative is with State, Defense, and CIA in making these current intelligence submissions.
 
 In short, Mr. Bundy said that the means of access to intelligence are good, for policy purposes.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7897.png
-
-Convert to Markdown13-00000
+13-00000
 
 21 JUN 1976
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8913.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 ## Annex A
 

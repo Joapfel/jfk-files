@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16388.png
-
-Convert to Markdown**Dominican Republic Leads Not to be Disseminated**
+**Dominican Republic Leads Not to be Disseminated**
 
 AMIGO/1 Operation
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_416.png
-
-Convert to MarkdownMEMORANDUM:
+MEMORANDUM:
 
 SUBJECT : Handling of LIRING-3 as Hostile Agent
 

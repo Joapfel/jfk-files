@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3172.png
-
-Convert to Markdown1784
+1784
 
 to add, however, that following the cleansing effect of Watergate
 that I don't know of any such requests coming over to the FBI

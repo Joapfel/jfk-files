@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14927.png
-
-Convert to MarkdownIndicative of our heavy volume of work is the fact that as of January 1, 1967, pending investigative matters throughout the field totaled 150,189, with 5% in a delinquent status. At that time, the average individual assignment in the field was nearly 26 matters as compared with 20 at that time in 1961.
+Indicative of our heavy volume of work is the fact that as of January 1, 1967, pending investigative matters throughout the field totaled 150,189, with 5% in a delinquent status. At that time, the average individual assignment in the field was nearly 26 matters as compared with 20 at that time in 1961.
 
 OTHER WORK LOAD VOLUMES
 FISCAL YEARS 1965 AND 1966

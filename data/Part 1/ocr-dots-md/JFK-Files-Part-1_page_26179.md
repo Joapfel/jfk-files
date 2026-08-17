@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26179.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 NO FOREIGN DISCLOSURE
 
 B/NF

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28962.png
-
-Convert to MarkdownSchedule B—Dividend and Interest Income
+Schedule B—Dividend and Interest Income
 
 Schedules A&B (Form 1040) 1976
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22525.png
-
-Convert to MarkdownSECRET-eyes only
+SECRET-eyes only
 
 15 February 1960
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14971.png
-
-Convert to Markdown### III. Miscellaneous
+### III. Miscellaneous
 
 1. The following is given as evidence of Soviet activity among Georgians in France:
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_21780.png
-
 s and secretaries who were Agency assigned personnel?
 
 410 First Street, S.E., Washington, D.C. 20003

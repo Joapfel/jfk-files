@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23960.png
-
-Convert to Markdownmoney not for itself but for prestige. After all, Verges's father was of the founder of the Communist party, Reunion, member of the French Assembly.
+money not for itself but for prestige. After all, Verges's father was of the founder of the Communist party, Reunion, member of the French Assembly.
 
 His
 

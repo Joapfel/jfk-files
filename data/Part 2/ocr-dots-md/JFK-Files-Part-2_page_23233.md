@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23233.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Congo and by the time he has found Hedgman, given his instructions and all of which could have been four or five or six days later and Hedgman in turn had found a way to do it even then set about his leisure to do it or without further reference to headquarters that is not the way my organization has ever run operations.
 

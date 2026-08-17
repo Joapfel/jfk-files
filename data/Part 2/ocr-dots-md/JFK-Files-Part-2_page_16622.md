@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16622.png
-
-Convert to Markdownour human rights, will henceforth be treated as outlaws;
+our human rights, will henceforth be treated as outlaws;
 as gangsters, as evil doers.
 
 "We have no way of determining," it said, "that a man in uniform involved in a forced outlaw entry into our home is in fact a guardian of the law. He is acting like a lawbreaker and we must make an appropriate response."

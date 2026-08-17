@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31584.png
-
-Convert to MarkdownSF 103-55462
+SF 103-55462
 
 FSP:...
 

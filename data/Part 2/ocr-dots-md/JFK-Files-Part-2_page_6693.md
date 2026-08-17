@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6693.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 06 December 1993
 

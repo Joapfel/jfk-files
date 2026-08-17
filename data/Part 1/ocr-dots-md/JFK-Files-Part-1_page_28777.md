@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28777.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <td colspan="3">DEPARTMENT-OF STATE<br>PERSONNEL ACTION<br>AND<br>AUTHORIZATION OF OFFICIAL TRAVEL</td>

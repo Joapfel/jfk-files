@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5175.png
-
-Convert to MarkdownThe following informants have been developed in
+The following informants have been developed in
 this regard:
 
 137-5402

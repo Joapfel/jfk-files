@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22989.png
-
-Convert to Markdown29. (Continued)
+29. (Continued)
 
 30. Has subject done any writing? Give details including titles of books, articles, publishers, dates. None.
 

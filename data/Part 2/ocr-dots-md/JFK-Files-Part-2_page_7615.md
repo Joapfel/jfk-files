@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7615.png
-
-Convert to Markdown104-10418-10378
+104-10418-10378
 
 SECRET
 

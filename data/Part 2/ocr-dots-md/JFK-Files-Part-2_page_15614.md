@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15614.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 also advised that Orr High School,
 1040 North Keeler Avenue, which is 23% Negro, received

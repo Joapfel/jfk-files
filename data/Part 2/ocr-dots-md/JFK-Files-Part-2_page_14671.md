@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14671.png
-
-Convert to MarkdownMemorandum to Mr. Gale
+Memorandum to Mr. Gale
 
 Re: Fred Louis McIntyre
 

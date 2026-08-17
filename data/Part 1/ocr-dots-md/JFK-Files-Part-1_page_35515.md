@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35515.png
-
-Convert to MarkdownReceived from
+Received from
 
 One thousand sixty-four
 and fifty cents. For"El Medico y Usted" of Dec 64-invoice

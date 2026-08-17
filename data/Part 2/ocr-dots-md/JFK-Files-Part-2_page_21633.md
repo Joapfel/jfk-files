@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21633.png
-
-Convert to Markdown107
+107
 
 Mr. Schwarz. Is that the form in which you sent the message which is contained in Exhibit 3 to Chile?
 

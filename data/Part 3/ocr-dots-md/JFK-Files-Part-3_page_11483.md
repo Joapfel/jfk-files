@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11483.png
-
-Convert to Markdownwhose names appeared on the watch list were automatically sorted
+whose names appeared on the watch list were automatically sorted
 out and monitored by NSA computers. The messages were also dis-
 seminated to the CIA, the FBI, and the Secret Service. Throughout
 the 1960's and early 1970's, over 16,000 American names were

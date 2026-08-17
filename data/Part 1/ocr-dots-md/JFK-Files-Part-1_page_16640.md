@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16640.png
-
-Convert to MarkdownVIVIAN:-
+VIVIAN:-
 
 Following situation re Laddie:
 

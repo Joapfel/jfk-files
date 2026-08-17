@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8703.png
-
-Convert to Markdown10.02.03: ¿Hay algo ineficiente o poco usual en su paso a lámina de anillo? En caso afirmativo, describeelo:
+10.02.03: ¿Hay algo ineficiente o poco usual en su paso a lámina de anillo? En caso afirmativo, describeelo:
 
 10.03 Impación general de sus botines al comienar (Marque la descripción más apropiada)
 

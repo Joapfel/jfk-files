@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7332.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9. At one point, Mr. Aaron asked if CIA had any aircraft in Europe which could be put at Senator Mondale's disposal. Mr. Waller replied negatively.
 

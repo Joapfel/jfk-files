@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_23380.png
-
 and that it would be
 quite difficult to locate a competent workman at the salary level he
 can afford to pay. The above facts, plus unfavorable findings of a

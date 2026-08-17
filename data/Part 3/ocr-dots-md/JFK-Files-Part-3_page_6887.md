@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6887.png
-
-Convert to MarkdownMarch 2, 1965
+March 2, 1965
 
 MEMORANDUM FOR MR. TOLSON
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6727.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>TRANSMITTAL SLIP</td>
     <td colspan="2">DATE</td>

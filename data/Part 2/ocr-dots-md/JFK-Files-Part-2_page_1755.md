@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_1755.png
-
 s.</td></tr><tr><td colspan="2"><strong>SPECIFIC DUTY NO. 3</strong></td></tr><tr><td colspan="2">Organizes and implements review and purge of Registry and other Station files.</td></tr><tr><td colspan="2"><strong>SPECIFIC DUTY NO. 4</strong></td></tr><tr><td colspan="2">Prepares Station notices and outgoing correspondence on Registry matters.</td></tr><tr><td colspan="2"><strong>SPECIFIC DUTY NO. 5</strong></td></tr><tr><td colspan="2">Maintains and controls case file index and 201 file index.</td></tr><tr><td colspan="2"><strong>SPECIFIC DUTY NO. 6</strong></td></tr><tr><td colspan="2">Top Secret Control Officer</td></tr><tr><

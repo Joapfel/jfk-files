@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11390.png
-
-Convert to MarkdownCLASSIFIED INFORMATION
+CLASSIFIED INFORMATION
 
 <table>
    <tr>

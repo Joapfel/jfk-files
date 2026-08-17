@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12754.png
-
-Convert to Markdown14-0000
+14-0000
 
 CABLE SEC DISSEMIN BY ______ PER ______ TOTAL COPIES ______ RUN BY ______
 PERSON/UNIT NOTIFIED ______ SECRET

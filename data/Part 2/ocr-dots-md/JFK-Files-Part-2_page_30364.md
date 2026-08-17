@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30364.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Mr. Nosenko. Sir, I didn't know this in those days.
 2. Mr. Edgar. Do you know a correspondent by the name of Arlene Mosby?

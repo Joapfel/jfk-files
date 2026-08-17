@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11011.png
-
-Convert to MarkdownFrom ATREDGE/1 See SOA to UFGA 18495, 4 Nov 1964
+From ATREDGE/1 See SOA to UFGA 18495, 4 Nov 1964
 filed in MJ/SA/103
 
 LEFT TO RIGHT:

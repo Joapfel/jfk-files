@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18505.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="3" style="text-align:left;">*18. CLAIM (Name of person(s), if any, and date):<br>of transportation expenses for persons and things<br>(Note: Please include receipts.)</th>

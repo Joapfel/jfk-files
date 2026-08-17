@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2942.png
-
-Convert to MarkdownFBI
+FBI
 
 Date: JANUARY 9, 1976
 

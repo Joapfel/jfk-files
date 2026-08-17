@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_37.png
-
-Convert to Markdown578
+578
 
 CLASSIFIED MESSAGE
 

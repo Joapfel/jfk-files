@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25150.png
-
-Convert to MarkdownCONTINUED ON ANOTHER CARD:
+CONTINUED ON ANOTHER CARD:
 
 The elements of the Presidential Guard had been contracted and then were early depositions during the fighting. The Ranger Command was not contracted since Parachute Units were assigned to individual corps and divisions. Those assigned to Corp units were not named to be loyal to that unit. The Air Force was 100 percent with the Corp plotters with the exception
 

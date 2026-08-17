@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16627.png
-
-Convert to Markdown3. In a report dated 19 October 1963, source unknown, it was stated that one Osvaldo RELOVA Penechet was appointed administrator of "Envojes del Cerro, S.A." firm, located on Calzada del Cerro Avenue, Habana.
+3. In a report dated 19 October 1963, source unknown, it was stated that one Osvaldo RELOVA Penechet was appointed administrator of "Envojes del Cerro, S.A." firm, located on Calzada del Cerro Avenue, Habana.
 
 4. A fairly reliable source, in a report dated 23 October 1963, revealed that Osvaldo RELOVA, First Secretary of the Cuban Embassy in Canada, left Kingston for Toronto on 21 October 1963, on TCA flight number 885.
 

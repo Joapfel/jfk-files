@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13821.png
-
-Convert to Markdown11. Children same as &.
+11. Children same as &.
     NONE
 
 12. Siblings same as &.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6087.png
-
-Convert to Markdown<table><tr><td colspan="3">CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>SECRET</td><td>NO FOREIGN DISSEMINATION</td><td>IN</td></tr><tr><td>PAGE 2</td><td></td><td></td></tr></table>
+<table><tr><td colspan="3">CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>SECRET</td><td>NO FOREIGN DISSEMINATION</td><td>IN</td></tr><tr><td>PAGE 2</td><td></td><td></td></tr></table>
 
 OF THE AIR FORCE BASE IN SANTIAGO, IS IN CHARGE OF THIS OPERATION. (SOURCE COMMENT: IN EARLY JULY, POLCH AND GEN. ATILA LUNA WERE REPORTEDLY AIDING CUBAN EXILES.)
 

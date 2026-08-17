@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31609.png
-
-Convert to MarkdownPROGRESSIVE LABOR PARTY (PLP)
+PROGRESSIVE LABOR PARTY (PLP)
 PROGRESSIVE LABOR MOVEMENT (PLM)
 
 A source advised on April 20, 1965, that the PLP, formerly known as the PLM, held its first national convention April 15-18, 1965, at New York City, to organize the PLM into a PLP. The PLP will have as its ultimate objective the establishment of a militant working class movement based on Marxism-Leninism.

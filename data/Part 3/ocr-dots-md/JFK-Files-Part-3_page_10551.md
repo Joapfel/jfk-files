@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10551.png
-
-Convert to MarkdownTELETYPE UNIT
+TELETYPE UNIT
 
 Mar 27 93 34 AM '75
 

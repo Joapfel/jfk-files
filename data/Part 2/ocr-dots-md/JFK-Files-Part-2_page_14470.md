@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14470.png
-
-Convert to Markdown8. Protest and peace organizations, such as People's Coalition for Peace and Justice, National Peace Action Committee and Women's Strike for Peace.
+8. Protest and peace organizations, such as People's Coalition for Peace and Justice, National Peace Action Committee and Women's Strike for Peace.
 
 9. Communists, Trotskyites and members of other Marxist-Leninist, subversive and extremist groups, such as the Black Panthers, White Panthers, Black Nationalist and Liberation groups, Venceremos Brigade, Venceremos Organization, Weathermen, Progressive-Labor Party, Worker's Student Alliance, Students for a Democratic Society, Resist, Revolutionary Union and other New Left groups. This would include persons sympathetic to the (Soviet Union, North Korea, North Vietnam and Red China).
 

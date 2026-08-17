@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16891.png
-
-Convert to MarkdownEmployment
+Employment
 
 Typist for Security
 Plating Company

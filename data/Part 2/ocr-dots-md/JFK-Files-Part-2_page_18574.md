@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18574.png
-
-Convert to MarkdownEXPROC
+EXPROC
 
 JUL 18 1975
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2608.png
-
-Convert to Markdownsmh b
+smh b
 
 1 I believe we have lived up to those promises.
 

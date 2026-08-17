@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28913.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th>1. LAST NAME - FIRST NAME MIDDLE NAME</th>

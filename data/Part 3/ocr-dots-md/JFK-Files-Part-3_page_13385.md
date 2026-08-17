@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13385.png
-
-Convert to Markdownby me saying that we did in fact hijack him and the boat. The boat was
+by me saying that we did in fact hijack him and the boat. The boat was
 leased for one week, ...
 
 OLSEN: Was it paid for?

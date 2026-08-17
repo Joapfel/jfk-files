@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2058.png
-
-Convert to MarkdownCLASSIFIED
+CLASSIFIED
 ATTACHMENT
 
 Date: 09/20/98

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23922.png
-
-Convert to MarkdownFor a magazine addressed to the Spanish workers in France and in Western Europe, the problem was for them to find someone to print it clandestinely. And they found someone I think with Stettet and Strelkoff.
+For a magazine addressed to the Spanish workers in France and in Western Europe, the problem was for them to find someone to print it clandestinely. And they found someone I think with Stettet and Strelkoff.
 
 (What about Strelkoff)
 

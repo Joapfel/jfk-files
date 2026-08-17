@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35223.png
-
-Convert to MarkdownPRENTÉ REVOLUCIONARIO DEMOCRATICO
+PRENTÉ REVOLUCIONARIO DEMOCRATICO
 
 Sección Estudiantil
 

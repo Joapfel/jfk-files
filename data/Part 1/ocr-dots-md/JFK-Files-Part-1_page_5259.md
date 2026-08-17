@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5259.png
-
-Convert to Markdown# Institut des Hautes Etudes Commerciales FIGURE DEPIONNIER
+# Institut des Hautes Etudes Commerciales FIGURE DEPIONNIER
 ## de Port-au-Pee signe un Accord
 
 (Suite)

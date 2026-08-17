@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10328.png
-
-Convert to MarkdownMay 1973
+May 1973
 
 MEMORANDUM FOR: DDI
 SUBJECT : Sensitive Activities

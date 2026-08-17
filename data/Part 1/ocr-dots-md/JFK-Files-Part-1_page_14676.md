@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14676.png
-
-Convert to MarkdownG.UYU:cf
+G.UYU:cf
 C/M./CCO/OPS
 1325
 19.MAY70

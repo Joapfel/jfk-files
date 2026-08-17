@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34951.png
-
-Convert to MarkdownMiami, May 23, 1967
+Miami, May 23, 1967
 
 Dear Mr. ____
 

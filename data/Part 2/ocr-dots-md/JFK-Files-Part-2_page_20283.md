@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20283.png
-
-Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+UNITED STATES DEPARTMENT OF JUSTICE
 
 In Reply, Please Refer to
 File No.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1339.png
-
-Convert to MarkdownE. Take maximum action to induce a split in the Cuban regime and maintain the capability of capitalizing immediately through clandestine means to the extent possible on any significant uprising, revolt, resistance, split in the regime, or strains and stresses among Cuban leadership or in Cuban/Bloc relationships.
+E. Take maximum action to induce a split in the Cuban regime and maintain the capability of capitalizing immediately through clandestine means to the extent possible on any significant uprising, revolt, resistance, split in the regime, or strains and stresses among Cuban leadership or in Cuban/Bloc relationships.
 
 III. OPERATIONAL PLAN:
 

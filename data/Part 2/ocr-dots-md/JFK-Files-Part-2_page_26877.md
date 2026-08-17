@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26877.png
-
-Convert to MarkdownSECKE!
+SECKE!
 
 SECRET
 

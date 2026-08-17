@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31742.png
-
-Convert to MarkdownFor Bill Durkee
+For Bill Durkee
 
 FEB 17 1952
 

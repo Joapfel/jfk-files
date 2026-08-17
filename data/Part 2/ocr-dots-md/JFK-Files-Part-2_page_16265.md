@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16265.png
-
-Convert to Markdown(4) No information developed indicating
+(4) No information developed indicating
 Chicago Chapter BPP has received any funds from National
 Chapter of BPP, from any foreign government or individual
 from a foreign country, or an organization operated in

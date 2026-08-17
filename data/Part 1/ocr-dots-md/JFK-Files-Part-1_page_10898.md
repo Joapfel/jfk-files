@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10898.png
-
-Convert to Markdown# FORM 59-92
+# FORM 59-92
 REPLACES FORM 59-92
 WHICH MAY BE USED
 

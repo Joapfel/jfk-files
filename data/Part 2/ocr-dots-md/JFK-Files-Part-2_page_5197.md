@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5197.png
-
-Convert to MarkdownSUBJECT: (U) Identity of Human Sources
+SUBJECT: (U) Identity of Human Sources
 
 most cases a substitution for the true name be used. In prior releases of these same documents, the Review Board agreed to redact the true name and substitute "source." If the Review Board is concerned about tracking particular sources throughout the records, a particular identifying substitution can be used for an individual source throughout (for example, "Mexican source 1").
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6651.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 # SOUTHERN CONFERENCE EDUCATIONAL FUND, INC.
 

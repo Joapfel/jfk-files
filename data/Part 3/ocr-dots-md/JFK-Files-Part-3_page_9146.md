@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9146.png
-
-Convert to Markdown## International News
+## International News
 
 Panthers profess to believe that American Negroes comprise isolated "colonies" in the heart of the "mother" country, and are part of the Third World, defined as the nonwhite, undeveloped, and underdeveloped countries of the world. The 10-Point Program of the Black Panther Party includes, as a major political objective, a United-Nations-supervised plebiscite to be held throughout the black colony to determine the national destiny of American Negroes.
 

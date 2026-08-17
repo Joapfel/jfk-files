@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31249.png
-
-Convert to Markdown002296
+002296
 
 1. Bill Harvey met up with somePERTUSSER to report to Papich, same person he had "gangster" and offer his copy to F.D.I. He expanded to Papich.
 

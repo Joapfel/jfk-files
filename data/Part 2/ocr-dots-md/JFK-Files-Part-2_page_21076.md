@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21076.png
-
-Convert to MarkdownUNITED STATES GOVERN
+UNITED STATES GOVERN
 Memorandum
 
 TO : Director, FBI (100-409763) DATE: 5/13/64

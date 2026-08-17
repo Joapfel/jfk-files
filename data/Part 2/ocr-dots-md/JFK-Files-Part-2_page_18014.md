@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18014.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The Attorney General
 

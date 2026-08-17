@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35723.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 6. George Theodore Stanton
 

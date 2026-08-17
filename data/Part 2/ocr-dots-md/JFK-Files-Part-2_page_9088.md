@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9088.png
-
-Convert to Markdown52. CIA USE OF BUREAU INFORMATION IN A U.S. INTELLIGENCE BOARD DOCUMENT
+52. CIA USE OF BUREAU INFORMATION IN A U.S. INTELLIGENCE BOARD DOCUMENT
 
 On March 30, 1961, the Liaison Agent contacted Allen Dulles concerning CIA's failure to obtain Bureau clearance for use of our information in a U.S. Intelligence Board document. No known damage had been done, but the Agent stressed the sensitivity of the Bureau information. Dulles requested one of his subordinates to establish a procedure to prevent a recurrence of such errors. (Memorandum L'Allier to Belmont, March 30, 1961)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5671.png
-
-Convert to MarkdownMr. Burke Marshall
+Mr. Burke Marshall
 Assistant Attorney General
 
 Director, FBI

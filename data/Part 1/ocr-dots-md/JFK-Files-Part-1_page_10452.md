@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10452.png
-
-Convert to Markdown# Central
+# Central
 
 OF THE RATS. A MULE OF THAT SIZE IN A DOG-THIN THROTTLE, 1/3 Lb., FOR $2.00.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_178.png
-
-Convert to Markdown# PANORAMA NACIONAL
+# PANORAMA NACIONAL
 
 Nadie se confiaba en el que no había sigo la lengua judía, en los EU.
 

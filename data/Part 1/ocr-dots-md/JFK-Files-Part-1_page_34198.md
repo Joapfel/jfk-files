@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34198.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>INDEX ☑ YES ☐ NO</td>
     <td>CERTIFIED MESSAGE TOTAL COPIES</td>

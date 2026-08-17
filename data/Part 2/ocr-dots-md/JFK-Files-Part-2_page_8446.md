@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8446.png
-
-Convert to MarkdownA review will also be needed of those items which may have been cleared or released by CIA when reviewing manuscripts submitted by other authors since the publication of the Marchetti book. A few items will need to be referred by some of the components to other departments and agencies of government for their review.
+A review will also be needed of those items which may have been cleared or released by CIA when reviewing manuscripts submitted by other authors since the publication of the Marchetti book. A few items will need to be referred by some of the components to other departments and agencies of government for their review.
 
 4. Please advise this office of the name of your focal point officer by COB 11 April 1977.
 

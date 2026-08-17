@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2297.png
-
-Convert to Markdown(b) If after timely receipt of a certification by the President made pursuant to subsection (a), the Committee on Intelligence Activities determines that such information should be publicly disclosed, such committee shall refer the question of disclosure of such information to the Senate for such action as the Senate deems appropriate.
+(b) If after timely receipt of a certification by the President made pursuant to subsection (a), the Committee on Intelligence Activities determines that such information should be publicly disclosed, such committee shall refer the question of disclosure of such information to the Senate for such action as the Senate deems appropriate.
 
 (c) Any question referred to the Senate by the Committee on Intelligence Activities pursuant to subsection (b) shall be disposed by the Senate within three calendar days following the day on which the question is reported to the Senate, excluding days on which the Senate is not in session.
 

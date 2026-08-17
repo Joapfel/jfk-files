@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_980.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 TO : Chief, Fiscal Division 1405 Alcott Hall
 FROM : Chief, Records and Services Division

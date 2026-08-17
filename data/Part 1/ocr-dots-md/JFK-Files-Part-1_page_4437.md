@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4437.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. Mrs. Moffett was satisfied with our call and there
 was no indication that she would pursue this further with any

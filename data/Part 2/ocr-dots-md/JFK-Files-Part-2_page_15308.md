@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15308.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 William F. Tomkins
 
 Director, FBI

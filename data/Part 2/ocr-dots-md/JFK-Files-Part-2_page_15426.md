@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15426.png
-
-Convert to MarkdownMemorandum to Mr. A. H. Belmont
+Memorandum to Mr. A. H. Belmont
 
 Re: INTELLIGENCE COVERAGE OF
 FRIENDLY FOREIGN COUNTRIES

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21713.png
-
-Convert to MarkdownSECRET
+SECRET
 
 willing to promote NOSENKO to the position of Chief, First Section.
 

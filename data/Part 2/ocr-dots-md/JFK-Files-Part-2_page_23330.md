@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23330.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 And John Martin was sent down to talk to him and to make various inducements like he could take his money out, it was discussed that if he would leave peaceably, but what finally happened was when McNamara moved the fleet in over the horizon and an Air Force General bombed the palace, that was the end, he got on his boat and left.
 

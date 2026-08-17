@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23873.png
-
-Convert to MarkdownThe Chairman. Which part do you have?
+The Chairman. Which part do you have?
 
 Senator Tower. Well, not being able to use American students abroad on some grant to gather intelligence, when most of the people the damned Soviets send over here on these cultural exchanges are really clued into the government program, indoctrinated and briefed thoroughly before they get here. I am not going to tie our hands like that. The rest of you can, but I'm not going to.
 

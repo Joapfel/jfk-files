@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1734.png
-
-Convert to MarkdownBOBB Foundation. On 22 October 1965 a POEA was issued to HOBKY for the same use in WJ/Cuba activities as that outlined for his mother. This Provisional clearance was firmned into a Covert Security Approval on 4 February 1966 for the same use.
+BOBB Foundation. On 22 October 1965 a POEA was issued to HOBKY for the same use in WJ/Cuba activities as that outlined for his mother. This Provisional clearance was firmned into a Covert Security Approval on 4 February 1966 for the same use.
 
 Sarah K. Hall
 

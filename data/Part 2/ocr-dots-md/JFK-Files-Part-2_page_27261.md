@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27261.png
-
-Convert to MarkdownATTACHMENTS
+ATTACHMENTS
 
 1. 23 March 1971 DCD Memorandum, Subject: New Case 56300 - Foreign Involvement in US Radical Activities. Secret/Sensitive
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35045.png
-
-Convert to MarkdownASSETS
+ASSETS
 
 AMOUNTS
 Page No. 3

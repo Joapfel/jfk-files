@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10492.png
-
-Convert to Markdown4. Subject has developed what could be interpreted as a certain patriotism for this country. During conversations he referred a few times to "my country" meaning the U.S. I believe that the fact he volunteered for U.S. military training reflects not only the selfish motives of becoming Special Forces qualified but also a sense of duty. I also believe that his recent statements to me regarding international security matters is not merely empty loquacity but is evidence of his desire to contribute something and become involved in the national interest.
+4. Subject has developed what could be interpreted as a certain patriotism for this country. During conversations he referred a few times to "my country" meaning the U.S. I believe that the fact he volunteered for U.S. military training reflects not only the selfish motives of becoming Special Forces qualified but also a sense of duty. I also believe that his recent statements to me regarding international security matters is not merely empty loquacity but is evidence of his desire to contribute something and become involved in the national interest.
 
 5. Subject would need sober briefings on the responsibility of any Agency association as well as subsequent careful handling. He would need to get away from the "Flagler Street Commando syndrome" of visual and verbal travado. He would need instruction to discern rumor from fact, to identify sources, and to assess the reliability of acquired information.
 

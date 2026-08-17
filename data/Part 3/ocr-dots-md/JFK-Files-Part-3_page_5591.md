@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5591.png
-
-Convert to MarkdownMr. W. G. Sullivan
+Mr. W. G. Sullivan
 
 J. S. Darnardner
 

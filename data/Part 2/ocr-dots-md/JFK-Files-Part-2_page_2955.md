@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2955.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10 September 1963 McCone develops position paper for meetings with President Kennedy and McGeorge Bundy on Vietnam.
 

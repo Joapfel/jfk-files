@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30761.png
-
-Convert to Markdown①
+①
 
 NOTES
 03

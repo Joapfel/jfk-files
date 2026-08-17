@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12768.png
-
-Convert to MarkdownCABLE SEC D392M BY 1/5 PER
+CABLE SEC D392M BY 1/5 PER
 
 PERSON/UNIT NOTIFIED
 

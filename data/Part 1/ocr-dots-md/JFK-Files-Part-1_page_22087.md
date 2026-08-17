@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22087.png
-
-Convert to Markdown246.
+246.
 
 MAHONEY arrived in Moscow on 1 October 1960 as the Assistant General Services Officer at the U.S. Embassy. His specific CIA mission there was to support the handling of PENKOVSKIY inside the Soviet Union. MAHONEY lived in America House. From the start of his tour he was active in his attempts to familiarize himself with Moscow and he frequently toured various areas of the city on foot. In checking locations connected with the PENKOVSKIY case, MAHONEY went to the Pushkin Street dead drop location on two occasions during November and December 1960, and he made a thorough examination of the dead drop itself as well as of its related signal site on 21 January 1961. Throughout, MAHONEY was subjected to intensive KGB surveillance. In a report dated 25 October 1960, ABIDIAN commented on this as follows: "I find this type of coverage (five surveillants on a recent trip to the barber shop) completely out of character with that which is usually given a new arrival of similar rank. My only inference is that the KGB has at least strong suspicions of MAHONEY's primary role [CIA officer]. As for surveillance on myself, it continues to be occasional and extremely discreet."
 

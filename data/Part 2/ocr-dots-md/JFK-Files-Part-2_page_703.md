@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_703.png
-
-Convert to Markdown104-10290-10038
+104-10290-10038
 
 1005-10269
 

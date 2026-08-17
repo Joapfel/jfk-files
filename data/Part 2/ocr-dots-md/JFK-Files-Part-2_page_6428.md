@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6428.png
-
-Convert to Markdown13-00000
+13-00000
 
 4. Operation DEFECTOR:
 

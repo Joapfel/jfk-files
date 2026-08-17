@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30446.png
-
-Convert to Markdown9 June 1976
+9 June 1976
 
 MEMORANDUM FOR: Director of Finance
 

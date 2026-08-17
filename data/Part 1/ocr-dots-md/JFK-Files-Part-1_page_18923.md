@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18923.png
-
-Convert to Markdown14-0000
+14-0000
 
 STATUS AND EFFICIENCY REPORT
 (see instructions on reverse side)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23664.png
-
-Convert to Markdownit is not really relevant to the question of what the DCI will be doing if, and I underline the word if. these new responsibilities that are being thrust on him by both the Executive and by the Congress, are in fact implemented.
+it is not really relevant to the question of what the DCI will be doing if, and I underline the word if. these new responsibilities that are being thrust on him by both the Executive and by the Congress, are in fact implemented.
 
 The argument I would make here is that the oversight committee should take some time and consider this, certainly in light of how these reforms, if they are reforms, are carried out.
 

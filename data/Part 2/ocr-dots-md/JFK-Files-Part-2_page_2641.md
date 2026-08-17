@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2641.png
-
-Convert to Markdown# FITNESS REPORT
+# FITNESS REPORT
 
 ## SECTION A
 **GENERAL INFORMATION**

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11707.png
-
-Convert to MarkdownCHINESE ALIENS ENTERING THE U. S.
+CHINESE ALIENS ENTERING THE U. S.
 (Bufile 105-135923)
 
 4-H

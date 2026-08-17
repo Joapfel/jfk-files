@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10172.png
-
-Convert to MarkdownFederal Bureau of Investigation
+Federal Bureau of Investigation
 
 United States Department of Justice
 Washington, D. C.

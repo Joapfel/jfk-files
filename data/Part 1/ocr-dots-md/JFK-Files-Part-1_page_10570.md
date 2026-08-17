@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10570.png
-
-Convert to Markdowny la abjeción de los cuba- nos, en ochos años que dura su marido, no ha llevado a las Estaciones Unidos ni a las naciones del hemisferio que siguen su política exterior, sin discrepar en una cosa, a libros de su sufrimiento.
+y la abjeción de los cuba- nos, en ochos años que dura su marido, no ha llevado a las Estaciones Unidos ni a las naciones del hemisferio que siguen su política exterior, sin discrepar en una cosa, a libros de su sufrimiento.
 
 Ni siquiera en el mero cumplimiento de lo que man- dan los compromisos interna- cionales escritos en Caracas, Bogotá y Rio de Janeiro.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15609.png
-
-Convert to Markdown# FREDERICK ALLEN HAMPTON
+# FREDERICK ALLEN HAMPTON
 
 ## APPENDIX
 

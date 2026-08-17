@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24095.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">MESSAGE FORM<br>TOTAL COPIES: 3</td></tr><tr><td colspan="2"><table border="1" style="border-collapse: collapse;"><thead><tr><th colspan="2">OUTGOING AND/OR INCOMING - STEM BY</th></tr></thead><tbody><tr><td>1</td><td>2</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>5</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></tbody></table></td></tr></table>
 

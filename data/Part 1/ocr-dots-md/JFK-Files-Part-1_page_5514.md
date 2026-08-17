@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5514.png
-
-Convert to MarkdownNY 406-67
+NY 406-67
 10 May 1967
 
 SUBJECT: Plans of Haitian Banker Clemard Joseph Charles to Overthrow the Duvalier Government - Case 47,540 (Re-opened)

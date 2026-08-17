@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22560.png
-
-Convert to MarkdownSECRET
+SECRET
 
 income adequate to be in Washington (ostensibly from his own efforts); he must have a valid reason for being in Washington; he must have high capacity to produce; he must have a strong security sense; and he must have unquestioned loyalty.
 

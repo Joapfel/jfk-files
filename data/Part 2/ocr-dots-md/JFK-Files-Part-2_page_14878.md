@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14878.png
-
-Convert to MarkdownJanuary 18, 1960
+January 18, 1960
 
 THOMAS ALFRED EPPLEY, JR.
 JACK COSGELLAW GRONER

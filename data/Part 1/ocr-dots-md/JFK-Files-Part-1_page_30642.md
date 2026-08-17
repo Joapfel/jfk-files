@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30642.png
-
-Convert to MarkdownD. U. VERNMENT PRINTING OFFICE: 1092-DR8400
+D. U. VERNMENT PRINTING OFFICE: 1092-DR8400
 
 <table><thead><tr><th colspan="7">PAY ROLL CHANGE DATA</th></tr><tr><th></th><th>BASE RATE</th><th>OVERTIME</th><th>GROSS RATE<br/>GEO.</th><th>TAX</th><th>BOND</th><th>F.I.C.A.</th><th>NET RATE</th></tr></thead><tbody><tr><td>7. Previous<br/>normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>8. New<br/>normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>9. Pay this<br/>period</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>10. Remarks</td><td colspan="6"></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="5"><hr/></td><td colspan="3">12. Prepared by<br/><u>Date 2/25/53</u></td></tr><tr><td colspan="5" rowspan="2"><hr/></td><td colspan="3">13. Audited by<br/><u>P.S.</u></td></tr><tr><td colspan="5" rowspan="2"><hr/></td></tr></tbody></table>
 

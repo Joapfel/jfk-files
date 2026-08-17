@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13330.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 which would accomplish the activities. This was because, if anything
 were discovered by virtue of the action which would lead to a prosecution,

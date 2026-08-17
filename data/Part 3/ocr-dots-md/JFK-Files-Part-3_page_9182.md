@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_9182.png
-
 s relating to the plans for and progress made toward the implementation of IGRS.
 
 3. All documents containing evaluations of the various methods of implementation of IGRS.

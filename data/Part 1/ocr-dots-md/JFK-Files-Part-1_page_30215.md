@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30215.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 22 August 1951
 

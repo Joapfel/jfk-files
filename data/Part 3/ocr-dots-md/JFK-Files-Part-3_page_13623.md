@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_13623.png
-
 to Mr. Fitzgerald, charged with the responsibility of attempting to organize a military coup inside Cuba against Fidel Castro.
 
 21.

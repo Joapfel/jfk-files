@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1481.png
-
-Convert to Markdown3 MAR 1976
+3 MAR 1976
 
 RETURN TO CIA
 Background Use Only

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13183.png
-
-Convert to MarkdownMM 92-1047
+MM 92-1047
 
 MART stated that during the past several years, he has operated Alfie's Sundries which is located at 1664 Alton Road, Miami Beach, Florida. He also admits that during the past years he has conducted a small intrastate bookmaking operation. Most of the business is conducted by a paid clerk who has operated either at the sundries store or in another location. He reflected that due to his money interests, he does not manage the day to day operation of his bookmaking business although he is the financial backer of same.
 

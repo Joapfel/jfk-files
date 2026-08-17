@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9064.png
-
-Convert to Markdowncountries with far better impressions than in the past. In addition, we have learned more about these countries, their services, and their security chiefs by spending a few minutes with them. Needless to say, this kind of treatment has also immeasurably helped our Legal Attaches.
+countries with far better impressions than in the past. In addition, we have learned more about these countries, their services, and their security chiefs by spending a few minutes with them. Needless to say, this kind of treatment has also immeasurably helped our Legal Attaches.
 
 (7) CIA - DUTCH INTEREST IN SOVIET ESPIONAGE ACTIVITY
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1128.png
-
-Convert to MarkdownPERSONNEL
+PERSONNEL
 
 b. POLICY
 

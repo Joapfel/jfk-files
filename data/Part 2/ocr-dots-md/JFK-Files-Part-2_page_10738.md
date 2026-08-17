@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10738.png
-
-Convert to MarkdownNK 52-6817
+NK 52-6817
 
 to sign without his attorney present. FORDI then stated that
 he did not wish to make any statements to the interviewing agents

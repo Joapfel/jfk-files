@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11101.png
-
-Convert to MarkdownEmbajada de Cuba: 112847.-
+Embajada de Cuba: 112847.-
 
 21 abril 67.-
 

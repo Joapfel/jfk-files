@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1931.png
-
-Convert to Markdown14-0000
+14-0000
 
 SUBJECT: The Johnny Roselli Matter
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5258.png
-
-Convert to MarkdownAlthough San Francisco is not a border office, it is a great port of entry, both by sea and air, and many of the same type cases utilized by San Diego for obtaining a bond default indictment should be available to San Francisco.
+Although San Francisco is not a border office, it is a great port of entry, both by sea and air, and many of the same type cases utilized by San Diego for obtaining a bond default indictment should be available to San Francisco.
 
 As you are aware, convictions are becoming more difficult to obtain because of the court's interpretation of the law in many classifications. Bond default matters present an excellent opportunity to increase your conviction rate, therefore, it is suggested that through your liaison with the U. S. Attorney, point out to him the possibilities for an increase in convictions under the Bond Default Statute.
 

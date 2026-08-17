@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30264.png
-
-Convert to Markdowninvolvement in the case you did not have an opportunity to
+involvement in the case you did not have an opportunity to
 read that file?
 
 Mr. Nosenko. It was the decision of the Chief of the

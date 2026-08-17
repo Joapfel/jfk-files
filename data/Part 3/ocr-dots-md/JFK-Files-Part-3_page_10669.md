@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10669.png
-
-Convert to MarkdownIn view of the above, Chicago considers no further inquiry regarding the White Youth Corps is necessary, and in that the White Youth Corps is no longer in existence, it will not be considered in connection with this program.
+In view of the above, Chicago considers no further inquiry regarding the White Youth Corps is necessary, and in that the White Youth Corps is no longer in existence, it will not be considered in connection with this program.
 
 Regarding Chicago's proposed plan to expose, disrupt and otherwise neutralize the American Nazi Party in Chicago, Illinois, the following is submitted for the Bureau's consideration:
 

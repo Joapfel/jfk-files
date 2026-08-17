@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23974.png
-
-Convert to Markdowngoes up in a Ghetto, who becomes a criminal under pressures, he is intelligent
+goes up in a Ghetto, who becomes a criminal under pressures, he is intelligent
 he is extremely intelligent. Not an intellectual but far more capable as
 an organizer say, than Williams. Williams is utterly hopeless. And He is not
 slow to catch ideas, but he has certain fixed ideas which have developed,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8934.png
-
-Convert to Markdown<table><tr><td rowspan="2">ASSIFIED MESSAGE</td><td>1</td></tr><tr><td>2</td></tr></table>
+<table><tr><td rowspan="2">ASSIFIED MESSAGE</td><td>1</td></tr><tr><td>2</td></tr></table>
 
 SECRET
 

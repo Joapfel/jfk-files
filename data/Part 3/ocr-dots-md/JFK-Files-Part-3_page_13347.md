@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13347.png
-
-Convert to MarkdownOLSEN: Well, when you say you had some contact with somebody from the Agency, did you have some contact with somebody from the Agency about such an assassination?
+OLSEN: Well, when you say you had some contact with somebody from the Agency, did you have some contact with somebody from the Agency about such an assassination?
 
 STURGIS: No, sir. No, I did not.
 

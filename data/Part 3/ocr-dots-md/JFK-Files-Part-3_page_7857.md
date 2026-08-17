@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7857.png
-
-Convert to MarkdownA: No. My recollection is that the equipment was already set up in the room we occupied.
+A: No. My recollection is that the equipment was already set up in the room we occupied.
 
 Q: Did you register in the hotel?
 

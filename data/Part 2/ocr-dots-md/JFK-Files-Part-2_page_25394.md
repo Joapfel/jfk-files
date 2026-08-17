@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25394.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 To: Gary
 From: Rick

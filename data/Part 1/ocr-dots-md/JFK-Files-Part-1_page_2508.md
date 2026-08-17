@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2508.png
-
-Convert to Markdownendanger the plans for a recruitment approach to James STORSBERG, who had been under development for almost a year and was considered more valuable.
+endanger the plans for a recruitment approach to James STORSBERG, who had been under development for almost a year and was considered more valuable.
 
 The implication of the previous summary that the explanation given by NOSENKO was subject to question failed to take into account the fact that although STORSBERG was not approached until after the departure of TAYLOR, the operation against STORSBERG was underway before TAYLOR became involved with his maid. Further, it is apparent that the KGB did not abandon interest in TAYLOR since he was approached at a later date outside the USSR on the basis of his previous affair with his maid in Moscow.
 

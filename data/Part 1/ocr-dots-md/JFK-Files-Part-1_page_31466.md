@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31466.png
-
-Convert to Markdown1 August 1952
+1 August 1952
 
 MEMORANDUM FOR:
 

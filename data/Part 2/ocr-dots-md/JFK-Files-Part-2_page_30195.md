@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30195.png
-
-Convert to MarkdownThe item identified below has been withdrawn from this file:
+The item identified below has been withdrawn from this file:
 
 File Designation Blahut & File
 Date 7-11-78 and 7-13-78

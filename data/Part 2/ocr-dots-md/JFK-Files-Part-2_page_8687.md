@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8687.png
-
-Convert to MarkdownSECRET / SENSITIVE
+SECRET / SENSITIVE
 
 PERULLERO (fnu). Those three reportedly represented a group of members of Brigade 2506 who had been training at Fort Jackson, South Carolina. RUIZ Williams was trying to form a nucleus for an invasion force. GARCERAN had been offered use of a large ranch in Colombia for operations against Cuba but feared that use of such would create an international incident and provoke a war between Cuba and Colombia.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20669.png
-
-Convert to MarkdownSources are:
+Sources are:
 
 BS 1362-PSI had been unable to attend the Saturday Session of the convention due to a sudden illness.
 

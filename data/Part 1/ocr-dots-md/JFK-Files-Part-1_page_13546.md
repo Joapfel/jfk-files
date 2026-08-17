@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13546.png
-
-Convert to MarkdownEXCERPT
+EXCERPT
 
 DBA-11277
 

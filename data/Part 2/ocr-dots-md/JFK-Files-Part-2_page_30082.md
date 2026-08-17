@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30082.png
-
-Convert to MarkdownFebruary paid in March
+February paid in March
 
 U. S. HOUSE OF REPRESENTATIVES
 FINANCIAL MANAGEMENT SYSTEM

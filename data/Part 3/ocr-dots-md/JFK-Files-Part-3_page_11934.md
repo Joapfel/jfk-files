@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11934.png
-
-Convert to Markdowndeveloping informants in the BPP as well as related extremist matters. These topics included detailed discussion concerning the need for full penetration of extremist groups to obtain information concerning terroristic activities which may be aimed against Government officials. In addition, the conference took note that maximum attention should be given to the extremist activities in Canada in connection with our investigations as well as intensifying our investigations having international ramifications.
+developing informants in the BPP as well as related extremist matters. These topics included detailed discussion concerning the need for full penetration of extremist groups to obtain information concerning terroristic activities which may be aimed against Government officials. In addition, the conference took note that maximum attention should be given to the extremist activities in Canada in connection with our investigations as well as intensifying our investigations having international ramifications.
 
 The above items, along with other items affecting counterintelligence against extremists, the BPP underground activities and intensified investigations were fully discussed. Concrete suggestions were obtained from this conference and were subjects of individual memoranda which were approved thereby increasing the efficiency of our investigations and informant development.
 

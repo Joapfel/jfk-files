@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6473.png
-
-Convert to MarkdownSECRET
+SECRET
 
 All these people, plus other dependents, passed through the center or were taken by the agency facilities there. (Dependents noted to Kaiseraustern only after private quarters were located.) Of the total, at least forty-three persons had, at one time or another, lived in the house. It must be emphasized that this installation is not regarded as permanent housing but was created solely to house evacuees temporarily for whom jobs had been found and who needed quarters until they could locate permanent billots. Therefore, evacuees are referred here only when job opportunities exist and stay only until private housing is located. At one time, consideration was given to filling the house with employment potentials, but the agency decided for fear the project would be ruined by insoluble morale problems and by the lack of available space to meet quickly employment requirements.
 

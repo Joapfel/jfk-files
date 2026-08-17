@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29813.png
-
-Convert to MarkdownD - he uh
+D - he uh
 
 M - you don't know his last name, do you?
 

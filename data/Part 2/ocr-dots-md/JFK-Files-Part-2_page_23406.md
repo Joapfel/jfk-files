@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23406.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td colspan="2">S E C R E T</td></tr><tr><td>FOR JIINO</td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td>C U P O L V I L L E</td><td></td></tr><tr><td>L E D I C T O R</td><td></td></tr><tr><td>X</td><td>PRIORITY</td></tr><tr><td></td><td>OPERATIONAL</td></tr><tr><td></td><td>IMMEDIATE</td></tr></table>
 

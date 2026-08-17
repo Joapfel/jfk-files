@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6618.png
-
-Convert to MarkdownSECRET Pages 7 and 8
+SECRET Pages 7 and 8
 
 28. Mexican liaison officer
 

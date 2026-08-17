@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31835.png
-
-Convert to Markdown19 June 1962
+19 June 1962
 
 Director of personnel
 Central Intelligence Agency

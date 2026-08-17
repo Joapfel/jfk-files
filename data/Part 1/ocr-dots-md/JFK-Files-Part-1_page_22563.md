@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22563.png
-
-Convert to MarkdownSECRET-EST ONLY
+SECRET-EST ONLY
 
 query. The record suggests that he knew of it but does not now
 remember. There is an unsigned memorandum in the EMBROID file

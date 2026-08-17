@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7597.png
-
-Convert to MarkdownGloria *PINTO*
+Gloria *PINTO*
 Contact and apparently good friend of G XXIXXXIX LOGINOV of Soviet Embassy.
 
 75- Entrada.- 1231 hrs.- MP GLORIA PINTO pregunta por LOGUINOV. HD dice que no está. GLORIA pide le digan que lo llame al 23-62-85.- 93-

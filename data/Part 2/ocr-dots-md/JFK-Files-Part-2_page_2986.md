@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_2986.png
-
 secretary.
 
 The Mexico City Station devoted a major part

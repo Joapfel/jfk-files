@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2489.png
-
-Convert to Markdownwas not that of a code clerk. NOSENKO has during
+was not that of a code clerk. NOSENKO has during
 current interviews related how he received the impression
 from the OTU reports of conversations picked up by the
 microphone in the Military code room at the United States

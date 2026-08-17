@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12159.png
-
-Convert to MarkdownSeptiembre 11 de 1.950,
+Septiembre 11 de 1.950,
 
 Señor
 Jefe DEL DEPARTAMENTO NACIONAL

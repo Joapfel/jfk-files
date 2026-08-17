@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24684.png
-
-Convert to MarkdownThis message itself was deemed too sensitive to be retained
+This message itself was deemed too sensitive to be retained
 at the station: "this dispatch should be reduced to cryptic
 necessary notes and destroyed after the first reading." (CIA
 Dispatch, AUDW-147, 11/2/60.)

@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_16790.png
-
-Convert to Markdown4. A copy of all the training materials was left with LOPAZ y LOPAZ for the unit. It is strongly suggested that an effort be made within the next three or four weeks to review the materials in a more or less formal classroom situation. Furthermore, it is suggested that until such time as the unit begins operations, the unit plan and carry out surveillance and other exercises designed to improve their capability.
+4. A copy of all the training materials was left with LOPAZ y LOPAZ for the unit. It is strongly suggested that an effort be made within the next three or four weeks to review the materials in a more or less formal classroom situation. Furthermore, it is suggested that until such time as the unit begins operations, the unit plan and carry out surveillance and other exercises designed to improve their capability.

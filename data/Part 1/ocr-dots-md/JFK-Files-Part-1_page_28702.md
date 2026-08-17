@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28702.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th>PERMANENT NO.</th><th>BIOGRAPHIC PROFILE (Continuation Sheet)</th></tr></thead><tbody><tr><td>1234567890</td><td>NAME (Last, First Middle): Robert Tyler<br/>PHONE: 512-555-1234<br/>FAX: 512-555-1235<br/><br/>CIA EMPLOYMENT HISTORY SINCE 10 SEPT. 1947 (Personal Actions, Military Orders, and Principal Details) (Cont'd.)<table><thead><tr><th>PERIOD</th><th>POSITION TITLE & OCCUPATIONAL CODE</th><th>GRADE</th><th>ORGANIZATION & ORGAN TITLE (If any)</th><th>LOCATION</th></tr></thead><tbody><tr><td>Apr 1975</td><td>(Handwritten: Senior Sergeant)</td><td>Sergeant</td><td>US Army</td><td>USA</td></tr><tr><td>Aug 1975</td><td>(Handwritten: Sergeant)</td><td>Sergeant</td><td>US Army</td><td>USA</td></tr></tbody></table><br/><br/>DATE REVIEWED: 20 Jun 1976<br/><br/>PROFILE REVISED BY: John D. Ball<br/><br/></td></tr></tbody></table>

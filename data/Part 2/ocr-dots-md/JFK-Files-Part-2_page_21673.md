@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21673.png
-
-Convert to Markdown1. chest operator, but so far as I know he always operated in the
+1. chest operator, but so far as I know he always operated in the
 2. line of command, and something like this I think I should have
 3. been consulted, but I can understand the operator's viewpoint.
 4. They might have felt there were reasons why I should not be

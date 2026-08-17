@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27488.png
-
-Convert to MarkdownJune 16, 1977
+June 16, 1977
 
 Mr. Cornish F. Hitchcock
 1552 33rd Street, N.W.

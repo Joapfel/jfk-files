@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4760.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On November 8, 1968, MM T-3 advised SA JOHN A. OGDEN that HALPERN had gone to Las Vegas, Nevada in the past and gambled at an unidentified casino. Informant stated that HALPERN lost a considerable amount of money and that subject's visit to Atlanta was to collect the debt owed by HALPERN to the Las Vegas casino. Informant advised that HALPERN worked out an arrangement with subject but informant did not know the details thereof.
 

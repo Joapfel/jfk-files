@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17902.png
-
-Convert to MarkdownTO; TSS/Logistics Branch;
+TO; TSS/Logistics Branch;
 
 1. 5835-003-9856 Recorder/Reproducer, Revere Model T-705-D, 110V/50 cycles
    10 ea.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_430.png
-
-Convert to Markdown14-00000
+14-00000
 
  others assigned;
 1) Cleanore E. Reed, ret #73170 (72)

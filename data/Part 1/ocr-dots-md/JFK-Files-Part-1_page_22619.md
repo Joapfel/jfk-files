@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22619.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="10">SECTION IX HARITAL STATUS</th>

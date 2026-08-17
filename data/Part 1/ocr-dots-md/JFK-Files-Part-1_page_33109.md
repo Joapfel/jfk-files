@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33109.png
-
-Convert to Markdownstates, "Although I am not of his experience prior to 1956 but in the Military Field, I have received a wide variety of training and have been assigned to some very difficult roles such as the one shown below. I have been assigned to a combat formation and assisted the division. As a passive radar operator, I will be a radar operator at 1st Division. A. ACG. 3/5th kanal abr. of JMA- connected units, operations, roles and duties. I would be a full price if you will get him to sign.
+states, "Although I am not of his experience prior to 1956 but in the Military Field, I have received a wide variety of training and have been assigned to some very difficult roles such as the one shown below. I have been assigned to a combat formation and assisted the division. As a passive radar operator, I will be a radar operator at 1st Division. A. ACG. 3/5th kanal abr. of JMA- connected units, operations, roles and duties. I would be a full price if you will get him to sign.
 
 ## Conclusion
 

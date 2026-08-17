@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11241.png
-
-Convert to Markdownin a key facility, copies of reports being the dual criterion, "Security of Government Employees; Security Matter - C." should be furnished to appropriate intelligence agencies of the armed services by the field offices as shown in sections 69-70. When III, and 87D 7c (2), of this manual. For instructions regarding dissemination to the Defense Industrial Security Office, see 8 (3), Office, Defense Supply Agency, Columbus, Ohio, of this manual.
+in a key facility, copies of reports being the dual criterion, "Security of Government Employees; Security Matter - C." should be furnished to appropriate intelligence agencies of the armed services by the field offices as shown in sections 69-70. When III, and 87D 7c (2), of this manual. For instructions regarding dissemination to the Defense Industrial Security Office, see 8 (3), Office, Defense Supply Agency, Columbus, Ohio, of this manual.
 
 Specific instructions with regard to all phases of our responsibilities under Executive Order 10450, including policy, investigative procedures, and dissemination are set out in section 69, volume III, of this manual.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14514.png
-
-Convert to Markdown15 November 1976
+15 November 1976
 
 SUBJECT: Typed Notes from Review of I&NS File of
 Orestes Guillermo RUIZ Perez

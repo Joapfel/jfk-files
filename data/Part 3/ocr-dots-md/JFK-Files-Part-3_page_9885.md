@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9885.png
-
-Convert to Markdown1 - Legal Counsel Division
+1 - Legal Counsel Division
 1 - Mr. W. O. Cregar
 1 - Mr. W. R. Wannall
 

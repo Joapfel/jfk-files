@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15641.png
-
-Convert to Markdownachievements, then he is a failure.
+achievements, then he is a failure.
 
 24. Subject feels that apart from the academic progress at school, he learned that it was necessary to communicate, to express himself, to understand and to explain. He feels that these are necessary for one to be a member of society.
 

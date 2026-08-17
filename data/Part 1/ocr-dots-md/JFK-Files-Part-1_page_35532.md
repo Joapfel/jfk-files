@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35532.png
-
-Convert to MarkdownDATE NOVEMBER 10, 1964
+DATE NOVEMBER 10, 1964
 
 INVOICE NO 1382
 

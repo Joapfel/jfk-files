@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11459.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="10">
      5-113a (Rev. 3-21-73)

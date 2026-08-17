@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26245.png
-
-Convert to Markdown12 Gennaio 1967
+12 Gennaio 1967
 
 Egregio Signore:
 

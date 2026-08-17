@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25848.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA AIR
 (Mexico Air or Sea Pouch)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12974.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 TO : Mr. Belmont
 

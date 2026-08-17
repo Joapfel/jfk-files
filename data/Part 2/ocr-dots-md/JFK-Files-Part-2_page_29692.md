@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29692.png
-
-Convert to MarkdownClass: TOP SECRET
+Class: TOP SECRET
 
 (This form is to be used for material extracted from CIA-controlled documents.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28072.png
-
-Convert to Markdown<table><thead><tr><th colspan="6">PAY ROLL CHANGE DATA</th></tr><tr><th>BASE PAY</th><th>OVERTIME</th><th>GROSS PAY</th><th>- RET.</th><th>TAX</th><th>BOND F.I.C.A.</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="6">PAY ROLL CHANGE DATA</th></tr><tr><th>BASE PAY</th><th>OVERTIME</th><th>GROSS PAY</th><th>- RET.</th><th>TAX</th><th>BOND F.I.C.A.</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 
 14-0000U
 

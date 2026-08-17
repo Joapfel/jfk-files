@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29164.png
-
-Convert to MarkdownSchedule of Partners or Shareholders—
+Schedule of Partners or Shareholders—
 Partnership, Subchapter S Corp., Professional Corp.
 
 See instructions on reverse side

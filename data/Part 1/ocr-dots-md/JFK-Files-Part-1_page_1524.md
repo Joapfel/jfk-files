@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1524.png
-
-Convert to MarkdownAttachment To:
+Attachment To:
 SC-01836-78
 
 SUBJECT: DDS&T Interim Reply to HSCA Request, 8 May 78,

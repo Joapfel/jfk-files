@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15907.png
-
-Convert to Markdown5/26/69
+5/26/69
 
 TELETYPE
 

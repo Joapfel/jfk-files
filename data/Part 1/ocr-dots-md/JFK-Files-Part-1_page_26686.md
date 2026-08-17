@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26686.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Victor Rico Gallegos ha trabajado hasta la fecha como agente de enlace para las guerrillas del 13 de Noviembre.
 

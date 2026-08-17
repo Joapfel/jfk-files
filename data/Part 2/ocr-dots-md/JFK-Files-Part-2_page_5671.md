@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5671.png
-
-Convert to MarkdownSUBJECT: Position on Release of Information Pertaining to Mexico City Station and the JFK Assassination Records
+SUBJECT: Position on Release of Information Pertaining to Mexico City Station and the JFK Assassination Records
 
 B. Cryptonyms, such as those in the LI series, unless they appear in the context of liaison (operational equities (such as LITENSOR and LITEMPO).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15735.png
-
-Convert to Markdown<table><thead><tr><th>FORM<br>10-57 53a<br>(40)</th><th>USE PREVIOUS EDITION<br>REPLACES FORMS<br>51-28, 51-29A AND 51-29<br>WHICH ARE OBSOLETED</th></tr></thead><tbody><tr><td>SECRET</td><td>☐ CONTINUED</td></tr></tbody></table>
+<table><thead><tr><th>FORM<br>10-57 53a<br>(40)</th><th>USE PREVIOUS EDITION<br>REPLACES FORMS<br>51-28, 51-29A AND 51-29<br>WHICH ARE OBSOLETED</th></tr></thead><tbody><tr><td>SECRET</td><td>☐ CONTINUED</td></tr></tbody></table>
 
 HERPA-4890
 

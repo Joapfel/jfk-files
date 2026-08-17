@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29586.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 TO : Chief, WH-4, Security
 FROM : Chief, Personnel Security Division, OS

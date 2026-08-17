@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14954.png
-
-Convert to MarkdownTURKISH MISSION TO THE UNITED NATIONS
+TURKISH MISSION TO THE UNITED NATIONS
 
 In July, 1965, then Attorney General Katzenbach approved microphone surveillance coverage of Turkish United Nations Delegation. This installation, which involved trespass, was made in connection with our efforts on behalf of National Security Agency in program-designed-to-penetrate communications equipment of Turkey. This installation was activated March 9, 1966, and Attorney General Katzenbach was notified of this March 14, 1966.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7336.png
-
-Convert to Markdown8 December 1965
+8 December 1965
 
 SUBJECT: Contact/Report/LICO:3
 8 Dec 1900-1945, Subj's office

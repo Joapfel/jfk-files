@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18796.png
-
-Convert to MarkdownSTREET
+STREET
 
 Office Memorandum • UNITED STATES GOVERNMENT
 

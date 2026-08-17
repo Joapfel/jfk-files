@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31764.png
-
-Convert to Markdown# SECRET
+# SECRET
 Security Information
 
 c) Research projects on specific targets for ETE's New York and Munich language decks. Daily monitoring highlights summarize major events in all satellite countries;

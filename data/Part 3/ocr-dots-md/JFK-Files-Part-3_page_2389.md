@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2389.png
-
-Convert to Markdownattempting to advance CPUSA policies he was expelled from the
+attempting to advance CPUSA policies he was expelled from the
 Black Panther Party.
 
 This does not mean that the CPUSA is not striving to play a more effective role in its relationship with activists of both New Left and black extremist groups. Individual Party members do play a role in demonstrations, activities, and workings of these groups. Party publications trumpet in support of all demonstrations which stir up discord in the United States whether it be economic, social, or against the war in Vietnam.

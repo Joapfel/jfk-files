@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7147.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th colspan="6">SIGNAL CENTER USE ONLY</th><th>Routing</th></tr><tr><th>AGE</th><th>COI</th><th>ACP</th><th>TOG</th><th>TPE</th><th>MRO</th><th>DCI</th></tr></thead><tbody><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>1</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7873.png
-
-Convert to MarkdownDate: 
+Date: 
 Caption on Folder or File: (Print) 
 CRIMDEL - CRS
 Aides Initial:

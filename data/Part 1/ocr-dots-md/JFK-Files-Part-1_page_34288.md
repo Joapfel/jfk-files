@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34288.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SEC P E T 112005Z
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14244.png
-
-Convert to MarkdownAt 12:05 p.m. Messrs. Tordella, Bannerman and Gentile departed the Board meeting with the thanks of the Chairman for their assistance.
+At 12:05 p.m. Messrs. Tordella, Bannerman and Gentile departed the Board meeting with the thanks of the Chairman for their assistance.
 
 Following lunch, the Board resumed its meeting at 1:00 p.m. at which time Mr. R. J. Smith of CIA (Deputy to Mr. Ray Cline, Deputy LCI for Intelligence) presented a briefing of the situation in Laos, South Vietnam, North Vietnam, Cambodia, Malaysia, and Indonesia. (Chairman Clifford left the meeting in response to a telephone call from the President.)
 

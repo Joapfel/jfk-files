@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8231.png
-
-Convert to MarkdownThe Honorable Elliot L. Richardson
+The Honorable Elliot L. Richardson
 
 October 10, 1973
 Page 5

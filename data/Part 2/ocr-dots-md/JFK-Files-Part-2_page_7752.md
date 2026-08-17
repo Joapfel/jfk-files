@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7752.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td></td><td>30 March 1966</td></tr><tr><th colspan="2">CLASSIFICATION</th><th>HQS FILE NUMBER</th></tr></tbody></table>
 

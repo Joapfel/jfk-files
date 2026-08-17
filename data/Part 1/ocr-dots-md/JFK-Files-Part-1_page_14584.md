@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14584.png
-
-Convert to Markdown13. Evidently, this last piece of criticism upset RUIZ so much that he was nervous and particularly security-conscious. Less than a week later he called LEON in Havana and requested permission to go to Cuba, ostensibly to settle a personal problem with his son. However, his wife explained to another person in the Embassy that RUIZ' trip was due to his sick mother. His trip was probably due to the exceptionally sharp criticism and RUIZ' desire to clear it up personally.
+13. Evidently, this last piece of criticism upset RUIZ so much that he was nervous and particularly security-conscious. Less than a week later he called LEON in Havana and requested permission to go to Cuba, ostensibly to settle a personal problem with his son. However, his wife explained to another person in the Embassy that RUIZ' trip was due to his sick mother. His trip was probably due to the exceptionally sharp criticism and RUIZ' desire to clear it up personally.
 
 14. When RUIZ returned to Madrid on 29 October 1969, he was a changed man, again relaxed and fully confident of himself. Nevertheless, he has told close friends that he feels very lonely in Spain and at times has had the desire simply to board a plane away from Spain and abandon the Embassy. He is always careful to say he desires to return to Havana, but he leaves room for the inference that he would rather go somewhere else. He believes that he is "burned" in Spain. He has said that when he returns to the island, he will definitely not return to his Ministry.
 

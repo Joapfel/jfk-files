@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7545.png
-
-Convert to MarkdownSUBJECT: Photo Comparison
+SUBJECT: Photo Comparison
 
 G. The proportions of the head, check bones and the body style of the younger man tend to indicate he is of Slavic origin.
 

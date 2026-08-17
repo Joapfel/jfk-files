@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6431.png
-
-Convert to MarkdownOPERATION: Invisible Bomb
+OPERATION: Invisible Bomb
 
 **OBJECTIVE:**
 

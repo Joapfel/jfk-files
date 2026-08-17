@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35716.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 18 November 1965
 

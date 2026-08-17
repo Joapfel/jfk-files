@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25408.png
-
-Convert to MarkdownWorld Associates, Inc., Hugh C. McDonald, President
+World Associates, Inc., Hugh C. McDonald, President
 
 Daniel J. Shine for GSMusulin/Js
 DCS/Operational Support Staff

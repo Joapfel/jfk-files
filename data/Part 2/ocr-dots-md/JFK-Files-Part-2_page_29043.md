@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29043.png
-
-Convert to Markdown**CALIFORNIA**
+**CALIFORNIA**
 
 **ITEMIZED REDUCTIONS**
 *(Added to Form 540)*

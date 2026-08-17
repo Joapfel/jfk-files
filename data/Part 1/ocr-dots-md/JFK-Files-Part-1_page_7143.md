@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7143.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 Date: December 21, 1965
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12214.png
-
-Convert to MarkdownCOPY
+COPY
 
 27 October 1958
 

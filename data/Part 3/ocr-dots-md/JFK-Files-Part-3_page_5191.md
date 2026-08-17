@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5191.png
-
-Convert to Markdownnumber of CI'S since the last inspection and have increased
+number of CI'S since the last inspection and have increased
 the number of PCI'S since the last inspection. We have also
 increased our payments to informants and no instances have
 been found where we did not get value received from these

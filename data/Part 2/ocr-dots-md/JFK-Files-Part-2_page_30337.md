@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30337.png
-
-Convert to MarkdownYou said he was not interesting, you were not interested in him, the KGB rejected him. Despite that, you were "recruiting right and left all kinds of people to assist in the espionage operation."
+You said he was not interesting, you were not interested in him, the KGB rejected him. Despite that, you were "recruiting right and left all kinds of people to assist in the espionage operation."
 
 Now, all of these things, Mr. Nosenko, leads me to be very, very disturbed by your story because it simply just on the face of what you told us last night and tonight, can't possibly be true.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8513.png
-
-Convert to Markdown12 February, 1968
+12 February, 1968
 
 CONTACT REPORT
 

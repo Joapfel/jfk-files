@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13371.png
-
-Convert to MarkdownTravel From To. Message Sent
+Travel From To. Message Sent
 FR/To
 
 U.S./Venezuela Caracas/Miami

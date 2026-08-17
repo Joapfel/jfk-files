@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13413.png
-
-Convert to Markdown1 basis by CIA. A good many things of that sort happened because
+1 basis by CIA. A good many things of that sort happened because
 2 they had the money.
 3 MR. BELIN: Secretary Rusk, we also talked about
 4 internal executive oversight about CIA and the role of the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7081.png
-
-Convert to MarkdownAGENCY-INTERNAL USE ONLY
+AGENCY-INTERNAL USE ONLY
 PRIVILEGED ATTORNEY WORK PRODUCT
 
 SUBJECT: DCI Sources and Methods Authority With Respect to JFK Assassination Records

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24879.png
-
-Convert to Markdownd) **Additional costs on Mexico project** (paragraph 2 c)
+d) **Additional costs on Mexico project** (paragraph 2 c)
 
 1. Fee for Antonio Menendez, about $2,500 payable in two installments.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3129.png
-
-Convert to MarkdownSECRET
+SECRET
 
 aportunidades van al Celen (creo que aprovechando invitación) Van uales, acompañados por otros miembros del C.D. y también con residentes rusos procomunistas. En este aspecto parece que gozan de enterla libertad y se les tiene ilimitada confianza. Entiendo que para el personal sovietico hay un oine en la embajada. Al parecer precisamente allí donde no van.
 

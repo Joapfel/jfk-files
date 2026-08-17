@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20601.png
-
-Convert to MarkdownCV 100-32010
+CV 100-32010
 
 First source utilized is ____
 Second source utilized is ____

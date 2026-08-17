@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9988.png
-
-Convert to Markdown9 August, 1947
+9 August, 1947
 
 Subject: LINDSAY'S Report of Contact with Ernesto Capoano.
 

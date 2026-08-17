@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27008.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Ms. Jeanne W. Davis
 

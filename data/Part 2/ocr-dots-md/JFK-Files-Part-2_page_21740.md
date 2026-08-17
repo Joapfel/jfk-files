@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21740.png
-
-Convert to Markdown1
+1
 
 If your targets are foreign, then where are they? They don't all necessarily read English, and we had a bilateral agreement with the British that we wouldn't propagandize their people.
 

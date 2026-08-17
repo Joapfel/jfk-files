@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24377.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, Contract Personnel Division, OP
 

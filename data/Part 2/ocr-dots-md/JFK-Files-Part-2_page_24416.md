@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24416.png
-
-Convert to Markdownalternative reason. He recalled being informed that after
+alternative reason. He recalled being informed that after
 the pills had been delivered to Cuba, "the go signal still had
 to be received before in fact they were administered" (Maheu,
 p. 42). He testified that he was informed by O'Connell some-

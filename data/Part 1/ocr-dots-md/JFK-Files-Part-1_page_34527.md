@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34527.png
-
-Convert to Markdown1. In 1962 you stated that while working with the KGB, you personally recruited ten Americans. Please give us their names and how you recruited them.
+1. In 1962 you stated that while working with the KGB, you personally recruited ten Americans. Please give us their names and how you recruited them.
 
 **Note:** Nosenko was asked why he was chosen to go to Geneva in 1962 instead of an officer from the Department (KGB) Delegation. Answering this question he mentioned the recruitment of ten Americans.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_444.png
-
-Convert to Markdown270. Salida al 492141.-1530.-Jorrin pido a S le díga a Juan que lo tiene un paquete y HP acepta,- 224,-
+270. Salida al 492141.-1530.-Jorrin pido a S le díga a Juan que lo tiene un paquete y HP acepta,- 224,-
 
 234. Salida al 310106.-HD pregunta por Enrique, Olga y Sergio, y HF informa que no están,- 233.-
 

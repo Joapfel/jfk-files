@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13607.png
-
-Convert to Markdown4
+4
 
 los 20,000. HUETOR contesta que 9,000, pero que turieron que recortar lo de quien invitaba. RENATO pregunta que sí si los van a servir. HUETOR dice que sí y que se repor- tieron, pero supone que todavía habrá en Salvador. De to- dos modos hay que ver eso, porque parezco que no se llevaron todo lo que habíamos hablado. RENATO tiene todavía, y sólo quieras informarle qué lugar y qué fecha. El sábado se ven allá.
 

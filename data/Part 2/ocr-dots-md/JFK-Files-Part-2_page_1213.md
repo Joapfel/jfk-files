@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1213.png
-
-Convert to MarkdownSECURE
+SECURE
 SECURITY INFORMATION
 
 SECRET

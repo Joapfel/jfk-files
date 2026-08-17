@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3146.png
-
-Convert to Markdown1758
+1758
 
 anonymous letter sent to me saying what are you going to do about this. There are loyal Democrats in this town who need work. And in that case I happened to have known the man about whom the protest was made, and the Bureau's facts were wrong as hell on that man's loyalty. He was a loyal as you or I.
 

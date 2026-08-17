@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9803.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 The memorandum pointed out that, as in the past,
 these reports are furnished to the Department in order that

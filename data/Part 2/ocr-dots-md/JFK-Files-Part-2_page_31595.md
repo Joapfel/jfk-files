@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31595.png
-
-Convert to MarkdownThe Anti-Draft Committee of the VDC has been working on ways to end U.S. aggression in Vietnam by developing an effective and broadly-based protest against conscription. The draft is basic to carrying on the war. The draft call has been increased to over 45,000 men for December, and it will continue to rise.
+The Anti-Draft Committee of the VDC has been working on ways to end U.S. aggression in Vietnam by developing an effective and broadly-based protest against conscription. The draft is basic to carrying on the war. The draft call has been increased to over 45,000 men for December, and it will continue to rise.
 
 ## PROGRAM
 

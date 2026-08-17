@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30427.png
-
-Convert to MarkdownSEC. 9. MOTHER-IN-LAW
+SEC. 9. MOTHER-IN-LAW
 
 <table><tr><td>FULL NAME</td><td>Address</td><td>City</td></tr><tr><td>(First) (Last)</td><td>(Middle) (Last)</td><td></td></tr><tr><td>LIVING OR DECEASED</td><td>DATE OF DECEASE</td><td>CAUSE OF DECEASE</td></tr><tr><td>PRESENT, OR LAST ADDRESS</td><td>013 North 17th Street, Houston, Texas</td><td>USA</td></tr><tr><td>DATE OF BIRTH</td><td>2/1/95</td><td>PLACE OF BIRTH</td><td>Norton, Texas</td></tr><tr><td>IF BORN OUTSIDE U.S.</td><td colspan="3">INDICATE DATE AND PLACE OF ENTRY 12A</td></tr><tr><td>CITIZENSHIP</td><td>US</td><td>WHEN ACQUIRED?</td><td>Birth WHERE? (City) (State) (Country)</td></tr><tr><td>OCCUPATION</td><td></td><td>LAST EMPLOYER</td><td>Criminal</td></tr></table>
 

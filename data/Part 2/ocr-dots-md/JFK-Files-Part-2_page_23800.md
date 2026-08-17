@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23800.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. use of American clergy and laity.
 

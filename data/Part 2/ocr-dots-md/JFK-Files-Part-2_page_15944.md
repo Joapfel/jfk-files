@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15944.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## STUDENTS FOR A DEMOCRATIC SOCIETY
 

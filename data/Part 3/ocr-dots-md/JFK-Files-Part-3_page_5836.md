@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5836.png
-
-Convert to MarkdownLA 157-2325
+LA 157-2325
 
 On August 4, 1968, ANGELA YVONNE DAVIS attended a meeting of all Negro members of the SDCOP at 5731 South St. Andrews Place, Los Angeles, California. Topic of discussion centered around the election campaigns, working class trade unions, and building of the Communist Party.
 

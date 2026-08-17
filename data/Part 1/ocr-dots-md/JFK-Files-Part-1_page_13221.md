@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13221.png
-
-Convert to Markdown14-00000
+14-00000
 
 [ 18, 90, 25 LAC is now completed
 16 Jun '63 ]

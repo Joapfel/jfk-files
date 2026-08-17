@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11725.png
-
-Convert to Markdownsubstantially above average on a per Agent basis and the third highest of the foreign offices on that basis. Tokyo has submitted 40 items for HILEV dissemination, of which 17 have been used. This is slightly above average.
+substantially above average on a per Agent basis and the third highest of the foreign offices on that basis. Tokyo has submitted 40 items for HILEV dissemination, of which 17 have been used. This is slightly above average.
 
 ## Personnel
 

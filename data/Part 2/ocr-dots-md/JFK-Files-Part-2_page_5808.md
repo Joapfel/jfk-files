@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5808.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 From the Desk of James R. Oliver
 Chief, Historical Review Program

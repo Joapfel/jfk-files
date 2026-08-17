@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8538.png
-
-Convert to MarkdownFrom left to right: K. Vovk, N. Pervukhina, A. Ivanova, and A. Volov.
+From left to right: K. Vovk, N. Pervukhina, A. Ivanova, and A. Volov.
 
 (Massachusetts Institute of Technology, a second university in the city.)
 

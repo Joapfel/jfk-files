@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5273.png
-
-Convert to Markdown(2) Union de Banques Suisses
+(2) Union de Banques Suisses
 8, Rue du Rhône
 Geneve, Suisse
 

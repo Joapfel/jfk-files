@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23354.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Baron. Do you have a recollection about that one way
 or the other?

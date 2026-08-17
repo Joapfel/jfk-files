@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6315.png
-
-Convert to MarkdownCJA - 137
+CJA - 137
 
 12 April 1962
 

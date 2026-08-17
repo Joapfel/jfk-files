@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9394.png
-
-Convert to MarkdownSUPPORT THE
+SUPPORT THE
 FREE BREAKFAST
 FOR SCHOOL CHILDREN™
 

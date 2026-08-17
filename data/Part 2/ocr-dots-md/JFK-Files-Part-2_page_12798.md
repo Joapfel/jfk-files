@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12798.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 - Liaison Section
 2 - Mr. Floyd

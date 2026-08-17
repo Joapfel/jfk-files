@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11496.png
-
-Convert to Markdown2.
+2.
 
 because they believed the calumnies spread against him by Carlos Perzabal,
 

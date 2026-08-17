@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21144.png
-
-Convert to MarkdownS I C . S O N T
+S I C . S O N T
 
 A case may marries you receive as a result of your participation in such programs must be returned to this organization. Whether participation in a particular cover facility program is involuntary will be determined by this organization.
 

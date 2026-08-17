@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6359.png
-
-Convert to Markdown2 March 1995
+2 March 1995
 
 Assassination Record Definition: Comments
 

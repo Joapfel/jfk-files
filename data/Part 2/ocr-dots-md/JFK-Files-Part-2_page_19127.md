@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19127.png
-
-Convert to MarkdownSources utilized in this LHM are as follows:
+Sources utilized in this LHM are as follows:
 
 1st source
 2nd source

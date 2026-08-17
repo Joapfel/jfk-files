@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18720.png
-
-Convert to Markdown12 JUN 1972
+12 JUN 1972
 
 MEMORANDUM FOR : Miss Ann L. Goodpasture
 

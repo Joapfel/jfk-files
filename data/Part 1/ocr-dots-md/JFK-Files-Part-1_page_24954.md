@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24954.png
-
-Convert to MarkdownSECRET/RYBAT
+SECRET/RYBAT
 
 Attachment B to HSSW-2742
 

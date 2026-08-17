@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21469.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. APPENDIX
 FAIR PLAY FOR CUBA COMMITTEE

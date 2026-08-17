@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11157.png
-
-Convert to Markdown# GUIDELINES FOR SANITIZING CERTAIN DOCUMENTS
+# GUIDELINES FOR SANITIZING CERTAIN DOCUMENTS
 PROVIDED SELECT COMMITTEES
 
 1. The Director of Central Intelligence has recently discussed with Senator Church the need for special consideration and treatment by the Select Committee of certain sensitive aspects of intelligence activities and the Senator has expressed his recognition of this need.

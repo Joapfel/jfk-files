@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12715.png
-
-Convert to Markdown(3) Arrangement
+(3) Arrangement
 
 This index is to be maintained[by each field office]in two sections, section A and section B. Each section will be maintained alphabetically on 5- by 8-inch cards.
 

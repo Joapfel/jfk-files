@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21704.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Baron. But that would be the person primarily responsible for taking care of this double agent problem?
 

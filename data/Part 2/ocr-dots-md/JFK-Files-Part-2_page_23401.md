@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23401.png
-
-Convert to MarkdownLEROY VILLAR
+LEROY VILLAR
 
 CHIEF SECRETARY
 

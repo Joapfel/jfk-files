@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2369.png
-
-Convert to MarkdownThe case of Robert Lee JOHNSON and the related case of James Allen MINTKENBAUGH have been covered in the previous summary. It can be considered that both were exposed as a result of a lead from NOSENKO which led to suspicions of JOHNSON.
+The case of Robert Lee JOHNSON and the related case of James Allen MINTKENBAUGH have been covered in the previous summary. It can be considered that both were exposed as a result of a lead from NOSENKO which led to suspicions of JOHNSON.
 
 Another American case is that of Herbert HOWARD, a USIA employee who spent considerable time in the USSR in 1962 - 1963. NOSENKO identified Herbert HOWARD as having been recruited by the First Section, First Department, SCD, in 1962 and was positive that (HOWARD) furnished valuable information to the KGB. When interviewed in 1964, (HOWARD) did not admit he had been recruited, but suspicion of HOWARD was great enough so that his contract with (USIA) was not renewed.
 

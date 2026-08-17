@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9485.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 ROBERT BAY, BPP, New York, was hit on the head with a gun butt by JUNE HILLIARD, Assistant Chief of Staff, BPP, because BAY beat up someone he thought was a police informer.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33937.png
-
-Convert to Markdowncc: J. R. Smith
+cc: J. R. Smith
 G. O. Haglund
 
 Mr. F. B. Jovett, Jr.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11535.png
-
-Convert to MarkdownEnvelope addressed to Señor Carlos Jurado
+Envelope addressed to Señor Carlos Jurado
 Diamante Condona A.6
 Rachuca y Veracruz
 Mexico, DF

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12586.png
-
-Convert to MarkdownI. GENERAL REQUEST
+I. GENERAL REQUEST
 
 With respect to each intelligence gathering or intelli-
 gence dissemination function of the IRS either now being performed

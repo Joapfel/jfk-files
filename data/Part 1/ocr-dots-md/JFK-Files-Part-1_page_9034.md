@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9034.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>☐</td><td>UNCLASSIFIED</td><td>☐</td><td>INTERNAL</td></tr><tr><td>☐</td><td>USE ONLY</td><td>☐</td><td>CONFIDENTIAL</td></tr><tr><td colspan="2">ROUTING AND RECORD SHEET</td><td>☑</td><td>SECRET</td></tr></table>
 

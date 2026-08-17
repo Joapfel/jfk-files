@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32632.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A trainee who recently returned to Peru after several months of training in Cuba, said that all his fellow trainees were asked to mark bridges and other similar demolition targets on detailed maps of Peru. They were also required to fill out lengthy questionnaires on sabotage targets, possibilities for subversion of police, methods for illegal entry and travel, suitable drop zones for air supply, possible points of attack against police and military posts, and similar information necessary for directing subversion and insurrection.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15498.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OFFICE OF SECURITY
 *Support Division*

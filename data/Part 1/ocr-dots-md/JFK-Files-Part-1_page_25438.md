@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25438.png
-
-Convert to MarkdownOLC 70-0857
+OLC 70-0857
 
 9 December 1970
 

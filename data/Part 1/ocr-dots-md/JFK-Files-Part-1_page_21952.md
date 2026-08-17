@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21952.png
-
-Convert to Markdown106.
+106.
 
 ## (ix) CARDELLA
 

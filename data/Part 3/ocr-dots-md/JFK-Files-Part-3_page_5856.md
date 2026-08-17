@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5856.png
-
-Convert to Markdownas of the middle of February, 1967.
+as of the middle of February, 1967.
 
 AT-T-1, 2/67
 

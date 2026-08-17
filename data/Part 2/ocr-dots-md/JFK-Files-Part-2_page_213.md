@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_213.png
-
-Convert to MarkdownSECRET 362030Z
+SECRET 362030Z
 
 DIR CITE MEXI 6793
 

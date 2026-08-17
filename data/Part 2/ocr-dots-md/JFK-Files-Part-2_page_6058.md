@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6058.png
-
-Convert to Markdownwhich now is in its Fifth Edition and its thirty-sixth year of publication), I have a keen sense of the methods and needs of researchers.
+which now is in its Fifth Edition and its thirty-sixth year of publication), I have a keen sense of the methods and needs of researchers.
 
 2. What do you consider to be your primary responsibilities and priorities as an ARRB member?
 

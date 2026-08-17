@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21889.png
-
-Convert to Markdownthat the planning of such an operation would be blown" (Bissell,
+that the planning of such an operation would be blown" (Bissell,
 9/10/75, p. 25). Despite his impression that he might have de-
 activated assassination operations against Lumumba at that time,
 Bissell could not preclude the possibility that the Hedgman/

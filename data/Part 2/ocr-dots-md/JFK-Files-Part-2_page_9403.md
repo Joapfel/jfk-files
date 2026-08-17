@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9403.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 On December 27, 1971, DUANE SHOALES, Administrative Assistant to the Warden, State Prison of Southern Michigan, at Jackson, Michigan, advised that two busses arrived at the prison from Detroit on December 23, 1971, bringing relatives to visit inmates. Mr. SHOALES advised that he later learned that the busses were sponsored by the Detroit BPP.
 

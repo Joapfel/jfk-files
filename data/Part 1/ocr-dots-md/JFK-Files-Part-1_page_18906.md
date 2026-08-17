@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18906.png
-
-Convert to MarkdownS-E-C-P-E-T
+S-E-C-P-E-T
 
 TRADING INVESTIGATION
 

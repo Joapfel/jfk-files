@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6917.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG:</td><td></td></tr><tr><td>UNIT:</td><td></td></tr><tr><td>EXT:</td><td></td></tr><tr><td>DATE:</td><td></td></tr></table>
 

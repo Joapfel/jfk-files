@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16249.png
-
-Convert to Markdown5. External Parts
+5. External Parts
 
 a) Care
 

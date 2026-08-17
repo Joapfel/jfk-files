@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5859.png
-
-Convert to MarkdownCentral Intelligence Agency
+Central Intelligence Agency
 
 Washington, D.C. 20505
 

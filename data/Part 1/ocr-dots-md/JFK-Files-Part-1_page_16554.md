@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16554.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET T 211628Z JUL 71 CITE WH/MIAMI 12022 (SADELLY ACTING)
 

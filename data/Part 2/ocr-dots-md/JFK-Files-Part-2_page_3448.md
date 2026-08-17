@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3448.png
-
-Convert to MarkdownSECRET SENSITIVE NOTORN
+SECRET SENSITIVE NOTORN
 
 had written a provocative analysis that found Nosenko bona fide and challenged as incorrect the Monster Plot assessments to the contrary. Even more provocative, he had provided a copy directly to then DDCI Richard Helms when stymied within the Soviet Division in promoting his view.
 

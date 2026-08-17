@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14416.png
-
-Convert to Markdownpossible to determine specifically what material should be excised from these documents, the following illustrations are offered in certain likely categories. The criteria in all cases should meet the test mentioned above.
+possible to determine specifically what material should be excised from these documents, the following illustrations are offered in certain likely categories. The criteria in all cases should meet the test mentioned above.
 
 ### 5. Collection of Intelligence
 

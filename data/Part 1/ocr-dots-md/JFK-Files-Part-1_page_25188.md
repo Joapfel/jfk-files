@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25188.png
-
-Convert to MarkdownSource: AFGHANAG/2
+Source: AFGHANAG/2
 Date acquired: September 1966
 
 Yusuf Abd-al-Aziz SILARARA, First Secretary, UAR Embassy

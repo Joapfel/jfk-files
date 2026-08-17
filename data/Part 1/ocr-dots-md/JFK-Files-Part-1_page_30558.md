@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30558.png
-
-Convert to Markdown<table><thead><tr><th>FIELD</th><th>APPROVAL</th></tr></thead><tbody><tr><td>CHIEF OF STATION</td><td>DATE<br/>PERSONNEL OFFICER<br/>L.E. Smith<br/>FOR THE ASSISTANT DIRECTOR</td></tr><tr><td>SPECIAL FUND'S OFFICER</td><td>DATE<br/>BRANCH CHIEF<br/>E.M. Llewellyn<br/>Clerk to the Assistant Director</td></tr><tr><td></td><td>DATE<br/>SPECIAL FUND'S OFFICER</td></tr></tbody></table>
+<table><thead><tr><th>FIELD</th><th>APPROVAL</th></tr></thead><tbody><tr><td>CHIEF OF STATION</td><td>DATE<br/>PERSONNEL OFFICER<br/>L.E. Smith<br/>FOR THE ASSISTANT DIRECTOR</td></tr><tr><td>SPECIAL FUND'S OFFICER</td><td>DATE<br/>BRANCH CHIEF<br/>E.M. Llewellyn<br/>Clerk to the Assistant Director</td></tr><tr><td></td><td>DATE<br/>SPECIAL FUND'S OFFICER</td></tr></tbody></table>
 
 PC# 80.
 JUN 1987 3-10

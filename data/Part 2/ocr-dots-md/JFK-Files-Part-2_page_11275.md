@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11275.png
-
-Convert to MarkdownThus, in discharging our basic responsibilities in the internal security field, it is imperative that information concerning members of the military services be referred immediately to the appropriate branch having primary responsibility for its personnel. This procedure is mandatory, even though the security aspects of the data have not been fully resolved or verified. It should be specifically pointed out in such instances that the information has not been verified.
+Thus, in discharging our basic responsibilities in the internal security field, it is imperative that information concerning members of the military services be referred immediately to the appropriate branch having primary responsibility for its personnel. This procedure is mandatory, even though the security aspects of the data have not been fully resolved or verified. It should be specifically pointed out in such instances that the information has not been verified.
 
 Section 87D 5b of this manual instructs that if it is determined a security subject is a member of the armed services the investigation must at that point be discontinued immediately and reported to the Bureau. The basis for such instruction lies in the fact that the subject is no longer within our investigative jurisdiction. In addition, dissemination of pertinent reports must be made locally in the field to the appropriate intelligence agency.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4725.png
-
-Convert to MarkdownPAGE TWO
+PAGE TWO
 
 IRS [JFK Law 11(a)]
 

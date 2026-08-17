@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15667.png
-
-Convert to MarkdownLIBRARY KIT
+LIBRARY KIT
 
 1. Tape, 50 ft roll) ca. 50
 2. 4 x 98 cans

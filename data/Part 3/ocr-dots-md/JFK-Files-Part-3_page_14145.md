@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14145.png
-
-Convert to Markdown30 August 1962. In connection with the Agency's monthly forecast, General Carter mentioned that there might be an additional requirement for flights over Cuba.
+30 August 1962. In connection with the Agency's monthly forecast, General Carter mentioned that there might be an additional requirement for flights over Cuba.
 
 10 September 1962. At a special meeting attended by the Secretary of State, the Attorney General, the Acting DCI and others, the Secretary expressed concern over the Agency's planned coverage of Cuba. He objected particularly to the proposal to combine extensive overflying of international waters with actual overflights. As a result of this discussion, it was agreed that the Agency's proposed coverage would have to be broken into four parts - one over the Isle of Pines, one over the eastern end of Cuba, and two legs along the coast - one north and one south. Within this framework, higher authority later gave approval for three flights in addition to those already authorized, with priority to the overflights. (NOTE: The Agency later secured agreement to continue the Isle of Pines leg over the Bay of Pigs area, after considerable negotiation with State.)
 

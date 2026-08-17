@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10733.png
-
-Convert to MarkdownPHI 10C-53227
+PHI 10C-53227
 
 CHARLES L. RUND, District of Camden, N. J., and was thereafter turned over to the U. S. Marshal's Office at Camden, N. J.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5587.png
-
-Convert to Markdown20/20 (ABC), August 27, 1993
+20/20 (ABC), August 27, 1993
 
 MAN: [?] The President of the United States, John Fitzgerald Kennedy, is dead.
 Let us pray.

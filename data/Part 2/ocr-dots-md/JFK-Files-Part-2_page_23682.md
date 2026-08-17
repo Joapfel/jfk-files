@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23682.png
-
-Convert to MarkdownWe just went through this the other day with the labor unions. The whole paragraph.
+We just went through this the other day with the labor unions. The whole paragraph.
 
 Senator Huddleston. I have some concern with that too.
 

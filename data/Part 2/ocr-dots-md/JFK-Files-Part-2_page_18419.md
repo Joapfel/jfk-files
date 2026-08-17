@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18419.png
-
-Convert to MarkdownInterview of Donald E. Moore by
+Interview of Donald E. Moore by
 Mr. Loch Johnson, Senate Select Committee
 
 July 28, 1975

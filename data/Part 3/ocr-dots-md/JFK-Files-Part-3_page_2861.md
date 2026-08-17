@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2861.png
-
-Convert to MarkdownINTELLIGENCE INVESTIGATION
+INTELLIGENCE INVESTIGATION
 
 Wednesday, December 10, 1975
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14786.png
-
-Convert to MarkdownEXHIBIT NO. 7
+EXHIBIT NO. 7
 
 # CRIME TREND
 IN THE UNITED STATES

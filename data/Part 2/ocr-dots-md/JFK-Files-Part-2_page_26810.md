@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26810.png
-
-Convert to MarkdownSECRET
+SECRET
 
 all the oil. We did that with a big operation. We made our own oil, substandard. Additives, I should say, not oil. We contracted with an American firm for that. And we shipped it in through third countries in Europe. It did hit the target.
 

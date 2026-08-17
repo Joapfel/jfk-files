@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_51.png
-
-Convert to Markdown2. One Roman Fedorovich DEDKOV, born 28 March 1927 in Ariansk, USSR,
+2. One Roman Fedorovich DEDKOV, born 28 March 1927 in Ariansk, USSR,
 and his wife Vilasa Nikolayevna DEDKOV, born 31 December 1930 in Minsk,
 USSR, applied-for were listed as applicants for entry visas to India
 sometime prior to April 1962. DEDKOV, who was issued Soviet passport

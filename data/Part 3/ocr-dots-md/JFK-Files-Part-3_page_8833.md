@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8833.png
-
-Convert to MarkdownNW 88614 DocId:32989606 Page 90
+NW 88614 DocId:32989606 Page 90
 
 TJM:1hb
 (4)

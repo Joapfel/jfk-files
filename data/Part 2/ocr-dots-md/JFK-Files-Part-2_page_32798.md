@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32798.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 "3. Hot pursuit of or attack on raiding boats on the high seas or another country's territorial waters
 

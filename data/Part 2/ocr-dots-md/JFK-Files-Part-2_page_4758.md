@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4758.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: Oh, if by anxiety you mean concern that the thing
 might leak . . .

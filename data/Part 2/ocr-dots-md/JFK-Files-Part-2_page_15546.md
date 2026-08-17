@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15546.png
-
-Convert to Markdownyou and I know these situations have been around for a long time, and the only people who can change anything is us, the people.'
+you and I know these situations have been around for a long time, and the only people who can change anything is us, the people.'
 
 He pleaded for unity among all poor people of every color to unite against capitalism, 'we've had too many wars on poverty, let's have some wars on the rich.'"
 

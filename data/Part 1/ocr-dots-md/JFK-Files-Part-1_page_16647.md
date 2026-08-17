@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16647.png
-
-Convert to MarkdownTSA 598
+TSA 598
 
 ## II. DESCRIPTION OF AREA
 

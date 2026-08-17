@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17533.png
-
-Convert to MarkdownSECRET / KAPOK
+SECRET / KAPOK
 
 by them. During the period July 1960 through May 1961, approximately 280 reels of raw "take" were passed to local OBIETY for their processing. The most valuable information gleaned from coverage of the targets in this field continues to deal with contacts, travel, and activities of the American Communist Group in Mexico (ACGM). The following is a sample of the reporting based on the LIFLAT coverage provided in this area during the past project year:
 

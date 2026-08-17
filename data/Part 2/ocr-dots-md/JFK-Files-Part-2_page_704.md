@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_704.png
-
-Convert to MarkdownCLASSIFIED I: ESSA:
+CLASSIFIED I: ESSA:
 
 S E C . 3 . E . T
 

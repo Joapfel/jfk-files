@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_3778.png
-
 to the director, told the Senate Intelligence Committee that the FBI was "just as frustrated as anyone else" at "rank lawlessness" that existed in Alabama at that time. Also, he said, the FBI is an investigative agency and has no enforcement powers.
 
 Adams' defense of the FBI came immediately after Gary Thomas Rowe Jr., wearing a hood to conceal his features, testified that on many occasions he had warned the bureau of the klan's plans for violence, but that the violence occurred without official interference.

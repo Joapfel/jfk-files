@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27295.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A - Ltr from Knoche to Roethe - 14 May 75 SECRET
 

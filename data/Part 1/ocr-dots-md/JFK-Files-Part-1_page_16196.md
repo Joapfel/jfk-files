@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16196.png
-
-Convert to Markdownc. Walter Joseph Mackem, separated from
+c. Walter Joseph Mackem, separated from
 CIA on 31 October 1975.
 
 6. Mr. Muldoon contacted Agency employee E. James McTighe on 22 May 1974. Mr. Muldoon told Mr. McTighe that he was nominal Vice President of a Washington-based firm called "Security Consultants International." He presented Mr. McTighe with a report containing the essential data he possessed concerning WER BELL and other members of FOA whom he had met on 17 and 20 May 1974 in Washington, D.C. According to Mr. Muldoon, WER BELL had hopes of establishing gaming casinos, hotel and other tourist facilities in Abaco catering to the U. S. tourist crowd. As a consequence of some run-in with Prime Minister Pindling of the Bahamas, however, WER BELL is apparently persona non grata in the Bahamas; hence his ambitions appeared to be contingent on Abacan independence.

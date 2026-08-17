@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20052.png
-
-Convert to MarkdownPSC: 20 AUG 62
+PSC: 20 AUG 62
 
 SECRET
 (When Filled In)

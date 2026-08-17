@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3637.png
-
-Convert to Markdown25 July 1973
+25 July 1973
 
 MEMORANDUM FOR THE RECORD
 

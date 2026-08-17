@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12005.png
-
-Convert to Markdown12. Requests of informant to help defend others
+12. Requests of informant to help defend others
 
 a. If a security informant is requested by the Communist Party, communists being prosecuted by the Government, or by other interested parties to assist in the preparation of the defense in subversive-type cases or receives assignment where such information is readily available, informant should tactfully decline such assignments.
 

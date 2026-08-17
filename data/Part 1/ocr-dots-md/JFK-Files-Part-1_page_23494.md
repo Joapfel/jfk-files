@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23494.png
-
-Convert to Markdown(7)
+(7)
 
 Pan-American Foundation, Inc.
 P.O. Box 3587

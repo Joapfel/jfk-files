@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5176.png
-
-Convert to Markdown14-0000
+14-0000
 
 **OPTIONAL FORM NO. 18**
 **JULY 1973 EDITION**

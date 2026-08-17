@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17775.png
-
-Convert to Markdown..5.-
+..5.-
 
 ... ella tiene familiares en Santo Domingo trabajando en la Oficina Sanitaria Panamericana y en ese de poder ir a oco pafa podrf. cationar su via allá ulamo, MARINA que lo ayuda en mucho pero de todos mados tiene que hacer las gestiones desde la embajada de aquf.- 292-
 

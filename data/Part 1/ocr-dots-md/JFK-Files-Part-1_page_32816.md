@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32816.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td rowspan="3">GUBI FAMERINI:mr<br>SH/4/A</td>

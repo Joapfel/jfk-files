@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34557.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 UNCLASSIFIED when blank—TOP SECRET when attached to Top Secret Document—Automatically downgraded to SECRET when filled in form is detached from controlled document.
 

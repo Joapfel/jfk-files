@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29042.png
-
-Convert to Markdown(See 2 Form 540 (1972)
+(See 2 Form 540 (1972)
 
 **PART I—Head of Household—If claimed, answer the following questions (See Instructions)**
 

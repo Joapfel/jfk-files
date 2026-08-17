@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30817.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section 10: Selective Service Status -->
         <tr>

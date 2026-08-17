@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30801.png
-
-Convert to MarkdownSEC. 8. MOTHER-IN-LAW
+SEC. 8. MOTHER-IN-LAW
 
 <table>
   <tr>

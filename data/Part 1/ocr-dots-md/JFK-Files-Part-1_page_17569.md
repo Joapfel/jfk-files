@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17569.png
-
-Convert to Markdown8. Coordination
+8. Coordination
 
 a. Information produced by LIFEAT, primarily a Station support operation, is closely coordinated with other operations at the Mexico City Station. No operational coordination is required with any other area, but they are kept advised of any information produced by LIFEAT which may be of interest to them.
 

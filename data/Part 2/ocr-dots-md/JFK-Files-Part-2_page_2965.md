@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2965.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Latin American officers in Panama, and also supplied material for the US Army Intelligence School to use in training foreign students on Communism. Nine CIA officers lectured at a Fort Holabird course for senior Latin American officers in 1961, capping their presentation by producing a Soviet defector who spoke on the Soviet intelligence service.
 

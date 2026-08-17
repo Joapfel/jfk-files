@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_82.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RUSSIA (Continued)
 

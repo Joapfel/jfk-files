@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23305.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE : 7 MAY 57</td>
     <td>

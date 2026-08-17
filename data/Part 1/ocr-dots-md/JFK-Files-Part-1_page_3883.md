@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3883.png
-
-Convert to Markdown# MEMORANDUM:
+# MEMORANDUM:
 
 SUBJECT: Subversive and Political Activities in Central America
 

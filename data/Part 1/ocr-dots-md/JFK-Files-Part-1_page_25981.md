@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25981.png
-
-Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
 
 <table><thead><tr><td>CROSS REFERENCE TO</td><td>DISPATCH STAFF AND NUMBER</td><td>DATE</td></tr></thead><tbody><tr><td></td><td>OSSA - 21650</td><td>21 February 1979</td></tr><tr><td></td><td>CLASSIFICATION</td><td>NOS FILE NUMBER</td></tr><tr><td></td><td>SECRET</td><td>200-126-118</td></tr></tbody></table>
 

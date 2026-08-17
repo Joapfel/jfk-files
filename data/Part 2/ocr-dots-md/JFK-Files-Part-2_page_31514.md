@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31514.png
-
-Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+UNITED STATES DEPARTMENT OF JUSTICE
 FEDERAL BUREAU OF INVESTIGATION
 
 Copy to: 1 - Secret Service, San Francisco (Class 3) (HM)

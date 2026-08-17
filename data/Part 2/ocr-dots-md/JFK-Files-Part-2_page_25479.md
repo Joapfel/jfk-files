@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25479.png
-
-Convert to MarkdownML: They use, they used, he was also a top KGB, and his apartment, they did his apartment, too.
+ML: They use, they used, he was also a top KGB, and his apartment, they did his apartment, too.
 
 FS: What did they do?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6457.png
-
-Convert to MarkdownText of instructions issued to all field units December 1945:
+Text of instructions issued to all field units December 1945:
 
 > "Regardless of his country of origin, any Iron Curtain escapee who,
 > during the period 1945 to the present time, was voluntarily or forcibly

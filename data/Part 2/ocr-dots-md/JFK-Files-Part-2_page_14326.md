@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14326.png
-
-Convert to MarkdownWhen an allegation is received that a group may fall within existing jurisdictional criteria, FBI Headquarters is immediately notified and a "preliminary investigation" along the lines already indicated is undertaken. Again, approval from FBI Headquarters must be obtained to continue this "preliminary investigation" beyond 90 days to resolve whether jurisdictional standards are met. If met, a full investigation is conducted upon approval by FBI Headquarters.
+When an allegation is received that a group may fall within existing jurisdictional criteria, FBI Headquarters is immediately notified and a "preliminary investigation" along the lines already indicated is undertaken. Again, approval from FBI Headquarters must be obtained to continue this "preliminary investigation" beyond 90 days to resolve whether jurisdictional standards are met. If met, a full investigation is conducted upon approval by FBI Headquarters.
 
 Internal security investigations are also conducted on the basis of specific instructions from the Attorney General (pursuant to Presidential Directives) to the Director of the FBI. Until the instruction is complied with, these matters remain pending.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21823.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 it, you said the only penetration was for purposes of finding out about exile activities being planned against Cuba.
 

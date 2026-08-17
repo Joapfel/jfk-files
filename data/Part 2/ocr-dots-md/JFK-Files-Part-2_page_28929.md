@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28929.png
-
-Convert to MarkdownWage Earner Lee H. Oswald A/N 433-54-3937
+Wage Earner Lee H. Oswald A/N 433-54-3937
 
 Understanding that this statement is for the use of the Social Security Administration in the administration of the Social Security Act, Title II, I hereby certify that the following information is correct:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17962.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE-UNIT
 
 62-116395-56

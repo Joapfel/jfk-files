@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3252.png
-
-Convert to Markdownsupply the information needed to anticipate or prevent the use
+supply the information needed to anticipate or prevent the use
 of violence in violations of federal law. That assumption.
 should be questioned. Regular criminal investigations are
 likely to produce a substantial amount of information which

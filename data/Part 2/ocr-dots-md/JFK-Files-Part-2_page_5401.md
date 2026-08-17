@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5401.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, Historical Review Group
 

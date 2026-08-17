@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12175.png
-
-Convert to Markdown# OUTGOING MESSAGE
+# OUTGOING MESSAGE
 
 CHF C O U D O O O O O O
 

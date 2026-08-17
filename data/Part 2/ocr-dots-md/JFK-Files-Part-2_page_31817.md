@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31817.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>STAPLE HERE</td>

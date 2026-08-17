@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31407.png
-
-Convert to Markdown1478
+1478
 
 Reviewed By AFOSI
 For Public Disclosure

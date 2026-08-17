@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27790.png
-
-Convert to MarkdownBranch Chief's attention, the other Stations, particularly
+Branch Chief's attention, the other Stations, particularly
 Costa Rica, which has an active operational program, and
 the Guatemala Station, which also covers El Salvador, required
 regular attention and the lesser posts could not be neglected.

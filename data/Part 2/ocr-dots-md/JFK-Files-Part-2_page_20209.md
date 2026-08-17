@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20209.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">FD-35 (Rev. 5-22-64)</td>

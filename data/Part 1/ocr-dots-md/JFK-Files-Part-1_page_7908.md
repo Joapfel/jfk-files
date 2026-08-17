@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7908.png
-
-Convert to Markdown<table><tr><td>SECRET 270750Z CITE MEXICO CITY 9117</td></tr></table>
+<table><tr><td>SECRET 270750Z CITE MEXICO CITY 9117</td></tr></table>
 
 27 JAN 87362
 

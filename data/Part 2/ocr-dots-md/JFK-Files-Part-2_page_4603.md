@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4603.png
-
-Convert to Markdown13-00000
+13-00000
 
 20 April 1961
 

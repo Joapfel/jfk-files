@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24765.png
-
-Convert to Markdownto the Special Group that "the proposed actions would not, of themselves, bring about the desired result in the near future, lacking some decisive stroke against Trujillo himself." (Special Group Minutes, 12/29/60)
+to the Special Group that "the proposed actions would not, of themselves, bring about the desired result in the near future, lacking some decisive stroke against Trujillo himself." (Special Group Minutes, 12/29/60)
 
 IV. January 12, 1961 Special Group Approval of "Limited Supplies of Small Arms and Other Material"
 

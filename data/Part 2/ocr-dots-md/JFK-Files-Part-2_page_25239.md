@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25239.png
-
-Convert to MarkdownCOL. KHANG
+COL. KHANG
 
 <table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>11/1/63</td><td>DIEM<br/>TOP SECRET</td><td></td></tr></tbody></table>
 

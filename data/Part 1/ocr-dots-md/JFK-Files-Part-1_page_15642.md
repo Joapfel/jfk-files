@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15642.png
-
-Convert to Markdownmobilization into the French army, but he felt the authorities took an awful long time to make a decision in connection with him. Because of this, he joined the Foreign Legion and left immediately for North Africa feeling that thus he was becoming a member of a famous unit and at the same time fulfilling his obligations toward the French military service.
+mobilization into the French army, but he felt the authorities took an awful long time to make a decision in connection with him. Because of this, he joined the Foreign Legion and left immediately for North Africa feeling that thus he was becoming a member of a famous unit and at the same time fulfilling his obligations toward the French military service.
 
 In the beginning he was satisfied but later he was of the opinion that France was an incoherent mess, and he bitterly regretted that he had become acquainted with people who obviously did not know what they wanted.
 

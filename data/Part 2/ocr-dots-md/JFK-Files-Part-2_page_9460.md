@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9460.png
-
-Convert to Markdown# Detroit
+# Detroit
 
 Fifteen members of the local National Committee to Combat Fascism, the organizing bureau of the Black Panther Party, are in jail. Each of them has been charged with first degree murder and conspiracy to commit murder.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3859.png
-
-Convert to Markdownhe knew had issued but not served."
+he knew had issued but not served."
 
 It says Novel was charged as a material witness and a warrant issued for his arrest, and goes on:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2654.png
-
-Convert to Markdown# FORM 2025-1 (June 1948) - UNCLASSIFIED
+# FORM 2025-1 (June 1948) - UNCLASSIFIED
 
 ## (B)
 

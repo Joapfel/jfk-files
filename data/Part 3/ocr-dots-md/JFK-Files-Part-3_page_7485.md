@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7485.png
-
-Convert to MarkdownWV 8608 Docid:32989588 Page 158
+WV 8608 Docid:32989588 Page 158
 
 <table><thead><tr><th></th><th></th></tr></thead><tbody><tr><td>Assoc. Dir.</td><td></td></tr><tr><td>Dep.-A.D.-Adm.</td><td></td></tr><tr><td>Dep.-A.D.-Inv.</td><td></td></tr><tr><td>Asst. Dir.:</td><td></td></tr><tr><td>Admin.</td><td></td></tr><tr><td>Comp. Syst.</td><td></td></tr><tr><td>Ext. Affairs</td><td></td></tr><tr><td>Files &amp; Com.</td><td></td></tr><tr><td>Gen. Inv.</td><td></td></tr><tr><td>Ident.</td><td></td></tr><tr><td>Inspection</td><td></td></tr><tr><td>Intelli...</td><td></td></tr><tr><td>Laboratory</td><td></td></tr><tr><td>Plan. &amp; Eval.</td><td></td></tr><tr><td>Spec. Inv.</td><td></td></tr><tr><td>Training</td><td></td></tr><tr><td>Legal Coun.</td><td></td></tr><tr><td>Telephone Rm.</td><td></td></tr><tr><td>Director, Sec'y</td><td></td></tr></tbody></table>
 

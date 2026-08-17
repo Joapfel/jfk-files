@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6044.png
-
-Convert to MarkdownDIRECTORIO REVOLUCIONARIO ESTUDIANTIL
+DIRECTORIO REVOLUCIONARIO ESTUDIANTIL
 
 Jose antonio echeverria con tus ideas en marcha
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30302.png
-
-Convert to MarkdownI U T O U P N E I
+I U T O U P N E I
 
 42
 

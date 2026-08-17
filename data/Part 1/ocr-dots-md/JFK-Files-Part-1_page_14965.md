@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14965.png
-
-Convert to MarkdownBeginning in 1945 BERESHVILI was in the French Army for two or three years. This was to avoid being sent back to the U.S.R. In 1950 he had a grocery store. AEPADDLE feels that BERESHVILI would be willing to go again. AEPADDLE asked BERESHVILI about the conflict of interest between the omigres and the sponsoring country. BERESHVILI said he feels it is possible to satisfy both interests.
+Beginning in 1945 BERESHVILI was in the French Army for two or three years. This was to avoid being sent back to the U.S.R. In 1950 he had a grocery store. AEPADDLE feels that BERESHVILI would be willing to go again. AEPADDLE asked BERESHVILI about the conflict of interest between the omigres and the sponsoring country. BERESHVILI said he feels it is possible to satisfy both interests.
 
 Note: Georgian Soviet ballet troupe which visited Paris in January - February 1958 knew of BERESHVILI's missions to Georgia.
 

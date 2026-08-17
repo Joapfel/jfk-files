@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28392.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Chairman Louis Stokes
 FROM: Tom Lambeth, Acting Director

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27745.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">FVO: 5 AUG 70</td>
         <td colspan="3">SECRET<br/>(When Filled In)</td>

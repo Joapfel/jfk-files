@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9380.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 DE T-11 is
 DE 1718-E (PROB)

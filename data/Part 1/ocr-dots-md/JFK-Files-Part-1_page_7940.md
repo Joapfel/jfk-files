@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7940.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">
      1. RI FILE NO.

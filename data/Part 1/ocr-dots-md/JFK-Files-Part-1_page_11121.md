@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11121.png
-
-Convert to Markdownon an official mission. CARPENTIER gave no details
+on an official mission. CARPENTIER gave no details
 other than to say that that horrible war was probably
 going to last, and that U.S. planes had flown right over
 his head during his stay. L-9 did not press him for more

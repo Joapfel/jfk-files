@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8379.png
-
-Convert to Markdownpromises of over a year. Before he could meet the Ambassador, Dimitroff was
+promises of over a year. Before he could meet the Ambassador, Dimitroff was
 betrayed at his [safe] house in Sofia by the landlady for one million
 leva, and was arrested by the Bulgarian secret police. He was tortured
 by electricity, physical means, water, devices, and starvation. During

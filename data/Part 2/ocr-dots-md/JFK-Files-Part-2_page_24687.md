@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24687.png
-
-Convert to Markdownspecific, highly sensitive operational purpose which has been
+specific, highly sensitive operational purpose which has been
 completed" (Memorandum for Finance Division from William K. Harvey,
 1/11/61). O'Donnell explained Harvey's reference to the fact that
 QJWIN's mission had been "completed" by saying that once Lumumba

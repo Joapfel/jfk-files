@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_756.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4">REQUEST FOR PERSONNEL ACTION</th>

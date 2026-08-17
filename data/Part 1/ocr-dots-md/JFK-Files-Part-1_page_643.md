@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_643.png
-
-Convert to Markdownand AMFAUNA-1 hid him in Havana until he was able to get asylum for
+and AMFAUNA-1 hid him in Havana until he was able to get asylum for
 him in the Ecuadorian Embassy.
 
 38. This phase of the AMFAUNA operation is diagrammed in Chart C.

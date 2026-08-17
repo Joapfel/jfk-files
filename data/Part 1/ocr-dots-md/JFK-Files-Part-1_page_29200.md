@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29200.png
-
-Convert to MarkdownIndex Number -7 Petal Cost of all Foods and of Four Selected Commodities
+Index Number -7 Petal Cost of all Foods and of Four Selected Commodities
 
 FORM 1
 

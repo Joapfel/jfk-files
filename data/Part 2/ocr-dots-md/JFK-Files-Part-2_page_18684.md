@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18684.png
-
-Convert to MarkdownF. Materials pertaining to the establishment and functions of the FBI External Affairs Division.
+F. Materials pertaining to the establishment and functions of the FBI External Affairs Division.
 
 G. "Guide to Indexing" and "Rules Pertaining to the General Index", cited at p. 14, Volume 1, of the Classifying Instructor's Guide.
 

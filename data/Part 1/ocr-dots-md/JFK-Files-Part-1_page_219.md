@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_219.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 27 JAN 1978
 

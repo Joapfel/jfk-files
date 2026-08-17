@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13703.png
-
-Convert to MarkdownIV. Policies and Procedures
+IV. Policies and Procedures
 
 A. The table of contents of the FBI Manual of Instruc-
 tions, and those portions of the Manual of Instructions

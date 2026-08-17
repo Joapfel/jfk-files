@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10667.png
-
-Convert to Markdown8/20/75
+8/20/75
 
 Part V
 

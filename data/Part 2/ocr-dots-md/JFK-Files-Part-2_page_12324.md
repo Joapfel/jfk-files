@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12324.png
-
-Convert to Markdownc. When payment to an informant has been authorized for a definite period of time, advise the Bureau at least two weeks in advance of the expiration of the period for which payment has been authorized as to whether the services of the informant are to be continued.
+c. When payment to an informant has been authorized for a definite period of time, advise the Bureau at least two weeks in advance of the expiration of the period for which payment has been authorized as to whether the services of the informant are to be continued.
 
 d. Every six months a letter of justification (FD-401) should be submitted to the Bureau requesting continuation of payments. Follow instructions set forth in section [130H,] item 2b, of this manual.
 

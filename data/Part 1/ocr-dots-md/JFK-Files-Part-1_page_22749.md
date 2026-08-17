@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22749.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr><tr><td>TO : Chief, WH Division</td></tr><tr><td>NO</td></tr><tr><td>FROM : Chief of Station, Mexico City</td></tr><tr><td>SUBJECT: Operational/Harold P. NOEMAYR</td></tr><tr><td>ACTION RE: Advise ETA of NOEMAYR's replacement so that NOEMAYR can make departure plans.</td></tr><tr><td>REFERENCES: HMMA-13726, 11 September 1959</td></tr></table>
+<table><tr><td>DISPATCH</td></tr><tr><td>TO : Chief, WH Division</td></tr><tr><td>NO</td></tr><tr><td>FROM : Chief of Station, Mexico City</td></tr><tr><td>SUBJECT: Operational/Harold P. NOEMAYR</td></tr><tr><td>ACTION RE: Advise ETA of NOEMAYR's replacement so that NOEMAYR can make departure plans.</td></tr><tr><td>REFERENCES: HMMA-13726, 11 September 1959</td></tr></table>
 
 1. The Station would appreciate any information which Headquarters can provide concerning an ETD for Harold R. NOEMAYR and his family and an ETA for NOEMAYR's replacement. NOEMAYR's tentative ETD of 1 January 1960 is only slightly more than one month away and he has visas to obtain in addition to other departure preparations.
 

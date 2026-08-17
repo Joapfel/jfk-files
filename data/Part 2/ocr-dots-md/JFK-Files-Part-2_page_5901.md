@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5901.png
-
-Convert to Markdown**Directorate of Administration**
+**Directorate of Administration**
 
 # Deputy Director for
 Administration (DDA) - 1997

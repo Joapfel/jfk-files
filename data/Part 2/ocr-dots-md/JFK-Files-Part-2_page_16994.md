@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16994.png
-
-Convert to MarkdownUNITED STATES DEPARTMENT
+UNITED STATES DEPARTMENT
 # Memorandum
 
 TO: SAC, CHICAGO

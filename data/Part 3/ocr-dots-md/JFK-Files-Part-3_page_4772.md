@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4772.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On November 4, 1968, ROTHMAN's car was observed parked at his residence at 11:20 a.m.
 

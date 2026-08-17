@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19740.png
-
-Convert to Markdown# CERTIFICATE
+# CERTIFICATE
 
 This is to certify that
 James P. O'Connell

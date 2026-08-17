@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17474.png
-
-Convert to Markdown5. With reference to the case, because of the developments and plans in El Salvador, I explained briefly the status of the DALTON case and the possibility of his being transferred to Guatemala."(This was in line with the discussion in El Salvador which included our Office) the President and the President's intelligence advisor, Colonel MEDRANO, said that the Guatemalan government take no action unless requested by President NIVELARO or Colonel MEDRANO and said that, if DALTON is transferred, one of our people probably would talk to (DALTON) in Guatemala.)
+5. With reference to the case, because of the developments and plans in El Salvador, I explained briefly the status of the DALTON case and the possibility of his being transferred to Guatemala."(This was in line with the discussion in El Salvador which included our Office) the President and the President's intelligence advisor, Colonel MEDRANO, said that the Guatemalan government take no action unless requested by President NIVELARO or Colonel MEDRANO and said that, if DALTON is transferred, one of our people probably would talk to (DALTON) in Guatemala.)
 
 3. The Chief of State Peraltan made a rather impassioned speech in which he covered the following points:
 

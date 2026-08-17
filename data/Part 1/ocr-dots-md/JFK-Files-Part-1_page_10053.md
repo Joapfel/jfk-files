@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10053.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES 21</th></tr></thead><tbody><tr><td>☐ FILE ID</td><td rowspan="4"><table><tr><td>AUTO ROUTING</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table></td></tr><tr><td>☐ INDEX</td></tr><tr><td>☑ NO INDEX</td></tr><tr><td>☐ FILE IN CS FILE NO.</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES 21</th></tr></thead><tbody><tr><td>☐ FILE ID</td><td rowspan="4"><table><tr><td>AUTO ROUTING</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table></td></tr><tr><td>☐ INDEX</td></tr><tr><td>☑ NO INDEX</td></tr><tr><td>☐ FILE IN CS FILE NO.</td></tr></tbody></table>
 
 B.CAREW:ot
 

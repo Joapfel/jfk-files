@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24585.png
-
-Convert to Markdown"Senator Baker:...did you originate this idea of laying on the CIA a requirement to report on the feasibility of the assassination of Castro or did someone else suggest that?"
+"Senator Baker:...did you originate this idea of laying on the CIA a requirement to report on the feasibility of the assassination of Castro or did someone else suggest that?"
 
 "General Lansdale: I did, as far as I recall."
 

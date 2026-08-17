@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22450.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to get the funding through to the organizations.
 

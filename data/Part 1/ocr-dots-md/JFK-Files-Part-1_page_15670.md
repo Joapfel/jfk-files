@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15670.png
-
-Convert to MarkdownH. J. A. MOPHAUS
+H. J. A. MOPHAUS
 
 Leopoldville, 14 Decembre 1960
 

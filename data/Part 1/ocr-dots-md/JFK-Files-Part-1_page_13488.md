@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13488.png
-
-Convert to Markdown14-00000
+14-00000
 
 [6] [Captain Luis PERDOMO Pérez (Terry)](https://www.cia.gov/publications/pentti/2009/08/cp_0908_0005.htm) (Chief of the Police, talked against Castro.)
 

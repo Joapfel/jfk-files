@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_248.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 Public source material concerning Robert Ehrlich and his wife Cornelia Ehrlich and Victor Pasche, who were active in the Parent Teachers Association (PTA) in the Ringwood, New Jersey, public school system and allegedly were considered to have Communist Party (CP) leanings, was furnished to Chief of Police Ray Van Tassel, Ringwood, New Jersey, on April 18, 1961 and May 4, 1961.
 

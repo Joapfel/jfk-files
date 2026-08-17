@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16210.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. Following lunch Muldoon left with a colleague for a meeting at the Justice Department to determine whether in sweeping Embassy buildings in Washington he must register as an agent of a foreign government (whichever it might be). Brownlow went about his business. Stent paid for the lunch. I returned to what Stent whimsically refers to as the "Funny Farm." My only regret is that George Orwell could not have joined us for that lunch.
 

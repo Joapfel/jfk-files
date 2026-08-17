@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9818.png
-
-Convert to Markdown1 March,1963
+1 March,1963
 
 Subject: Miscellaneous Information Furnished by LIUING/4.
 

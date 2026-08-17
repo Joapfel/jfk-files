@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2909.png
-
-Convert to Markdown1
+1
 The Chairman. Senator Hart.
 
 2

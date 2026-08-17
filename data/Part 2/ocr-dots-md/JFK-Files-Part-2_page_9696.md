@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9696.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 DRAGER also requested the group to cause incidents such as explosions on July 4, 1974, so a group he is forming called the NRA could take credit for it. DRAGER stated he was going underground and would use the code name GORMAN.
 

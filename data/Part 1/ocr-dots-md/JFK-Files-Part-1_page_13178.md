@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13178.png
-
-Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+CENTRAL INTELLIGENCE AGENCY
 # Intelligence Information Cable
 
 • ROUTINE

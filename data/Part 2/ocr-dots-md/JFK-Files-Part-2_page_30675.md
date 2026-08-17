@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30675.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Department filed a formal protest, but Langelle was told to leave the Soviet Union within three days. He left the Soviet Union in early October 1959.
 

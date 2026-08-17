@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15445.png
-
-Convert to MarkdownSAC, NPO
+SAC, NPO
 
 4/10/62
 

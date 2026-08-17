@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7305.png
-
-Convert to Markdown9.04 Drinking:
+9.04 Drinking:
 
 9.04.01 Does he drink? Not at all ______ Average X A little ______ Heavily ______
 

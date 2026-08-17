@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23422.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET</td><td>COURIER</td></tr><tr><td></td><td>[SIGNATURE'S LINE DRAWN]</td></tr><tr><td></td><td>[SIGNATURE'S LINE DRAWN]</td></tr><tr><td></td><td>[SIGNATURE'S LINE DRAWN]</td></tr><tr><td></td><td>OPERATIONAL IMMEDIATE</td></tr><tr><td></td><td>[SIGNATURE'S LINE DRAWN]</td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET</td><td>COURIER</td></tr><tr><td></td><td>[SIGNATURE'S LINE DRAWN]</td></tr><tr><td></td><td>[SIGNATURE'S LINE DRAWN]</td></tr><tr><td></td><td>[SIGNATURE'S LINE DRAWN]</td></tr><tr><td></td><td>OPERATIONAL IMMEDIATE</td></tr><tr><td></td><td>[SIGNATURE'S LINE DRAWN]</td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr></tbody></table>
 
 15 October 1966
 

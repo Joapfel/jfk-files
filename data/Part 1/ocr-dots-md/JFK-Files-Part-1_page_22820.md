@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22820.png
-
-Convert to MarkdownAVEDISIAN, Sahag
+AVEDISIAN, Sahag
 
 Residence - Pawtucket, R.I.
 

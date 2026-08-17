@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1530.png
-
-Convert to MarkdownS-F-C-M-T
+S-F-C-M-T
 
 Combined Personnel Action In lieu of SF-52.
 

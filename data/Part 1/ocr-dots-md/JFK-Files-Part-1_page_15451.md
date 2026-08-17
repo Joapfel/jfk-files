@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15451.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET</td><td><table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>DATE :</td><td></td></tr><tr><td>TO :</td><td></td></tr><tr><td>FROM :</td><td></td></tr><tr><td>ACTION:</td><td></td></tr><tr><td>INFO :</td><td>LEOP 3885 IN 34623</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET</td><td><table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>DATE :</td><td></td></tr><tr><td>TO :</td><td></td></tr><tr><td>FROM :</td><td></td></tr><tr><td>ACTION:</td><td></td></tr><tr><td>INFO :</td><td>LEOP 3885 IN 34623</td></tr></tbody></table>
 
 LEOP VIEWS IN REF STILL VALID, PARTICULARLY IN VIEW PARA ONE ABOVE. W POSITION LEOP VERY WEAK. (HE BELIEVES HIS POSITION STRONG THOUGH ADMITS DOES LITTLE WORK.) VIEW MALIERE INVESTIGATION, BELIEVE URGENT KUBARK DO SOMETHING PREVENT W RETURN AS HE USING KUBARK FALSE DOCUMENTATION AND WE ALMOST CERTAIN BE INVOLVED IF HE ARRESTED.
 

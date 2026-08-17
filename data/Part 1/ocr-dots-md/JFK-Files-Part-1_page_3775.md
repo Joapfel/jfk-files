@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3775.png
-
-Convert to Markdown<table><thead><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td>30</td><td>clwHK005 ☑ RID COPY</td></tr><tr><td>16/8</td><td>FILE, JR C/WNG. c/c. 4/92</td></tr></tbody></table>
+<table><thead><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td>30</td><td>clwHK005 ☑ RID COPY</td></tr><tr><td>16/8</td><td>FILE, JR C/WNG. c/c. 4/92</td></tr></tbody></table>
 
 SECRET COPY MANAGUA 6153
 PRIORITY JMWAVE INFO DIRECTOR, PANAMA CITY

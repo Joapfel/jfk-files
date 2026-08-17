@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25276.png
-
-Convert to Markdown# CIA Sent a Bedmate To Kill Castro in '60
+# CIA Sent a Bedmate To Kill Castro in '60
 
 Fiorini gave her two capsules full of poison powder. She was told to sprinkle the powder in Castro's coffee.
 

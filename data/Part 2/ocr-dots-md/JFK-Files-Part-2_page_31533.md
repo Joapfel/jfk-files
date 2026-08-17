@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31533.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>1. NAME OF SUBJECT OR TITLE OF INCIDENT<br/>FROMER, David Reed<br/>SSvc Registrant, SSN: 564 58 8137<br/>DOB: 21 July 1942<br/>POB: Chicago, Illinois</td>
     <td>2. DATE SUBMITTED<br/>9 December 1966<br/><br/>3. CONTROL SYMBOL OR FILE NUMBER</td>

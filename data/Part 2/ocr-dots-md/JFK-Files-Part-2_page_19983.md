@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19983.png
-
-Convert to MarkdownA CALL TO ALL AMERICAN WOMEN who are outraged by the ruthless slaughter in Vietnam and the persistent neglect of human needs at home
+A CALL TO ALL AMERICAN WOMEN who are outraged by the ruthless slaughter in Vietnam and the persistent neglect of human needs at home
 
 Sponsors:
 

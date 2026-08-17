@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13195.png
-
-Convert to MarkdownSECRET
+SECRET
 
 282317Z FEB 68 CITE CARACAS 9025
 DIRECTOR

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5475.png
-
-Convert to MarkdownSECRET
+SECRET
 
 W.L. O'Brien
 104-10017-10042

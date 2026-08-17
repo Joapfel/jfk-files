@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1662.png
-
-Convert to Markdown2817 Conn. Ave. N.Y.
+2817 Conn. Ave. N.Y.
 
 January 12, 1952
 

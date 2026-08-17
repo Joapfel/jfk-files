@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10010.png
-
-Convert to MarkdownNR017 BS CODE
+NR017 BS CODE
 
 6:58 PM NITEL MARCH 25, 1975 MCC
 

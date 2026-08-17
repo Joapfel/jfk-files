@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24864.png
-
-Convert to MarkdownDuc and other Buddhist monks by stating that she would like to furnish mustard for the monks' barbecue. On June 12, Trueheart told Diem that Quang Duc's suicide had shocked the world and again warned that the United States would break with his government if he did not solve the Buddhist problem. (Pentagon Papers, p. 208.)
+Duc and other Buddhist monks by stating that she would like to furnish mustard for the monks' barbecue. On June 12, Trueheart told Diem that Quang Duc's suicide had shocked the world and again warned that the United States would break with his government if he did not solve the Buddhist problem. (Pentagon Papers, p. 208.)
 
 Lucien Conein, a CIA officer in Saigon,* testified that the Buddhist uprisings were the catalyst that ultimately brought down the Diem regime (Conein, pp. 42-44). These events led the United States to apply "direct, relentless, and tablehammering pressure on Diem such as the United States has seldom before attempted with a sovereign friendly government." (Mecklin, p. 169)
 

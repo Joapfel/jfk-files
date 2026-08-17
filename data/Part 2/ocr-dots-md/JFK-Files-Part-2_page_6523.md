@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6523.png
-
-Convert to MarkdownWhile we generally concur with the paper prepared by the Department of State, we do not believe that the proposals contained therein present a sufficiently wide spectrum of options or activities to impede and stop Castro/Communist subversion in Latin America.
+While we generally concur with the paper prepared by the Department of State, we do not believe that the proposals contained therein present a sufficiently wide spectrum of options or activities to impede and stop Castro/Communist subversion in Latin America.
 
 Specifically, we recommend the following additional actions:
 

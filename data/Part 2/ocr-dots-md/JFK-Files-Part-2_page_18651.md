@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18651.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>FOI/PA #</td>
     <td colspan="2">293 030</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_937.png
-
-Convert to Markdown# C. Type of Information Contained in the Files
+# C. Type of Information Contained in the Files
 
 Generally speaking, there are no limits as to the type of information in our files. The FBI, by the very nature of its jurisdiction and its worldwide reputation as an elite law enforcement agency, attracts information. In addition to being responsible for investigations relating to interstate criminal activity throughout the United States, the FBI is also responsible for the Internal Security of the United States. Any intelligence organization survives on information uncovered by investigation or received from other sources. Citizens write to the FBI regarding any matter which they feel is against the best interests of the United States or where they feel an individual or organization might be violating a law. The average citizen is not aware of the jurisdiction of the various investigative agencies, local, state or Federal and many of them bring their problems to the FBI. The FBI will promptly disseminate any matter which is under the jurisdiction of another agency to that agency. The nondisseminated information is either acted upon and filed, or filed because no action is required.
 

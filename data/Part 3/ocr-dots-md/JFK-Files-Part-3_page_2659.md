@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2659.png
-
-Convert to Markdown2503
+2503
 
 contemplation of this there would be some that will say yes or some that will say no, but I think we could define an area where you are trying to cure the abuses and we could do that.
 

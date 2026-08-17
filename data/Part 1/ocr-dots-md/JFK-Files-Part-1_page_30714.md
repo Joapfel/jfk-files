@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_30714.png
-
 s in the development and conduct of positive and CE operations targeted against China. Operations undertaken by the section were mounted from the field headquarters and three sub-stations. Specific duties involved day to day operational guidance of case officers; planning of both long and short range positive operations; the direct control and guidance of CE operations in both a positive sense and for doubled agent operations; the establishment of administrative procedures to accomplish operational objectives and personnel supervision.
 cont'd
 

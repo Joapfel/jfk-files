@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10981.png
-
-Convert to MarkdownJune 29, 1964
+June 29, 1964
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 142

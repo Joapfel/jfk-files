@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16615.png
-
-Convert to MarkdownFebruary 3, 1970
+February 3, 1970
 
 Mr. James Murray
 First Assistant State's Attorney

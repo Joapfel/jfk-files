@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3309.png
-
-Convert to MarkdownLa Habana,
+La Habana,
 5 do Octubre
 do 1964 "AÑO DE
 LA ECONOMIA"

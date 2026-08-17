@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7255.png
-
-Convert to MarkdownCONTACT REPORT
+CONTACT REPORT
 
 SUBJECT: LICORL-1
 DATE OF MEETING: 10 November 1968

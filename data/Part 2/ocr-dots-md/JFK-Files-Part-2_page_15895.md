@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15895.png
-
-Convert to Markdown# STUDENTS FOR A DEMOCRATIC SOCIETY
+# STUDENTS FOR A DEMOCRATIC SOCIETY
 
 emphasizes organizing and raising the political consciousness of the working class upon whom they feel successful revolution depends. Although disclaiming control and domination by the Communist Party, USA, leaders in these two factions have in the past proclaimed themselves to be communists and to follow the precepts of a Marxist-Leninist philosophy, along pro-Chinese communist lines.
 

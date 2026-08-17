@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5941.png
-
-Convert to Markdown18 December 1961
+18 December 1961
 
 MEMORANDUM FOR: The Record
 

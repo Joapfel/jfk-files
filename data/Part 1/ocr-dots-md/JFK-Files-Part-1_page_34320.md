@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34320.png
-
-Convert to MarkdownUSC Att. UFGA-23449
+USC Att. UFGA-23449
 
 7 Oct 65
 

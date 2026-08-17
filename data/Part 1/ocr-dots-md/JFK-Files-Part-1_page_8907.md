@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8907.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td colspan="2">C. W. COLLER<br>C/WH/2<br>6868</td></tr><tr><td>CC:</td><td>SECRET</td></tr><tr><td>SUBJECT:</td><td>MEXICO SANTIAGO</td></tr></table>
 

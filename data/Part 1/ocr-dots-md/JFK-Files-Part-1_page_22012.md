@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22012.png
-
 to NOSENKO
 in his code clerks activities. From this point on, NOSENKO,
 KOSOLAPOV, and GRYAZNOV shared the same KGB Headquarters

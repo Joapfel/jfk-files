@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26004.png
-
-Convert to Markdowndo something about all along. I've never
+do something about all along. I've never
 understood what it was, ... I've always
 felt that I was too inarticulate or hadn't
 found a way of doing things for myself, but

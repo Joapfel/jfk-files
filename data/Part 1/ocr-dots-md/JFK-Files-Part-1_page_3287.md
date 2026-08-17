@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3287.png
-
-Convert to Markdown14-00000
+14-00000
 
 The conference will consist of the conference of peoples consists of (21 January 1962) in Havana as a reply to the call of the State Conference)
 

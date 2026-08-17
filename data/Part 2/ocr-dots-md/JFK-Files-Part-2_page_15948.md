@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15948.png
-
-Convert to Markdownwhich are suburbs of Chicago, other than Rockford,
+which are suburbs of Chicago, other than Rockford,
 Illinois, which is located 90 miles northwest of
 Chicago, Illinois:
 

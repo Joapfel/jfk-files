@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25117.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>MC CONE, JOHN<br/>DIEM</td><td>5 Oct 1963</td><td>DIEM</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>MC CONE, JOHN<br/>DIEM</td><td>5 Oct 1963</td><td>DIEM</td></tr></table>
 
 **OCCURRENCE:** On October 5, 1963, MC CONE sent, to some locations, including SAIGON the following message: "Believe assassination discussions most careful handling. In general best line is no line so that it is clear that we are sticking to position of having no responsibility for actions of any of various contending Vietnamese groups. We certainly cannot be in the position of stimulating, approving, or supporting assassination, but on the other hand, we are in no way responsible for stopping every such threat of which we might receive even partial knowledge. We certainly would not favor assassination of DIEM. We believe in gaging ourselves by taking position on this matter opens door too easily for probes of our position re others, re support of regime, etc. Consequently, believe best approach is hands off. However, we naturally interested in intelligence on any such plan.—This message has been cleared with State Department."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21435.png
-
-Convert to MarkdownMEMORANDUM FOR: Director
+MEMORANDUM FOR: Director
 Federal Bureau of Investigation
 
 SUBJECT: Scram Spiridon PONORILYJ aka PONORILIW

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21923.png
-
-Convert to Markdown# C. Personal Affairs Since Entering the KGB
+# C. Personal Affairs Since Entering the KGB
 
 ## 1. Family Life
 

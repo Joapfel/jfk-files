@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22535.png
-
-Convert to Markdownsuggested I see him. Copp offered to take taped material
+suggested I see him. Copp offered to take taped material
 from me. My only other contact was a phone talk with him
 in March 1965.
 

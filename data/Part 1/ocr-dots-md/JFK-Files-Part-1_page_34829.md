@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34829.png
-
-Convert to MarkdownC. A lump sum arbitrary payment of $3,000 which would be a year's dependency at the highest rate (250 per month).
+C. A lump sum arbitrary payment of $3,000 which would be a year's dependency at the highest rate (250 per month).
 
 2. Obviously, the above recommendations as well as others proposed at various times in an effort to terminate this costly exercise were never acted on and due to the time lag are probably no longer practical. Tentative approaches to the problem were also made by exploring the possibility of working out some mechanism by which HEW could take over disbursements at a reduced rate and periodic rulings and guidance were requested from the General Counsel concerning the legal and security factors inherent in the proposals.
 

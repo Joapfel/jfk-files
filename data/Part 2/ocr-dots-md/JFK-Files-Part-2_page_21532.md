@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21532.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 before the 26/1953, and the material which appears above
 2 it which is tabbed SID G, tab 21.

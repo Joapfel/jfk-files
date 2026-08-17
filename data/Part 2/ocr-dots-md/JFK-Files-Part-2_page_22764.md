@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22764.png
-
-Convert to MarkdownHW
+HW
 
 TOP SECRET
 

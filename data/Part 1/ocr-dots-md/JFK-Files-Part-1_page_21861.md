@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21861.png
-
-Convert to Markdownthe circumstances... They may make me come In that case we can meet.
+the circumstances... They may make me come In that case we can meet.
 
 Case Officer:
 

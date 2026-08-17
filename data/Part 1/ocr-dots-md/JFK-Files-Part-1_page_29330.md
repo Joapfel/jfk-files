@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29330.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECTION C
 STATUS OF SERVICE AGREEMENT

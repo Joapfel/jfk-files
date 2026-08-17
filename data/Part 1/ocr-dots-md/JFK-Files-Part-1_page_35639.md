@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35639.png
-
-Convert to MarkdownCuando se suprimir un derecho no termina por suprimir todos los derechos, desoyendo la democracia.Los ideales y defienden con r zonas no con las armas.
+Cuando se suprimir un derecho no termina por suprimir todos los derechos, desoyendo la democracia.Los ideales y defienden con r zonas no con las armas.
 
 Soy un emigrante de la democracia.(enero 7, Declaración de Frensa.Habana) ...Y aunque sea en una carcel,y donde lo oigan 20 personas si no lo pueden oír 100,oseo hombro muy alegre su pensamiento,¿al quiereecer un minicgrafo una tesis política,cuál la informan y la reparta en la Universidad.,. sin que se lo lloven a la estación de policía...La toora político filósofica es quella (ideol)que le da al hombro todas les libertades y ademas le proórciona las satisfacciones de orden material.Era es nuestra doctrina revolucionaria.Todo lo demás,¿quiere que lo diga lo que es? Pretextos.(abril 2,Ante la Frensa.C.N.C.)
 

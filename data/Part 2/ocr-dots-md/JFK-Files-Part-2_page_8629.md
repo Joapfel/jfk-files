@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8629.png
-
-Convert to Markdown13-00000
+13-00000
 
 And I have to say in summary that
 I am very pleased with my relationship

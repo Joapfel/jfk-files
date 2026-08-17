@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14064.png
-
-Convert to MarkdownLegal Counsel to Mr. Adair's Home
+Legal Counsel to Mr. Adair's Home
 RL: NATHAN SELECT COUNSEL
 FOR THE COMMITTEE ON NATIONAL SECURITY
 

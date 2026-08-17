@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34283.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CFN
 : 8018 7819 6219 28 65 VRADYN I 15 DEC REF A TSIRIMOKOS GALBE

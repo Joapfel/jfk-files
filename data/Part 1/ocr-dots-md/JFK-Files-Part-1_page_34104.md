@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34104.png
-
-Convert to MarkdownNOV 24 1968
+NOV 24 1968
 
 BY THE CHURCH A. EDGAR
 ASSOCIATED PRESS WRITER

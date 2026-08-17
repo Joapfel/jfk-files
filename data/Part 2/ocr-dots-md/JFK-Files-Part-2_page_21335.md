@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21335.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Liaison Section
 Mr. Donahoe

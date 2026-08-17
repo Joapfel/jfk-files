@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25398.png
-
-Convert to MarkdownThe second meeting occurred a week or ten days later. At this point, Rosselli was instructed to proceed to New York for an introduction to the government official. He met both the first and second meetings asked for an hour or more, and various aspects of the proposed project were discussed but nothing was mentioned of specific techniques.
+The second meeting occurred a week or ten days later. At this point, Rosselli was instructed to proceed to New York for an introduction to the government official. He met both the first and second meetings asked for an hour or more, and various aspects of the proposed project were discussed but nothing was mentioned of specific techniques.
 
  coinciding
 

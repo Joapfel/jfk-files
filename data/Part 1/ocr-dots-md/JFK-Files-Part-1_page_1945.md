@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1945.png
-
-Convert to Markdownmention The Las Vegas Sun series but claimed that The Miami Herald and The Washington Post were both about to break stories linking INTERTEL with organized crime.
+mention The Las Vegas Sun series but claimed that The Miami Herald and The Washington Post were both about to break stories linking INTERTEL with organized crime.
 
 When Maheu hurriedly relinquished his palatial offices which occupied one whole wing of the Frontier Hotel in Las Vegas, according to Al Pease, he took ten or twelve packing crates of records with him. In his haste, however, he appeared to overlook a box of 3 x 5 cards that were cross references to some of these records. The INTERTEL investigation, under the guidance of (Pease) and the Hughes Tool Company attorneys, will undertake to establish as nearly as possible exactly what Maheu was doing with his time and with the Hughes fortune. The Hughes attorneys are proceeding on the basis that if Maheu in fact did have a "contract for life," as he contends, then the Hughes Tool Company was entitled to 100 per cent of his time and "true and faithful service." At the outset and without the records the INTERTEL staff hardly knew where to look or to begin since they suspected kickbacks, siphoning of money into foreign numbered bank accounts and the purchase of false mining claims, just to name a few.
 

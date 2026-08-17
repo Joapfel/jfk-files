@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25194.png
-
-Convert to Markdown# PERSONS/ENTITIES:
+# PERSONS/ENTITIES:
 
 LODGE
 Dept. ~~of State~~

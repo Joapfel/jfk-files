@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24269.png
-
-Convert to MarkdownIndeed, new proprietaries have been formed within the last
+Indeed, new proprietaries have been formed within the last
 several years.
 
 In terms of U.S. budgetary impact, Table I indicates that

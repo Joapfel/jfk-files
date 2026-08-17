@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6678.png
-
-Convert to Markdown# SECRETARIO
+# SECRETARIO
 
 23. En el caso de la Fuerente en que el no son la persona correspondiente para haberlo comprobado con la Sujeto, satisقا la Fuerente a alguna otra persona que prisiona conمع facilitarle para hacer contacto con la Sujeto para traer a cabo lo reclutamiento? Si es así, ¿cómo descripción completa de este sujeto y indíquese sus relaciones con el Sujeto a capotar.
 

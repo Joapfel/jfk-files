@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4086.png
-
-Convert to MarkdownLA 65-7445
+LA 65-7445
 
 JOHN resides in a boarding house at 817 South Catalina Avenue, Los Angeles. He is employed by the Hartford Insurance Company, 548 South Spring Street, Los Angeles.
 

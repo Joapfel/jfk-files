@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9499.png
-
-Convert to Markdownwithout boiling it, not to drink it under any circumstance except from paper cups, not to wash clothes in such water nor to bathe or shave with it and to take every precaution to protect themselves. Then proceed with item A and doctor the soup with a strong but harsh laxative which would not only serve a purpose in itself but would tend to bear out the rumor contained in item F.
+without boiling it, not to drink it under any circumstance except from paper cups, not to wash clothes in such water nor to bathe or shave with it and to take every precaution to protect themselves. Then proceed with item A and doctor the soup with a strong but harsh laxative which would not only serve a purpose in itself but would tend to bear out the rumor contained in item F.
 
 The committee was not in favor of items C or D unless it could be justified more logically and did not understand them as one item of item C. Dispatch 57-CPC U was examined and read with such gratification, 'be lists of names are being combed with lists which have been gathered here and recommendations will be sent to the field
 

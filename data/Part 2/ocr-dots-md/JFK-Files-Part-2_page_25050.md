@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25050.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 And the next thing we knew suddenly the President told
 Colonel Goodpastor to say that this was descended from the

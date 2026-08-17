@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15536.png
-
-Convert to Markdown2. Security Pla9s -
+2. Security Pla9s -
 
 A. During the latter part of Wl1 subject was arrested by the Ger-
 man police for forgery. He was not unduly held by the criminal investi-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10006.png
-
-Convert to MarkdownMr. J. Walter Tongley
+Mr. J. Walter Tongley
 Assistant Attorney General
 
 December 15, 1965

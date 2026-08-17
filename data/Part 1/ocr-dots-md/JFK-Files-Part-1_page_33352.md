@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33352.png
-
-Convert to Markdownall the other arguments revolve. Was he a genuine constitutionalist? Was he a true revolutionary? Was he—could he ever have been—both?
+all the other arguments revolve. Was he a genuine constitutionalist? Was he a true revolutionary? Was he—could he ever have been—both?
 
 Allende himself, of course, admitted no doubts. Repeatedly, he insisted that he was a revolutionary and a Marxist, and that he intended to establish at least the preconditions for what he told Régis Debray would be "total, scientific Marxist socialism." Equally repeatedly, he proclaimed his faith that he could achieve this end by constitutional means, through the ballot box and all it implied. That was, after all, to be the distinctive "Chilean road to socialism" of which so many people outside Chile cherished such high hopes.
 

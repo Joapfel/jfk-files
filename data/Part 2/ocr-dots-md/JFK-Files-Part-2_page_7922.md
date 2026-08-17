@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7922.png
-
-Convert to Markdown13-00000
+13-00000
 
 OFFICE OF THE DIRECTOR
 

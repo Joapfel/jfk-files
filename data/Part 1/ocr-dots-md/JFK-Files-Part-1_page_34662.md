@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34662.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 from a Spaniard (Nicanor FERNANDEZ) in Buenos Aires, urging MIRC
 to go to Buenos Aires to arouse anti-Castro sentiment of the people,

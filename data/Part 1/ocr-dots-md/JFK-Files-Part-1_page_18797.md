@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18797.png
-
-Convert to Markdown# JOB DESCRIPTION
+# JOB DESCRIPTION
 
 ## Junior Intelligence Officer
 

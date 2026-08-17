@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30380.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C. Steps were taken immediately by the German Station after the downing of the C-118 to change the combinations of the safes and locks in the buildings to which the crew had access.
 

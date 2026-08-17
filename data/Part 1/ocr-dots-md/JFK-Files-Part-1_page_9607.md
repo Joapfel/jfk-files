@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9607.png
-
-Convert to Markdown: Chief of Mission, Mexico City
+: Chief of Mission, Mexico City
 
 : Chief, AID
 

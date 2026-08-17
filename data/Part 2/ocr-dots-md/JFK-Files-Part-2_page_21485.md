@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21485.png
-
-Convert to MarkdownSECRET/NO FOREIGN DISSEM
+SECRET/NO FOREIGN DISSEM
 
 FEB 16 72 4:44 PM '73
 

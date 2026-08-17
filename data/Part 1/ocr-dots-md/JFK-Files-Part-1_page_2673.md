@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2673.png
-
-Convert to Markdown(TOP SECRET)
+(TOP SECRET)
 
 (AMERICAN EMBASSY SECTION - ca. 1953-June 1955)
 

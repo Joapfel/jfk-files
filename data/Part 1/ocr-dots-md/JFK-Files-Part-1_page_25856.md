@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25856.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA
 (Signature or Sea Port)

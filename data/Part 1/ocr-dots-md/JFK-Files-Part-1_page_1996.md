@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1996.png
-
-Convert to MarkdownPHILLIPS, Maria Louise
+PHILLIPS, Maria Louise
 
 0-626272
 

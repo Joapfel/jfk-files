@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20562.png
-
-Convert to MarkdownNR 094 WF CODE
+NR 094 WF CODE
 
 850 PM NITEL 11-20-71 ALM
 

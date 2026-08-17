@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9938.png
-
-Convert to MarkdownSupplemental Agreement No. W-1 to the Delimitations Agreement
+Supplemental Agreement No. W-1 to the Delimitations Agreement
 
 Investigation of Reserve and Civilian Components of the Armed Services
 

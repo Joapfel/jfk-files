@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13531.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section B: Credit Record -->
         <tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23611.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PROPERTY OF
 THE WHITE HOUSE OFFICE

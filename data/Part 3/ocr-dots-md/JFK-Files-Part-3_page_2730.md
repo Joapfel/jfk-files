@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2730.png
-
-Convert to Markdown1926
+1926
 
 problem today, we are an investigative agency. We do not
 have police powers like the United States marshalls do.

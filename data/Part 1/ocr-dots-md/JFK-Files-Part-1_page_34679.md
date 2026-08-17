@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34679.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>OMO: T. Smith</td>
     <td></td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8844.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Edward C. Tichnor
 

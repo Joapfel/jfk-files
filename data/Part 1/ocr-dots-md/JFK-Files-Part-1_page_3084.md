@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3084.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DBIO:</td>
     <td>GLENN HUNT/rbo</td>

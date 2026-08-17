@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21953.png
-
-Convert to MarkdownD. June 1955 to January 1960 (Tourist Department)
+D. June 1955 to January 1960 (Tourist Department)
 
 # 1. Introduction
 

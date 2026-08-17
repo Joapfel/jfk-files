@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9478.png
-
-Convert to Markdown23. Check with Metrat Way and Dietjen about "Hidelio" performance.
+23. Check with Metrat Way and Dietjen about "Hidelio" performance.
 
 24. Check with Miklós about the Steinplatz park.
 

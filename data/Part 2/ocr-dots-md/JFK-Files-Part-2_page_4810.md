@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4810.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTERVIEWER: That was their solution.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8338.png
-
-Convert to MarkdownV. LOGUINOV
+V. LOGUINOV
 
 Alto, de figura atlética, muy bien parecido. Un tipo físico muy ruso.
 

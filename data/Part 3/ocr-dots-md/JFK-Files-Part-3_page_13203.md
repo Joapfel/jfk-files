@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13203.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 for an airstrike on Cuba which would have destroyed the six remaining combat planes that were available to Castro; second, the order that there be no air cover for the invading brigade. The result was that the invading force was chopped up while it was still in the water; the ships carrying the armored vehicles were sunk, as were the supply ships, and the troops were left abandoned on the shore. The remnant of the Cuban Air Force was entirely adequate to demolish the invasion fleet.
 

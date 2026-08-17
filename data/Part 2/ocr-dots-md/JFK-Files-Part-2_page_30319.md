@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30319.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 up to death. And each one was helped with work. Both were
 assigned with some type of research work where they had given

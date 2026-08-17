@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19985.png
-
-Convert to Markdown**Section 3. Comments of Reviewing Official:**
+**Section 3. Comments of Reviewing Official:**
 
 This employee had no qualifications for assignment in the German desk or
 German operational field. He was carried in the German Branch in a

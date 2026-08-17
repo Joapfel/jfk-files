@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13856.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>SECRET<br/>(When Filled In)</td></tr><tr><td>TDCS -3/537,168</td></tr></table>
 

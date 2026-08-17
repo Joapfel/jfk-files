@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18101.png
-
-Convert to Markdown# Rear Admiral Rufus L. Taylor
+# Rear Admiral Rufus L. Taylor
 
 NOTE:
 

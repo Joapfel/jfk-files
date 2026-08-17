@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6875.png
-
-Convert to Markdownthan 70% of the documents that have come before it on appeal from agency
+than 70% of the documents that have come before it on appeal from agency
 decisions to keep those same documents classified.
 
 * Original classification decisions, the actions most akin to new secrets, have decreased to historic lows.

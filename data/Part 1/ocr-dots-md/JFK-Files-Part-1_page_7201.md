@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7201.png
-
-Convert to Markdown2.
+2.
 
 Loginov tried again: "A good friend of yours was appointed Chief of the U.S. Travel Service - Paul Giedro - he's a friend of yours?"
 

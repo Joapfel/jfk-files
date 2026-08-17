@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6431.png
-
-Convert to Markdownall of the points which were hoped to be obtained by the formation of Identity 1, and since this would constitute an obviously undesirable complication of effort, approximately ten of the "strike leaders" indicated that they would give their support to CAIDAIT or other existing organizations rather than to the new group. (The German language report of the CAIDAIT meeting is forwarded under separate cover as Attachment "A")
+all of the points which were hoped to be obtained by the formation of Identity 1, and since this would constitute an obviously undesirable complication of effort, approximately ten of the "strike leaders" indicated that they would give their support to CAIDAIT or other existing organizations rather than to the new group. (The German language report of the CAIDAIT meeting is forwarded under separate cover as Attachment "A")
 
 5. On 21 July 1953, a special meeting of various West Berlin government and resistance group representatives was called to discuss the feasibility and desirability of encouraging the formation of Identity 1. With few exceptions, all of the major organisations expressed the view outlined in paragraph 3 above. The suggestion was officially voiced that the members of Identity 1 should lend their support to existing organisations. (A German language report of this meeting prepared by the CAIDAIT representative is forwarded under separate cover as Attachment "B")
 

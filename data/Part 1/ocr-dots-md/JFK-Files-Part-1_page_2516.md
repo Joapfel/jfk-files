@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2516.png
-
-Convert to Markdownwhen FEDOSEYEV succeeded KLYPIN, and notes he had prepared for lectures to the Seventh Directorate. According to NOSENKO, he did not intentionally take the particular paper pertaining to microphones; it was just in the group of notes he took along when he went to the Seventh Department.
+when FEDOSEYEV succeeded KLYPIN, and notes he had prepared for lectures to the Seventh Directorate. According to NOSENKO, he did not intentionally take the particular paper pertaining to microphones; it was just in the group of notes he took along when he went to the Seventh Department.
 
 In consideration of the above explanation by NOSENKO, it should be noted that he also brought with him in 1964 his notes for the briefing of FEDOSEYEV and certain notes he obviously had also prepared while in the First Section; e.g., his notes for a lecture to the Seventh Directorate in regard to a "mass surveillance" on the American Embassy.
 

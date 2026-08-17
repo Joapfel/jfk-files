@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31778.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Official Personnel Folder
 

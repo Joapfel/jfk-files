@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19504.png
-
-Convert to Markdownof the Orange County Courthouse, in downtown Santa Ana,
+of the Orange County Courthouse, in downtown Santa Ana,
 California, January 15, 1968. About half of these women were
 dressed in black and they were carrying signs indicating they
 represented the JRB. Other signs being carried during the ensuing

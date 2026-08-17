@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4750.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: ...that Bill had no choice at that point. I've talked to John about this, I listened to his argumentation. I'm no lawyer. And I still find it hard that something couldn't have been done about that.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17193.png
-
-Convert to Markdowntarget can be provided. During the 9-month period from 1 November 1965 through 30 July 1966, the LIMITED base provided 3,775 frames of operational photographs. In addition, the LIMITED base provided over 1,000 pages of physical surveillance reports.
+target can be provided. During the 9-month period from 1 November 1965 through 30 July 1966, the LIMITED base provided 3,775 frames of operational photographs. In addition, the LIMITED base provided over 1,000 pages of physical surveillance reports.
 
 ## 2. LILYRIC
 

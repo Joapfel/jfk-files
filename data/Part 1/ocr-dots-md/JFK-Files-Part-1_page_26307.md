@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26307.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 24 Oct. 62 Prensa Latina
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20204.png
-
-Convert to MarkdownNOV 18 1971
+NOV 18 1971
 
 TELETYPE
 

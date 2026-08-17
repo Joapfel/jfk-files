@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6939.png
-
-Convert to Markdown1
+1
 
 # ANALYSIS AND COMMENTS
 

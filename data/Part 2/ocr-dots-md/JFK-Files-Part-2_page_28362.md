@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28362.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">OFFICIAL SUPERIOR'S REPORT OF INJURY OR OCCUPATIONAL DISEASE</td>
     </tr>

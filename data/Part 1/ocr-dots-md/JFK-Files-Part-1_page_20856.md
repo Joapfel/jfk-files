@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20856.png
-
-Convert to Markdown9. Upon termination of your cover employment or activity, you will revert to normal staff employee status, unless for good and sufficient cause, such as misconduct or demonstrated incompetence, each variation would be opposed to the best interest of the Government.
+9. Upon termination of your cover employment or activity, you will revert to normal staff employee status, unless for good and sufficient cause, such as misconduct or demonstrated incompetence, each variation would be opposed to the best interest of the Government.
 
 10. If in the performance of your cover service, you assume the custody of Government funds or take title of record to, property of any nature whatsoever situate which property has in fact been purchased with monies of the U. S. Government, you hereby recognize and acknowledge the existence of a trust relationship, either express or constructive, and you agree to execute whatever documents may be required by the Government to evidence this relationship.
 

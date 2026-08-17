@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3485.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 9. Mr. McCone then turned to a discussion of Cuba and stated that he was giving the Special Group this afternoon a study showing the results of 51 days' reconnaissance over Cuba and that this was disturbing when the four principal targets were analyzed. There were 59 occasions when weather precluded any readout of what was going on in these four Soviet military camps. Some of the camps were not seen for five or six days in a row and in one instance for as long as 12 successive days. Mr. McCone then read from the memorandum on reconnaissance over Cuba dated 23 April 1963 and said he would provide the Board with a copy.
 

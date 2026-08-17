@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20464.png
-
-Convert to Markdownand unconstitutional infringement of their First Amendment rights to assembly, free speech and the right to petition their government for a redress of grievances.
+and unconstitutional infringement of their First Amendment rights to assembly, free speech and the right to petition their government for a redress of grievances.
 
 Upon informing the Capitol Police of their planned march to the Capitol building to present their petition, the women were threatened with arrest under 40 U.S.C. 193 (a) et seq. which, after defining the area considered Capitol Grounds, states:
 

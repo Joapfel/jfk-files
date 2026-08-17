@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23715.png
-
-Convert to MarkdownFor this paragraph, that he review and that he advise the
+For this paragraph, that he review and that he advise the
 President and the committee if in his opinion any of these
 practices violate the Constitutional rights of American citizens
 or any other laws.

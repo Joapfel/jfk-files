@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35200.png
-
-Convert to MarkdownDemocratic Revolutionary Front
+Democratic Revolutionary Front
 
 Miami, Florida
 

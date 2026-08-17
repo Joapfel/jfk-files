@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14365.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG:</td><td>CARL LUNSFORD</td></tr><tr><td>UAD:</td><td>WH COG/OPS</td></tr><tr><td>L: 71-11 R.</td><td>1819</td></tr><tr><td>DATE:</td><td>30 JUNE 1970</td></tr></table>
 

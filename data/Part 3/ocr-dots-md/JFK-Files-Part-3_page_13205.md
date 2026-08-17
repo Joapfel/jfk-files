@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13205.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 On November 22, 1963, he and his wife were driving on H Street at about 9th in Washington, D. C., when he turned the car radio on and learned that the President had been shot. He and Mrs. Hunt had been shopping in a Chinese grocery store in that immediate vicinity, immediately prior to their getting into the car. The Hunts lived at 5215 Balton Road, Sumner, Maryland. On their way home they drove to the Sidwell Friends school on upper Wisconsin Avenue and picked up their younger daughter, Kevan. Kevan told them that Robert and Courtenay Kennedy, children of Attorney General Robert Kennedy, were students in the same school and had been picked up by the Secret Service. The children in the school knew that the President had been shot.
 

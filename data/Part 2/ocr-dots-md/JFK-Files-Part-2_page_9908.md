@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9908.png
-
-Convert to MarkdownDN: 47-3190
+DN: 47-3190
 
 3.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19077.png
-
-Convert to Markdownthat the GOVERNMENT IS NOT INTENDING TO ASSIST ANY OF THE STATES OR TERRITORIES IN THE PROCEEDINGS.
+that the GOVERNMENT IS NOT INTENDING TO ASSIST ANY OF THE STATES OR TERRITORIES IN THE PROCEEDINGS.
 
 12. IT IS DEDICATED IN RELATION TO THE REVOLUTIONARY PARTY WITH RESPECT TO GRANTS, SELLERS, ETC., OF THE GOVERNOR'S FUND FOR THE PUBLIC PURPOSES OF THE STATE; IT IS DESIRED THAT THIS ADDITIONAL GRANT MAY BE SO做的 as will give it a good chance of being adopted by the General Assembly. It is desired that this grant may be given to the State in such amount as will, with other grants, pay for all the expenses of the革命ist party, including a great expense of革命ist party expenses, during the life of the present Assembly. In consideration of this, it is agreed that the Governor and his agents will take care that the taxes on the property of any person who shall have been made a resident of the State by reason of this grant, are not paid until they shall become due, whether or not they become due under any law, and that this grant may be used for all purposes except those which the General Assembly may hereafter authorize by its laws, subject to such conditions and limitations as to time and place as the General Assembly may from time to timehereafter establish, and also to such other conditions and limitations as to time and place as the General Assembly may from time to time hereafter make known to them.
 

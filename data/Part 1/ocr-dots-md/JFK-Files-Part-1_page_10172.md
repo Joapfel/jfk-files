@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10172.png
-
-Convert to Markdown<table><tr><td>DATE: 5 JAN 63</td></tr><tr><td>TO: DIRECTOR</td></tr><tr><td>FROM: MEXICO CITY</td></tr><tr><td>ACTION: TFW 10</td></tr><tr><td>INFO: DOP, CI, CI/OPS, CI/OA, FI, FI/INT 2, WH 7, S/C 2</td></tr></table>
+<table><tr><td>DATE: 5 JAN 63</td></tr><tr><td>TO: DIRECTOR</td></tr><tr><td>FROM: MEXICO CITY</td></tr><tr><td>ACTION: TFW 10</td></tr><tr><td>INFO: DOP, CI, CI/OPS, CI/OA, FI, FI/INT 2, WH 7, S/C 2</td></tr></table>
 
 CLASSIFIED MESSAGE
 

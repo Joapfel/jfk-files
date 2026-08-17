@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25140.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td></tr><tr><td>STRATEGIC HAMLET PROGRAM</td><td rowspan="3">1962</td></tr><tr><td>NGO DINH NHU</td></tr><tr><td>MINISTER OF THE INTERIOR-GOVERNMENT OF VIETNAM, COLBY, HARKINS</td></tr><tr><td>WESTMORELAND, GENERAL</td><td>CATEGORIES:</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td></tr><tr><td>STRATEGIC HAMLET PROGRAM</td><td rowspan="3">1962</td></tr><tr><td>NGO DINH NHU</td></tr><tr><td>MINISTER OF THE INTERIOR-GOVERNMENT OF VIETNAM, COLBY, HARKINS</td></tr><tr><td>WESTMORELAND, GENERAL</td><td>CATEGORIES:</td></tr></table>
 
 **OCCURRENCE:** CONEIN stated that: "In 1962 COLBY assigned him to work with the MINISTER OF THE INTERIOR OF THE GOVERNMENT OF VIETNAM to be responsible for liaison between CIA and the MINISTER on a program called THE STRATEGIC HAMLET PROGRAM. The idea for this program was that of NHU, the President's brother and counsellor, which was to establish security within hamlets and villages in order to allow the people could deny access of food and taxes to the VIET CONG. In this position, CONEIN was able to travel quite extensively under the auspice of the MINISTRY OF THE INTERIOR, and to talk to the unit commanders down to and including small sections." p. 17. CONEIN. "This was done with the permission of GENERAL HARKINS and it was known to GENERAL WESTMORELAND when WESTMORELAND took over." p. 18.
 

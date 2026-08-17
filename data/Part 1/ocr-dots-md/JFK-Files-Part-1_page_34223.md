@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34223.png
-
-Convert to Markdowntion of Castro and the change in Indonesia. Castro and his have been defeated by the Kremlin.
+tion of Castro and the change in Indonesia. Castro and his have been defeated by the Kremlin.
 
 December 11, 1965: "We Forecast The Failure of the Fortcoming Sugar Harvest". We go back to the subject of the Cuban "zafra" on the basis of Castro's June &th statements, when he pledged the reconstruction of the Cuban sugar industry, the erection of a modern new sugar mill in the Cauto River valley, and a 6.5 million ton sugar harvest. What has been accomplished? The Cuban sugar industry is still in chambler, there is no new mill in the Cauto valley, and Castro, with pretexts and lies, is already attempting to justify that there will be no 6.5 million tons of sugar.
 

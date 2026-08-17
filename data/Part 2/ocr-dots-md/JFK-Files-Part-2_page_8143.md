@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8143.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 BASIC :
 

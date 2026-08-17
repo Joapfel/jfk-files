@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17228.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to the Station in the form of rental of safe-quarters, counter-surveillance, and procuring and servicing letter drops. The Division feels that both aspects of the project are worthwhile to the station's activities. It considers that the project is now operating at optimum size and does not plan to expand. In the coming period efforts will be made to refine and better use the existing organizational arrangements.
 

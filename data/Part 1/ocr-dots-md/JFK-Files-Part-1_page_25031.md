@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25031.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 2 MEXICO CITY 2565 SECRET
 

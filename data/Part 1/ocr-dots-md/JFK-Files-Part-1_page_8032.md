@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8032.png
-
-Convert to Markdown<table><tr><td>VIA: AIR<br>(Original is in red)</td><td>DISPATCH NO. SCS-A-634</td></tr><tr><td colspan="2"><table><tr><td style="text-align:center; font-weight:bold;">SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table></td></tr><tr><td>TO : Chief, MI</td><td>DATE : 21 FEB 1954</td></tr><tr><td colspan="2">FROM : Chief of Mission, Habana.</td></tr><tr><td>SUBJECT: GENERAL- Operational specific- Report of Revolutionary Preparations in Central America Against Cuban Government</td><td></td></tr><tr><td>REF: HKH-W-525</td><td></td></tr></table>
+<table><tr><td>VIA: AIR<br>(Original is in red)</td><td>DISPATCH NO. SCS-A-634</td></tr><tr><td colspan="2"><table><tr><td style="text-align:center; font-weight:bold;">SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table></td></tr><tr><td>TO : Chief, MI</td><td>DATE : 21 FEB 1954</td></tr><tr><td colspan="2">FROM : Chief of Mission, Habana.</td></tr><tr><td>SUBJECT: GENERAL- Operational specific- Report of Revolutionary Preparations in Central America Against Cuban Government</td><td></td></tr><tr><td>REF: HKH-W-525</td><td></td></tr></table>
 
 1. No additional information concerning alleged plans of the Caribbean Legion to attack the Batista government has been received by the Mission. The latest available information regarding revolutionary activities against that government is contained in HKH-678.
 

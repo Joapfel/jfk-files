@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8542.png
-
-Convert to Markdown27 April 1977
+27 April 1977
 
 MEMORANDUM FOR: Deputy Director for Operations
 

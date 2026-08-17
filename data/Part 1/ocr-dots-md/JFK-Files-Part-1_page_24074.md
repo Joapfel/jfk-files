@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24074.png
-
-Convert to MarkdownBRITISH VISA GRANTED
+BRITISH VISA GRANTED
 
 On 10 April 68, I was finally granted a British visa,
 without restrictions, valid until 15 Feb. 1969. No

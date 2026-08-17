@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6166.png
-
-Convert to Markdown1 - Mr. Glascock
+1 - Mr. Glascock
 1 - Mr. Schultz
 
 SAC, Philadelphia (100-21984)

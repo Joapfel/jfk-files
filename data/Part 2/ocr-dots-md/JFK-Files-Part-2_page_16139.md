@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16139.png
-
-Convert to MarkdownDate 1/31/70
+Date 1/31/70
 
 On the early afternoon of January 28, 1970,
 

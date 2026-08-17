@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19115.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 **NAME:** JAFFE, Samuel Adison
 **DATE/POB:** 19 June 1926; Unknown

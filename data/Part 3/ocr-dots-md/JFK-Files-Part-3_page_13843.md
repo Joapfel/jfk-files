@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13843.png
-
-Convert to Markdown4. Josef Hokes, former Czech Ambassador to Mexico, plays an important role in Cuba's revolutionary activity in Latin America.¹ He is allegedly connected in Peru with Hugo Blanco, a revolutionary leader who lives in the mountains of Cuzco, to whom he has sent economic assistance and armaments. He is said to have carried out similar actions for Alljo de Fleitas, a priest and guerrilla leader of Brazil.²
+4. Josef Hokes, former Czech Ambassador to Mexico, plays an important role in Cuba's revolutionary activity in Latin America.¹ He is allegedly connected in Peru with Hugo Blanco, a revolutionary leader who lives in the mountains of Cuzco, to whom he has sent economic assistance and armaments. He is said to have carried out similar actions for Alljo de Fleitas, a priest and guerrilla leader of Brazil.²
 
 5. Invasions are not contemplated as a part of the revolutionary program in Latin America unless there are first internal uprisings. These could possibly be carried out, because equipment for such uprisings is already stored in strategic places.
 

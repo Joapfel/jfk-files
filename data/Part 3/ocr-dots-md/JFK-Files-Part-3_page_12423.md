@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12423.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 "Q. What about efforts to disrupt the political campaign of Senator Andrew Young?
 

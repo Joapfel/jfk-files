@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10372.png
-
-Convert to MarkdownARGUETA, LUIS BARRIOS
+ARGUETA, LUIS BARRIOS
 
 35-4-134-7
 HGGA-1558

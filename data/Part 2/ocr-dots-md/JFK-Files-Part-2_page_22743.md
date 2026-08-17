@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22743.png
-
-Convert to Markdown1. they don't have the penetrations in the opposition against whom you run the double.
+1. they don't have the penetrations in the opposition against whom you run the double.
 
 2
 

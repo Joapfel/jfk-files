@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3081.png
-
-Convert to MarkdownReferences: A. NARA-19,706, 7 March 1968
+References: A. NARA-19,706, 7 March 1968
 B. BURBOS AIRRES 0679, 24 May 1968
 C. BURBOS AIRRES 0707, 29 May 1968
 

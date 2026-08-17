@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5066.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MHFNO: 92-0797918 SENSIND:
 

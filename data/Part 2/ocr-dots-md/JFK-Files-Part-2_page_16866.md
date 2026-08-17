@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16866.png
-
-Convert to Markdown3 PMURGENT 12-10-69
+3 PMURGENT 12-10-69
 
 DIRECTOR
 JIM CHICAGO

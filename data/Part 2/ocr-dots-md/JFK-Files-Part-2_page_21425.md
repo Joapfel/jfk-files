@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21425.png
-
-Convert to MarkdownHW 50953 DocId:32339240 Page 49
+HW 50953 DocId:32339240 Page 49
 
 DANGER - AMERICAN AGENT AT WORK....
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16288.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CONTRIBUTION BY DC-COM
 # Intelligence Information Cable

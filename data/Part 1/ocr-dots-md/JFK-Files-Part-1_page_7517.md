@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7517.png
-
-Convert to Markdownbeen in close contact with E. E. Kitch when the latter was in China also lived in this building in the early 1930s. An apartment 509.
+been in close contact with E. E. Kitch when the latter was in China also lived in this building in the early 1930s. An apartment 509.
 
 After her arrival in China, Viola RUBINSON ISAACS was employed at the DaH Cung Middle School, and by November 1933 was reported as a teacher at the Comparative Law School in Shanghai.
 

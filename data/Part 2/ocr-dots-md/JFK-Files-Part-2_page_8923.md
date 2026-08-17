@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8923.png
-
-Convert to MarkdownAccording to a sensitive source, in response to a question whether NOSENKO actually defected or whether the defection might be a KGB "trick", the source replied that from his own knowledge of this matter, he was convinced that NOSENKO's defection was not a "trick" by the KGB.
+According to a sensitive source, in response to a question whether NOSENKO actually defected or whether the defection might be a KGB "trick", the source replied that from his own knowledge of this matter, he was convinced that NOSENKO's defection was not a "trick" by the KGB.
 
 ## 22 February 1964
 

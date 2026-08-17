@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7166.png
-
-Convert to MarkdownCOPIE MADE
+COPIE MADE
 
 The C.O. asked Subj how he signed up Lominov. Subj said he wanted more time to formulate his impressions, but noted that Lominov is not "tonto", speaks aloud, and uses the soft approach.
 

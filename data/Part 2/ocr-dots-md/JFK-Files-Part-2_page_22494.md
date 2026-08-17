@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22494.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SSC1</td><td>Box 221</td><td>Folder-10</td></tr></table>
 

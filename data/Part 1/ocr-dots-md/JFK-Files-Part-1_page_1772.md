@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1772.png
-
-Convert to MarkdownHEADQUARTERS
+HEADQUARTERS
 
 OS DATE
 L.A. DATE

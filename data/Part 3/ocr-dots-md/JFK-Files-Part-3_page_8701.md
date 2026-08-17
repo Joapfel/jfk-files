@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8701.png
-
-Convert to Markdown25. In December 1974 the Internal Revenue Service suspended the operation of IGRS pending an internal review of the system. Was this review prompted by concern that non-tax-related materials were being gathered, compiled, and stored in IGRS? If so, please furnish the Committee with all files, names, and other information contained in IGRS files which is non-tax related.
+25. In December 1974 the Internal Revenue Service suspended the operation of IGRS pending an internal review of the system. Was this review prompted by concern that non-tax-related materials were being gathered, compiled, and stored in IGRS? If so, please furnish the Committee with all files, names, and other information contained in IGRS files which is non-tax related.
 
 26. Has the Internal Security Division of the Internal Revenue Service, or any other division of the Internal Revenue Service, ever investigated any aspects of the intelligence gathering, compilation, storage, and dissemination procedures of the Internal Revenue Service? If so, please identify and describe all such investigations and describe any subsequent action taken by the Internal Revenue Service as a result of the investigation.
 

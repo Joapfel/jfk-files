@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24510.png
-
-Convert to MarkdownLA TRIBUNA"
+LA TRIBUNA"
 
 Lima, Viernes 13 de Junio de 1969
 

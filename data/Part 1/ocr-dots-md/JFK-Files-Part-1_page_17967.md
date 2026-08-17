@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17967.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONTINUATION OF<br/>DISPATCH</td>
     <td>SECRET/ HMMA-19641<br/>1922</td>

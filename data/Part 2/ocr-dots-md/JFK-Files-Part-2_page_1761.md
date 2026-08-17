@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1761.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td rowspan="2">FITNESS REPORT</td><td>EMPLOYEE SERIAL NUMBER</td></tr><tr><td>010032</td></tr></table>
 

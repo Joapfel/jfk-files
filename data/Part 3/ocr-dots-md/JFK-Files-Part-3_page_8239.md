@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8239.png
-
-Convert to Markdown<table><tr><td>Executive Res.</td></tr><tr><td>75-2019</td></tr></table>
+<table><tr><td>Executive Res.</td></tr><tr><td>75-2019</td></tr></table>
 
 UNITED STATES SENATE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2378.png
-
-Convert to MarkdownMEDICAL CLEARANCE
+MEDICAL CLEARANCE
 
 (CIVILIAN)
 

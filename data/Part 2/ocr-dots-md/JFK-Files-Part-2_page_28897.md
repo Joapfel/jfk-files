@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28897.png
-
-Convert to Markdown11. Indicate by (✓) whether your marriage to the deceased was performed by: Clergyman or authorized public official ☑, or Other ☐
+11. Indicate by (✓) whether your marriage to the deceased was performed by: Clergyman or authorized public official ☑, or Other ☐
 (Explain)
 
 12. Were you married before your marriage to the deceased? .. . .

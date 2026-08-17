@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10630.png
-
-Convert to Markdownhave had deterring effect on the klan. For example,
+have had deterring effect on the klan. For example,
 the Texarkana Klavern has not held a klavern meeting
 as such since that time. One Little Rock member has
 dropped out as a result of being interviewed; and,

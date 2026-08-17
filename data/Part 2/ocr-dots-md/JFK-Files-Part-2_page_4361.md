@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4361.png
-
-Convert to MarkdownWEDNESDAY
+WEDNESDAY
 
 1
 MARC

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3498.png
-
-Convert to Markdownwasn't there a similar danger now and that there seemed to be a general
+wasn't there a similar danger now and that there seemed to be a general
 euphoria and a feeling of success. Mr. McCone said there was a great
 danger inherent in Cuba. The SAM sites were still there as well as many
 other things. He said a week ago Monday he had brought this up forcefully

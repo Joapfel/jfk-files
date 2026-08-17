@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34153.png
-
-Convert to MarkdownCOMITE PRO 20ICOT EMPRESARIAL
+COMITE PRO 20ICOT EMPRESARIAL
 Management Boycott Committee
 
 P. O. BOX 3900

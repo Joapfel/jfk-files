@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13616.png
-
-Convert to Markdown101. ✓ Entrada.- HP pregrama por ROGELIO RODRIGUES. SIGUIRÁN.
+101. ✓ Entrada.- HP pregrama por ROGELIO RODRIGUES. SIGUIRÁN.
 
 que tiene el lunes.- 104.-
 

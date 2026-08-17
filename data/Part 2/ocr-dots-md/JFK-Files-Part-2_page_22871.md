@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22871.png
-
-Convert to Markdown1. Mr. Bundy. And that is the MONGOOSE programs.
+1. Mr. Bundy. And that is the MONGOOSE programs.
 
 2. Mr. Schwarz. In connection with the MONGOOSE program, you had some dialogue about the Attorney General which was quite extensive. Let me ask you one additional question on that subject. What was the relationship personally and professionally between the Attorney General and General Maxwell Taylor?
 

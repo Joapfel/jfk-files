@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3863.png
-
-Convert to MarkdownFORM 8-03
+FORM 8-03
 
 610 USE PREVIOUS
 EDITIONS

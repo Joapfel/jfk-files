@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8803.png
-
-Convert to Markdownseparated from the other prisoners.
+separated from the other prisoners.
 
 AMYUM Operation 19-132-32
 

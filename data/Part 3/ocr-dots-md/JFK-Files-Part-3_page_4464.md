@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4464.png
-
-Convert to MarkdownPH 92-444
+PH 92-444
 
 As previously set out a lead was outstanding to contact JOHNNY ROCCO for interview regarding his connection with ANGELO BRUNO in disposing of Cuban currency. It is pointed out that ROCCO has not been interviewed because of active investigation of him for violations of ITSMV and ITSP Statutes. Process is outstanding in the EDPA on ROCCO for these violations and he will be interviewed at the earliest possible date when the interview will not interfere with other investigation.
 

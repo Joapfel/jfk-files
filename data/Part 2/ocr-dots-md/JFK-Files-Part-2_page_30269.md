@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30269.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 for KGB to know about such base -- that base. We knew it
 in '50's when I worked in GRU at the Navy, in 1950, '51, '52.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19465.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>SECTION D</td>
     <td colspan="2">NARRATIVE COMMENTS</td>

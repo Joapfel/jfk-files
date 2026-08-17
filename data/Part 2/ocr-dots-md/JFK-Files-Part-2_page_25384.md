@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25384.png
-
-Convert to Markdownsuggestion as to how best to serve him with a subpoena);
+suggestion as to how best to serve him with a subpoena);
 
 (2) Detectives Wolf and Zatrepallek -- Dade County Sheriff's Office, telephone number 305-547-7456 (they are the detectives investigating the Rosselli murder for the locals). (I have been putting them off about whether they can have access to the transcripts -- you need to talk to Bill Miller and Gary about this);
 

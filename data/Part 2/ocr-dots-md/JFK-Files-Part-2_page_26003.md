@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26003.png
-
-Convert to Markdownhaving quite a bit of an advisory role with
+having quite a bit of an advisory role with
 
 our military commanders out there, and influence
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31427.png
-
-Convert to Markdowncannot come to the United States to continue their studies at graduate schools here, because most of them are chargeable-to-heavily oversub- scribed quotas.
+cannot come to the United States to continue their studies at graduate schools here, because most of them are chargeable-to-heavily oversub- scribed quotas.
 
 Our work here in the National Committee for a Free Europe is essentially psychological. Our associates in Radio Free Europe, the Division of Exile Relations, etc., cannot do efficient, effective or productive work when they are constantly being harrassed by officials of the Immigration Service. When their stay in the United States is on a day to day basis they cannot devote their full energies to the work for which they came to this country. While it is true that most of them intend to return to the country of their origin when Communist domination is overthrown there, they must have some assurance that they can remain peacefully here until that moment. Therefore, it would seem appropriate that some provision be made in the immigration laws that students and temporary visitors in the United States be allowed to adjust their status to that of temporary, if not permanent, residence in the United States.
 

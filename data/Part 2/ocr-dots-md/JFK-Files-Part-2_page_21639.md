@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21639.png
-
-Convert to Markdown119
+119
 
 military attache. And those instructions went down. Apparently it would appear that there might be something here where they are going to bring in more people, as is known to several persons, it says down here.
 

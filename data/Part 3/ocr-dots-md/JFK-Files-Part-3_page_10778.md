@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10778.png
-
-Convert to MarkdownBASIC INTELLIGENCE. is that factual intelligence which results from the collation of encyclopedia information of a fundamental and more or less permanent nature and which, as a result of evaluation and interpretation, is determined to be the best available.
+BASIC INTELLIGENCE. is that factual intelligence which results from the collation of encyclopedia information of a fundamental and more or less permanent nature and which, as a result of evaluation and interpretation, is determined to be the best available.
 
 BIOGRAPHIC INTELLIGENCE is intelligence concerning individuals.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7561.png
-
-Convert to MarkdownMay 5, 1975
+May 5, 1975
 
 MEMORANDUM
 

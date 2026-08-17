@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23480.png
-
-Convert to Markdownthere were one man or two, CIA would have to maintain its own organizational integrity.)
+there were one man or two, CIA would have to maintain its own organizational integrity.)
 
 There then ensued a lengthy examination of qualifications and availability of a number of individuals. It was finally decided that, taking all things into consideration, including the aspect of quick availability, Ambassador Willauer would probably be the best choice. On the CIA side, Mr. Dulles nominated Mr. Barnes. It was recognized that these nominees would have to be checked with Mr. Gray's associates.
 

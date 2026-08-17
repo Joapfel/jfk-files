@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24908.png
-
-Convert to Markdown-28-
+-28-
 
 was ever made aware of the true nature of the underworld
 operation, and virtually certain that it continued into

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4637.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 2. Will conduct all possible investigation with use of highly confidential Bureau techniques to establish whether subject has any connection with the slot machines or gambling equipment that was aboard the 'Orange Sun".
 

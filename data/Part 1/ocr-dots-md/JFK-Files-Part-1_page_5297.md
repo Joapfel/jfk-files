@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5297.png
-
-Convert to MarkdownSUBJECT: Clement Joseph Cuneo
+SUBJECT: Clement Joseph Cuneo
 
 secretary. Through a misunderstanding, however, Charles did not attend the dinner but went to New York instead.
 

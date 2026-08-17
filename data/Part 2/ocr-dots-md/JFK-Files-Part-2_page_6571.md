@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6571.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. Provocations or auto provocations. Contrived operations can be undertaken however, it appears preferable to capitalise on real provocations which occur almost daily in some form. Through political and psychological handling many of these real provocations can be developed into provocation acts.
 

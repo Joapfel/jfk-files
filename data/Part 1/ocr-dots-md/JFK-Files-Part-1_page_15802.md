@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15802.png
-
-Convert to Markdown30 rue Cabanis
+30 rue Cabanis
 Paris 14
 
 Dear Dat (Eduardo)

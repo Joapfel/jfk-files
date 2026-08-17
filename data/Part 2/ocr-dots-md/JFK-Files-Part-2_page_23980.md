@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23980.png
-
-Convert to MarkdownI think the meeting of September 15th has to be seen in the context of two previous meetings of the 40 Committee on September 8th and September 14th in which the 40 Committee was asked to look at the pros and cons and the problems and prospects of a Chilean military coup to be organized with United States assistance.
+I think the meeting of September 15th has to be seen in the context of two previous meetings of the 40 Committee on September 8th and September 14th in which the 40 Committee was asked to look at the pros and cons and the problems and prospects of a Chilean military coup to be organized with United States assistance.
 
 (Kissinger testimony, p. 5)
 

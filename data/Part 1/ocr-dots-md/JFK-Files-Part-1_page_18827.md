@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18827.png
-
-Convert to MarkdownSF: 2 DEC 68
+SF: 2 DEC 68
 
 SECRET
 (When Filled In)

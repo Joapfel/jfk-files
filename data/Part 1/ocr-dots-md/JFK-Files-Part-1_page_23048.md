@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23048.png
-
-Convert to Markdown<table><tr><td>SECR&#127;</td></tr><tr><td>(When filled in.)</td></tr><tr><td></td></tr><tr><td>CASE TO BE FILED NO.</td></tr><tr><td></td></tr><tr><td>FILE, VR</td></tr><tr><td>Milo, Eubal, Sales. F.J.</td></tr></table>
+<table><tr><td>SECR&#127;</td></tr><tr><td>(When filled in.)</td></tr><tr><td></td></tr><tr><td>CASE TO BE FILED NO.</td></tr><tr><td></td></tr><tr><td>FILE, VR</td></tr><tr><td>Milo, Eubal, Sales. F.J.</td></tr></table>
 
 SECRET: MILITARY OF CITY MADE A CREDIT ACCOUNT
 

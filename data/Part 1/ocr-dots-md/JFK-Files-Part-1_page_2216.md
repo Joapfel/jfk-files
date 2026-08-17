@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2216.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>NAME / (LAST KNOWN ADDRESS)</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4716.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTERVIEWER: Tenacious?
 

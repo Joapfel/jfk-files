@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8360.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. Any questions pertaining to this information may be referred to Mr. William Hopkins on extension 8641.
 

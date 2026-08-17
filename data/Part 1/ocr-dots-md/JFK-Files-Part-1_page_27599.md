@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27599.png
-
-Convert to MarkdownSTANDARD FORM G1 (REVISED APRIL 1, 1980)
+STANDARD FORM G1 (REVISED APRIL 1, 1980)
 PROMulgated By civil service commission
 CHAPTER A of FEDERAL PERSONNEL MANUAL
 

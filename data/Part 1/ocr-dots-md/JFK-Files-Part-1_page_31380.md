@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31380.png
-
-Convert to MarkdownJuly 8, 1952
+July 8, 1952
 
 Note: Nelson please deliver this to Allen.
 

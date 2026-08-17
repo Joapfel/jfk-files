@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13953.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM 610a USE PREVIOUS
 1-63 EDITIONS

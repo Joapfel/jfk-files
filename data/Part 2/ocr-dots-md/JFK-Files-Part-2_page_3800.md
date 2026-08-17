@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3800.png
-
-Convert to MarkdownCOPIES TO: Mr. D. R. McCurdy
+COPIES TO: Mr. D. R. McCurdy
 District Manager-Corporate Security
 Ohio Bell Telephone Company
 1000 Erieview Plaza

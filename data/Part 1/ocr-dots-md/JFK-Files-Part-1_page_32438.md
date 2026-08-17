@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32438.png
-
-Convert to MarkdownSECRET
+SECRET
 
 regulations of your cover facility except when you are directed for op-
 erational reasons to perform travel in accordance with the regulations

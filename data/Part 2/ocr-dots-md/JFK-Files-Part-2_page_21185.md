@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21185.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 He stated that [GARCIA] was also present and presumably was intimate with SVETLANA. He related that he and [ZWANG] had also met three Russian girls in SARWAT's apartment but were not intimate with them. (This is inconsistent with data set forth on page 198 of the CIA paper.)
 

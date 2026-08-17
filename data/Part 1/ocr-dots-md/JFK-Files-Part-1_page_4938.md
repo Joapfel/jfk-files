@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4938.png
-
-Convert to Markdown<table><tr><td>107-122</td></tr></table>
+<table><tr><td>107-122</td></tr></table>
 
 SECRET 2114542 OCT 76 STAFF
 

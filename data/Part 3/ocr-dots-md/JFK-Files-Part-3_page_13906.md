@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13906.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Directive Relating to Transmittal of Information to the
 Watch Committee of the United States Intelligence Board

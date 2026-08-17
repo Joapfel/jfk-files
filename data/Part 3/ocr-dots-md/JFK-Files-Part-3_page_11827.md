@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11827.png
-
-Convert to Markdownresiding on the China mainland, thereby creating a hostage situation which could be used as a lever by the Chicomes to gain cooperation.
+residing on the China mainland, thereby creating a hostage situation which could be used as a lever by the Chicomes to gain cooperation.
 
 It is felt desirable at this time to revamp our instructions regarding reinterviews of Chinese aliens in cases where a hostage situation exists. At the present time, our policy is to reinterview a Chinese alien two years after the initial interview. It is felt that these instructions should be modified to require that a second interview of a Chinese alien having members of his immediate family in Red China should occur one year after the initial interview.
 

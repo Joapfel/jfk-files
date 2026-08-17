@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_19870.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th></th><th>PROCESSING</th><th>ed</th></tr></thead><tbody><tr><td colspan="2"></td><td>SECRET/~~C~~</td><td></td><td colspan="2"></td></tr><tr><td>TO</td><td colspan="5">Chief, WH Division</td></tr><tr><td>INFO.</td><td colspan="5">Chief, SB Division</td></tr><tr><td>FROM</td><td colspan="5">Chief of Station, Mexico City <del>C</del> <ins>C</ins></td></tr><tr><td>SUBJECT</td><td colspan="5">Annual Fitness Report - Sandra B. CAZAZZUS</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td><td colspan="5"></td></tr><tr><td colspan="6"><div>1. Attached are copies of an Annual Fitness Report on Sandra B. CAZAZZUS.</div> <div>2. CAZAZZUS and her husband make a good and efficient team on the duties assigned to them.</div></td></tr><tr><td colspan="6">Willard C. CURTIS <br> any suited to: <br> CWO/CXG, 11 Feb 69 <br> DC/WHD, 17 Feb 69 <br> W/HA, 7 <br> W/H Contracts, 18 Feb 69 <br> CPD 19 FEB 1969</td></tr><tr><td>CROSS REFERENCE TO</td><td>DISPATCH STATION AND NUMBER<br/>FMIMT-9523</td><td>DATE<br/>29 January 1969</td></tr><tr><td></td><td>CLASSIFICATION<br/>SECRET/<del>~~C~~</del></td><td>NBS FILE NUMBER</td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3756.png
-
-Convert to Markdown14-0000
+14-0000
 
 # Artime Invita a Revolución Cristiana
 

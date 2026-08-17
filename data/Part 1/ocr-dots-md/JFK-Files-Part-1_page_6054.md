@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6054.png
-
-Convert to MarkdownCerca de la Universidad, cheverría también una exisora de radio para llamar a Revolución, pero fue capturado por la policía, y fuzilado en el mes. A mediados de febrero, únicamente así que él halló ordo al Directorio su lema: "Los estudiantes cotidianos no teme el fúnebre". En otro momento, fueron del directorio irradiaron en la boîte Kontartre en la Habana, y metieron al Jefe del Servicio de Inteligencia militar de Batalla.-
+Cerca de la Universidad, cheverría también una exisora de radio para llamar a Revolución, pero fue capturado por la policía, y fuzilado en el mes. A mediados de febrero, únicamente así que él halló ordo al Directorio su lema: "Los estudiantes cotidianos no teme el fúnebre". En otro momento, fueron del directorio irradiaron en la boîte Kontartre en la Habana, y metieron al Jefe del Servicio de Inteligencia militar de Batalla.-
 
 ## BOBAS Y LA MINA DE GOLDFILLEROS:
 

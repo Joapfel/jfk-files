@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3159.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>Conatus et consuetudines habitatque</td></tr><tr><td>Circa nequaquaque censuitur quod sibi ait</td></tr><tr><td>No ... 16</td></tr><tr><td>Et ad hanc de present pacem et regnem</td></tr><tr><td>Jussu et al. 15</td></tr><tr><td>M. 14</td></tr><tr><td>I. 12</td></tr></table>
 

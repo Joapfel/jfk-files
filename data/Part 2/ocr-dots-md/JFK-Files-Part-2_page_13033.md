@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13033.png
-
-Convert to MarkdownSECRET 2 - Mr. J. A. Mintz
+SECRET 2 - Mr. J. A. Mintz
 (1 - J. B. Hotis)
 1 - Mr. W. R. Wannall
 1 - Mr. W. O. Cregar

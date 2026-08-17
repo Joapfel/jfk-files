@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21760.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 FILE
 N. B.

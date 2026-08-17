@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24088.png
-
-Convert to MarkdownSECRET
+SECRET
 
 20 December 1967
 (C-2929)

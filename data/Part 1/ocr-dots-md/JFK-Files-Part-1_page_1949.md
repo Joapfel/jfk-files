@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1949.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 SECRET
 
 4. One source of Tyler's income has been the Agency. He has been utilized by Central Cover Staff, the Office of Security and the Office of General Counsel to my knowledge. I do not think he has been heavily involved in operations, but rather has furnished backstopping and safehouse support. On at least one occasion I raised the question as to whether we were not using Tyler too much. In view of your interest I have asked for a summary of our association with Tyler.

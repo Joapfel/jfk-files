@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6423.png
-
-Convert to MarkdownThe Assassination Records Review Board was established by the JFK Act, which was signed into law by President George Bush. The five members of the Board were appointed by President Clinton, confirmed by the U.S. Senate, and sworn in on April 11, 1994. The law gives the Review Board the mandate and the authority to identify, secure, and make available all records related to the assassination of President Kennedy. It is the responsibility of the Board to determine which records are to be made public immediately and which ones will have postponed release dates.
+The Assassination Records Review Board was established by the JFK Act, which was signed into law by President George Bush. The five members of the Board were appointed by President Clinton, confirmed by the U.S. Senate, and sworn in on April 11, 1994. The law gives the Review Board the mandate and the authority to identify, secure, and make available all records related to the assassination of President Kennedy. It is the responsibility of the Board to determine which records are to be made public immediately and which ones will have postponed release dates.
 
 The Review Board consists of the following members:
 

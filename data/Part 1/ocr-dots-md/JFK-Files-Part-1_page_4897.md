@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4897.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="4">FOM 820<br>9/16/76</td>

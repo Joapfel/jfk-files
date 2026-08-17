@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21410.png
-
-Convert to MarkdownCG 105-10280
+CG 105-10280
 
 SECRET
 

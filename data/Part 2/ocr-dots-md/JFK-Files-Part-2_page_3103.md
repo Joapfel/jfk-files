@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3103.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 request for overflight photo coverage of the islands offshore of Cuba. The decision on this matter was taken up, not only with the Air Force, but also with J. Lampton Berry of the Department of State.* Although the authorization and plan for these overflights, presumably by the U-2, antedated the shootdown of Francis Gary Power's U-2 in the Soviet Union, it was recorded that:
 

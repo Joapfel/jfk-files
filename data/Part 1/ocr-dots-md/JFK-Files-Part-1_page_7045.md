@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7045.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In Oriente Provinco and who is a close associate of Dr. Rane VALLEJO, a key adviser to CASTRO and two, the recent social cultivation of the VASLOUCHES by an officer of the Soviet Embassy. The facts developed on the second subject are as follows: For several years VASLOUCH/2 had been contacted at the Brazilian Embassy by Valentine S. LOGUINOV, an attaché at the Soviet Embassy. These contacts took place every two or three months when LOGUINOV would bring visa requests from his Embassy. The last of these business contacts was in February of this year.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9447.png
-
-Convert to MarkdownACTION: cooking the hammer each time being. Cock the hammer and then pull the
+ACTION: cooking the hammer each time being. Cock the hammer and then pull the
 
 action: Just pulling the trigger each
 at cooking the hammer first. Try not to

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21191.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 by the British. In 1961 discussions were held regarding checking of the American cottage as well as the American Embassy.
 

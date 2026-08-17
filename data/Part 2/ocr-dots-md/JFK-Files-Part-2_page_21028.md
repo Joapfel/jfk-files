@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21028.png
-
-Convert to MarkdownSECRET
+SECRET
 
 It is requested that [clearance be granted] for the Cuban alien to furnish this data to his Cuban principal. [S]
 

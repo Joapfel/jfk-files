@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11696.png
-
-Convert to Markdown# PROGRAM
+# PROGRAM
 COMMUNIST COVERAGE ALONG THE MEXICAN BORDER
 
 BOCOV

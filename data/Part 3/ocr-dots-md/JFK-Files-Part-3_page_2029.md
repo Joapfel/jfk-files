@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2029.png
-
-Convert to MarkdownTELETYPE
+TELETYPE
 ROUTINE
 EFTO
 FM DIRECTOR (62-117290)

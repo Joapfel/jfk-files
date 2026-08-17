@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15123.png
-
-Convert to MarkdownENCLOSURE
+ENCLOSURE
 
 <table>
    <thead>

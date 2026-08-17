@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1291.png
-
-Convert to Markdownto develop and exploit current OAS and Latin American attitudes favorable to the containment and/or overthrow of the Castro-communist regime.
+to develop and exploit current OAS and Latin American attitudes favorable to the containment and/or overthrow of the Castro-communist regime.
 
 2. Assist State in the development of post-Castro concepts, leaders, and political groups.
 

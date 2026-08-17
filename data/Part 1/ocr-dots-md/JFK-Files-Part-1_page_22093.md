@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22093.png
-
-Convert to Markdown(b) Number and Locations of Microphones
+(b) Number and Locations of Microphones
 
 The information from NOSENKO on the number and locations
 of the KGB microphones in the chancery building in the U.S.

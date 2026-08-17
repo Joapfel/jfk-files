@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1713.png
-
-Convert to MarkdownMarch 18,1961
+March 18,1961
 
 To: Mr. Jack Kennedy
 WH/L/Security

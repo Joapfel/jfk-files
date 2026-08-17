@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_212.png
-
-Convert to MarkdownRamparts
+Ramparts
 
 53 English Speaking Union* San Francisco, Cal.
 54 English Speaking Union, Chicago Branch* Chicago, Ill.

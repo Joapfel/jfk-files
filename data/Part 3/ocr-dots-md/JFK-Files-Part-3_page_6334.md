@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6334.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO :Mr. J. B. Adams
 FROM :Legal Counsel

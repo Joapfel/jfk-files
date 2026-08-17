@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10771.png
-
-Convert to MarkdownBARRY JAMES MUSI was apprcheied at approximately 4:35 a.m., as he stood in the east corner of Saint Paul's Church, 422 Market Street. MUSI was orally advised on an constitutional right to remain silent and as such, was in the standard advice of rights form (FD-395), by SA JOHN H. STODDARD, JR., who identified himself as a Special Agent of the Federal Bureau of Investigation (FBI).
+BARRY JAMES MUSI was apprcheied at approximately 4:35 a.m., as he stood in the east corner of Saint Paul's Church, 422 Market Street. MUSI was orally advised on an constitutional right to remain silent and as such, was in the standard advice of rights form (FD-395), by SA JOHN H. STODDARD, JR., who identified himself as a Special Agent of the Federal Bureau of Investigation (FBI).
 
 MUST be taken to the U. S. Federal Building, 401 Market Street, for processing. At this location, he was apprised or his rights by SA STODDARD, and he was given the opportunity to read the form entitled, "Interrogation; Advice of Rights", (FD-395). MUSI was requested to read a portion of this form aloud, however he declined to do so. MUSI admitted that he understood the meaning and content of the form, and he said that he did not want to make a statement or answer any questions until he had the opportunity to consult an attorney.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21877.png
-
-Convert to Markdown26 January 1964: In a three-and-a-half hour meeting, NOSENKO emphasized that although he agreed that it was necessary and useful for him to remain in place until the GRIBANOV visit to Geneva, he wanted to defect as soon as possible thereafter.
+26 January 1964: In a three-and-a-half hour meeting, NOSENKO emphasized that although he agreed that it was necessary and useful for him to remain in place until the GRIBANOV visit to Geneva, he wanted to defect as soon as possible thereafter.
 
 28 January 1964: NOSENKO reported that GRIBANOV might not be coming to Geneva after all, for KGB Chairman SEMICHASTNYY was apparently reluctant to permit him to travel beyond Vienna. NOSENKO said that he would probably have definite information on GRIBANOV's trip by the end of the week.
 

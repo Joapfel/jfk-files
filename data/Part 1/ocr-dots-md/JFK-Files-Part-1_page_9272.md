@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9272.png
-
-Convert to MarkdownLetter from Shub to Sims, 26 Sept. 1950:
+Letter from Shub to Sims, 26 Sept. 1950:
 
 "...On the picture book: I am following your idea of trying
 to get a working draft done myself, with a clear story and a tentative

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6740.png
-
-Convert to MarkdownMr. W. G. Sullivan
+Mr. W. G. Sullivan
 
 R. J. Davy Gardner
 

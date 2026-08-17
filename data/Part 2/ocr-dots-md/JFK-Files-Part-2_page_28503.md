@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28503.png
-
-Convert to MarkdownEmployment (continued)
+Employment (continued)
 
 Assistant Chaplain, 1961-1962
 Berks County Prison

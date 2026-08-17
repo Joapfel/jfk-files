@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7277.png
-
-Convert to Markdownfurnishing documents to the committees be authorized to excise from
+furnishing documents to the committees be authorized to excise from
 those documents, prior to presentation, the names of their personnel
 as well as those of other individuals whose safety or individual privacy
 may be jeopardized by disclosure. This would include names of

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30932.png
-
-Convert to Markdown14-00009
+14-00009
 
 The following table provides a summary of the Company's operations for the year ended December 31, 2022 (in thousands of dollars except share and per share data):
 

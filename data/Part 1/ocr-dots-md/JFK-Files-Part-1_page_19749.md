@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19749.png
-
-Convert to Markdown4 September 1959
+4 September 1959
 
 MEMORANDUM FOR: Acting Deputy Director of Security
 (Investigations and Support)

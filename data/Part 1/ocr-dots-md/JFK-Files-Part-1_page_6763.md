@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6763.png
-
-Convert to Markdown140090
+140090
 
 <table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>Datum: FEB 12 1957</td></tr><tr><td>Date: 2-12-1957</td></tr><tr><td>TO: S.C. WOODRUFF, MDS</td></tr></table>
 

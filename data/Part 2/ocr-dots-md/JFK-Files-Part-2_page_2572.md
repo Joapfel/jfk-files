@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2572.png
-
-Convert to MarkdownSECRET
+SECRET
 
 I am aware of the fact that the Central Intelligence Agency,
 by reason of the sensitive nature of its work, must observe very

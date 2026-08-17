@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14501.png
-
-Convert to Markdown<table><thead><tr><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td>This document is prepared in response to your request and is not for dissemi-<br/>your Committee and the content may not be disclosed to any unauthorized person.<br/>Please see our express approval of the FBI.</td><td>APPROVED: __________</td><td>Sent __________ Per __________</td><td>Special Agent in Charge</td></tr></tbody></table>
+<table><thead><tr><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td>This document is prepared in response to your request and is not for dissemi-<br/>your Committee and the content may not be disclosed to any unauthorized person.<br/>Please see our express approval of the FBI.</td><td>APPROVED: __________</td><td>Sent __________ Per __________</td><td>Special Agent in Charge</td></tr></tbody></table>
 
 FBI
 

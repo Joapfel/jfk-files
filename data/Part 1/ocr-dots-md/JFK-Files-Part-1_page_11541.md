@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11541.png
-
-Convert to MarkdownGuatemala. 17/11/63
+Guatemala. 17/11/63
 
 Carlos,
 

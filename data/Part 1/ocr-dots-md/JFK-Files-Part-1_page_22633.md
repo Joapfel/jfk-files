@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22633.png
-
-Convert to Markdown9. Finally, the following persons are friends and relatives that at different times have been given a business card or informed of it:
+9. Finally, the following persons are friends and relatives that at different times have been given a business card or informed of it:
 
 Mr. & Mrs. L.B. Crosier
 Longmont RR #1 Box 243

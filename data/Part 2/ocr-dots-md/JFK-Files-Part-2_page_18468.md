@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18468.png
-
-Convert to Markdown6. What limits, if any, have been placed on the type of information which informants have been trusted to report back to the FBI?
+6. What limits, if any, have been placed on the type of information which informants have been trusted to report back to the FBI?
 
 7. What have been the annual percentage of potential informants who became paid informants in connection with security, intelligence, and counterintelligence matters, cases, and programs from 1960 until the present?
 

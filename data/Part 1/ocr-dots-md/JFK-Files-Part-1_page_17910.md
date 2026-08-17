@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17910.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA AIR
 (Special Air Mail pouch)

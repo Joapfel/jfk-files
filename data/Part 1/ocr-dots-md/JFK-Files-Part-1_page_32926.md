@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32926.png
-
-Convert to MarkdownMiguel:
+Miguel:
 
 In the last years of the revolutionary process we have been in contrary positions and, at times, our acts have affected your decisions to oppose us by serving third interests. The struggle has had its ups and downs, but without a doubt, the weight is now in our favor.
 

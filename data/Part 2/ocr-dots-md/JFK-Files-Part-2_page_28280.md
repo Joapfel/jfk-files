@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28280.png
-
-Convert to MarkdownU.S. House of Representatives
+U.S. House of Representatives
 OFFICE OF THE CLERK
 
 OFFICE OF FINANCE

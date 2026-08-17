@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25244.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Lansdale</td><td rowspan="2">Afternoon<br/>11/1/63</td><td rowspan="2">Diem</td></tr><tr><td>Lodge Colby</td></tr><tr><td colspan="3">OCCURRENCE:</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Lansdale</td><td rowspan="2">Afternoon<br/>11/1/63</td><td rowspan="2">Diem</td></tr><tr><td>Lodge Colby</td></tr><tr><td colspan="3">OCCURRENCE:</td></tr></table>
 
 TOP SECRET
 

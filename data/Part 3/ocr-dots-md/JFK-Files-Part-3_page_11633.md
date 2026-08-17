@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11633.png
-
-Convert to MarkdownSECURITY INFORMANT. PROGRAM
+SECURITY INFORMANT. PROGRAM
 HEM:cb 8/19/71
 
 At the time of last inspection in January, 1971,

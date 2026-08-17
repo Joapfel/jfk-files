@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24641.png
-
-Convert to Markdownthat he could proceed with the plan that was his top priority:
+that he could proceed with the plan that was his top priority:
 
 NO REALLY AIRTIGHT OP POSSIBLE WITH ASSETS
 NOW AVAILABLE. MUST CHOOSE BETWEEN CANCELLING

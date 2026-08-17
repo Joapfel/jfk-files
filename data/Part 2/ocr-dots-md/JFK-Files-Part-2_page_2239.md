@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2239.png
-
-Convert to Markdown19 April 1950
+19 April 1950
 
 TO : Violet Pitts, Personnel Div, North Building
 FROM : H. E. Eleanor, Employees Div, "L" Building

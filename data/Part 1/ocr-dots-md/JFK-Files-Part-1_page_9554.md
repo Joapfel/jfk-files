@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9554.png
-
-Convert to Markdown9. Why are we apprehensive? Is there a possibility that the west German youth would follow the cp line?
+9. Why are we apprehensive? Is there a possibility that the west German youth would follow the cp line?
 
 11. Considering (9) in the light of (11) I would think that it would serve US interests to fly into Berlin students now in the western zones who have fled their former eastern German homes. These students, oriented towards the West, might best serve our propaganda interests. Dialect speaking to dialect, etc.
 

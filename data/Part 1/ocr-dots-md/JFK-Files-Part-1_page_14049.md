@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14049.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 152249Z
 KNGS INFO DIR CITE WAVE 0246

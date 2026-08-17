@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24600.png
-
-Convert to Markdown<table><thead><tr><th>CABLE SECRETARIAT DISSEMINATION</th><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td colspan="3">PERSON/UNIT NOTIFIED</td></tr><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td><td>SLOTTEO ☐</td></tr><tr><td>BY: __________ AT: __________</td><td></td><td>2</td></tr><tr><td>DISTRIBUTION PER __________</td><td>SB 8</td><td>3</td></tr><tr><td>ACTION</td><td>RID COPY ☐</td><td>5</td></tr><tr><td>INFO:</td><td>FILE.VR. RILAN, WH8, F12, C1, CHOPS, C1/C2</td><td></td></tr></tbody></table>
+<table><thead><tr><th>CABLE SECRETARIAT DISSEMINATION</th><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td colspan="3">PERSON/UNIT NOTIFIED</td></tr><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td><td>SLOTTEO ☐</td></tr><tr><td>BY: __________ AT: __________</td><td></td><td>2</td></tr><tr><td>DISTRIBUTION PER __________</td><td>SB 8</td><td>3</td></tr><tr><td>ACTION</td><td>RID COPY ☐</td><td>5</td></tr><tr><td>INFO:</td><td>FILE.VR. RILAN, WH8, F12, C1, CHOPS, C1/C2</td><td></td></tr></tbody></table>
 
 SECRET 241715Z APR 69 CITE BOGOTA 2075 BOGO
 

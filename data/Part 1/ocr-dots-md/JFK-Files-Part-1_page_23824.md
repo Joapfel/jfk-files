@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23824.png
-
-Convert to Markdown**PERSONAL RECORD QUESTIONNAIRE**
+**PERSONAL RECORD QUESTIONNAIRE**
 
 /PRQ/
 

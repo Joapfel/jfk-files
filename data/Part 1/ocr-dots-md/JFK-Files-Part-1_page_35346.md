@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35346.png
-
-Convert to Markdown# Consolidation of the A.M. Statements
+# Consolidation of the A.M. Statements
 
 STATEMENT "A"
 LINE No. 2

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9598.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 the membership lists on microfilm was for easy destruction. Two lists were to be maintained to guard against the possibility of one being lost or destroyed.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5866.png
-
-Convert to Markdown27 October 1997
+27 October 1997
 
 MEMORANDUM FOR THE RECORD
 

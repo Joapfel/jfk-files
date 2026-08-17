@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16251.png
-
-Convert to Markdown# IV. Guard Duty
+# IV. Guard Duty
 
 ## 1. Why
 

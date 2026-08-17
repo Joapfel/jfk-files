@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21218.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 DL3: 27 APR 65

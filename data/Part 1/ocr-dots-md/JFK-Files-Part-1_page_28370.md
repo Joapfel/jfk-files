@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28370.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, Finance Division
 FROM : Contract Personnel Division

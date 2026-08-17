@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26449.png
-
-Convert to Markdown<table><tr><td>SECRET</td></tr></table>
+<table><tr><td>SECRET</td></tr></table>
 
 <table><tr><td>COUNTRY</td><td>CUBA/MEXICO/COSTA RICA/NICARAGUA/ PANAMA/VENEZUELA/BRAZIL</td><td>REPORT NO.</td><td>TDCS 3/563,671</td></tr><tr><td>SUBJECT</td><td>TRAVEL AND MISSION OF ALLEGED CUBAN AGENT IN CENTRAL AND SOUTH AMERICA</td><td>DATE DIST.</td><td>31 OCTOBER 63</td></tr><tr><td></td><td></td><td>PRIORITIES</td><td>PRIORITY</td></tr><tr><td colspan="2">REFERENCES</td><td colspan="2">IN 50142</td></tr><tr><td>DATE OF INFO.</td><td>20-22 OCT 63</td><td>TDCS 3/563,137</td><td>47784</td></tr><tr><td>PLACE IS</td><td>PARANA, PARIANA CITY (24 OCT 63)</td><td>TDCS 3/562,790</td><td>49213</td></tr><tr><td>APPRaisal</td><td></td><td>FIELD REPORT NO.</td><td></td></tr></table>
 

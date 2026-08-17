@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23346.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">CONTRACT INFORMATION AND CHECK LIST</td></tr><tr><td>INSTRUCTIONS: Complete all items, inserting "NA" when items are not applicable. Forward original and copy for preparation of contract.</td><td>CASE OFFICER<br/>James B. Noland<br/><br/>TELEPHONE EXTENSION<br/>2056, 2971<br/><br/>DIVISION<br/>HR/III<br/><br/>DATE<br/>30 January 1957</td></tr></table>
 

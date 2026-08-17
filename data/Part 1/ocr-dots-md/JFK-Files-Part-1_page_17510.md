@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17510.png
-
-Convert to MarkdownEven now with the shift of operational emphasis to Station operations support,
+Even now with the shift of operational emphasis to Station operations support,
 it is thought significant to include a list of HMM's produced through April
 1962 (10 months of the project year) as a by-product in the LIFEAT operation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24845.png
-
-Convert to Markdownbut Wimert insisted that the kidnapping be completed before he paid the money. (Task Force Log, 20 October) At the same time General Valenzuela assured Colonel Wimert that the military was now prepared to move. (Task Force Log, 20 October) The second abduction attempt on the 20th also failed and the Task Force concluded
+but Wimert insisted that the kidnapping be completed before he paid the money. (Task Force Log, 20 October) At the same time General Valenzuela assured Colonel Wimert that the military was now prepared to move. (Task Force Log, 20 October) The second abduction attempt on the 20th also failed and the Task Force concluded
 
 Since Valenzuela's group is apparently having considerable difficulty executing even the first step of its coup plan, the prospects for a coup succeeding or even occurring before 24 October now appears remote. (Task Force Log, 22 October)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26901.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>PERSO.NAL INFORMATION</td>
         <td>REPT. A-1, p. 65, 1947</td>

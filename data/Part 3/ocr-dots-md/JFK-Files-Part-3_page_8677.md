@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8677.png
-
-Convert to Markdown1 - Mr. W. R. Wannall
+1 - Mr. W. R. Wannall
 1 - Mr. W. O. Cregar
 1 - Mr. G. T. Tunstall
 

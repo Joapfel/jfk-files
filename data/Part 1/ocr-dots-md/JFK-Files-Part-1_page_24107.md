@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24107.png
-
-Convert to MarkdownS. SCHWARTZENBERG
+S. SCHWARTZENBERG
 
 PARIS, LE 24 Juillet 19
 

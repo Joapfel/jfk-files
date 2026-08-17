@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6053.png
-
-Convert to MarkdownHENRY FRANKLIN GRAFF cont'd
+HENRY FRANKLIN GRAFF cont'd
 
 5. If confirmed, do you expect to serve out your full term or until the next Presidential election, whichever is applicable?
 

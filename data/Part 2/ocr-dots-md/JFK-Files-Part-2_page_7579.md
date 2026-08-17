@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7579.png
-
-Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+C-O-N-F-I-D-E-N-T-I-A-L
 
 00-B-3,288,475
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29027.png
-
-Convert to MarkdownLAD VILL
+LAD VILL
 SECRET
 
 9 SEP 1965

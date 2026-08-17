@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_496.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>798301</td></tr><tr><td>17</td><td>PLATING AND/OR INITIALS:</td><td></td><td>T</td></tr><tr><td></td><td></td><td>1</td><td></td></tr><tr><td></td><td></td><td>2</td><td></td></tr><tr><td></td><td></td><td>3</td><td></td></tr><tr><td></td><td></td><td>4</td><td></td></tr><tr><td></td><td></td><td>5</td><td></td></tr><tr><td colspan="2">When Filed In:</td><td colspan="2"><table><tr><td>6</td><td></td></tr><tr><td>7</td><td></td></tr><tr><td>8</td><td></td></tr><tr><td>9</td><td></td></tr><tr><td>10</td><td></td></tr></table></td></tr><tr><td rowspan="3">ADVANCE COPY ☐ ISSUED ☒ SLOTTED</td><td rowspan="3">BY: __________ AT: __________</td><td>INDEX ☐ YES ☐ NO</td><td>CLASSIFY TO FILE NO. __________</td></tr><tr><td>R-REF TO FILE NO. __________</td><td>FILE RD ☐ RET. TO __________ BRANCH ☐ DESTROY ☐ RG.</td></tr><tr><td>ACTION WH 8</td><td>☑ NO COPY</td><td>INFO VR. c/o c/o's, c/o's 2, c/o's 11,</td></tr><tr><td colspan="4">FILE. FILINT 2</td></tr></table>
 

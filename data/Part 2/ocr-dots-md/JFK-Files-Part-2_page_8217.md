@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8217.png
-
-Convert to MarkdownAPPEALS REVIEW FORM
+APPEALS REVIEW FORM
 
 ab # contains MEMO B-191 dated 9 Oct 1968
 ✓ Previously denied in toto under exemption(s) (b)(1) Liaison (b)(3) of FOIA

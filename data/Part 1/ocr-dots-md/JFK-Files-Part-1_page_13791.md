@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13791.png
-
-Convert to MarkdownDATE: 03 NOV 1954
+DATE: 03 NOV 1954
 
 FILE:
 

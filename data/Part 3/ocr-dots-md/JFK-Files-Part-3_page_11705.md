@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11705.png
-
-Convert to MarkdownThis ability to produce such information has been recognized, as noted,
+This ability to produce such information has been recognized, as noted,
 by Dr. Kissinger at the White House and by various officials of the
 Central Intelligence Agency in frequent contact with the Bureau.
 Specific comments regarding the HILEV program and its productivity

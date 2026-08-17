@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9188.png
-
-Convert to MarkdownFile STALEN PHOTO-BOOK
+File STALEN PHOTO-BOOK
 
 From CRH's LOG, 2 May 1951
 

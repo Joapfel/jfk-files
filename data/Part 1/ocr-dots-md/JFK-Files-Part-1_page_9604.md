@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9604.png
-
-Convert to Markdown<table><tr><td>CLASSIFICATION<br/>C-O-N-P-I-D-E-N-T-I-A-L</td></tr></table>
+<table><tr><td>CLASSIFICATION<br/>C-O-N-P-I-D-E-N-T-I-A-L</td></tr></table>
 
 DIRECTORATE OF
 OPERATIONS

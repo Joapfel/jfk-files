@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26948.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td rowspan="4">CENTRAL INTELLIGENCE AGENCY</td>

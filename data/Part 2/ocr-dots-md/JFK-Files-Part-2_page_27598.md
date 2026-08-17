@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27598.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>21 A. Special qualifications and skills (skills with machines; patents or inventions, your most important publications (do not submit copies unless requested); your public speaking and publication experience; membership in professional or scientific society; etc.)</td>
    </tr>

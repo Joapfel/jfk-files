@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12313.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">CABLE SEC OFRCH BY NO.</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22744.png
-
-Convert to Markdown76900h113541
+76900h113541
 
 WARD & PAUL
 

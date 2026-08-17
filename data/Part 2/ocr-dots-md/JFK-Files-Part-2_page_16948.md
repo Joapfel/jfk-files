@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16948.png
-
-Convert to MarkdownUNITED STATE GOVERNMENT
+UNITED STATE GOVERNMENT
 
 Memorandum
 

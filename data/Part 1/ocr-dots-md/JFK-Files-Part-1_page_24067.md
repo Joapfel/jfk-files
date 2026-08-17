@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24067.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FLEDGET)
 STATEMENT of EARNINGS and DEDUCTIONS
 

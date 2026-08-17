@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26673.png
-
-Convert to Markdown14-00008
+14-00008
 
 A. C., 5.10.29
 

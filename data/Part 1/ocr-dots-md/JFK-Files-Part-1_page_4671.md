@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4671.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td colspan="5">FOR THIS FILE<br/>ID: 88-26-7733</td></tr><tr><td>DATE MICROFILMED</td><td>DOCUMENT DATE<br/>27 May 78</td><td>DOCUMENT NUMBER<br/>UFAA 03979</td><td>FILE NUMBER (PRIMARY CODE)<br/>TP/ED - Already committed, no need for new one.</td><td>TRACE REQUEST<br/>APR 7 July 78</td></tr><tr><td></td><td>INDEX<br/>JAN JUN</td><td></td><td></td><td></td></tr><tr><td>IP/FI</td><td>ABSTRACT<br/>H</td><td>FILE TITLE<br/>TP/ED - Almost committed, no need for new one.</td><td></td><td></td></tr></thead><tbody><tr><td>17</td><td></td><td>IP/FI<br/>APR 7 July 78</td><td></td><td></td></tr><tr><td>18</td><td></td><td>IP/AN<br/>APR 7 July 78</td><td></td><td></td></tr><tr><td>19</td><td></td><td>IP/EILS<br/>APR 7 July 78</td><td></td><td></td></tr><tr><td>20</td><td></td><td>~~IP~~<br/>APR 7 July 78</td><td></td><td></td></tr><tr><td>21</td><td></td><td>~~IP~~<br/>APR 7 July 78</td><td>201-299292</td><td></td></tr><tr><td>22</td><td></td><td>~~IP~~<br/>APR 7 July 78</td><td></td><td>AN<br/>AB<br/>IN<br/>P<br/>DS 2<br/>DECS'd<br/>FI</td></tr></tbody></table>
 

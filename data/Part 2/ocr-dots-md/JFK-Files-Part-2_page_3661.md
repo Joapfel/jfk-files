@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3661.png
-
-Convert to MarkdownLBJ LIBRARY
+LBJ LIBRARY
 Mandatory Review
 Case # NLJ93-381
 Document # 6

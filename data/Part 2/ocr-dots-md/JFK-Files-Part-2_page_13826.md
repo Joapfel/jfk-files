@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13826.png
-
-Convert to Markdown3 JUL 9 1975
+3 JUL 9 1975
 
 RECEIVED
 FOR A SECTION

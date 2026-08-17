@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3826.png
-
-Convert to MarkdownD. Legislative Inaction. Enact no new statute affecting the FBI's legal authority or the internal security intelligence program.
+D. Legislative Inaction. Enact no new statute affecting the FBI's legal authority or the internal security intelligence program.
 
 In weighing this option, the Committee should consider
 many of the issues set out above and, in addition:

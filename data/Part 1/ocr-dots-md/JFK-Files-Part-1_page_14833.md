@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14833.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE<br/>RECEIVED</td>
     <td>DATE<br/>RETURNED</td>

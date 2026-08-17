@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8156.png
-
-Convert to Markdownespouses political and social reforms of a (fundamental nature. But it is
+espouses political and social reforms of a (fundamental nature. But it is
 this very insistence on reform (Kennedy has indeed reiterated the phrase
 "revolution"), this penchant for social change, which has evoked the most
 skepticism in Latin America.

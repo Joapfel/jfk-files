@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22628.png
-
-Convert to MarkdownApril 15, 1960
+April 15, 1960
 
 TO: Central Cover Division, Notional Cover
 

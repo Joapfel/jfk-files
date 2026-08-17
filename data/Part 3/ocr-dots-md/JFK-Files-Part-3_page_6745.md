@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6745.png
-
-Convert to MarkdownRobert Marvin Shelton
+Robert Marvin Shelton
 
 UNITED KLAN OF AMERICA, INC.
 SUBSIDIARY OF THE KLAN INC.

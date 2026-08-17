@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16082.png
-
-Convert to MarkdownInitiation of Operations:
+Initiation of Operations:
 
 Initially until fire support are established, the use of this technique should be avoided to ensure that the fire in question
 

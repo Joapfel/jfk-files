@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30569.png
-
-Convert to MarkdownJOB DESCRIPTION:
+JOB DESCRIPTION:
 
 1947 NOV 25 08 48
 

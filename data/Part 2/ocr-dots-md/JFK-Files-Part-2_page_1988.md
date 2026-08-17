@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1988.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 MAH: 25. OCT 57

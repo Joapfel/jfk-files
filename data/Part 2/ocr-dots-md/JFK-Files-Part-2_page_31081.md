@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31081.png
-
-Convert to MarkdownSECRET
+SECRET
 
 March 4, 1978
 Office of Security

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31710.png
-
-Convert to MarkdownCOPY
+COPY
 
 12 February 1953
 

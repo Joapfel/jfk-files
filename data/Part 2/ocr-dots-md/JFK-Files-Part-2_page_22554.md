@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22554.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Southeast Asia, across the Soviet Union and ended
 at the Youth Festival in Helsinki this past sum-

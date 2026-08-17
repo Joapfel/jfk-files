@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35059.png
-
-Convert to MarkdownDELEGATIONS
+DELEGATIONS
 
 4-13% "I-M"
 

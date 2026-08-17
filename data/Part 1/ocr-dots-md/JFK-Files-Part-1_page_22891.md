@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22891.png
-
-Convert to MarkdownFBI doc
+FBI doc
 25 Nov. 57 (Boston)
 Re: Richard James Medalie
 Butile - 100-436 846

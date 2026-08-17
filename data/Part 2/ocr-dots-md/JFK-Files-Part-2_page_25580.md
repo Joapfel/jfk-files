@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25580.png
-
-Convert to MarkdownTHE MISSOULIAN
+THE MISSOULIAN
 
 P. O. BOX 1535
 

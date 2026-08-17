@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34361.png
-
-Convert to Markdown14-0000
+14-0000
 
 A: Mr. Seigle, First sorry for my bad English.
 In the Athenian newspapers I read your letter you sent to the Greek prime minister and Pappandreou. I agree that a new premier must be set out of this com-

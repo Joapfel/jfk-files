@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34528.png
-
-Convert to Markdown4. Do you have any information to the effect that Oswald might not have come to the Soviet consulate or to the Soviet Embassy in Helsinki to obtain his visa? Could he have obtained a visa in Switzerland or Sweden, then have come to Helsinki and, without reporting to the Soviet consulate in Helsinki, have taken a train to Leningrad and then to Moscow?
+4. Do you have any information to the effect that Oswald might not have come to the Soviet consulate or to the Soviet Embassy in Helsinki to obtain his visa? Could he have obtained a visa in Switzerland or Sweden, then have come to Helsinki and, without reporting to the Soviet consulate in Helsinki, have taken a train to Leningrad and then to Moscow?
 
 5. According to your previous information, "any tourist - he buys a tour to the Soviet Union, makes out the anketa, and then comes to Moscow." In what country did Oswald buy a tour to the USSR? In what country did Oswald fill in the anketa? If the anketa goes to Moscow, to what office in Moscow does it go? To MID, KGB? Is it possible that all the data on Oswald from his anketa was sent to Moscow by a cable? Did you see and read Oswald's anketa or a telegram that Oswald is coming to Moscow? If you did not read the anketa, who among the KGB officers of the Second Chief Directorate or the First Chief Directorate read the anketa or had access to it? Who would logically have access to the anketa?
 

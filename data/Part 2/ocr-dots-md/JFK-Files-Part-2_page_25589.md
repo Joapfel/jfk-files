@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25589.png
-
-Convert to MarkdownSAM J. DRYER, JR., N.C., CHAIRMAN
+SAM J. DRYER, JR., N.C., CHAIRMAN
 
 HOWARD M. BAKER, JR., TENN., VICE CHAIRMAN
 

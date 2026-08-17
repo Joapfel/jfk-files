@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1563.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 11 February 1964
 

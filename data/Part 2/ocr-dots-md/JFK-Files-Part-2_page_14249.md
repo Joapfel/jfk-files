@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14249.png
-
-Convert to MarkdownMemorandum to Mr. D. J. Brennan, Jr.
+Memorandum to Mr. D. J. Brennan, Jr.
 
 RE: UNION FOR REVOLUTION
 

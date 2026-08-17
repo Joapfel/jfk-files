@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20605.png
-
-Convert to MarkdownMr. Terence S. Crabanac
+Mr. Terence S. Crabanac
 
 Dear Mr. Crabanac:
 

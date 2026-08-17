@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35268.png
-
-Convert to MarkdownContinuation
+Continuation
 
 PAYROLL (ATTACHMENT "I-D")
 

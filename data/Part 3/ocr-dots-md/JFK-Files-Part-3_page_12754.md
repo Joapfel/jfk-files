@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_12754.png
-
 to an
 important government official--an official who had taken
 a "hard line" with respect to dealings with the Soviet Union,

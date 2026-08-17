@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12128.png
-
-Convert to Markdown<table><thead><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER</td><td>DATE</td></tr></thead><tbody><tr><td></td><td>HMMA - 26658</td><td>22 JULY 1965</td></tr><tr><td></td><td>CLASSIFICATION</td><td>HQS FILE NUMBER<br/>201-<br/>FFN: P-8125</td></tr></tbody></table>
+<table><thead><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER</td><td>DATE</td></tr></thead><tbody><tr><td></td><td>HMMA - 26658</td><td>22 JULY 1965</td></tr><tr><td></td><td>CLASSIFICATION</td><td>HQS FILE NUMBER<br/>201-<br/>FFN: P-8125</td></tr></tbody></table>
 
 CS COPY
 

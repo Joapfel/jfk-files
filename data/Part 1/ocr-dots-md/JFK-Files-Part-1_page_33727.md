@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33727.png
-
-Convert to Markdown17 January 1952
+17 January 1952
 
 MEMORANDUM FOR: DEPUTY DIRECTOR (LANS)
 

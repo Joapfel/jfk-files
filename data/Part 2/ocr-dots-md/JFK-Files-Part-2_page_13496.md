@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13496.png
-
-Convert to Markdown4. In addition to the "category II" items, there are a number of additional subjects largely geographic in nature for which the DCI feels CIA should assume responsibility for preparing comprehensive papers. In view of the apparent adversary relationship between the Senate Select Committee Staff and the agencies under investigation, it may be that preparation of papers dealing comprehensively with specific subjects will deflect some of this cross-agency probing and result in a positive solution to problems before they arise.
+4. In addition to the "category II" items, there are a number of additional subjects largely geographic in nature for which the DCI feels CIA should assume responsibility for preparing comprehensive papers. In view of the apparent adversary relationship between the Senate Select Committee Staff and the agencies under investigation, it may be that preparation of papers dealing comprehensively with specific subjects will deflect some of this cross-agency probing and result in a positive solution to problems before they arise.
 
 5. The Chairman reminded the group of the responsibility which exists to keep Mr. Cotter of the Post Office Department informed on matters resulting from the Congressional investigations which will clearly impact on his agency's affairs. At present, the cross-agency character of the interviews now under way indicate a possible communication gap in adequately coordinating on postal matters.
 

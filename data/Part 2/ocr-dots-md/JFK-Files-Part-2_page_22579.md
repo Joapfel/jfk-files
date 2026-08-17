@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22579.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and may assume that such advice and acknowledgement on our part would be Agency approval for his activities. While such is not the case, it is believed that we should formalize this part of our contract with him so that he knows that his personal activities, regardless of area, are not construed as an extension of Agency plans or programs. At the same time, Subject can be assured of our continuing interest in him as a "standby" asset.
 

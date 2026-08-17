@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9574.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DCD-399/78
 10 April 1978

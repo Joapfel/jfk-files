@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8995.png
-
-Convert to Markdownque solo había leído algunos libros sobre Marxismo, y que en-
+que solo había leído algunos libros sobre Marxismo, y que en-
 tonces el cubano le dio una palmada en el hombro diciendole -
 que "seía un buen camaranda". Que al día siguiente, el de la-
 voz volvió a ir a la Embajada Cubana, y en el patio de la més-

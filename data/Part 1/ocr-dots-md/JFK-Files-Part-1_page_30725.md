@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30725.png
-
-Convert to MarkdownAttachment: Status and Efficiency Report
+Attachment: Status and Efficiency Report
 
 6. Names and birth dates of subjects three children
 

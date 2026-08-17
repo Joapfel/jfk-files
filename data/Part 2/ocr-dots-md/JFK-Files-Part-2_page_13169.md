@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13169.png
-
-Convert to MarkdownLegal Counsel to Mr. Adams
+Legal Counsel to Mr. Adams
 
 RE: TESTIMONY BY THE ATTORNEY GENERAL BEFORE THE SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
 

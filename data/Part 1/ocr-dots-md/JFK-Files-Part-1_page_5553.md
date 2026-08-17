@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5553.png
-
-Convert to MarkdownClemard Joseph CHARLES
+Clemard Joseph CHARLES
 Vol. III
 
 MATERIAL REVIEWED AT CIA HEADQUARTERS BY

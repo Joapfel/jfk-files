@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16095.png
-
-Convert to Markdown1/5/70
+1/5/70
 
 TELETYRE
 

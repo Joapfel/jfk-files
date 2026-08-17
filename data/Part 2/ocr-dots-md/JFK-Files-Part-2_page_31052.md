@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31052.png
-
-Convert to Markdown13. Field Information Report dtd 26 October 1963
+13. Field Information Report dtd 26 October 1963
 Ray in Miami 10/26/63 to meet with Ernesto Betancourt, former MRP and now Washington, D. C. delegate of ELG. May have met in an effort to merge ELC with JURE. Ray feels need to be in Cuba in 90 days - hurricane Flora has seriously damaged Cuba and this is an opportune time.
 
 14. Memo for Record from Alfonso Rodriguez

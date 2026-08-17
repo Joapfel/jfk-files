@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12222.png
-
-Convert to MarkdownIN 069101
+IN 069101
 
 TDFIR:DB-315/10256-7B
 

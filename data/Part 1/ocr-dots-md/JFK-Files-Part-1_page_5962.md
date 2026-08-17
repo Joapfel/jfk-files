@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5962.png
-
-Convert to MarkdownC-O-N-F-I-D-E-X-T-I-A-L
+C-O-N-F-I-D-E-X-T-I-A-L
 When Filled In
 
 SECRET

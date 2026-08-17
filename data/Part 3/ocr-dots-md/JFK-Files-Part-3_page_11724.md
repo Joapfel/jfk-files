@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11724.png
-
-Convert to Markdownwill expand his contacts in Italian cities other than Rome, such as Naples, Milan, Florence, and Venice, in order to widen his capabilities in the criminal field and improve his collection of HILEV intelligence items.
+will expand his contacts in Italian cities other than Rome, such as Naples, Milan, Florence, and Venice, in order to widen his capabilities in the criminal field and improve his collection of HILEV intelligence items.
 
 ## Productivity
 

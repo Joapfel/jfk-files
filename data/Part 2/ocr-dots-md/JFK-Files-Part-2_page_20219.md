@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20219.png
-
-Convert to MarkdownWOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC) CONFIDENTIAL
+WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC) CONFIDENTIAL
 
 ...Coordinators of the event said they hope for a turnout of about 20,000 women who would stage the first national female march on the Capitol since women won the right to vote in 1920.
 

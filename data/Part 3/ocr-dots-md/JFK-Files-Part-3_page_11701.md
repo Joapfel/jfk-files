@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11701.png
-
-Convert to Markdown# Current Justification
+# Current Justification
 
 The threat to the internal security of the United States from communist Cuba has not lessened in recent years. A workable priority apprehension system which receives current and continuing attention is mandatory. This program, as presently organized and handled, is fully justified.
 

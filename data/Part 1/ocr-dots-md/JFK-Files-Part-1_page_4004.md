@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4004.png
-
-Convert to MarkdownSECRET
+SECRET
 
 W/C 65-238
 8 June 1965

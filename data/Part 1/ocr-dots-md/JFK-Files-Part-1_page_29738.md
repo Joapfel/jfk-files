@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29738.png
-
-Convert to MarkdownENCLOS
+ENCLOS
 
 (2) Letter of Appreciation - State Department to Deputy Head of the Army:
 

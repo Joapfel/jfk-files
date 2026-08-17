@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31901.png
-
-Convert to MarkdownRCS: 20 SEP 73
+RCS: 20 SEP 73
 
 SECRET
 When Filled In)

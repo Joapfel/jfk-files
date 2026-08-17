@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16946.png
-
-Convert to MarkdownROSTICK, ROBERT
+ROSTICK, ROBERT
 
 This Panther is 19 or 20 years and is known
 as RALPH and is assigned to the Health Cadre,

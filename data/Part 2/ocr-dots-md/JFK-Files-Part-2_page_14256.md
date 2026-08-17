@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14256.png
-
-Convert to Markdown3. A long line of Supreme Court cases, beginning with *Kilbourn v. Thompson*, 103 U.S. 168 (1990), has held that the privilege or immunity relating to speech or debate should be given a broad and liberal construction. In *Kilbourn* the court stated:
+3. A long line of Supreme Court cases, beginning with *Kilbourn v. Thompson*, 103 U.S. 168 (1990), has held that the privilege or immunity relating to speech or debate should be given a broad and liberal construction. In *Kilbourn* the court stated:
 
 > It would be a narrow view of the Constitutional provision to limit it to words spoken in debate. The reason of the rule is as forcible in its application to written reports presented in that body by its committees, to resolutions offered, which, though in writing, must be reproduced in speech, and to the act of voting.... In short, to things generally done in a session of the House by one of its members in relation to the business before it. (At p. 204.)
 

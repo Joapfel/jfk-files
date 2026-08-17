@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15262.png
-
-Convert to MarkdownSECRET
+SECRET
 
 These agents work well together and it is my personal feeling that with proper considerations of call it "agent handling", they will accomplish their assigned mission.
 

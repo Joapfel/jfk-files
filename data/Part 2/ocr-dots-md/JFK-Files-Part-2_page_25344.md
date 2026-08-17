@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25344.png
-
-Convert to MarkdownMEMORANDUM TO: File
+MEMORANDUM TO: File
 
 RE: Antonio Veciana
 

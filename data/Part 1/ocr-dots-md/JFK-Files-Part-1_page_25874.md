@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25874.png
-
-Convert to MarkdownRe: Yuriy Igoryevich TORGOV
+Re: Yuriy Igoryevich TORGOV
 
 TORGOV, DOB 6 June, 1932 Vitebsk, USSR, Head of Laboratory, Computer Centre, Academy of Sciences, Moscow, was a visiting professor in Toronto and Ottawa, Canada, for four months - November 1974 to February 1975.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32561.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Classically Accounting To Content.
 

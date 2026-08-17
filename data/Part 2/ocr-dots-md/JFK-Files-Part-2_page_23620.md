@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23620.png
-
-Convert to MarkdownIn city of
+In city of
 THE WHITE HOUSE OFFICE
 
 1. President has now approved contingency plans discussed during stay here with one some major exception; You are not to request a pre-signed quest for help from Dominican dissident groups.

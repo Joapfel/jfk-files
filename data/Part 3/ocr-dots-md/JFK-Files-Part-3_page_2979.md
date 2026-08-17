@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2979.png
-
-Convert to Markdown1917
+1917
 
 plans for the meeting and apparently attended and reported on
 the conference. The Bureau's own reports described the

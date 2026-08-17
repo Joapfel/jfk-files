@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12600.png
-
-Convert to MarkdownMemo to Mr. Adams from Legal Counsel
+Memo to Mr. Adams from Legal Counsel
 
 Re: SEANTE COMMITTEE ON INTELLIGENCE ACTIVITIES
 HOUSE COMMITTEE ON INTELLIGENCE ACTIVITIES

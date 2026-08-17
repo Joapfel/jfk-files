@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34839.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>ORIG: NGratz:f11</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10477.png
-
-Convert to MarkdownMEMORANDUM FOR: Deputy Director for Operations
+MEMORANDUM FOR: Deputy Director for Operations
 
 SUBJECT: WII Comments on Jack Anderson Column
 

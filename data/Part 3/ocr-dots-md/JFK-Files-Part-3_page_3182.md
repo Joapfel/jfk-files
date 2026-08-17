@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3182.png
-
-Convert to Markdown1794
+1794
 
 easily say it would not be proper.
 

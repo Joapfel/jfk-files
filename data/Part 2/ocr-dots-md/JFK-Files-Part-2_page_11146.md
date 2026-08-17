@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11146.png
-
-Convert to Markdown# D. SECURITY INVESTIGATION FOR INDIVIDUALS
+# D. SECURITY INVESTIGATION FOR INDIVIDUALS
 
 ## 1. Definitions
 

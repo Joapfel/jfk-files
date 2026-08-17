@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5319.png
-
-Convert to Markdownnot wish to lay itself open to the charge of becoming embroiled
+not wish to lay itself open to the charge of becoming embroiled
 in local Haitian politics and so had refused to deliver the
 letter to Felder. We reported this information to Brum.
 

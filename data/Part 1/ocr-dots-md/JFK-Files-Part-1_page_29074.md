@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29074.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="10">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td>MYL</td><td colspan="5"></td><td>3. Date Of Birth.</td><td>4. Vot. Prof.</td><td>5. Sex</td><td>6. CS-EDD</td></tr><tr><td>1. Serial No.</td><td colspan="2"></td><td>2. Name (Last-First-Middle)</td><td colspan="2"></td><td>Mo. Da. Yr.</td><td>None-0 5 Pt-1 10 Pt-2 Code</td><td></td><td>Mo. Da. Yr.</td></tr></thead><tbody><tr><td>107667</td><td colspan="2"></td><td>ZEHRUNG CHARLOTTE</td><td colspan="2"></td><td>01 12 29</td><td>0</td><td>F 2</td><td>08 27 51</td></tr><tr><td rowspan="2">7. SCD</td><td colspan="2">8. CSC Retmt.</td><td rowspan="2">9. CSC Or Other Legal Authority</td><td rowspan="2">10. Appt. Affidav.</td><td rowspan="2">11. FEGLI</td><td rowspan="2">12. LCD</td><td rowspan="2"></td><td rowspan="2"></td><td rowspan="2">13. military, Navy, Army, UoD</td></tr><tr><td>Yes - 1 No - 2</td><td>Code 1</td><td>Yes - 1 No - 2</td><td>Code 08 27 51</td><td>Yes - 1 No - 2</td><td>Code 2</td></tr><tr><td>Mo. 04</td><td>Da. 02</td><td>Yr. 51</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>

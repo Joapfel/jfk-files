@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4579.png
-
-Convert to Markdown7. President established outstanding rapport with Erhard and things are looking up in that area.
+7. President established outstanding rapport with Erhard and things are looking up in that area.
 
 8. President greatly concerned over continuing situation in South Vietnam.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16399.png
-
-Convert to MarkdownThe days of imperialism are numbered. The imperialists have committed all manner
+The days of imperialism are numbered. The imperialists have committed all manner
 
 of evils and all the oppressed peoples of the whole world will never forgive them.
 

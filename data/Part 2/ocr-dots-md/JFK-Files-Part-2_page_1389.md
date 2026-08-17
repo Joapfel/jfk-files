@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1389.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 Security Information
 
 1. NAME (Printed) WHEELE P.

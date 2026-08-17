@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9160.png
-
-Convert to MarkdownDate of transcription 8/12/74
+Date of transcription 8/12/74
 
 Detective ANDREW HAUFMAN, Bomb Squad, NYCPD, furnished the following items of evidence to SA JAMES R. LYONS:
 

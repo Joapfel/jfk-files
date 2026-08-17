@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21302.png
-
-Convert to MarkdownJFK Assassination System
+JFK Assassination System
 Identification Form
 
 Date: 6/2/2015

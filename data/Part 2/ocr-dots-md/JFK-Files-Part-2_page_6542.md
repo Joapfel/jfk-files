@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6542.png
-
-Convert to MarkdownOriginating Agency: DOD
+Originating Agency: DOD
 Subject: Cubo/Contingency Planning
 Date: 3/11/63
 

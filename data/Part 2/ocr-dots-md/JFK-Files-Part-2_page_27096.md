@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27096.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # SUMMARY REPORT ON CIA INVESTIGATION OF MKNAOMI
 

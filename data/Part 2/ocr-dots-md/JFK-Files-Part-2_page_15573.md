@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15573.png
-
-Convert to MarkdownLtr-1
+Ltr-1
 
 On September 18, 1969, issue of the
 Chicago Tribune, Chicago, Illinois, newspaper,

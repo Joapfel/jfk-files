@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32793.png
-
-Convert to Markdown31 December 1963
+31 December 1963
 
 MEMORANDUM FOR COLONEL HAIG
 OFFICE OF THE GENERAL COUNSEL, DA

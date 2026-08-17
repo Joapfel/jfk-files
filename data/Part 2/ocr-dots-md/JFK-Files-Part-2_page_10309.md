@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10309.png
-
-Convert to MarkdownCONFIDENTIAL E-2
+CONFIDENTIAL E-2
 
 May. 1973
 

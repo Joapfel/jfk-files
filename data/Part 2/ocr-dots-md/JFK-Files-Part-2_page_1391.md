@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1391.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 II. Enter here any desired remarks pertaining to particular qualifications or lack thereof which are considered pertinent to the evaluation of this employee. Outstanding assets and/or serious limitations should be stated, also reasons for and recommendations as to reassignment will be given if appropriate to this report.
 

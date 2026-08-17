@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24048.png
-
-Convert to MarkdownSEPARATE COPY
+SEPARATE COPY
 
 ATTACHMENT 2 TO:
 OEPA-1312

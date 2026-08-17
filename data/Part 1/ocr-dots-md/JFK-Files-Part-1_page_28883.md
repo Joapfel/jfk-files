@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28883.png
-
-Convert to Markdown17 AUG 1965
+17 AUG 1965
 
 MEMORANDUM FOR: Deputy Assistant Secretary for Far Eastern Affairs
 Department of State

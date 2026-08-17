@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23731.png
-
-Convert to MarkdownI think it's just totally out of keeping with what you want. If you want a good clandestine operation, you want the best you can find, and I think that he should get the same amount of credit for being good at whatever he's assigned to as being in this other intelligence business.
+I think it's just totally out of keeping with what you want. If you want a good clandestine operation, you want the best you can find, and I think that he should get the same amount of credit for being good at whatever he's assigned to as being in this other intelligence business.
 
 Mr. Aaron. The intelligence business, of course, is their primary mission.
 

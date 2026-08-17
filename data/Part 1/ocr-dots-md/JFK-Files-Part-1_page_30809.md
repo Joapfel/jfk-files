@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30809.png
-
-Convert to Markdown- 10 -
+- 10 -
 
 SEC. 23. RESIDENCE OR TRAVEL. (Cont'd)
 

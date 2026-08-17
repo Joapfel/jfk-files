@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27817.png
-
-Convert to MarkdownLOCKE, Ralph
+LOCKE, Ralph
 
 OFFICE OF THE CLERK
 U.S. HOUSE OF REPRESENTATIVES

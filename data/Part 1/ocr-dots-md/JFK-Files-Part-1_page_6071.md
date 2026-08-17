@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6071.png
-
-Convert to MarkdownNÃO: — A pessoa que não possuir nenhum desses documentos compradorias fará constar esse fato no distrito a que pertença o seu Comitê de Defesa, e este entregar-lhe-a provisoriamente à Caderneta, notificando-a Reforma Urbana sobre a situação anormal da referida annulha.
+NÃO: — A pessoa que não possuir nenhum desses documentos compradorias fará constar esse fato no distrito a que pertença o seu Comitê de Defesa, e este entregar-lhe-a provisoriamente à Caderneta, notificando-a Reforma Urbana sobre a situação anormal da referida annulha.
 
 DÉCIMA: — Nos casos das akleias ou fazendas, assim como nos chamados bairros insalubres ("Las Yagunas", etc.), os distritos dos C. D. R., a que pertencem procederão a uma previa e cuidadosa investigação na entrega das cadernetas de Alastecimento.
 

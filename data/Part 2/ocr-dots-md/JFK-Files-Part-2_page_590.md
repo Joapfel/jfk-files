@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_590.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG.</td><td colspan="2">MY PALMER</td></tr><tr><td>LIT.</td><td colspan="2">WH/3/V</td></tr><tr><td>EXT:</td><td colspan="2">4521</td></tr><tr><td>DATE:</td><td colspan="2">14 JULY 1957</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5652.png
-
-Convert to Markdown13-00000
+13-00000
 
 Subj: On Sclaso testimony
 Date: Oct 12 TueSun 1996 1995 18:46 EDT

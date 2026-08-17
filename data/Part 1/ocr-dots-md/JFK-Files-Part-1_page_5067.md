@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5067.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Memorandum
 

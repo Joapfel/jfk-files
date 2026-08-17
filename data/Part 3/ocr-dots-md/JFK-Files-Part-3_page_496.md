@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_496.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 In May, 1967, George Lucas, Miami Communist Party (CP) Chairman since May, 1966, was engaged in an attack on the primarily Jewish CP membership in the Miami area. It was approved that an anonymous letter in Yiddish about this situation be sent to Isaac Dantzig, Vice Chairman of the Miami CP who was regarded as a leader of the progressive Jewish movement in the area. The letter was to question the loyalty of Lucas and his wife to the CP. It was also approved, since Lucas had been determined as the source of a series of anonymous letters to the FBI, that a number of CP members be interviewed about the letters in a way that they suspect Lucas as the writer.
 

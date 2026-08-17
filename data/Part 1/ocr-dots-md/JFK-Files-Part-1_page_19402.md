@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19402.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>1940-45</td><td>Dept of Justice, FBI, DC, Ill. Calif - Clerk; Special Agent</td></tr><tr><td>1945-46</td><td>Military Service, US Navy - Assign (1945-46, SSU, China)</td></tr><tr><td>1946</td><td>War Dept, SSU, Shanghai, China - Intel Officer</td></tr><tr><td>1946-47</td><td>CIG, Shanghai, China/CC - Intel Officer</td></tr></table>
 

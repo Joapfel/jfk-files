@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3163.png
-
-Convert to Markdown1775
+1775
 
 Senator Mondale. Now Dr. King was investigated among
 other things for matters of, I think you call it delicacy.

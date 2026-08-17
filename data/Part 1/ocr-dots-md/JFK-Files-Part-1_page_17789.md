@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17789.png
-
-Convert to Markdown..1.-
+..1.-
 
 EMBAJADA DOMINICANA.- 28-77-85.
 

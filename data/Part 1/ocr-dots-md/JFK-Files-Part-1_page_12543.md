@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12543.png
-
-Convert to Markdown<table><thead><tr><th>(in location)</th><th>(date and time filed)</th><th>(el/te)</th><th>(place)</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td>CITE DIRECTOR</td><td>01.10.44</td></tr></tbody></table>
+<table><thead><tr><th>(in location)</th><th>(date and time filed)</th><th>(el/te)</th><th>(place)</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td>CITE DIRECTOR</td><td>01.10.44</td></tr></tbody></table>
 
 WH/MIAMI
 

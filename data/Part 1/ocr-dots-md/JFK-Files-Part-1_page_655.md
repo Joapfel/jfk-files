@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_655.png
-
-Convert to Markdown6th August, 1961
+6th August, 1961
 
 SECRET
 

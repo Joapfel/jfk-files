@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6863.png
-
-Convert to Markdown(E) BOMBING MATTERS OR RACIAL MATTERS (NEW CLASSIFICATION) -- All correspondence and new cases opened under the character bombing matters or racial matters should carry the classification "157." It will not be necessary to change the classification number of correspondence relating to existing cases.
+(E) BOMBING MATTERS OR RACIAL MATTERS (NEW CLASSIFICATION) -- All correspondence and new cases opened under the character bombing matters or racial matters should carry the classification "157." It will not be necessary to change the classification number of correspondence relating to existing cases.
 
 New sections and changes for manuals and handbook are being prepared and will be forwarded to your office.
 

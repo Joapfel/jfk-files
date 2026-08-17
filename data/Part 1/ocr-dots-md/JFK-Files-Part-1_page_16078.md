@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16078.png
-
-Convert to Markdown14-00000
+14-00000
 
 (3) For night operations at least one half of the sniper rifles will be equipped with the VAKO Starlight Scope. VAKO Starlight Scopes will be mounted on the M-14 rifles at the sniper school and zeroed during training. The sniper retains his own scope/rifle/suppressor combination during subsequent operations. This procedure assures retention of zero even though the sight is disounted during daylight operations and remounted for night operations.
 

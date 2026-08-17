@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29931.png
-
-Convert to MarkdownREVIEWING OFFICER'S COMMENTS:
+REVIEWING OFFICER'S COMMENTS:
 
 Date: 20 May 71
 

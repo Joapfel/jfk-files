@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2324.png
-
-Convert to Markdown1938 I studied at the schools, which were close to my places of living.
+1938 I studied at the schools, which were close to my places of living.
 
 In 1938 the father began to work in Moscow and soon I with the mother went to live in Moscow in the end of this year.
 

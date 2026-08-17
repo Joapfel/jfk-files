@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27057.png
-
-Convert to Markdown- 21 -
+- 21 -
 
 TOP SECRET
 

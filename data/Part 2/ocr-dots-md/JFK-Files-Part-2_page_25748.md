@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25748.png
-
-Convert to MarkdownScenario for B-9
+Scenario for B-9
 
 This doctrine is based on the proposition that
 the decision has been reached that the U.S. cannot live

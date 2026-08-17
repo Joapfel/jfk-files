@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9615.png
-
-Convert to MarkdownASSIGNMENT TO UNITS
+ASSIGNMENT TO UNITS
 
 Many people that inquire about membership in the Secret Army Organization seem to have an idea that they will be immediately accepted into an active unit. Look at it this way. Suppose you had spent a year or more carefully recruiting and training until you had a hard hitting team where every individual was reliable, dedicated, and had confidence in his fellow unit members. Wouldn't it make you mad to have the national or regional organization assign some rank amateur to your unit that you you knew little or nothing about?
 

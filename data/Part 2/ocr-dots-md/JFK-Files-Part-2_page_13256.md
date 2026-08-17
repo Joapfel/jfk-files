@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13256.png
-
-Convert to MarkdownFD-375 (Rev. 8-28-72)
+FD-375 (Rev. 8-28-72)
 
 UNITED STATES DEPARTMENT OF JUSTICE
 

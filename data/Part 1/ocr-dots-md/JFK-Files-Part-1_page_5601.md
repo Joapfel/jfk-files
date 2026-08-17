@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5601.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>200:</td>
     <td>R. LEHMAN:gt</td>

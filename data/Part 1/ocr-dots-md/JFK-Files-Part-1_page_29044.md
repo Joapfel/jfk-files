@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29044.png
-
-Convert to MarkdownCharlotte BUSTONS-VIDELA
+Charlotte BUSTONS-VIDELA
 
 # LEFT HAND SIDE
 

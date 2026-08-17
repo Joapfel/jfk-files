@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1725.png
-
-Convert to Markdown13 December 1967
+13 December 1967
 
 SUBJECT: BATISTA, Leureano
 (See also DAVIS, Rudolph Richard)

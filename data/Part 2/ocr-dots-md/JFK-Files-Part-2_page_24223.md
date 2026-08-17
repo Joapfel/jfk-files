@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24223.png
-
-Convert to Markdown(j) DELICATE - security support for DDS&T project, consisting mainly of badging and entry controls, background investigations, and escort of sensitive material; this is the only such activity currently being serviced by MHBOUND;
+(j) DELICATE - security support for DDS&T project, consisting mainly of badging and entry controls, background investigations, and escort of sensitive material; this is the only such activity currently being serviced by MHBOUND;
 
 (k) PINEAPPLE - physical surveillance of an Agency courier suspected of living beyond his means; also involved a surreptitious entry into his apartment;
 

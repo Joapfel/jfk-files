@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3793.png
-
-Convert to Markdown13-00000
+13-00000
 
 NO-42-76
 

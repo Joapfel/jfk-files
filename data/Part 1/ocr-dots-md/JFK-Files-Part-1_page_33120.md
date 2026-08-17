@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33120.png
-
-Convert to MarkdownCOORDINATING OFFICERS
+COORDINATING OFFICERS
 
 <table>
   <tr>

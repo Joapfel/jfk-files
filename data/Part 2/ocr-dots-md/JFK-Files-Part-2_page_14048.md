@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14048.png
-
-Convert to MarkdownNR 007 SF CODE
+NR 007 SF CODE
 
 5:13 PM NITEL 5/14/75 MCC
 

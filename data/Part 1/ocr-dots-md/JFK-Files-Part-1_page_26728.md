@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26728.png
-
-Convert to MarkdownReel 73-K1CO-25
+Reel 73-K1CO-25
 
 1 May 1963
 

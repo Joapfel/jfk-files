@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27592.png
-
-Convert to Markdown# Form 98-7230.61
+# Form 98-7230.61
 
 NW 88326
 DocId:32239461 Page 15

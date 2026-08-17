@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26498.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to have received training in Cuba. Some of the
 arrests were made to forestall subversive activity.

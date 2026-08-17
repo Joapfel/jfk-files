@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30219.png
-
-Convert to Markdown10 May 1951
+10 May 1951
 
 Mr. James Walter McCord, Jr.
 222 Pacific Avenue

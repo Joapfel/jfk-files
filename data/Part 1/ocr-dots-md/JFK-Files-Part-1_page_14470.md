@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14470.png
-
-Convert to MarkdownOrestes Guillerme RUIZ Perez
+Orestes Guillerme RUIZ Perez
 
 ACCESS:
 

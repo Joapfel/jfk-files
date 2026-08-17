@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3979.png
-
-Convert to Markdown28 April 1965
+28 April 1965
 
 MEMORANDUM FOR: Chief, Western Hemisphere Division
 SUBJECT: Present Activities and Possible Future Plans of Manuel Artime Buena

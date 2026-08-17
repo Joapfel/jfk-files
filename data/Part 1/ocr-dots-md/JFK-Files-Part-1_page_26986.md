@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26986.png
-
-Convert to MarkdownChief Domestic Collects in Division
+Chief Domestic Collects in Division
 
 Attn: S. Spoor at Branch 'OSS' (Grant)
 

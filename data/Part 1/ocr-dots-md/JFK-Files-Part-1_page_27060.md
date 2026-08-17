@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27060.png
-
-Convert to MarkdownFile #242 369
+File #242 369
 
 GENERAL:
 

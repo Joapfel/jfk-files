@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20000.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (US Army Special Staff)
 

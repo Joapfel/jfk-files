@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23117.png
-
-Convert to MarkdownProf. Seguín
+Prof. Seguín
 
 gía Médica" el cual saldrá el mes de julio próximo y del cual también te enviaré un ejemplar.
 

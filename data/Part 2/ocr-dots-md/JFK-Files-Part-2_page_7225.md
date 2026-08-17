@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7225.png
-
-Convert to Markdown13-00000
+13-00000
 
 T 389723 EIA645
 

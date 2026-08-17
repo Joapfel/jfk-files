@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22723.png
-
-Convert to Markdown1 it is aired, and it is not done without the knowledge of anyone, and then breaks, as it did, in the New York Times and what not.
+1 it is aired, and it is not done without the knowledge of anyone, and then breaks, as it did, in the New York Times and what not.
 
 2
 

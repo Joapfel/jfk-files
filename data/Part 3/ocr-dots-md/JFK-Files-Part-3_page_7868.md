@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7868.png
-
-Convert to MarkdownCaption on Folder or File: (Print)
+Caption on Folder or File: (Print)
 
 WHITE HOUSE CORRESPONDENCE, 1945 OC
 TECHNICAL SUMMARIES

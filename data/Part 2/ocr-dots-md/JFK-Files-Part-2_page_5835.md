@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5835.png
-
-Convert to MarkdownOIM 98-0088
+OIM 98-0088
 
 12 August 1998
 

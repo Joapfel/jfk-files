@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8144.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SUBJECT: Investigation of Death of Martin Luther King, Jr.
 

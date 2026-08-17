@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9648.png
-
-Convert to Markdown# I. BACKGROUND
+# I. BACKGROUND
 
 ## A. BIRTH
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2959.png
-
-Convert to Markdown# Mr. Church's Cover-Up
+# Mr. Church's Cover-Up
 
 By William Safire
 

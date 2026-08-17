@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26561.png
-
-Convert to MarkdownSECRET/NO FOREIGN DISSEN
+SECRET/NO FOREIGN DISSEN
 
 -2-
 

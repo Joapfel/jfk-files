@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_1789.png
-
 in his office handling relations with the public media, we believe that every effort should be made to minimize the amount of publicity that CIA receives.
 
 We strongly recommend that the present practice of giving background briefings to newspapermen cease and that CIA give information to the press only where CIA has something which for operational reasons should be released on an unattributable basis. We urge that no public speeches be given by Agency officials.

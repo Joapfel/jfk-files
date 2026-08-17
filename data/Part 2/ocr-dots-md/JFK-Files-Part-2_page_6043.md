@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6043.png
-
-Convert to MarkdownDAVID G. MARWELL
+DAVID G. MARWELL
 
 Biographical Information
 

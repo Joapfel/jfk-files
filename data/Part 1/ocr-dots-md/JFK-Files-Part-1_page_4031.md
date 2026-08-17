@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4031.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (b) Quality of Materials.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35614.png
-
-Convert to MarkdownINVOICE 64-7-2
+INVOICE 64-7-2
 
 July 1, 1964
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21597.png
-
-Convert to Markdownrevealed the substance of the content of the KGB files on OSWALD.
+revealed the substance of the content of the KGB files on OSWALD.
 
 This information clearly indicates that there was no KGB relationship
 with OSWALD, that the KGB had no operational interest in OSWALD,

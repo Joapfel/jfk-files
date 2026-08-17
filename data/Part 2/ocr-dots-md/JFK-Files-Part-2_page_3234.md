@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3234.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 other evidence of the need to have someone with Spanish language capability immediately available at Radio Swan, were the following: A machine-run of Agency employees failed to surface anyone with sufficient Spanish language to undertake an announcer's job; inability to exploit the fatal shooting of a Venezuelan child by a pro-Castro goon, could not be turned to US advantage; and by mid-November 1960 WH Division was requesting that a requirement be laid on to the Department of Defense for a serviceman with native fluency in Spanish who could be used as an announcer at Radio Swan.*
 

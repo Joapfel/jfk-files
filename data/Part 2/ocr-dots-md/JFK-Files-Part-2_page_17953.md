@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17953.png
-
-Convert to MarkdownMR005 SA CODE
+MR005 SA CODE
 
 6:55PM NITEL MARCH 25, 1975
 

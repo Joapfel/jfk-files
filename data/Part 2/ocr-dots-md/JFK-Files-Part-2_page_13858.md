@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13858.png
-
-Convert to MarkdownJ. B. ADAMS
+J. B. ADAMS
 DEPUTY ASSOCIATE DIRECTOR
 
 1a = drew a chart of Mr. H's office - indelible people and things in passage 2mm.

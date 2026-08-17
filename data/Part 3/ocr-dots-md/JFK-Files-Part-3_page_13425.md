@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13425.png
-
-Convert to Markdown1 wanted to go in the direction of Diem must go kind of thinking, 2
+1 wanted to go in the direction of Diem must go kind of thinking, 2
 and we pulled back on it. Now, we did make an effort in the 3
 months immediately following that, to try to persuade President 4
 Diem to get his brother Nhu, and Madame Nhu, out of the country. 5

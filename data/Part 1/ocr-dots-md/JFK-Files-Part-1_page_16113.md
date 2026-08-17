@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16113.png
-
-Convert to Markdownis the surplus point, the real price you're getting is not bad as far as the general's pocket. But the general's pocket also gives the difference between the two prices in the case of the hypodermic M-16 on each rifle."
+is the surplus point, the real price you're getting is not bad as far as the general's pocket. But the general's pocket also gives the difference between the two prices in the case of the hypodermic M-16 on each rifle."
 
 The staple of the private arms trade is the aneroid battery, or the Old Red Bull. They are hardly perceptible items of caviar which sell steadily everywhere from the Conco to C Section Banda. There is, for example, the 20mm. automatic carbine, priced anywhere from $350 to $750. Delivery price will depend on condition, availability, accessibility of ammunition and shipment difficulties (open or clandestine).
 

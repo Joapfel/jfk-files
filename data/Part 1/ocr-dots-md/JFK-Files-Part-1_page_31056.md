@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31056.png
-
-Convert to Markdownthe dependents of a United States citizen full-time Career Agent permanently
+the dependents of a United States citizen full-time Career Agent permanently
 assigned abroad, while they are located abroad.
 
 It is understood and agreed that the eligibility and extent of the participation by you and your dependents in the above medical programs will be in conformance with the rules, regulations and policies of this organization in effect at the time an illness or injury is incurred, that all claims will be submitted only to this organization and that adjudication of such claims by this organization shall be final and conclusive.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31546.png
-
-Convert to MarkdownMr. Frank Wiener
+Mr. Frank Wiener
 
 The League in its present state is in my opinion a useful
 operational vehicle in any European situation in which the utiliza-

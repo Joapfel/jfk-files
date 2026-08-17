@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6509.png
-
-Convert to Markdown13-00000
+13-00000
 
 DEPARTMENT OF THE ARMY
 OFFICE OF THE SECRETARY

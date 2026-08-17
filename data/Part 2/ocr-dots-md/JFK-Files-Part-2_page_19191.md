@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19191.png
-
-Convert to MarkdownDEC. 1967
+DEC. 1967
 
 CONFIDENTIAL
 

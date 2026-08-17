@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21051.png
-
-Convert to Markdown<u>SECRET</u>
+<u>SECRET</u>
 
 (d) Your participation in the Retirement and Disability System of this Organization is preserved by virtue of your transfer without a break in service from a position of employment wherein qualification for such status was achieved. Contributions into the Retirement and Disability Fund will be deducted from the basic compensation due you hereunder.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9268.png
-
-Convert to MarkdownPhoto: of HVD officer, or
+Photo: of HVD officer, or
 
 6 Jus. 1950
 

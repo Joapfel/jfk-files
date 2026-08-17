@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21050.png
-
-Convert to MarkdownSTARS
+STARS
 
 7. **Travel.** You will be advanced or reimbursed funds for travel and transportation expenses for you, your dependents, your household effects and your personal automobile to and from your permanent post of assignment, and for you alone for authorized operational travel. In addition, you will be entitled to storage of such household and personal effects as are not shipped in conformance with applicable Government regulations. You will also be authorized shipment of household effects, presently stored in Paris, France, for combination with such household effects as are presently in storage within continental United States. You may be entitled to per diem in lieu of subsistence in the course of all travel performed hereunder and, when authorized, for you alone while on temporary duty away from your permanent post of assignment. All travel, transportation and per diem provided for under this paragraph must be properly authorized, and expenses incurred hereunder are subject to payment and accounting in compliance with applicable Government regulations or according to the established policies of your cover facility, whichever is directed by the Government.
 

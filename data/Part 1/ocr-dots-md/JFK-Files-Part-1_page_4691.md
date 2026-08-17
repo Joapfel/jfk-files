@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4691.png
-
-Convert to Markdown14-0000
+14-0000
 
 **Intelligence Information Cable**: 13-6790008
 FIRM DISTRIBUTION STATEMENT: LAKING PAGE 001 OF 002

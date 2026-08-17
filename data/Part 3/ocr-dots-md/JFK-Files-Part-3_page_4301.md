@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4301.png
-
-Convert to MarkdownSECRET
+SECRET
 Group I
 Excluded from automatic downgrading and declassification
 

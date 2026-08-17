@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_1372.png
-
 for underdeveloped countries in Department III of the Ministry of Foreign Trade.</td>
         </tr>
         <tr>

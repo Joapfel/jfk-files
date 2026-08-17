@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24159.png
-
-Convert to MarkdownMEMORANDUM FOR: The Record
+MEMORANDUM FOR: The Record
 
 FROM : Harvey G. FAHNRICH
 

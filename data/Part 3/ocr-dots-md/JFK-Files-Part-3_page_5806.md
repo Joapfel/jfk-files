@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5806.png
-
-Convert to Markdown# Tampa
+# Tampa
 
 Excision (name unknown) Tampa television producer or newsman. Furnished public source data and lead material concerning black nationalist groups, particularly Junta of Militant Organizations, for a television "special".
 

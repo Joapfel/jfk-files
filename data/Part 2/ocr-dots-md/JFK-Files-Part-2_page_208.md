@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_208.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OBTAIN L ASSESSMENT FOLLOWING S DEPARTURE.
 

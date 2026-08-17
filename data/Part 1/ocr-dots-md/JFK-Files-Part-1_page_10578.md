@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10578.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>PROJECT NO.</td>
     <td>FILE THIS FORM IN FILE NO.</td>

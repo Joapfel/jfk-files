@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1194.png
-
-Convert to MarkdownANNEX to SA/DO/O Memorandum, 12 October 1976
+ANNEX to SA/DO/O Memorandum, 12 October 1976
 
 SUBJECT: SSCI Request for OS File Material
 

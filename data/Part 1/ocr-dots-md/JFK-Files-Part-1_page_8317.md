@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8317.png
-
-Convert to Markdownwe recruited LIBACON-1, then he should be told about it.
+we recruited LIBACON-1, then he should be told about it.
 
 4. Admin & Finance:
 

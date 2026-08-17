@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21906.png
-
-Convert to Markdowntion of WIROGUE (O'Donnell, 9/11/75, pp. 39-42). (O'Donnell) mentioned that agent QJWIN was considered for use on a "strong arm squad," but said that this was for purposes more general than assassinations:
+tion of WIROGUE (O'Donnell, 9/11/75, pp. 39-42). (O'Donnell) mentioned that agent QJWIN was considered for use on a "strong arm squad," but said that this was for purposes more general than assassinations:
 
 surveillance teams where you have to go
 into crime areas ... where you need a

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7281.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>CABLE SEC DIGEST BY PER</td><td>TOTAL COPIES</td><td>RUN BY</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td></td><td>SECRET</td></tr></table>
 

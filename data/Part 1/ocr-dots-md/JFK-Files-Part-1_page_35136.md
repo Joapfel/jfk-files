@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35136.png
-
-Convert to Markdown<u>OTROS: (Continuación)</u>
+<u>OTROS: (Continuación)</u>
 
 <u>Check No.</u>      <u>Total</u>
 | Directorio Estudiantil: (Cont.) | | 

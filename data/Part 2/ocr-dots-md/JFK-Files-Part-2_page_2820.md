@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2820.png
-
-Convert to Markdown# FITNESS REPORT
+# FITNESS REPORT
 
 NOTE: Supervisor or Reviewing Official may assign a higher classification if CONFIDENTIAL is not adequate for the report when completed.
 

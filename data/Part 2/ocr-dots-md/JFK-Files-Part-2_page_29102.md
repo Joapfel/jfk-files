@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29102.png
-
-Convert to MarkdownHW-88926
+HW-88926
 
 Form
 1040

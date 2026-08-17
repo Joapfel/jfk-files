@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5279.png
-
-Convert to MarkdownPARABIC LINGUISTS
+PARABIC LINGUISTS
 
 (Item 6, pgs. 182 & 202)
 

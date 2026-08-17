@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12504.png
-
-Convert to Markdown2. Investigative procedures
+2. Investigative procedures
 
 a. Scope of investigation.
 Data concerning the following items should be developed and reported, if pertinent:

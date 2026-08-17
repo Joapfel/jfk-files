@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1845.png
-
-Convert to MarkdownCONFIDENCE L
+CONFIDENCE L
 (When Filled In)
 
 IMPORTANT

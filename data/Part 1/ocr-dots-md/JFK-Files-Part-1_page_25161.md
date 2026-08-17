@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25161.png
-
-Convert to MarkdownSECRET
+SECRET
 
 KGB 201 FILE REVIEW CHECKLIST
 

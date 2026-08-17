@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25089.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SAGO INFO DIR CITE MEXI 6866
 REDWOOD

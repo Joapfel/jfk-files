@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11935.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: Joseph Raymond Merola
 

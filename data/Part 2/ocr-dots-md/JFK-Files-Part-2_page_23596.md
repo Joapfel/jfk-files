@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23596.png
-
-Convert to MarkdownFILE:
+FILE:
 
 for left democratic reform ended. Goodwin professed himself puzzled
 by Johnson's assertion that he had discovered a "murder incorporated"

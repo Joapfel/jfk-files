@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3769.png
-
-Convert to MarkdownCentral South Internacional inc.
+Central South Internacional inc.
 
 D. B. E. HARTLEY OFFICE STATION, NEW YORK, N.Y., JUL. 13, 1918
 

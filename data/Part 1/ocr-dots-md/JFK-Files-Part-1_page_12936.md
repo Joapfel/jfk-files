@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12936.png
-
-Convert to Markdown6 July 67 Justice Dept requested have Subject recontact Rosenthal for meetings for purpose of arresting Rosenthal for possession of goods passed to him by Subject.
+6 July 67 Justice Dept requested have Subject recontact Rosenthal for meetings for purpose of arresting Rosenthal for possession of goods passed to him by Subject.
 
 amicably
 

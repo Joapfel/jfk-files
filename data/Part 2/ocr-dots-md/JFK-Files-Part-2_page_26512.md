@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26512.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C. In any event, we know of only two coun- tries--Mexico and Uruguay--where Castro appears inclined for the time being to forego inciting violence, and this only because he wants a favorable climate for his operations into other countries.
 

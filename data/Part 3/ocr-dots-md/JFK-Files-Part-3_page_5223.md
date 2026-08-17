@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5223.png
-
-Convert to MarkdownAs you are aware provisions of Senate Bill 30 made it a Federal crime in certain gambling operations and it will not be necessary to prove interstate aspects of the gambling activity.
+As you are aware provisions of Senate Bill 30 made it a Federal crime in certain gambling operations and it will not be necessary to prove interstate aspects of the gambling activity.
 
 Top Echelon Criminal Informant Program (TECIP)
 

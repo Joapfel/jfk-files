@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27052.png
-
-Convert to Markdown(December 26th - Continued)
+(December 26th - Continued)
 
 CONFIDENTIAL
 

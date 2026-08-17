@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7293.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><caption>SIGNAL CENTER USE ONLY</caption><thead><tr><th>AGE</th><th>COI</th><th>ACP</th><th>TOG</th><th>TPB</th><th>MRO</th><th>DCI</th></tr></thead><tbody><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22571.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 "CIA Covert Source" He is suspected of being a CIA employee by various Cuban refugees with whom he became friendly following his incarceration in a Cuban prison.
 

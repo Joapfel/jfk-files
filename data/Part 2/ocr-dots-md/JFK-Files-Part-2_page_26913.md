@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26913.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A Well, we used all-source information to find out what his commercial dealings were. When we would see -- well, for instance, the Nicaro Nickel Mine which is a source owned by the General Services Administration, finally got back into production and nickel, of course, and still is -- was in short supply. We had a French firm, Societe le Nickel, who was buying almost the entire output of the Nicaro mines. And this French firm ex ported to the United States. So we went to the Treasury Department and to the Foreign Assets Control people and said, isn't there something we can do to stop these le Nickel exports coming into the United States? So they looked into the thing and indeed they did.
 

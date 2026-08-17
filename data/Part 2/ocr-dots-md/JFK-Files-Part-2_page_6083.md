@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6083.png
-
-Convert to Markdownsensitive. Such a practice is perhaps understandable, given the vicissitudes of national security, but openness and the general availability of information about the conduct of government is to be cherished in a democracy.
+sensitive. Such a practice is perhaps understandable, given the vicissitudes of national security, but openness and the general availability of information about the conduct of government is to be cherished in a democracy.
 
 3. One of the duties of the ARRB will be to determine what constitutes an "assassination record". What criteria do you think should be used to make this decision?
 

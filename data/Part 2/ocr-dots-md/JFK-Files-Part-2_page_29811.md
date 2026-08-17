@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29811.png
-
-Convert to MarkdownM - Would the name Pooks Hill ring a bell?
+M - Would the name Pooks Hill ring a bell?
 
 D - No
 

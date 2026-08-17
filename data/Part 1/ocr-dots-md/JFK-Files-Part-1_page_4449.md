@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4449.png
-
-Convert to MarkdownJohn V. HANNON (T)
+John V. HANNON (T)
 
 Harold V. KARABLY (P)
 

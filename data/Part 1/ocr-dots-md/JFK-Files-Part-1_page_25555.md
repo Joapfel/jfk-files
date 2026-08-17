@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25555.png
-
-Convert to MarkdownSECRET
+SECRET
 
 180035Z JUL 69 CITE MEXICO CITY 0967
 

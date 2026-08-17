@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21075.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Section D3 continued
 

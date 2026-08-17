@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10209.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DISPATCH</td>
     <td><strong>CLASSIFICATION:</strong> SECRET<br/><strong>PROCESSING ACTION:</strong></td>

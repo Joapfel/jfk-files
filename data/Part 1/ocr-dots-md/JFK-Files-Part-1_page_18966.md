@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18966.png
-
-Convert to Markdown(Continued on next page)
+(Continued on next page)
 
 <table><tr><td>19. (a) Would you accept short-term appointment, if offered<br/>1 to 3 months? X</td><td></td><td></td></tr><tr><td></td><td>X</td><td></td></tr><tr><td>3 to 6 months? ...</td><td></td><td></td></tr><tr><td>6 to 12 months? ...</td><td></td><td></td></tr><tr><td colspan="3">(b) Would you accept appointment, if offered:</td></tr><tr><td>In Washington, D.C? X</td><td></td><td>(a) What is the lowest entrance salary you will accept? $ _________<br/>per year.</td></tr><tr><td>anywhere in the United States? X</td><td></td><td>You will not be considered for positions paying less.</td></tr><tr><td>outside the United States? X</td><td></td><td>(a) If yes, are you willing to travel: <input type="checkbox" checked disabled/> Usually <input type="checkbox" disabled/> Frequently <input type="checkbox"/> Constantly</td></tr></table>
 

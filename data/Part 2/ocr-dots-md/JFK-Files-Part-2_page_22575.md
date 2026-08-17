@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22575.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Circa 2 June 1967, Wiley prepared a report which he
 captioned, "Basic Theme of Letter to Ex-Presidents" out-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4768.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in. And maybe Seymour Hersh is right. Maybe you can do
 without that 5 percent. I don't know. But I don't want to

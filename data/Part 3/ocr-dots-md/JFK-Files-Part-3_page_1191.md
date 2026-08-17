@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1191.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## "US" Also Known As "US", Incorporated
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12338.png
-
-Convert to MarkdownATT 1
+ATT 1
 
 STATE
 8 MAR 73

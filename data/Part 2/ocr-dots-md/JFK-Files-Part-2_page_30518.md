@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30518.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1962 - Pete Bagley
 George

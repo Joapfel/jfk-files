@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15565.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>DATE : 2 APR 61</td>

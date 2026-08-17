@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3204.png
-
-Convert to MarkdownSECRET
+SECRET
 
 USC Attachment to HABA-20693
 

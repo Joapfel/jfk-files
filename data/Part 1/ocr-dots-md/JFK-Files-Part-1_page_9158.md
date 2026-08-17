@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9158.png
-
-Convert to MarkdownCharmingly after Mrs. Luce's return to this country, she appeared at an off-the-record meeting of the Overseas Press Club in Washington about her travels and took a very strongly anti-British- language position. The meeting was most left informal, and the at- tendees here was friendly, to her, so there seems to be no person to sup- pose that she was precluded from doing anything she did not really mean. Among other things, she said at this meeting that the Swiss Com- mune should be turned over to the Egyptians.
+Charmingly after Mrs. Luce's return to this country, she appeared at an off-the-record meeting of the Overseas Press Club in Washington about her travels and took a very strongly anti-British- language position. The meeting was most left informal, and the at- tendees here was friendly, to her, so there seems to be no person to sup- pose that she was precluded from doing anything she did not really mean. Among other things, she said at this meeting that the Swiss Com- mune should be turned over to the Egyptians.
 
 "Then do you think this should be done?" she asked.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25205.png
-
-Convert to MarkdownNEW YORK TIMES
+NEW YORK TIMES
 
 Mr. Theodore SHABAD
 

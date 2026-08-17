@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3540.png
-
-Convert to Markdownrecognize that the President's "domestic security role" has a
+recognize that the President's "domestic security role" has a
 "constitutional basis"; that the President through the Attorney
 General may need "to obtain intelligence information about those
 who plot unlawful acts against the Government"; and that "threats

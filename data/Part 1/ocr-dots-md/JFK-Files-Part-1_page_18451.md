@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18451.png
-
-Convert to MarkdownDistribution:
+Distribution:
 
 * 0 - Return to D/Pers c13 3 25 PM '67
 * 1 - DDCI

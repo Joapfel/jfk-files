@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3499.png
-
-Convert to MarkdownMemorandum J. Cochran, Jr. to Mr. Jenkins
+Memorandum J. Cochran, Jr. to Mr. Jenkins
 
 RE: REQUEST BY SENATE JUDICIARY SUBCOMMITTEE ON ADMINISTRATIVE PRACTICE AND PROCEDURE FOR INFORMATION CONCERNING USE OF DRUGS FOR INTERROGATION
 

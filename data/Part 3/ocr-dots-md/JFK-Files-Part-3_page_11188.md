@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11188.png
-
-Convert to Markdownnorthwest to the town of Old Iliamna and thence following the south shore of Lake Iliamna to the Kvichak River to the Kvichak Bay; (2) in the islands adjacent to the Alaska Peninsula excluding Kodiak and Afognak Islands which are the responsibility of the Office of Naval Intelligence; (3) in the Aleutian Islands excluding Adak Island which is the responsibility of the Office of Naval Intelligence; and (4) in the Pribilof Islands.*
+northwest to the town of Old Iliamna and thence following the south shore of Lake Iliamna to the Kvichak River to the Kvichak Bay; (2) in the islands adjacent to the Alaska Peninsula excluding Kodiak and Afognak Islands which are the responsibility of the Office of Naval Intelligence; (3) in the Aleutian Islands excluding Adak Island which is the responsibility of the Office of Naval Intelligence; and (4) in the Pribilof Islands.*
 
 6. Informing the other subscribing organizations of any important developments.
 

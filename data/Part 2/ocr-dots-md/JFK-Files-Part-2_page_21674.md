@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21674.png
-
-Convert to Markdown1 could you think of anything which would be of benefit to this Committee that we have not inquired into?
+1 could you think of anything which would be of benefit to this Committee that we have not inquired into?
 
 5
 

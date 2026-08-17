@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29742.png
-
-Convert to MarkdownClassification IUI OLIKILI
+Classification IUI OLIKILI
 
 (This form is to be used for material extracted
 from CIA—controlled documents.)

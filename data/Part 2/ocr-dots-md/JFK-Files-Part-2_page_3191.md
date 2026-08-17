@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3191.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 launch strikes against Cuba. Apparently there was some discussion of limiting use of this base to only two or three days -- at least some of the State Department people pushed this idea -- but WH/4 pointed out that it was inconceivable in view of the nature of the planned air operations, that the air support operation could be in and out of Nicaragua in this period. It was pointed out to Willauer that efforts had been made to get permission to use US bases, or other closer bases to Cuba than Nicaragua, but without success. Willauer, himself was positive that no US bases would be made available for the strike against Castro.
 

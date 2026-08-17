@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30491.png
-
-Convert to MarkdownMEMORANDUM FOR: Director of Central Intelligence
+MEMORANDUM FOR: Director of Central Intelligence
 
 VIA : Deputy Director (Plans)
 

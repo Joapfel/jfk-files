@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6713.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">SENDER</td>
         <td>LL CHECK CLASSIFICATION TOP AND DO M</td>

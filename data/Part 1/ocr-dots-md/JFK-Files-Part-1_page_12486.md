@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12486.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">
      W.H. WALKER: jev

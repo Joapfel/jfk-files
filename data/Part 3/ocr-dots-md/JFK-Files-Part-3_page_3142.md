@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3142.png
-
-Convert to Markdownthat our whole domestic intelligence operations were secret.
+that our whole domestic intelligence operations were secret.
 The COINTELPRO operation was. I mean, I think we all agree that
 this was, to be effective, they felt it should be secret. But
 back in our -- this is printed appropriation testimony which

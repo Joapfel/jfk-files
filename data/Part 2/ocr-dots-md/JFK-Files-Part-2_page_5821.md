@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5821.png
-
-Convert to Markdown* Richard Gibson and the Free Cuba Committee
+* Richard Gibson and the Free Cuba Committee
 
 • Howard Hunt
 

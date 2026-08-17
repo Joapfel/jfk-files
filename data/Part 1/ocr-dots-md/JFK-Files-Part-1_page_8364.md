@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8364.png
-
-Convert to MarkdownSOURCE:
+SOURCE:
 
 DATE: Tierns 3 de enero de 1968.
 

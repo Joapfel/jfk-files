@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2594.png
-
-Convert to Markdown# Areas of General Inquiry
+# Areas of General Inquiry
 
 In addition to the case studies outlined above, the Committee is examining certain general areas relating to the legal authority, organization, and procedures for FBI intelligence and counterintelligence activities. The FBI has provided a considerable amount of information to the Committee staff on its regular procedures. However, there has been no response to a number of requests for documents on specific matters identified in the May 14, 1975, request.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27585.png
-
-Convert to Markdown## Education:
+## Education:
 
 1/72 - 7/47
 Strayer College, 13th & "G" Streets, N.W.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10032.png
-
-Convert to MarkdownPAGE TWO DL 105-NEW
+PAGE TWO DL 105-NEW
 
 | | 3X | 1X | 1X | 1X | 1X | 1X | 2 | 2 |
 |---|---|---|---|---|---|---|---|---|

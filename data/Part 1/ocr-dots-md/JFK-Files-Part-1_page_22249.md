@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22249.png
-
-Convert to Markdown4. Technical Operations Against the U.S. Embassy
+4. Technical Operations Against the U.S. Embassy
 
 a. Discussion
 

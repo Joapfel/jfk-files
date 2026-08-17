@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34604.png
-
-Convert to MarkdownSECRET
+SECRET
 
 on a number of critical points indicating that he was sent by the KGB to perform one or more missions which also involved his penetration of the Agency and its operations. It was decided, therefore, that the physical circumstances of Nosenko's stay in this country would have to be drastically changed if the Agency were to carry out its counterintelligence responsibilities and adhere to the terms of the parole agreement. As a result, he was moved to quarters where his movements could be more easily controlled, and his outing privileges were suspended pending resolution of bona fides.
 

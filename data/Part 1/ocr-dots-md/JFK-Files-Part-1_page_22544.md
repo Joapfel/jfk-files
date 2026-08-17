@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22544.png
-
-Convert to MarkdownSECRET-eyes ONLY
+SECRET-eyes ONLY
 
 "His group [assassination] plan now this: Group knows identity Trujillo's mistress in capital. He visits her once week or once in two weeks. Goes her apartment, acknowledges and lightly guarded. Group apparently has someone in building who can alert them to visit. Dressed as army officers, small group will go to entrance, distract guard with pretext, dispatch him or them in silence, enter apartment and try do [assassination], possibly including mistress, in silence.
 

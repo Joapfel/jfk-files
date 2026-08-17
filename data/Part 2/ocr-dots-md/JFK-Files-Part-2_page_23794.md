@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23794.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 talking about less than 25 people, where you are going to make
 2 a statutory prohibition against use of all people in that

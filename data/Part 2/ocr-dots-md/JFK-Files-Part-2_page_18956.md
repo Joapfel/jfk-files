@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_18956.png
-
 ." Jaffe got the impression that Vinogradov's job is not important.
 
 Petrovskiy mentioned that Viktor Mikhailovich Sukhodrev and his wife also are now divorced: Jaffe said she had been in "show business," Jaffe continued: "Viktor decided he wanted a diplomatic career. He is working in the Foreign Ministry, but whenever they need a translator, they grab him." Petrovskiy indicated Sukhodrev is not happy with his new job because he likes to travel and "be a big shot." While working at the Foreign Ministry, Sukhodrev occasionally is used as an interpreter in important cases.

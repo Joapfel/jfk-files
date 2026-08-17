@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2906.png
-
-Convert to MarkdownCUBAN REVOLUTIONARY COUNCIL
+CUBAN REVOLUTIONARY COUNCIL
 INTERNAL SECURITY - CUBA
 
 On April 15, 1963, MM T-1 advised that he was positive that MIRO CARDONA did not intend to again tender his resignation on Monday, April 15, 1963, but was contemplating taking that action on the following Thursday, April 18, 1963. MM T-1 said that the Council was meeting on Thursday to take a definite attitude or tough line of action and that it was entirely probable that all of the members of the Council might resign in protest to the present policy of the United States with regard to the Cuban situation. He said that the present feeling of the Council towards the United States is basically "to hell with it".

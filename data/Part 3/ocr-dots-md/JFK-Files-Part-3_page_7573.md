@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7573.png
-
-Convert to MarkdownLegal Counsel to Mr. Adams Memo
+Legal Counsel to Mr. Adams Memo
 Re: Senate Select Committee on
 Intelligence Activities
 

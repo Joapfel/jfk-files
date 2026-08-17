@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25111.png
-
-Convert to MarkdownHedgeman stressed that in this period, 1960-1961, the Congo was fraught with utter confusion; he says that what they were running was a Scotch tape and baling-wire operation. As for paramilitary operations, Hedgeman said they began seriously in the end of 1962 with the arrival of a number of T-6's that he and Ed Gullion had asked for. He said that these aircraft were not intended to be used in combat, but only to reassure the Congolese that the United States was with them and provide them with a bit of black magic. Hedgeman professed that the paramilitary combat missions of 1963, in support of anti-rebel activities, were really quite minor affairs.
+Hedgeman stressed that in this period, 1960-1961, the Congo was fraught with utter confusion; he says that what they were running was a Scotch tape and baling-wire operation. As for paramilitary operations, Hedgeman said they began seriously in the end of 1962 with the arrival of a number of T-6's that he and Ed Gullion had asked for. He said that these aircraft were not intended to be used in combat, but only to reassure the Congolese that the United States was with them and provide them with a bit of black magic. Hedgeman professed that the paramilitary combat missions of 1963, in support of anti-rebel activities, were really quite minor affairs.
 
 FILE:
 

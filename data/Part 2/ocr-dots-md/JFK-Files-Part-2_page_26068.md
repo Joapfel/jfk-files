@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26068.png
-
-Convert to Markdown-98-
+-98-
 
 ambassador or something. Some French gal
 played the role: I've been trying to get

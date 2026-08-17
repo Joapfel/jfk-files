@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8737.png
-
-Convert to Markdownprovided a copy of the letter to local FBI office.
+provided a copy of the letter to local FBI office.
 
 LIAISON WITH OTHER U.S. AGENCIES 19-2-4
 

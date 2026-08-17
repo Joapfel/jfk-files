@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7866.png
-
-Convert to Markdown<table><tr><td>MICROFILMED</td></tr><tr><td>SEP 12 1961</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>
+<table><tr><td>MICROFILMED</td></tr><tr><td>SEP 12 1961</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>
 
 THE CONSULAR SECTION OF THE USSR EMBASSY IN MEXICO CITY
 

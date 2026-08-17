@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1216.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">ORIG</td>
     <td colspan="4">D. RONIS:jd</td>

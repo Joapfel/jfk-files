@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18450.png
-
-Convert to Markdown12. What have been the effects of this coordination?
+12. What have been the effects of this coordination?
 
 13. To what extent has each of the foregoing been com-
 patible with the legal authority for and the purposes

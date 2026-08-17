@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19562.png
-
-Convert to Markdown16. Describe your present physical condition, and state whether you have any physical defect or infinity. Is your health and physical condition such that you can serve in any climate? (The right is reserved to require the applicant to submit to a medical examination.) Physical condition good Any climate
+16. Describe your present physical condition, and state whether you have any physical defect or infinity. Is your health and physical condition such that you can serve in any climate? (The right is reserved to require the applicant to submit to a medical examination.) Physical condition good Any climate
 
 17. At what institutions educated? Give dates covering time spent in each and state general courses of study pursued; degrees, if any, obtained; and years when conferred: AB Degree Hardin-Simmons U, Abilene, Texas, 1936-1940 20 hrs law George Washington U, Washington D. C., 1940-1941.
 

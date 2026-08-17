@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19078.png
-
-Convert to MarkdownPage-header:
+Page-header:
 
 14-00000
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3030.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 students, and the masses in America to support his revolution. COS emphasized that Headquarters should make no mistake that the Castro Government, while not openly avowed Communist, was heavily infiltrated with Communists and had taken no stand in opposition to Communist positions, and, moreover, there was little question about who would eventually control the Cuban Government. COS did suggest that Headquarters give serious consideration to planting embarrassing questions with reporters to stick to Castro while he was in the US. 33/ Both the Department of State and COS Havana were in general agreement about the results of the Castro visit. COS Havana summarized one of his dispatches as follows:
 

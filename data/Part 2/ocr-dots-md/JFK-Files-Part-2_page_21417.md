@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21417.png
-
-Convert to Markdown11. Ronald Boyd Hill
+11. Ronald Boyd Hill
 Known Affiliation: BPP
 Violation: Escaped Federal prisoner
 

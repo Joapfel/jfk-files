@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34481.png
-
-Convert to MarkdownSECRET
+SECRET
 
 investigations. We concluded that it had been established beyond reasonable doubt that Nosenko was a KGB agent who established contact with CIA, subsequently defected on KGB instructions, and that he came to the United States on a deception mission. The implications of this mission had a grave and direct bearing on U.S. national security. Although our findings were supported by the results of two polygraph examinations, the nature of the evidence was inadmissable in a court of law. In any case, it is clear that Nosenko had not been in a position to perform any overt act of transgression of U.S. espionage laws since 4 April 1964 when he was placed in a restricted area and deprived of any conceivable means of communication with the KGB.
 

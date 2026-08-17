@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19711.png
-
-Convert to MarkdownWhether or not the paper will continue is unknown
+Whether or not the paper will continue is unknown
 at this time.
 
 On December 1, 1972, WF T-9 advised that the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3442.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The Special Investigations Group of the CI Staff (CI/SIG)
 

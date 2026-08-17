@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21529.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Schwarz. You mentioned OJWINN. Was OJWINN an agent who you did hold in reserve for possible use in connection with the Executive Action program?
 

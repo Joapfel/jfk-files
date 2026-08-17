@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25097.png
-
-Convert to MarkdownSECRET 261701Z
+SECRET 261701Z
 DIR CITE MEXI 4349
 REDWOOD
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1825.png
-
-Convert to Markdown# TRAINING REPORT
+# TRAINING REPORT
 
 ## OFFICE OF TRAINING
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11065.png
-
-Convert to Markdown**Presidential Directive - 1/8/43**
+**Presidential Directive - 1/8/43**
 reiterated instructions of previous directive of
 9/6/39 and requested law enforcement officers,
 patriotic organizations and individuals turn over

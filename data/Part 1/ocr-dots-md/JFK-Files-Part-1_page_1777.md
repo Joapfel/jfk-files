@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1777.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. The organization of the DCI/DDCI's office is currently under study.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20545.png
-
-Convert to MarkdownSA 100-12995
+SA 100-12995
 
 PAGE THREE
 

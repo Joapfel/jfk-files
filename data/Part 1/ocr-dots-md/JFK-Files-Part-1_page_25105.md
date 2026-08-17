@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25105.png
-
-Convert to Markdown9. PHYSICAL DESCRIPTION AND PHOTOS:
+9. PHYSICAL DESCRIPTION AND PHOTOS:
 
 (March 1965 - basis LIEMPTY, LICONE! and Staffer Observation.)
 

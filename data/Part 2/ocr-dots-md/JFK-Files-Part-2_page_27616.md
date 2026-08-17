@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27616.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">May inquiry be made of your present employer regarding your character, qualifications, and record of employment? (A "No" will not affect your consideration for employment opportunities except for HEARING EXAMINER positions.)</td>
     <td><input type="checkbox" checked disabled></td>

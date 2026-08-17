@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8019.png
-
-Convert to Markdown14-00000
+14-00000
 
 From: Habana, Cuba.
 Report No.: HK-951 Local File No.: 10-18

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8726.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **Soviet Operational Contacts:**
 

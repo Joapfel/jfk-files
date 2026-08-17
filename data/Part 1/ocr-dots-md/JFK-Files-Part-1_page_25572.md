@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25572.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 MEMORANDUM FOR : Office of Finance

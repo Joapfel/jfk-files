@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_481.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 231655Z CITY MEXICO CITY 8026
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25068.png
-
-Convert to Markdownkept under continuing scrutiny by all interested
+kept under continuing scrutiny by all interested
 departments and agencies to ensure that it serves
 the purposes of retarding the growth of the war
 potential of the Sino-Soviet Bloc and reducing its

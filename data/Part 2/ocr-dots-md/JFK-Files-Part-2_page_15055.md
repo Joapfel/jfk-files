@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15055.png
-
-Convert to MarkdownALLEGED VIOLATIONS OF FEDERAL CORRUPT PRACTICES ACT BY 21 POLITICAL COMMITTEES; W. PAT JENNINGS, CLERK OF THE HOUSE OF REPRESENTATIVES - COMPLAINANT TITLE 2, SECTION 244, USC, ELECTION LAWS
+ALLEGED VIOLATIONS OF FEDERAL CORRUPT PRACTICES ACT BY 21 POLITICAL COMMITTEES; W. PAT JENNINGS, CLERK OF THE HOUSE OF REPRESENTATIVES - COMPLAINANT TITLE 2, SECTION 244, USC, ELECTION LAWS
 
 We were instructed by former Assistant Attorney General Vinson to interview the Chairmen and Treasurers of 20 Republican Committees and one Democratic Committee that filed late reports with the Clerk of the House of Representatives. There have been some delays in obtaining necessary information as well as locating the individuals to be interviewed. We have kept the Department fully advised of all developments.
 

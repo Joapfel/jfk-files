@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11468.png
-
-Convert to Markdown3. Investigative Procedures and suggestions
+3. Investigative Procedures and suggestions
 
 This section contains detailed investigative guides for use in
 investigating and reporting activities of the Communist Party,

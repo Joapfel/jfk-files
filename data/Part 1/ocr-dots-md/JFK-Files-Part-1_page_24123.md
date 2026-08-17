@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24123.png
-
-Convert to MarkdownGRIFFITH VISIT
+GRIFFITH VISIT
 
 Conversation with Prof. William S. Griffith, London, 25/4/67.
 

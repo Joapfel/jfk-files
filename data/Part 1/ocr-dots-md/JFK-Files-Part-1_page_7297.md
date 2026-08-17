@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7297.png
-
-Convert to Markdown7.08 The kind of man who is often quite late—and indifferent about it—inclined to be short and curt in his greetings and is sometimes awkward when he enters a room.
+7.08 The kind of man who is often quite late—and indifferent about it—inclined to be short and curt in his greetings and is sometimes awkward when he enters a room.
 
 7.09 None of these.
 I would describe him as:

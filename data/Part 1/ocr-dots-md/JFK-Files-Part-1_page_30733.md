@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30733.png
-
-Convert to MarkdownS-1-C-3-P-1
+S-1-C-3-P-1
 
 # TRAINING REPORT
 ## COMMIT OPERATIONS SEMESTER NO. 1

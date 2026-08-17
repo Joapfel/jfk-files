@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6745.png
-
-Convert to MarkdownThe Honorable Robe: M. Gates
+The Honorable Robe: M. Gates
 
 Would you be opposed to a provision requesting agencies, whenever possible, to self-certify materials which may released without agency objection?
 

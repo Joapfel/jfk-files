@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26401.png
-
-Convert to MarkdownSECRET
+SECRET
 ---
 
 VIET-NAM

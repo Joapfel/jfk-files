@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18934.png
-
-Convert to MarkdownTEST RECORD
+TEST RECORD
 
 A. EVALUATION OF TEST RESULTS.
 

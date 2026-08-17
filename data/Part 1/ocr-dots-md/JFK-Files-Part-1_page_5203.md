@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5203.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CONTINUED STATEMENT
 

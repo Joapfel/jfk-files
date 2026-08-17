@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1224.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Supplement to Staff Employee Personnel
 Action for Integration of Joseph B. Smith

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1922.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="5">REQUEST FOR APPROVAL OR INVESTIGATIVE ACTION<br>(Always handcarry 1 copy of this form)</th></tr></thead><tbody><tr><td rowspan="2"><strong>TO:</strong><br>CI/Operational Approval and Support Division<br>X Security Support Division/Office of Security</td><td><strong>DATE</strong><br>7 October 1959</td></tr><tr><td><strong>FROM:<br>NE/2/Jordan<br>1205 I x3203</strong></td></tr><tr><td><strong>SUBJECT:<br>Robert A. Maheu</strong></td><td><strong>PROJECT</strong></td></tr><tr><td><strong>(True name)<br>CRYPTONYM, PSEUDONYM, AKA OR ALIASES</strong></td><td><strong>CI/OA FILE NO.</strong><br><br><strong>RI 201 FILE NO.</strong><br><br><strong>SO FILE NO.</strong></td></tr><tr><td colspan="4"><strong>TYPE ACTION REQUESTED</strong></td></tr><tr><td>PROVISIONAL OPERATIONAL APPROVAL<br>OPERATIONAL APPROVAL<br>PROVISIONAL COVERT SECURITY APPROVAL<br>X COVERT SECURITY APPROVAL<br>COVERT SECURITY APPROVAL FOR LIAISON WITH U.S. OFFICIALS</td><td>PROVISIONAL PROPRIETARY APPROVAL<br>PROPRIETARY APPROVAL<br>COVERT NAME CHECK<br>SPECIAL INQUIRY (SO field investigation)</td></tr><tr><td colspan="4"><strong>USE OF INDIVIDUAL OR ACTION REQUESTED</strong></td></tr><tr><td colspan="4"><strong>SPECIFIC AREA OF USE<br>U.S. and Jordan</strong></td></tr><tr><td colspan="4"><strong>FULL DETAILS OF USE<br>May be employed by the King of Jordan to handle Jordanian public relations in the U. S.</strong></td></tr></tbody></table>
 

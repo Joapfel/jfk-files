@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4821.png
-
-Convert to MarkdownMM 87-1870
+MM 87-1870
 
 A review of the Miami, Florida, Crisscross Directory reveals that telephone number 221-3540 is listed to GERALD SCHWARTZ, 1810-86th Avenue, S.W., Miami, Florida.
 

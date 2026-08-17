@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14006.png
-
-Convert to MarkdownIn view of all this, I cannot criticize the authorized attribution.
+In view of all this, I cannot criticize the authorized attribution.
 
 The above background of CIA interest in, and continued study of,
 the Soviet economy is so well known to the press that a request for

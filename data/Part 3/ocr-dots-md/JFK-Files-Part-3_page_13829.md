@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13829.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OCI No. 0474/63
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4764.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On December 22, 1968, MM T-1 advised that ROTHMAN was still out of town. He further advised that ROTHMAN lost the Albion Hotel Lounge for failure to pay his bills.
 

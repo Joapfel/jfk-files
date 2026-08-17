@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21469.png
-
-Convert to MarkdownSECRET
+SECRET
 
 COZ, Germany MATOPAL
 Chief, CR

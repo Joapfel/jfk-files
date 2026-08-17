@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27143.png
-
-Convert to Markdownadversary services with intent to harm. It
+adversary services with intent to harm. It
 would be unrealistic not to expect the KGB and
 other clandestine Communist services to
 recognize that the present is a time of disar-

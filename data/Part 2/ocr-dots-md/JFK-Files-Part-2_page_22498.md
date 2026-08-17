@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22498.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 McCord met next with Wiley in Washington, D. C., for two days, ending on 1 December 1955. By that time, Wiley had indexed 150,000 names of the *Daily Worker* covering January 1934 through June 1936. Wiley stated that the FBI in New York City and the American Legion were already making "extensive use" of the index cards. Wiley stated that one of his purposes being in Washington was to secure financing for the index continuation. He stated that his $5000 a year grant from the American Legion Americanism Committee would expire at the end of December 1955, and if negotiations with that body were unsuccessful, he would attempt to secure financing from the Senate and House Investigating Committees. Wiley stated that the FBI has indicated the strongest desire that he continue the indexing but that in his discussion with Mr. DeLoach (Cartha DeLoach, an FBI senior official), no indication of forthcoming financial support from the Bureau for this work was indicated.
 

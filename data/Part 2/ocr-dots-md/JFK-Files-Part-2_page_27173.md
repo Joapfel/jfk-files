@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27173.png
-
-Convert to MarkdownCompartmented Files
+Compartmented Files
 
 B-GG (II-G) # A - CIA Correspondence (COMINT-TOP SECRET)
 

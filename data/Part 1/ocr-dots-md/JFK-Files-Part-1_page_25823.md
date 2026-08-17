@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25823.png
-
-Convert to Markdown"Man's look for S."
+"Man's look for S."
 "The Spy Web"
 "Out of Biology"
 "London Calling North Pole"

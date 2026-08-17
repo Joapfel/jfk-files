@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9871.png
-
-Convert to Markdownbe stored in the Remington Rand safes. The documents in the
+be stored in the Remington Rand safes. The documents in the
 Remington Rand safes can be drawn by anyone on the staff, but
 must be receipted for with the Registry Officer. The documents
 are to be read on the tables placed there for that purpose in

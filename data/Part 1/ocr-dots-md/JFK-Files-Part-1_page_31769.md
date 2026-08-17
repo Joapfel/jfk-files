@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31769.png
-
-Convert to MarkdownAfter conferences with the State Department, it was agreed that VOA and RFE were complimentary activities and that in the future the Crusade:
+After conferences with the State Department, it was agreed that VOA and RFE were complimentary activities and that in the future the Crusade:
 
 (1) Would not put out anything which might be interpreted as a criticism of the Voice. To that end, an attached leaflet was inserted as an insert in the January 1952 "Crusader", a newsletter which was sent out to the 8,000 regional chairman of the Crusade for Freedom. It was intended to acquaint the regional Crusade organisations with the facts about the Voice of America and to offset any criticism or unfortunate comparison between Radio Free Europe and the Voice of America.
 

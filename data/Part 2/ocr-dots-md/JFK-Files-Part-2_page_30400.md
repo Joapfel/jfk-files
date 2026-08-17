@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30400.png
-
-Convert to Markdowning Please open a 201 file and give me all of the information you can collect on him."
+ing Please open a 201 file and give me all of the information you can collect on him."
 
 Mr. Goldsmith. I understand that the fact that someone has a 201 file does not mean at all that the individual was involved in any operations of the Agency. If you wanted to get information of an operational nature, would you go both to the 201 file and operations file?
 

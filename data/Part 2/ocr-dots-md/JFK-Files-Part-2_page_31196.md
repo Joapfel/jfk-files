@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31196.png
-
-Convert to Markdown0002230
+0002230
 
 19 Nov 1970
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17869.png
-
-Convert to Markdown<table><thead><tr><th>REF</th><th>CITE</th></tr></thead><tbody><tr><td>MEXI 4015 (IN 04465)*</td><td>26259</td></tr></tbody></table>
+<table><thead><tr><th>REF</th><th>CITE</th></tr></thead><tbody><tr><td>MEXI 4015 (IN 04465)*</td><td>26259</td></tr></tbody></table>
 
 WILLIAM V. BROE
 C/WHD

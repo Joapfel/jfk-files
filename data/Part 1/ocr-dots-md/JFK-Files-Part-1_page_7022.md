@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7022.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>104-10172-10177</td>
    </tr>

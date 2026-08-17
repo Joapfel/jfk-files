@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27915.png
-
-Convert to MarkdownU.S. HOUSE OF REPRESENTATIVES
+U.S. HOUSE OF REPRESENTATIVES
 
 Washington, D.C. 20515
 

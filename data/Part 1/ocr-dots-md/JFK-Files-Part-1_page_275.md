@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_275.png
-
-Convert to Markdown**Crypt request- from Leslie Mielman**
+**Crypt request- from Leslie Mielman**
 2/15/78
 
 1. AMBILEK-1 - 7370 - Estaban Jeraquin BLANCO Sanchez

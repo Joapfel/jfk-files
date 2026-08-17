@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21950.png
-
-Convert to Markdownthe Army Attache without further informing any member of the Department
+the Army Attache without further informing any member of the Department
 of Defense of the White House. This possibility would be contrary to
 the sworn testimony of David Phillips, William Broe, Thomas Karamessines,
 and William Colby. Fourth, members of the White House staff authorized

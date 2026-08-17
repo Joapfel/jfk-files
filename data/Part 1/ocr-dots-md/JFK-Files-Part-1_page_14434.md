@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14434.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">MESSAGE FORM<br>TOTAL COPY'S</th></tr></thead><tbody><tr><td>S-E-C-R-E-T</td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="3">MESSAGE FORM<br>TOTAL COPY'S</th></tr></thead><tbody><tr><td>S-E-C-R-E-T</td><td></td><td></td></tr></tbody></table>
 
 <table><thead><tr><th colspan="4">RECEIVED AND OR INITIALS - SUE BY</th></tr></thead><tbody><tr><td>1</td><td></td><td>5</td><td></td></tr><tr><td>2</td><td></td><td>8</td><td></td></tr><tr><td>3</td><td></td><td>7</td><td></td></tr><tr><td>4</td><td></td><td>9</td><td></td></tr></tbody></table>
 

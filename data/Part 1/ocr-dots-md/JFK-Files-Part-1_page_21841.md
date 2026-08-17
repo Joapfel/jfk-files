@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21841.png
-
-Convert to MarkdownILLUSTRATIONS
+ILLUSTRATIONS
 
 Photograph of NOSENKO and his father, the Minister of Shipbuilding Facing Page 11
 

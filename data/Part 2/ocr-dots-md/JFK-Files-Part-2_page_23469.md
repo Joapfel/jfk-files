@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23469.png
-
-Convert to Markdownto insist on a more precise spelling out of individual or group
+to insist on a more precise spelling out of individual or group
 views.
 
 Mr. Parrott also said that Mr. Macy had raised a related

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16779.png
-
-Convert to Markdownbullets, cartridge cases or cartridges representative of ammunition of this type were received for examination in this case.
+bullets, cartridge cases or cartridges representative of ammunition of this type were received for examination in this case.
 
 Specimen Q188 (FBI #225) is an unfired 12-gauge Remington Shurshot, 3-1-8, shotshell and the same type ammunition as that represented by the fired shotshells previously submitted and referred to as specimens Q122, Q124, Q125 -- Q126. Shot wads like Q48 and Q50 are in shotshells of this type.
 

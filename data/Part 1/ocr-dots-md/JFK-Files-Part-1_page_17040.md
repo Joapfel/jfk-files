@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17040.png
-
-Convert to Markdown8 DEC 1971
+8 DEC 1971
 
 MEMORANDUM FOR: Assistant Deputy Director for Plans
 

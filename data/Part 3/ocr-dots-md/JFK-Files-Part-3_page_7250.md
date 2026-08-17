@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7250.png
-
-Convert to Markdownand it existed for approximately 18 months.
+and it existed for approximately 18 months.
 
 Origin
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34235.png
-
-Convert to Markdowntheir outrage from taking place.
+their outrage from taking place.
 
 **Question To The 'Tricontinental Conference'.-** The Chinese delegation could be asked the whereabout of Mao Zeduan. The Russians might be questioned as to Che Guovara's. They could all be asked about the Algerian "coup" and why it took place two days before the date set for the opening of the Algiers Conference. They could be asked what they think of the Indonesian about-face, and about Sukarno's fate, and about Chinese support, since the Banjung Conference, in helping its Afro-Asian Policy.
 

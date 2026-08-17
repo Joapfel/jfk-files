@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19704.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th>Source Identification</th>

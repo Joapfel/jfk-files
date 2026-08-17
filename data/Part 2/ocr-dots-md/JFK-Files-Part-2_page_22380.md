@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22380.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q Do you know whether or not they consider him an established contact?
 

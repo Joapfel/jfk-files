@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_339.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>(6: J. Stewart</td></tr><tr><td>RI: WH/1</td></tr><tr><td>EAT: 3654</td></tr><tr><td>BATE: 6 December 1966</td></tr></table>
 

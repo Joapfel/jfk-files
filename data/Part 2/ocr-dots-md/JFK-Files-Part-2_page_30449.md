@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30449.png
-
-Convert to Markdownunderstanding that non-official cover people on the outside picked up the tapes -- don't consider this gospel, but this is my understanding -- picked up tapes from the various listening posts, some of which had been processed by people in the listening post; some of which had not. But they, in turn, either processed those tapes or took them to people to continue the processing in case they had a foreign language in them, or something, and then turn them over to the station.
+understanding that non-official cover people on the outside picked up the tapes -- don't consider this gospel, but this is my understanding -- picked up tapes from the various listening posts, some of which had been processed by people in the listening post; some of which had not. But they, in turn, either processed those tapes or took them to people to continue the processing in case they had a foreign language in them, or something, and then turn them over to the station.
 
 Somebody went out from the station, probably with a little attache case or something, and picked up takes again. It is my understanding that the person primarily involved in that was Ann Goodpasture, but I do not know for sure.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28790.png
-
-Convert to MarkdownPAY INC. FFF. 7-9-64
+PAY INC. FFF. 7-9-64
 
 PAY PLAN CLASS
 FROM SALARY TO SALARY STEP ORGAN

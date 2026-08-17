@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10428.png
-
-Convert to MarkdownSECRE
+SECRE
 
 29 August, 1968
 

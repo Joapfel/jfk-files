@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23792.png
-
-Convert to MarkdownTO: Chief, KODESK
+TO: Chief, KODESK
 FROM: Chief of Station, London
 Attachment to CELL-43,353
 

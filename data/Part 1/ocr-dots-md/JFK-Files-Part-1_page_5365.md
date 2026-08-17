@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5365.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 26-3-71/16909-68
 

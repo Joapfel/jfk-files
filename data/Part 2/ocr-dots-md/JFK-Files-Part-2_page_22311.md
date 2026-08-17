@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22311.png
-
-Convert to Markdown1. Mr. Maheu. I don't recall, but my recollection is she was highly respected by the law enforcement authorities.
+1. Mr. Maheu. I don't recall, but my recollection is she was highly respected by the law enforcement authorities.
 
 2
 

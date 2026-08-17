@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21915.png
-
-Convert to Markdownon September 21, 1960, Allen Dulles stressed the danger of
+on September 21, 1960, Allen Dulles stressed the danger of
 Soviet influence in the Congo. Despite the fact that Lumumba
 had been deposed from his position as Premier and was in UN
 custody, Dulles continued to regard him as a threat, especially

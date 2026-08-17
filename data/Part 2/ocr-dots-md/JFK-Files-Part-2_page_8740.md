@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8740.png
-
-Convert to Markdownwas sunk.
+was sunk.
 
 15 Nov 63 - had information that Cuban defense forces were on the alert and possibly forewarned of upcoming operations.
 

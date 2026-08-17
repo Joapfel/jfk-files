@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25497.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CABLE SECRETARIAL DISSEMINATION</td></tr><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>TOTAL COPY</td></tr><tr><td>RECEIVING AND/OR FOR HEALINGS SEEN BY</td></tr></table>
 

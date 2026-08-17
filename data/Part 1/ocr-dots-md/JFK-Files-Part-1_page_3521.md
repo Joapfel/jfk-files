@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3521.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="4">
      ARTIME BUESA, MANUEL<br/>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3920.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4 Nov 1963: El Paso Herald-Post article states that NAGELL told U.S. District Court that he did not attempt to hold up the bank. "I had a motive for doing what I did", NAGELL told Judge, "but my motive was not to hold up the bank. I do not intend to disclose my motive at this time."
 

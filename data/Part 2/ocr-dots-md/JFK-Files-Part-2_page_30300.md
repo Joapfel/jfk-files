@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30300.png
-
-Convert to MarkdownI N T R O D U C T I O N
+I N T R O D U C T I O N
 
 40
 

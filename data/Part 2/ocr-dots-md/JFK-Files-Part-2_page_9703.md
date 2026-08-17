@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9703.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 3
 
 DRAGER obtained bail money for them and upon their release from jail they tried to obtain the camper truck back but were advised by the local authorities it was going to be used as evidence in their pending case.

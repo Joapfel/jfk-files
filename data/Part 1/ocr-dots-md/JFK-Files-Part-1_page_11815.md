@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11815.png
-
-Convert to Markdownwill exist at least indirect control over the activities
+will exist at least indirect control over the activities
 of the group.
 
 D. Advantages to be derived by KUGOWN

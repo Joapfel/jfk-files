@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5842.png
-
-Convert to Markdown# ATTACHMENT IV.
+# ATTACHMENT IV.
 
 ## Perceived Gaps in CIA Records
 

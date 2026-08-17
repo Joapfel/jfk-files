@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27384.png
-
-Convert to MarkdownA. Memo for Phillip E. Areeda, Counsel to the President dtd 30 Dec 74
+A. Memo for Phillip E. Areeda, Counsel to the President dtd 30 Dec 74
 SECRET
 
 B. Memo to John Doar from The Attorney General - Creation of Interdivision Information Unit -- Dec 18, 19?

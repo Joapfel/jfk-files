@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_881.png
-
-Convert to MarkdownS-B-C-R-E-T
+S-B-C-R-E-T
 
 TRADING REPORT
 

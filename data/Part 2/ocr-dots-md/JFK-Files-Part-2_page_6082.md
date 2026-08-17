@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6082.png
-
-Convert to Markdownconstructive dialogue with the executive branch and the Congress about the character and disclosure of documents.
+constructive dialogue with the executive branch and the Congress about the character and disclosure of documents.
 
 4. How do you view the job of ARRB Executive Director? What role do you anticipate playing in the selection of ARRB Executive Director and staff?
 

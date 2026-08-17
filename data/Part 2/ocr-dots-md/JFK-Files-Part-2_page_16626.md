@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16626.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td rowspan="2">SPEC</td>

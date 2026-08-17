@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12529.png
-
-Convert to Markdown# A. GENERAL GUIDELINES
+# A. GENERAL GUIDELINES
 
 ## 1. Investigative jurisdiction
 

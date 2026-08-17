@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17688.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 April 9, 1975
 

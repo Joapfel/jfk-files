@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13936.png
-
-Convert to MarkdownCIA considers that of all nationalities, the Cubans are
+CIA considers that of all nationalities, the Cubans are
 the most unreliable (prone to exaggerate). The best informa-
 tion comes from non-Cuban agents.
 

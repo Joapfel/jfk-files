@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12122.png
-
-Convert to MarkdownThe immediacy of the need for member informant coverage in all extremist organizations is obvious if the Bureau is to be forewarned of plans for bombings, kidnappings, demonstrations, and other acts of violence in this country.
+The immediacy of the need for member informant coverage in all extremist organizations is obvious if the Bureau is to be forewarned of plans for bombings, kidnappings, demonstrations, and other acts of violence in this country.
 
 It is suggested that the New Left and Internal Security Sections devise a form similar to the FD-405, designed to fit the unique requirements of those Sections, which will assist Supervisors to more accurately evaluate and control informant development and coverage in the field. The form should require specific information on member informant development and coverage in each revolutionary, New Left, extremist, and protest group under investigation in each field office. In devising the new form, the New Left and Internal Security Sections should bear in mind the suggestion which has been proposed separately for the Racial Intelligence Section to revise FD-405 by adding a section to read as follows:
 

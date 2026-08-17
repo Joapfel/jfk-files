@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2455.png
-
-Convert to MarkdownSECRET
+SECRET
 
 pages would be repetitious and in many instances superfluous. It is considered that even if the statements were accepted in toto, there would still not be an adequate basis for a conclusion that NOSENKO was not an officer in the claimed positions in the Seventh Department during the period of late May 1955 - December 1959. Nor is it con- ceded that, if all the sub-conclusions and the interpretations of various areas of information were accepted without qualification, there is any evidence that NOSENKO was dispatched by the KGB. However, there are certain assumptions and interpretations which appeared in the previous summary which are particularly worthy of comment and which are considered erroneous or require additional clarification.
 

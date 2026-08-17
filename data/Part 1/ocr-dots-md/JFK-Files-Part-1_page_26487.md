@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26487.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      No. 9646

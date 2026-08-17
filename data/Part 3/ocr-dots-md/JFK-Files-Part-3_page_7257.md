@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7257.png
-
-Convert to Markdowncertain intelligence collection techniques; and, a brief evaluation of interagency cooperation, with suggested measures to improve the coordination of domestic intelligence collection. Mr. Hoover objected to certain options for relaxation of restraints on intelligence gathering. Although President Nixon at first approved the relaxation of certain restraints, this approval was rescinded about five days later.
+certain intelligence collection techniques; and, a brief evaluation of interagency cooperation, with suggested measures to improve the coordination of domestic intelligence collection. Mr. Hoover objected to certain options for relaxation of restraints on intelligence gathering. Although President Nixon at first approved the relaxation of certain restraints, this approval was rescinded about five days later.
 
 Inquiries by Various Committees of Congress and Other Entities Into the Operations of the IEC
 

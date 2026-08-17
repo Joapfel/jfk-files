@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4095.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 by members of Army Intelligence Units in Korea in order to
 protect their real identities from informants.

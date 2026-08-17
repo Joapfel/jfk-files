@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11752.png
-
-Convert to MarkdownCricket
+Cricket
 
 INTER-CITY MATCH IN VISA
 

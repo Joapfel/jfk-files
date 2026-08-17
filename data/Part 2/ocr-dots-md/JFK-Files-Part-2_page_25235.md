@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25235.png
-
-Convert to Markdown<table><tr><td>CONEIN</td></tr><tr><td>occurrence:</td></tr></table>
+<table><tr><td>CONEIN</td></tr><tr><td>occurrence:</td></tr></table>
 
 When the generals took over the PTT which controlled the communications, they left only the embassy lines open. The telephone terminals had been taken out prior to the coup and instead of leaving CONEIN's telephone into his home open, it had been disconnected
 

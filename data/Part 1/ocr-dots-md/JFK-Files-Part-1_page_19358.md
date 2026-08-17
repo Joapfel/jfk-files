@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19358.png
-
-Convert to MarkdownForm No. 38-10
+Form No. 38-10
 
 INCOMING CLASSIFIED MESSAGE
 

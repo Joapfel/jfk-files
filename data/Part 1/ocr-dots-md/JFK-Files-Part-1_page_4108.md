@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4108.png
-
-Convert to Markdown<table><tr><td>INDEX: ☐ YES ☐ NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>E-DEF TO FILE NO.</td></tr><tr><td>FILE EID ☐ DET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ SIS</td></tr><tr><td>FROM: SAN JOSE</td></tr><tr><td>ACTION: AN 8</td></tr><tr><td>FILE: VA, WNEB, CH, IJORS, FI</td></tr></table>
+<table><tr><td>INDEX: ☐ YES ☐ NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>E-DEF TO FILE NO.</td></tr><tr><td>FILE EID ☐ DET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ SIS</td></tr><tr><td>FROM: SAN JOSE</td></tr><tr><td>ACTION: AN 8</td></tr><tr><td>FILE: VA, WNEB, CH, IJORS, FI</td></tr></table>
 
 SECRET 122229Z
 

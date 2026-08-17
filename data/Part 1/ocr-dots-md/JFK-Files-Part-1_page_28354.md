@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28354.png
-
-Convert to Markdown16 November 1967
+16 November 1967
 
 MEMORANDUM FOR: Contract Personnel Division
 

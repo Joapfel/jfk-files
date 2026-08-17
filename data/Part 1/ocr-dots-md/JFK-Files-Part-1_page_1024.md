@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1024.png
-
-Convert to MarkdownPAULEY, Eduardo / PAWLEY, William D.
+PAULEY, Eduardo / PAWLEY, William D.
 
 1. MEMO FOR THE RECORD (6 Sept 77, Russ Holmes)
 

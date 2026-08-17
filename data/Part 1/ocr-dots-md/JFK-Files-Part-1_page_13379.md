@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13379.png
-
-Convert to MarkdownPICO Ramon, Reinaldo
+PICO Ramon, Reinaldo
 
 201-284658 C-85445
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16282.png
-
-Convert to MarkdownIn Haply, Please Refer to
+In Haply, Please Refer to
 File No. 157-1291
 
 Chicago, Illinois 60604

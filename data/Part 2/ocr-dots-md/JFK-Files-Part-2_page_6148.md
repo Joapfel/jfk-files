@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6148.png
-
-Convert to Markdowntoughened since 1787).
+toughened since 1787).
 
 -End Footnotes-
 

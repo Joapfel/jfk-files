@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12416.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SA BY SSC
+RE: INTERVIEW OF RETIRED FBI SA BY SSC
 
 "Seidel explained the writer was entitled to counsel, had the privilege of invoking provisions of the Fifth Amendment, and would have the privilege of making an opening and closing statement. Seidel inquired whether the writer understood his rights and the Committee's rules and regulations, a copy of which he had made available.
 

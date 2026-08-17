@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30566.png
-
-Convert to MarkdownCOFF
+COFF
 
 25 November 1947
 

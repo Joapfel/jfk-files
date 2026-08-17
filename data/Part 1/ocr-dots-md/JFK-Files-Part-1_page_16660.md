@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16660.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      RETURN TO CIA

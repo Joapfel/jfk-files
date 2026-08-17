@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11523.png
-
-Convert to Markdown30 December, 1968
+30 December, 1968
 
 Subject: LIRING/3 Identification of "Rómulo" Reported FAR Lisaison.
 

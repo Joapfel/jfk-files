@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25978.png
-
-Convert to Markdownreaction to Castro in general?
+reaction to Castro in general?
 
 **LANSDALE:** Just in very general terms. I didn't have enough concrete and specific information myself that was separate from theirs. Most of the intelligence take at the time, available inside the U.S. government, was pretty colored with this dissatisfaction and statements of it. So I had no real way of determining the accuracy or inaccuracy of it. Some of the adjectives used in describing this in briefings to us alerted me a little bit. It just sounded too much like a sales job on a viewpoint. I'd question that, whether that was an accurate thing, so this is about as far as I went.
 

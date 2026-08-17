@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17390.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 On January 16, 1969, Paul Pope, Deputy Sheriff, Champaign County Sheriff's Office, Urbana, Illinois, advised that Oliver L. Dority was sentenced on June 30, 1966, to one to twenty years at Illinois State Penitentiary, Joliet, Illinois, and Tribbett was sentenced on October 3, 1966, to a term of one to twenty-five years at the Illinois State Penitentiary, Joliet, Illinois.
 

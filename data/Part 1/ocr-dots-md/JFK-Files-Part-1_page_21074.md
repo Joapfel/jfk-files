@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21074.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Row 1: Employee Comments -->
         <tr>

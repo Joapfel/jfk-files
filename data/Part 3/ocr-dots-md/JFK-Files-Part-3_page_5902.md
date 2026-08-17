@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5902.png
-
-Convert to Markdown36. The communication from the Atlanta field office to FBI Headquarters by which "this publication has previously been furnished to the Bureau on 6/26/64," as stated in the second paragraph of page 3 of the 7/7/64 letter from the SAC, Atlanta, to the FBI Director, captioned "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, IS-C."
+36. The communication from the Atlanta field office to FBI Headquarters by which "this publication has previously been furnished to the Bureau on 6/26/64," as stated in the second paragraph of page 3 of the 7/7/64 letter from the SAC, Atlanta, to the FBI Director, captioned "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, IS-C."
 
 37. The "separate correspondence" by which the Atlanta field office was "directed to furnish the Bureau available information concerning the alleged escapades of (the Reverend Ralph) Abernathy, including the obtaining of official court records," as referred to in the Director's July 23, 1964 letter to the SAC, Atlanta, captioned "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, Internal Security - C."
 

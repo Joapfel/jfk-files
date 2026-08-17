@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3356.png
-
-Convert to MarkdownAppendix F
+Appendix F
 
 Richard M. Nixon's Memorandum
 on Meeting with Fidel Castro,

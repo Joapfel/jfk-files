@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3944.png
-
-Convert to MarkdownUFGA -1693/14
+UFGA -1693/14
 
 SUBJECT: VICTORIA, Aido
 

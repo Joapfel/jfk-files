@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7343.png
-
-Convert to Markdownthat could result to U.S. and host country activities from exposure
+that could result to U.S. and host country activities from exposure
 of such liaison. Many countries that wish to cooperate with the
 United States in intelligence endeavors simply cannot afford public
 exposure of such relationships. Some reason other than SSC business

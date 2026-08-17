@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25767.png
-
-Convert to Markdowneconomy. Proposals for expanding and intensi-
+economy. Proposals for expanding and intensi-
 fying these activities are now being presented.
 The execution of these additional measures depends
 basically on a decision to incur the considerable

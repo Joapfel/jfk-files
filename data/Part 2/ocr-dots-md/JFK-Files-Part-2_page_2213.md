@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2213.png
-
-Convert to Markdown## APPENDIX A
+## APPENDIX A
 
 Item 1.1. Georgia Information is provided in section 5 of chapter 6, "Immigration and Immigration" in the Code of Federal Regulations (8 CFR) part 263. The information contained in this report pertains only to events that occurred during the reporting period. Pursuant to a decision made on August 14, 2017 by the Attorney General, the Office of Civil Rights will no longer accept applications for federal immigration benefits under the Human Resources Development Act of 1983 or any other law or regulation promulgated after January 1, 2018.
 

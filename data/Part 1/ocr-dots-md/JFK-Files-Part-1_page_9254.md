@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9254.png
-
-Convert to MarkdownI have written you care of Littauer, whom we have asked to keep a file for you, of letters of this sort - and you could deposit carbons of your choice if necessary, with him - which you could consult when and if necessary.
+I have written you care of Littauer, whom we have asked to keep a file for you, of letters of this sort - and you could deposit carbons of your choice if necessary, with him - which you could consult when and if necessary.
 
 Sterilised letters, identifying each patient, must be about details of work-in-progress, we can exchange directly.
 

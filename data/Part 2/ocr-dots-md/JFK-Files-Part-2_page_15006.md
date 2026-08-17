@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15006.png
-
-Convert to MarkdownGAMBLING CASES
+GAMBLING CASES
 
 In our gambling cases, we have already recorded a total
 of 78 convictions thus far this fiscal year, which represents 30 more

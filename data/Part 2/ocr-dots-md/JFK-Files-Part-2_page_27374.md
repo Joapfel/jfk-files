@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27374.png
-
-Convert to MarkdownA. Ltr from William A. Snyder, Jr. to Mr. Clapper - Re: E. Howard Hunt, Jr. - 6 May 75
+A. Ltr from William A. Snyder, Jr. to Mr. Clapper - Re: E. Howard Hunt, Jr. - 6 May 75
 
 B. Memo from Knoche to Olsen - 12 Mar 75
 

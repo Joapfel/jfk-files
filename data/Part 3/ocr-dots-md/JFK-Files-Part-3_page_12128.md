@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12128.png
-
-Convert to MarkdownVENCEREMOS BRIGADE
+VENCEREMOS BRIGADE
 
 INSPECTOR EDWARD S. MILLER: The Venceremos Brigade (VB) originated with a group of Americans who traveled to Cuba in January, 1969, to take part in the celebration of the tenth anniversary of the Cuban revolution. The national organization of the VB obtained support from a wide spectrum of leftist organizations including the Communist Party, Socialist Workers Party, and the Progressive Labor Party, as well as violent revolutionary groups such as the Black Panther Party, La Raza (a militant Mexican-American civil rights group), and the Weatherman faction of the Students for a Democratic Society.
 

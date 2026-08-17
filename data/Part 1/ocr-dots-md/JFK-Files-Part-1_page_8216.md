@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8216.png
-
-Convert to MarkdownVario SPENCER, described by the files as a leftist + his activities were primarily concerned with local minority groups. These activities were extensively reported in the Communist "Daily People's World."
+Vario SPENCER, described by the files as a leftist + his activities were primarily concerned with local minority groups. These activities were extensively reported in the Communist "Daily People's World."
 
 4. Mrs. Vario SPENCER represented Tassia FREE, a non-Cooperative (noncooperative-) witness before the HCUA. Tassia FREE is wife of Emil FREE, an admitted Communist & member who has been active in front activities here for the years.
 

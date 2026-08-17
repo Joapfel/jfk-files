@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13519.png
-
-Convert to Markdown14-0000
+14-0000
 
 RETURN TO CIA Background Use Only Do Not Reproduce
 

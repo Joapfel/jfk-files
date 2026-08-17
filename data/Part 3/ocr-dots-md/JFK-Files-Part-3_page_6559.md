@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6559.png
-
-Convert to MarkdownSAC, New York
+SAC, New York
 
 Director, FBI
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25643.png
-
-Convert to MarkdownPART TWO: JIM BRADER
+PART TWO: JIM BRADER
 
 One of the most incredible bodies of recent information concerning the alleged conspiracy to assassinate President Kennedy is largely based on the investigative research done by Peter Noyes, a former CBS Producer and top investigative reporter.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23280.png
-
-Convert to Markdown1 was to keep up our economic and diplomatic pressure to hope
+1 was to keep up our economic and diplomatic pressure to hope
 2 that when Trujillo went, however he went, whether violently or
 3 peacefully or died a natural death that the succession would
 4 be a moderate, democratic group friendly to the interests of

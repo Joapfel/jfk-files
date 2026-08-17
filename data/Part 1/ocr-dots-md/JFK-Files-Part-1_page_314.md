@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_314.png
-
-Convert to Markdown1. Psychological & ParajSTITUTE
+1. Psychological & ParajSTITUTE
    Operating Staff (PP)
 2. Overall operations for Cuba
 3. Artistic project

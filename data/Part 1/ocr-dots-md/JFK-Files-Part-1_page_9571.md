@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9571.png
-
-Convert to MarkdownCOPY
+COPY
 
 January 11, 1956.
 

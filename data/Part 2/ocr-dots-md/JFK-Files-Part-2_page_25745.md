@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25745.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In a Memo for Record dated 19 November, one case officer summarized the actions to be taken at the next meeting with Amlash. Amlash was to be told the U.S. was prepared to give full support to Amlash's coup. He would be shown President Kennedy's speech in Miami of November 18 and told this reaffirmed support for Amlash's proposal. Headquarters had approved giving Amlash scopes and rifles and other equipment. The memo ended by stating that "C/SAS* requested written reports on Amlash operation be kept to a minimum."
 

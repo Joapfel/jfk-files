@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34581.png
-
-Convert to Markdown12 May 1964
+12 May 1964
 
 MEMORANDUM FOR: Acting Chief, Support Branch
 FROM : Chief, Operational Support Division

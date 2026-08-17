@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19233.png
-
-Convert to MarkdownPORTLAND, OREGON
+PORTLAND, OREGON
 
 P. O. BOX 13061
 PORTLAND, OREGON 97203

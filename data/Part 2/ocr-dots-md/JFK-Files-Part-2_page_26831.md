@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26831.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. A. Yes.
 2. Q. For each Cuban refugee?

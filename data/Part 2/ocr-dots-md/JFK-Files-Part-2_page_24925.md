@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24925.png
-
-Convert to Markdown* * * * *
+* * * * *
 
 The Committee notes that many of the occasions on which CIA officials should have informed their superiors of the assassination efforts but failed to do so, or did so in a misleading manner, were also occasions on which Administration officials paradoxically may have reinforced the perception that assassination was permissible.
 

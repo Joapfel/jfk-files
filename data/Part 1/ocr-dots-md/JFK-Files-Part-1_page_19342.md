@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19342.png
-
-Convert to MarkdownFor No. 38-3
+For No. 38-3
 April 1947
 
 OUTGOING CLASSIFIED MESSAGE

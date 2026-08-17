@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11744.png
-
-Convert to MarkdownHill - Kidman Wedding
+Hill - Kidman Wedding
 
 LEFT THE BRIDE, MISS JOAN KIDMAN, AND GROOM, MR. WILLIAM HILL, PAUSE FOR A MOMENT LEAVING THE CHURCH AFTER THE CEREMONY.
 

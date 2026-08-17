@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23496.png
-
-Convert to MarkdownTRUJILLO
+TRUJILLO
 
 "I am sure there was no discussion with EISENHOWER about the assassination of TRUJILLO."
 

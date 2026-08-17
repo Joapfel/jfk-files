@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31489.png
-
-Convert to Markdown1
+1
 
 PROGRESSIVE LABOR PARTY;
 PROGRESSIVE LABOR MOVEMENT;

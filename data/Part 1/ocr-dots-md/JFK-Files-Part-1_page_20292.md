@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20292.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">ELECTION, DECLINATION, OR WAIVER<br/>OF LIFE INSURANCE COVERAGE</td>
    </tr>

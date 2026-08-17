@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15545.png
-
-Convert to Markdown'Fascism is what we have in this country today,' he heatedly began, 'and there are three integral parts: the avaricious businessman, the demagogic politician, and the racist pig dog policeman.'
+'Fascism is what we have in this country today,' he heatedly began, 'and there are three integral parts: the avaricious businessman, the demagogic politician, and the racist pig dog policeman.'
 
 HAMPTON, embattled in the courts on as-sault charges, said one of the worst dangers for blacks is their belief in the white power structure's 'false values.'
 

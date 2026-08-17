@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17362.png
-
-Convert to MarkdownDELMOS RAYMOUND WARD
+DELMOS RAYMOUND WARD
 
 on August 7, 1968. Both departments were apprised of the substance of Ward and Hampton's comments concerning the robbery and the fact that Hampton had $500 cash in his possession.
 

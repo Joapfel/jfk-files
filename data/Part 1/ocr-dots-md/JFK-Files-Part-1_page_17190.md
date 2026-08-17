@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17190.png
-
-Convert to Markdown# REQUEST FOR RENAL
+# REQUEST FOR RENAL
 PROJECT LIEMTY
 
 ## 1. CURRENT OBJECTIVES

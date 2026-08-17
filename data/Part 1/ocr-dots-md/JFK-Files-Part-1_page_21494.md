@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21494.png
-
-Convert to Markdown1 October 1968
+1 October 1968
 
 MEMORANDUM FOR: Director of Security
 

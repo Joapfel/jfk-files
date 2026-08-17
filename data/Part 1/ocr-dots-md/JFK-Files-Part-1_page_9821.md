@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9821.png
-
-Convert to Markdown27 February, 1968
+27 February, 1968
 
 Subject: LIKING/3 Report of Conversation with LIMING/2.
 

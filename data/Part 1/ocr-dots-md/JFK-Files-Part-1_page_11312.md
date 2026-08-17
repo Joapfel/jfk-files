@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11312.png
-
-Convert to MarkdownSECRET 021815Z CITE
+SECRET 021815Z CITE
 
 MEXICO CITY,
 

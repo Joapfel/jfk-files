@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20417.png
-
-Convert to MarkdownDO YOU INUW
+DO YOU INUW
 
 YOU have the majority of the nation's vote!
 

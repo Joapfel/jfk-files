@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34173.png
-
-Convert to Markdown(1) Bulgaria: 180,000.0 MT for 1966 at current free market prices under barter agreements in exchange for Bulgarian electrical and industrial equipment and plants. A 1967-1970 agreement calls for an increase in deliveries to 200,000.0 MT.
+(1) Bulgaria: 180,000.0 MT for 1966 at current free market prices under barter agreements in exchange for Bulgarian electrical and industrial equipment and plants. A 1967-1970 agreement calls for an increase in deliveries to 200,000.0 MT.
 
 (2) Czechoslovakia: 200,000 MT for 1966 at current free market prices under barter agreement originally signed in June 1960 and revised during 1965.
 

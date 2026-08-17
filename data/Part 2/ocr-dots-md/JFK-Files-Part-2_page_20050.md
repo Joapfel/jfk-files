@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20050.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>VIA TELETYPE</td>
    </tr>

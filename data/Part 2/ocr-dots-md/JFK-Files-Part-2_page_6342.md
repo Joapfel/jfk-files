@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6342.png
-
-Convert to Markdown7 March 1995
+7 March 1995
 
 NOTE FOR: Bob Eatinger, OGC
 

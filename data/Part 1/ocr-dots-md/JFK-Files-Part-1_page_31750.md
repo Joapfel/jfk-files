@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31750.png
-
-Convert to MarkdownDecember 10, 1952
+December 10, 1952
 
 FIELD EXPENSES
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34080.png
-
-Convert to MarkdownCUBAN TRADING
+CUBAN TRADING
 
 2nd December 1966.
 

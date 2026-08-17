@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24995.png
-
-Convert to MarkdownTESTIMONY OF C. DOUGLAS DILLON
+TESTIMONY OF C. DOUGLAS DILLON
 
 TOP SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_66.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Our ref: GEN 1
 

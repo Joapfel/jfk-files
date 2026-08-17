@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6936.png
-
-Convert to Markdown13-00000
+13-00000
 
 through the National Archives for many years and should not now be made secret. The work of prior commissions and committees is a perfectly legitimate subject, but it has been the subject of some secrecy which has impeded the public's right to know. In particular, the staff of the House Assassinations Committee, with the exception of its General Counsel and Staff Director, G. Robert Blakey, pledged an oath of secrecy about their work. Blakey has published a commercial book about the committee's work, and is quite public and outspoken about it. Because of the secrecy oath, others who are quite knowledgeable about the Committee's work have been silenced. The public has been denied their views and their information. In this regard, I would urge the insertion of an additional provision in this legislation which would rescind any secrecy oaths taken by the staffs of any previous congressional or executive branch commission or committee.
 

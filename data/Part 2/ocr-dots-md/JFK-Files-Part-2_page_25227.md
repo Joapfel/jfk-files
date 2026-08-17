@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25227.png
-
-Convert to Markdown<table><tr><td colspan="2">PERSONS/ENTITIES:</td></tr><tr><td>RAN THIEN KHIEM</td><td>DATES:<br/>2400 hours<br/>Nov. 1, '63</td></tr><tr><td>THU HAN VAN KHOAI</td><td>CATEGORIES:</td></tr><tr><td>KHOA</td><td>DIEM ✓</td></tr><tr><td>OCCURRENCE:</td><td rowspan="2">TOP SECRET</td></tr><tr><td></td></tr></table>
+<table><tr><td colspan="2">PERSONS/ENTITIES:</td></tr><tr><td>RAN THIEN KHIEM</td><td>DATES:<br/>2400 hours<br/>Nov. 1, '63</td></tr><tr><td>THU HAN VAN KHOAI</td><td>CATEGORIES:</td></tr><tr><td>KHOA</td><td>DIEM ✓</td></tr><tr><td>OCCURRENCE:</td><td rowspan="2">TOP SECRET</td></tr><tr><td></td></tr></table>
 
 Three Diao Xibin is acting as Minh's Chief of Staff for Operations, but Van Don is definitely the No. 2 in the General's group. General Chieu is assisting General Khien and its following military operations closely, assisted by several competent colonels and majors.
 

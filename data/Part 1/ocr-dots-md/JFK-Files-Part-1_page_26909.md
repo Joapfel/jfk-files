@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26909.png
-
-Convert to Markdown104-10221-10021
+104-10221-10021
 
 30 June 1972
 

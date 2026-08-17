@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18754.png
-
-Convert to Markdown# SETTLEMENT SHEET
+# SETTLEMENT SHEET
 
 (Submit so as to arrive at Headquarters no later than 15 Aug.)
 

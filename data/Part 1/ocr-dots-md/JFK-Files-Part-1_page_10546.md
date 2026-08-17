@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10546.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PRECEDENCE
 

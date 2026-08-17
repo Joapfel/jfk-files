@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15677.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th colspan="3">PROCESSING</th></tr><tr><td colspan="2"></td><td>SECRET</td><th>PROPOSED</th><th>ACTION</th><th>ACCOMPLISHED</th></tr></thead><tbody><tr><td>TO</td><td colspan="2">Chief of Station, 잠재...</td><td>X</td><td>MARKED FOR INDEXING<br/>NO INDEXING REQUIRED</td><td></td></tr><tr><td>INFO</td><td colspan="6"></td></tr><tr><td>FROM</td><td colspan="6">Chief, Africa</td></tr><tr><td>SUBJECT</td><td colspan="6">General - Administrative<br/>Specific - Contract - Ernest G. MAYCRINK</td></tr><tr><td colspan="7">ACTION REQUIRED REFERENCES</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th colspan="3">PROCESSING</th></tr><tr><td colspan="2"></td><td>SECRET</td><th>PROPOSED</th><th>ACTION</th><th>ACCOMPLISHED</th></tr></thead><tbody><tr><td>TO</td><td colspan="2">Chief of Station, 잠재...</td><td>X</td><td>MARKED FOR INDEXING<br/>NO INDEXING REQUIRED</td><td></td></tr><tr><td>INFO</td><td colspan="6"></td></tr><tr><td>FROM</td><td colspan="6">Chief, Africa</td></tr><tr><td>SUBJECT</td><td colspan="6">General - Administrative<br/>Specific - Contract - Ernest G. MAYCRINK</td></tr><tr><td colspan="7">ACTION REQUIRED REFERENCES</td></tr></tbody></table>
 
 Enclosed for your information and retention is a copy of
 Ernest G. MAYCRINK's contract.

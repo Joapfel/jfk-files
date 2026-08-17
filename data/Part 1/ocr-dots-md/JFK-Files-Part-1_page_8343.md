@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8343.png
-
-Convert to MarkdownDATE OF INFORMATION: March 24, 1960, 12:31-1:05 hours.
+DATE OF INFORMATION: March 24, 1960, 12:31-1:05 hours.
 
 PLACE ACQUIRED: Telephone call to my office.
 

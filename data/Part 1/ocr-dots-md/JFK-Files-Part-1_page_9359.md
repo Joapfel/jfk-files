@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9359.png
-
-Convert to Markdown18 August 1950
+18 August 1950
 
 MEMORANDUM OF CONVERSATION
 

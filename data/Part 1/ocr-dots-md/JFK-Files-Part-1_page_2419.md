@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2419.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "The first two possibilities are easily dismissed. That NOSENKO is not simply a swindler who falsely claims for personal advantage to have been a KGB officer is evident, we believe, from the confirmed details of KGB organization, personnel and operations which he has provided and which could only derive from within the KGB itself."
 

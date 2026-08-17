@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10624.png
-
-Convert to MarkdownWRO06 SE CODED
+WRO06 SE CODED
 
 4:50 PM NITEL 7/21/75 SLA
 

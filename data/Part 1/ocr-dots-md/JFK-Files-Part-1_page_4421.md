@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4421.png
-
-Convert to Markdown# Resume
+# Resume
 
 Name: Juan Fernández Garrido
 Date: 32 years

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17454.png
-
-Convert to Markdown<table><tr><td colspan="3">CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 25 JAN 62</td><td rowspan="2">SECRET</td><td rowspan="2"><table><tr><td>PURING</td><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td><td>5</td></tr><tr><td>3</td><td>6</td><td></td></tr></table></td></tr><tr><td>TO : DIRECTOR</td><td>JAN 25 0429Z 62</td></tr><tr><td>FROM : MEXICO CITY</td><td></td><td></td></tr><tr><td>ACTION : C/WH 5 (WH TEMPO COPY SLOTTED 0030, 25 JAN)</td><td></td><td></td></tr><tr><td>INFO : DCI, D/DCI, DD/P, S/C 2 *</td><td>PRIORITY</td><td>IN 17139</td></tr></table>
+<table><tr><td colspan="3">CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 25 JAN 62</td><td rowspan="2">SECRET</td><td rowspan="2"><table><tr><td>PURING</td><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td><td>5</td></tr><tr><td>3</td><td>6</td><td></td></tr></table></td></tr><tr><td>TO : DIRECTOR</td><td>JAN 25 0429Z 62</td></tr><tr><td>FROM : MEXICO CITY</td><td></td><td></td></tr><tr><td>ACTION : C/WH 5 (WH TEMPO COPY SLOTTED 0030, 25 JAN)</td><td></td><td></td></tr><tr><td>INFO : DCI, D/DCI, DD/P, S/C 2 *</td><td>PRIORITY</td><td>IN 17139</td></tr></table>
 
 PRITY DIR CITE MEXI 9960
 RYBAT

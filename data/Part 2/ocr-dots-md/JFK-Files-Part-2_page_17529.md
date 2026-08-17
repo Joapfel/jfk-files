@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17529.png
-
-Convert to MarkdownAugust 1, 1969
+August 1, 1969
 
 CHERYL PETERSON
 

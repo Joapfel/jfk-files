@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6262.png
-
-Convert to Markdown# CIA SPECIAL COLLECTIONS
+# CIA SPECIAL COLLECTIONS
 RELEASE IN FULL
 
 2000

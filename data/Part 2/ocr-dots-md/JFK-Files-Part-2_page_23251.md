@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23251.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 a CIA program or plan.
 

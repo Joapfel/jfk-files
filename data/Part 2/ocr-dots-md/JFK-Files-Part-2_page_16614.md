@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16614.png
-
-Convert to Markdown18. No paraffin tests were done.
+18. No paraffin tests were done.
 
 19. No pills or medical items other than those listed in previously provided report, were obtained at the premises at 2337 W. Monroe. No plaster was removed and retained in connection with evidence search, by State's Attorney's police.
 

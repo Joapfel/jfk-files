@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5635.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Interview with John Whitten (S)
 

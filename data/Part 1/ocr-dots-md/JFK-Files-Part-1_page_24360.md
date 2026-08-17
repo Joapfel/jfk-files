@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24360.png
-
-Convert to MarkdownPhotos of office
+Photos of office
 A+
 35 Long Acre, W.C.2
 

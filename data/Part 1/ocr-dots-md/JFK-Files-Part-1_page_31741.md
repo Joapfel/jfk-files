@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31741.png
-
-Convert to MarkdownSecurity Information
+Security Information
 
 26 January 1953
 

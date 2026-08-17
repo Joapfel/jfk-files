@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17663.png
-
-Convert to Markdownof the former has a net Jars <sup>1</sup>. AGAN (dissolved) have not been performing in a completely satisfactory manner. Those agents are gradually being replaced by new and fully co-participated agents. The station continues to face recruitment problems, however, since the LIFAT development qualifications are quite rigid. The basic qualifications are:
+of the former has a net Jars <sup>1</sup>. AGAN (dissolved) have not been performing in a completely satisfactory manner. Those agents are gradually being replaced by new and fully co-participated agents. The station continues to face recruitment problems, however, since the LIFAT development qualifications are quite rigid. The basic qualifications are:
 
 a. Absolute discretion
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35354.png
-
-Convert to MarkdownAPPROVAL
+APPROVAL
 
 MAY 19-70
 

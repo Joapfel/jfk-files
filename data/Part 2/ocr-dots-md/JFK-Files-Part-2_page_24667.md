@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24667.png
-
-Convert to MarkdownHe classified "the act of taking the kit to the Congo. . . as still in the planning stage" (Bissell, 9/10, p. 49). Bissell acknowledged, however, that the dispatch of poisons and paraphernalia with which to administer them was an extraordinary event:
+He classified "the act of taking the kit to the Congo. . . as still in the planning stage" (Bissell, 9/10, p. 49). Bissell acknowledged, however, that the dispatch of poisons and paraphernalia with which to administer them was an extraordinary event:
 
 > It would indeed have been rather unusual to send such materials -- a specific kit. . . of this sort -- out to a relatively small station, unless planning for their use were quite far along.
 

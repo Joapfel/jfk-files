@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20891.png
-
-Convert to MarkdownUNIVERSAL
+UNIVERSAL
 Memorandum
 
 DIRECTOR, FBI

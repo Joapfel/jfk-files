@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8381.png
-
-Convert to Markdown5. SECRET
+5. SECRET
 
 14. Subsequently themselves Martinroff was shot out of the hospital without any of his belongings, having been told that they were taking him to Yonkers. Actually he was taken to Colton to an old abandoned second artillery building. He was threatened not to try to escape and was left with five on artillery guards. When he became ill a doctor arrived and gave him shots. For the next three years he was kept there. During this period a series of six personnel arrived from Washington to see him. Finally he threatened to walk out and they could shoot him if they wished. At this time, he was told he would be taken to Washington at the airport there was only an adjutant. He was taken and gagedd in the Communist fashion and taken back by the subsistence to the base. Artillery areas but planned in an old shell negative under guard. He never had enough air although he was kept in the hole the seven months. The U. S. forces told him that they would kill him when the time came. Finally he had several gains in his coat and a doctor from Washington was brought in who diagnosed that he would die within twenty-four hours if not removed. He was returned to his old building for three or four months.
 

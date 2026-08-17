@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13927.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 June 20, 1975
 

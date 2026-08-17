@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32618.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Only one of those interrogated admitted to any involvement with the captured documents, the Communist Party, guerrillas, or anything else that could be construed as incriminating. The one who did admit knowledge denied that he was involved in any way. The Government of Guatemala wants to interrogate this person again at a later date.
 

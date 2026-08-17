@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9079.png
-
-Convert to Markdown14-00000
+14-00000
 
 FORM
 5-62

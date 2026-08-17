@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9385.png
-
-Convert to MarkdownProvocative Slogans
+Provocative Slogans
 
 GUNS
 BABY GUNS

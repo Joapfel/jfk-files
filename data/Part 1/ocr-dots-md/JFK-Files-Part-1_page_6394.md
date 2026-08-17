@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6394.png
-
-Convert to MarkdownCONFIDENTIAL/US OFFICIALS ONLY
+CONFIDENTIAL/US OFFICIALS ONLY
 
 CO:JLAL ON LINGUAGES: Subject spoc., writes and reads English, fluently. Knows French, Italian, German, Russian and Polish.
 

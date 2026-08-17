@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18142.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>PERMITTING ACTION</th></tr></thead><tbody><tr><td colspan="2">Chief, WH</td><td rowspan="3" style="vertical-align: top;">SECRET</td><td rowspan="2" style="vertical-align: top;"></td></tr><tr><td colspan="2">Chief, SB</td></tr><tr><td colspan="2">Chief of Station, Mexico City</td></tr><tr><td colspan="2">LIEMPTY/Memoranda of Oral Commitments</td><td colspan="2"></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>PERMITTING ACTION</th></tr></thead><tbody><tr><td colspan="2">Chief, WH</td><td rowspan="3" style="vertical-align: top;">SECRET</td><td rowspan="2" style="vertical-align: top;"></td></tr><tr><td colspan="2">Chief, SB</td></tr><tr><td colspan="2">Chief of Station, Mexico City</td></tr><tr><td colspan="2">LIEMPTY/Memoranda of Oral Commitments</td><td colspan="2"></td></tr></tbody></table>
 
 Forwarded herewith are authentic copies of Memoranda of Oral Commitments reflecting salary increases for the following LIEMPTY agents:
 

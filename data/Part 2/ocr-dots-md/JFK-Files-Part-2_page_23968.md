@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23968.png
-
-Convert to MarkdownSCHNEIDER REPORT
+SCHNEIDER REPORT
 
 Reviewed and Agreed to by
 Drafting Subcommittee on

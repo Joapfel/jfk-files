@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8820.png
-
-Convert to MarkdownGeorgetown (University). Was much affected by death of President and did not want to talk much.
+Georgetown (University). Was much affected by death of President and did not want to talk much.
 
 DIRECTOR 85343 Dated 27 November 1963 (VOL. III)
 

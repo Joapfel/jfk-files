@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1426.png
-
-Convert to Markdown<table><thead><tr><td colspan="10">WHEELER ROBERT P</td></tr><tr><td colspan="5">OLD SALARY RATE</td><td colspan="2"></td><td>NEW SALARY RATE</td><td rowspan="2">DUE DECE 9/15 ADJ</td><td rowspan="2">PAY CHANGE NOTIFICATION</td></tr><tr><th>Grade</th><th>Step</th><th>Substep</th><th>Last Due Date</th><th>Schedule</th><th>New Step</th><th>New Salary</th></tr></thead><tbody><tr><td>GS 15</td><td>3</td><td>$14,055</td><td>12/11/68</td><td>GS 15</td><td>3</td><td>$14,702</td><td>00/10/62</td><td>3</td></tr></tbody></table>
+<table><thead><tr><td colspan="10">WHEELER ROBERT P</td></tr><tr><td colspan="5">OLD SALARY RATE</td><td colspan="2"></td><td>NEW SALARY RATE</td><td rowspan="2">DUE DECE 9/15 ADJ</td><td rowspan="2">PAY CHANGE NOTIFICATION</td></tr><tr><th>Grade</th><th>Step</th><th>Substep</th><th>Last Due Date</th><th>Schedule</th><th>New Step</th><th>New Salary</th></tr></thead><tbody><tr><td>GS 15</td><td>3</td><td>$14,055</td><td>12/11/68</td><td>GS 15</td><td>3</td><td>$14,702</td><td>00/10/62</td><td>3</td></tr></tbody></table>
 
 SECRET (WHEN FILLED IN)
 

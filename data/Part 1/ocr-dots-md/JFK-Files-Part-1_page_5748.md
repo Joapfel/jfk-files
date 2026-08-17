@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5748.png
-
-Convert to MarkdownCOE, Virginius Frank
+COE, Virginius Frank
 
 See THIS NOTEBOOK on Subject
 filed dossier 100-4-20-13.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31576.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 Announcement was also made at the press conference that the purpose of the march was to oppose American intervention in Vietnam, and demand an end to Federal and local suppression of the protest movement. Mention was also made that a team of lawyers would take every possible legal step to force the City of Oakland to permit the march.

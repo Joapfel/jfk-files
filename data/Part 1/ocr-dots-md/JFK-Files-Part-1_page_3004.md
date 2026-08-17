@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3004.png
-
-Convert to Markdown14-00000
+14-00000
 
 7-7111.FG. 2/76
 

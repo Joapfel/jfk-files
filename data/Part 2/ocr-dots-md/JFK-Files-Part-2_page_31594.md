@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31594.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 article informed that on October 25, 1965, STEVE CHERKOSS, who was described in the article as chairman of the VDC Sub-Committee, with 2 other individuals, had picketed the Armed Forces Induction Center in Oakland by handing out leaflets protesting the Vietnam war to soldiers and civilians and touching off arguments with some of the youths who were reporting for their physical examination. The article informed that the leaflet, "ATTENTION ALL MILITARY PERSONNEL" was one of the leaflets distributed at the Induction Center.

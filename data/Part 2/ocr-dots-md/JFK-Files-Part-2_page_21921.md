@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21921.png
-
-Convert to Markdownthat, while he could have created the capability on his own, any urgings would have come from Bundy or Walt Rostow. In a later appearance, however, Bissell said he merely informed Bundy of the capability and that the context was a briefing by him and not urging by Bundy. Bundy said he received a briefing and gave no urging, though he raised no objections. Rostow said he never heard of the project.
+that, while he could have created the capability on his own, any urgings would have come from Bundy or Walt Rostow. In a later appearance, however, Bissell said he merely informed Bundy of the capability and that the context was a briefing by him and not urging by Bundy. Bundy said he received a briefing and gave no urging, though he raised no objections. Rostow said he never heard of the project.
 
 William Harvey testified that he was "almost certain" that on January 25 and 26, 1961, he met with CIA officials [Sidney Gottlieb] the new Chief of CIA's Technical Services Division, and (Arnold Silver) a CIA recruiting officer, to discuss the feasibility of creating a capability within the Agency for "executive action" (Harvey, 6/25/75, p. 52). After reviewing his notes of those meetings,* Harvey testified that they took place after his initial
 

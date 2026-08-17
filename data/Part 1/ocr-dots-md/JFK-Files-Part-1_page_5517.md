@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5517.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 NO FOREIGN DISSEMINATION
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11242.png
-
-Convert to MarkdownUNITED STATE GOVERNMENT
+UNITED STATE GOVERNMENT
 Memorandum
 
 TO : Mr. W. R. Wannall

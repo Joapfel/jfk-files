@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13237.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA)
+RE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA)
 
 "A: I really am not sure - possibly a year; it might have been longer.
 

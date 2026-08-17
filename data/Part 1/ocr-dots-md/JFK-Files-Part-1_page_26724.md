@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26724.png
-
-Convert to MarkdownKeel 72-MICD-24
+Keel 72-MICD-24
 
 30 April 1965
 

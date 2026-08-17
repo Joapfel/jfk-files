@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4153.png
-
-Convert to Markdown5. The recommendation to overfly Laos was held in suspension. DoD was asked to bring in specific details of the particular 34A operations which required such overflights and the probable advantages of continuing the operations by means of overflying Laos. State held very positive view against Laotian-overflights.
+5. The recommendation to overfly Laos was held in suspension. DoD was asked to bring in specific details of the particular 34A operations which required such overflights and the probable advantages of continuing the operations by means of overflying Laos. State held very positive view against Laotian-overflights.
 
 6. The proposed infiltration and exfiltration operations in Cuba were approved. Mr. FitzGerald was warned not to cache arms with agents felt to be under Castro control. He stated that this particular Cache involved money and other things, but no arms. The caching of small quantities of arms elsewhere in Cuba was approved. Memorandum on the operation of autonomous exile groups was noted and no instructions were given to restrain these operations. The overall question of future sabotage operations was discussed. Mr. Bundy agreed to bring the matter before the President and senior Cabinet officers promptly.
 

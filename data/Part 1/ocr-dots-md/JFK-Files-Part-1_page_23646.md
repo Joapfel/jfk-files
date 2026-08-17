@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23646.png
-
-Convert to MarkdownIDENTITIES U.S.C.
+IDENTITIES U.S.C.
 
 TRUE NAME POUCH Att. to
 

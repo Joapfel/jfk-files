@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6977.png
-
-Convert to MarkdownCopy to: 1 - Secret Service, Los Angeles (RM)
+Copy to: 1 - Secret Service, Los Angeles (RM)
 
 Report of: WILLIAM H. SNELL
 Date: 4/15/69

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32449.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The Guevara's mother, who lives in Argentina, told a clandestine source in mid-December that during her recent visit to Cuba her son told her that Cuban leaders now feel they will have to rely more and more on their own efforts to promote Communist penetration in South America. Guerrillas will be used on a large scale after they have received training in Cuba, Guevara said. He explained to his mother that this is necessary since both he and Castro feel Khrushchev "let them down" and has no further interest in spreading Communism in South America.
 

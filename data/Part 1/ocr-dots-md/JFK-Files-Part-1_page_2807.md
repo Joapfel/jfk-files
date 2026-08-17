@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2807.png
-
-Convert to MarkdownAMERICAN EMBASSY SECTION - January 1960-January 1962)
+AMERICAN EMBASSY SECTION - January 1960-January 1962)
 
 Comment: ABIDIAN visited the Pushkin Street deaddrop site only once, on 30 December 1961, a full year after the time reported by NOSENKO. As NOSENKO reported, accompanied by an Embassy Economic Officer, ABIDIAN left the Embassy in an official car with a Soviet driver and proceeded in a bookstore on the corner of Pushkin Street. Leaving the bookstore, ABIDIAN entered the building where the site was located, determined that the drop was empty, and left one minute later, returning to the Embassy.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12154.png
-
-Convert to Markdownto Bureau Headquarters for its approval, and such was made
+to Bureau Headquarters for its approval, and such was made
 available to offices having a need-to-know this information.
 
 Q. What was the source of this information regarding Levison.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6804.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 proceeds. However, the Committee does not intend to
 vest unfettered discretion in the Review Board to

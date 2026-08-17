@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26359.png
-
-Convert to MarkdownTELEGRAM
+TELEGRAM
 
 INFORMATION REPORT TELEGRAM
 

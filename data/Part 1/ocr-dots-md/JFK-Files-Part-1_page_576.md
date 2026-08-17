@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_576.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Figure 1
 29 September 1976

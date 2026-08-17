@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32558.png
-
-Convert to Markdown30 June 1957
+30 June 1957
 
 Dear Mr. Stuart:
 

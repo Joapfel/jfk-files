@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12184.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="5">ADVANCE COPY ISSUED/BLOTTED</th>

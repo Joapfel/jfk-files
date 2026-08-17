@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34029.png
-
-Convert to MarkdownCuba was now dependent, economically, upon the Communist World, especially the Soviet Union. The fact that little hard currency was obtained from its new trade partners further committed Cuba's economy to the Communist Bloc.
+Cuba was now dependent, economically, upon the Communist World, especially the Soviet Union. The fact that little hard currency was obtained from its new trade partners further committed Cuba's economy to the Communist Bloc.
 
 4) In 1962, the trend continued. Total trade was $ 1,257,000,000, of which $ 1,031,000,000 (82.1%) was with the Communist Bloc and only $ 226,000,000 (17.9%) with Free World countries.
 

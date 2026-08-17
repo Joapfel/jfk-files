@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14222.png
-
-Convert to MarkdownMoore to Jenkins Memo (cont'd.)
+Moore to Jenkins Memo (cont'd.)
 
 Re: CLYDE A. TOLSON
 

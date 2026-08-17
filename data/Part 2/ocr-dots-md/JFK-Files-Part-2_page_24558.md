@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24558.png
-
-Convert to MarkdownAs discussed below in detail at pp ____, after the subject of a Castro assassination was raised at the August 10, 1962 meeting of the Special Group Augmented, Lansdale directed Harvey to prepare a plan for the "liquidation" of Cuban leaders. However, no such plan was ever prepared and, as the IG Report concluded, the August 10 meeting was "unrelated to any actual attempts at assassination." (IG, p. 118).
+As discussed below in detail at pp ____, after the subject of a Castro assassination was raised at the August 10, 1962 meeting of the Special Group Augmented, Lansdale directed Harvey to prepare a plan for the "liquidation" of Cuban leaders. However, no such plan was ever prepared and, as the IG Report concluded, the August 10 meeting was "unrelated to any actual attempts at assassination." (IG, p. 118).
 
 With respect to the possibility that Robert Kennedy might have by-passed the SGA and Lansdale to deal directly with Agency officials on a Castro assassination, Lansdale testified:
 

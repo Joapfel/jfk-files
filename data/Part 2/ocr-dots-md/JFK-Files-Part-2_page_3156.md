@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3156.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 failures, or mishaps," the Special Group seemed to want to cancel everything. This was contrary, completely, to Barnes' concept of operational activity. What both Barnes and Bissell supported in terms of the smaller team activity were that:
 

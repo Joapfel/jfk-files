@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7409.png
-
-Convert to MarkdownCHARGE MANHATTAN BANK ACCOUNT
+CHARGE MANHATTAN BANK ACCOUNT
 
 | Check No. | Date | Payee | Amount |
 |---|---|---|---|

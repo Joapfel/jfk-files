@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31154.png
-
-Convert to MarkdownSECRET
+SECRET
 
 That Mahu goaded our "bold"
 to O'Connell from a distance like

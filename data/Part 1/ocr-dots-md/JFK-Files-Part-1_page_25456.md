@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25456.png
-
-Convert to MarkdownChief, R&D/Sercurity
+Chief, R&D/Sercurity
 
 21 April 1960
 

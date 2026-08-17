@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9619.png
-
-Convert to Markdownm. The team leaders will be responsible for maintaining the overall security of the unit. Personal feelings should not affect decisions involving reprimand or dismissal of men from the team for reasons that endanger its operation or security.
+m. The team leaders will be responsible for maintaining the overall security of the unit. Personal feelings should not affect decisions involving reprimand or dismissal of men from the team for reasons that endanger its operation or security.
 
 n. Intelligence gathering as an important part of each team member's duties should be stressed. Information on the location and movements of local communist and left-wing enemies of the organization should be sent to either Regional or General Headquarters.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8792.png
-
-Convert to Markdownleadership development training, etc. Should USG policy become more aggressive re Cuba, they could also have commando raids on Cuban coast, attacks on Bloc shipping going to or from Cuba, and sabotage operations in Cuba.
+leadership development training, etc. Should USG policy become more aggressive re Cuba, they could also have commando raids on Cuban coast, attacks on Bloc shipping going to or from Cuba, and sabotage operations in Cuba.
 
 ## WAVE 3103 (IN 46462) dated 8 January 1963
 

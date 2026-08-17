@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6924.png
-
-Convert to Markdown13-00000
+13-00000
 
  policies. I believe the procedure just outlined could be applied much more widely. A statute could declare that all government records more than thirty years old would become public unless the originating agency showed specific cause for continued non-disclosure. A Board or Commission appointed by the President with the advice and consent of the Senate could have authority to review all such materials and to question or appeal the non-disclosure. This approximates practice in the United Kingdom.
 

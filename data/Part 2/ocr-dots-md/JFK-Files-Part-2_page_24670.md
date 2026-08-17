@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24670.png
-
-Convert to Markdown(ii) Bissell Discussed Assassination of Lumumba With O'Donnell and Sent Him to Congo: October-November 1960
+(ii) Bissell Discussed Assassination of Lumumba With O'Donnell and Sent Him to Congo: October-November 1960
 
 Probably shortly after the Chief of Station's cable of
 October 17 requesting the assignment of a senior case officer to

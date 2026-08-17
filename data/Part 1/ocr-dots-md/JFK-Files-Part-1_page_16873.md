@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16873.png
-
-Convert to Markdown<html><body> <table><tr><td rowspan="2"> FORM 8-64 (40) </td><td rowspan="2"> USE PREVIOUS EDITION. </td></tr><tr></tr></table>
+<html><body> <table><tr><td rowspan="2"> FORM 8-64 (40) </td><td rowspan="2"> USE PREVIOUS EDITION. </td></tr><tr></tr></table>
 
 <table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td>SECRET</td><td>JIMMA-38700</td></tr></tbody></table>
 

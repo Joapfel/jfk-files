@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23776.png
-
-Convert to Markdown# Agency Information
+# Agency Information
 
 AGENCY : SSCIA
 RECORD NUMBER : 157-10014-10125

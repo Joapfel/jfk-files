@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1316.png
-
-Convert to Markdown3 APR 1974
+3 APR 1974
 
 Mr. Robert P. Wheeler
 6600 Millwood Road

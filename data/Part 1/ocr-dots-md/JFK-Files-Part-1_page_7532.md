@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7532.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO. 91-10
 FEB 1930

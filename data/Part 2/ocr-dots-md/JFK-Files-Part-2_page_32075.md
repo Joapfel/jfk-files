@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32075.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>1. NAME OF SUBJECT OR TITLE OF INCIDENT</td>
     <td>2. DATE SUBMITTED<br/>4 February 1972</td>

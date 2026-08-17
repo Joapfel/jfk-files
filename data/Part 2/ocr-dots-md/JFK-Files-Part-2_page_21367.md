@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21367.png
-
-Convert to MarkdownSECRET
+SECRET
 
 May 10, 1963
 

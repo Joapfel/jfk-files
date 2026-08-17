@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24937.png
-
-Convert to Markdownnot been introduced into hostilities or situations pursuant to the provisions of
+not been introduced into hostilities or situations pursuant to the provisions of
 the War Powers Resolution." This definition makes it clear that, absent a decla-
 ration of war or the introduction of United States Armed Forces pursuant to the
 War Powers Resolution, the killing of foreign officials is a criminal offense.

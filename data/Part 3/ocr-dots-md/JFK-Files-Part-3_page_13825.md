@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13825.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3 Travel of Individuals to Cuba for Training
 

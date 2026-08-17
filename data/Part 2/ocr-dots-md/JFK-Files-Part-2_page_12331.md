@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12331.png
-
-Convert to Markdownb. If no pertinent derogatory information is developed, initial contact may be made with prospective panel source to ascertain cooperativeness; however, in regard to individuals associated with educational institutions, be guided by current instructions concerning investigations on campuses.
+b. If no pertinent derogatory information is developed, initial contact may be made with prospective panel source to ascertain cooperativeness; however, in regard to individuals associated with educational institutions, be guided by current instructions concerning investigations on campuses.
 
 c. Submit letter to Bureau requesting authority to use individual as a panel source and set out:
 (1) Results of background investigation and data as to date and place of birth, citizenship status if foreign born, residence and employment addresses

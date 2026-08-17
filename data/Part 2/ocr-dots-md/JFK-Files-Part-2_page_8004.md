@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8004.png
-
-Convert to Markdown# Political Assassinations in the United States
+# Political Assassinations in the United States
 
 ## Articles Published in Computers and Automation May 1970 to October 1973
 ### Inventory of Titles, Authors, and Summaries

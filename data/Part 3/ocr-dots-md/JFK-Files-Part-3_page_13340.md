@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13340.png
-
-Convert to MarkdownOLSEN: Would you tell us this morning who it was that approached
+OLSEN: Would you tell us this morning who it was that approached
 you with that subject.
 
 OLSEN: Mr. Sturgis has asked that we go off the record and we have had a conversation off the record, during the course of which Mr. Navarro was invited to leave the room and he is now absent from the room. The only parties present in the room at this time are Mr. Sturgis and myself.

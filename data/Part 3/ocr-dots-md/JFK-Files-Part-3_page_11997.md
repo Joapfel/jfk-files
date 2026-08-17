@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11997.png
-
-Convert to MarkdownSan Francisco for his Chicom friends, taking with him books and messages for individuals there from pro-Chicom individuals in Canada.
+San Francisco for his Chicom friends, taking with him books and messages for individuals there from pro-Chicom individuals in Canada.
 
 Two other sources, NY 5896-S and SF 2739-S, maintained personal contact with personnel of China Travel Service (CTS) in Hong Kong during period. CTS is Chicom agency specializing in arrangement trips to mainland China, and front for Chicom Intelligence.
 

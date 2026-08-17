@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34240.png
-
-Convert to Markdownto pose as a powerful warlord before the peoples of Latin America. He would like to be asked to take part in peace negotiations. Therefore, he is after a naval catastrophe that would put him in the headlines throughout the world as a victim of an "imperialism" that has attacked one of poor little Red Cuba's ships. So, he risks the lives of Cuban crews for this purpose. This wickedness explains the wave of defections by Cuban sea-men.
+to pose as a powerful warlord before the peoples of Latin America. He would like to be asked to take part in peace negotiations. Therefore, he is after a naval catastrophe that would put him in the headlines throughout the world as a victim of an "imperialism" that has attacked one of poor little Red Cuba's ships. So, he risks the lives of Cuban crews for this purpose. This wickedness explains the wave of defections by Cuban sea-men.
 
 "Soviet Aggression".- The Cvt. and press of Peru have labelled the statements made by the Soviet delegate to the Tricontinental Conference as aggression. Likewise, the Venezuelan Cvt. advised the use of force against Communist aggression. The aggressions are not just against Peru or Venezuela, but against the Continent as a whole. Therefore, the whole Continent should mobilize by declaring all Communist Parties illegal and by applying the ultimate sanctions foreseen by the Inter-American system of self-defense against the Cuban Communist regime.
 

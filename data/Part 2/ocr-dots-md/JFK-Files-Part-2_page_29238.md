@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29238.png
-
-Convert to Markdown<table>
+<table>
   <caption>OTHER RELATIVES AND RLENI FRIENDS LIVING IN FOREIGN COUNTRIES (Line Grandparents, first ckausing, kUncs, uncles, brothers- and sisteas-in-law, and other persons with whom a close relationship existed or exists)</caption>
   <thead>
     <tr>

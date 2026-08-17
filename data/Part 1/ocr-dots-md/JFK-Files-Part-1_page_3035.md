@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3035.png
-
-Convert to MarkdownSource: BUEMOS AIRES
+Source: BUEMOS AIRES
 
 HABA-20528
 

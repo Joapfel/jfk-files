@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23749.png
-
-Convert to MarkdownMr. Miller. That's because he hasn't heard the recommendations that this be done by others. It's just an idea to be considered.
+Mr. Miller. That's because he hasn't heard the recommendations that this be done by others. It's just an idea to be considered.
 
 1. Mr. Kirhow: He's read it. I reserve on this.
 2. Mr. diGenova. I'm not sure that's

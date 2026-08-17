@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6017.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 IMS/ESG/HCS located a workbook copy in English and provided access to ARRB staffer Michelle Combs. She was further offered access to the original Russian copies. Combs then wrote a memorandum dated April 1997 that identified the collection as papers that "primarily examine the habits, potential vulnerabilities, and KGB approaches made to various members of the American Embassy staff." Combs went on to say that "no information of believed relevance to the assassination of President John F. Kennedy was found in these papers. No pages were designated as assassination records."
 

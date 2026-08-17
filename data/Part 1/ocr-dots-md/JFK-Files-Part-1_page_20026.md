@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20026.png
-
-Convert to Markdown## C O R P U S
+## C O R P U S
 - 2 -
 
 ### ARTICLE I - ORGANIZATION

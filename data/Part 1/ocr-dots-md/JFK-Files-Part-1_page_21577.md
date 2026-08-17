@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21577.png
-
-Convert to MarkdownMoscow, or a recruitment of an American formerly
+Moscow, or a recruitment of an American formerly
 with the United States Embassy in Moscow; and NOSENKO
 related it directly to the "ANDREY" case, giving the
 assumed name which KOVSHUK used.)

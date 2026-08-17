@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7980.png
-
-Convert to MarkdownUNTIL DECEMBER 31, 1973
+UNTIL DECEMBER 31, 1973
 
 # Computers and automation
 ## computers and people

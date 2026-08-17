@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26886.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Station running any operations against Cuba?
 2. A You mean prior to the Bay of Pigs?

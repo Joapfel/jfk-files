@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21711.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 It was about that time that General Cushman was still assigned to the CIA. I could be wrong about that but I seem to have a memory of Cushman being around in those days. He was then a Colonel. I had associated with him. In fact, we had shared an office at one time, but that was several years earlier. I would place it about early 1949. But I'm quite sure that Cushman was around in that period of time and involved with the PP staff, though what his function was I don't know.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26494.png
-
-Convert to MarkdownSECRET
+SECRET
 
 students charge that direction, material, and
 financial support for these disturbances is

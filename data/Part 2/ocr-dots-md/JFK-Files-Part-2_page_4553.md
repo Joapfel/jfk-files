@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4553.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (a) Evidence of emotional instability or irrational or suicidal behavior, particularly in persons who have a record of transitory residence or employment;
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5195.png
-
-Convert to MarkdownPresident and General Manager
+President and General Manager
 of the Commercial Bank of Haiti
 
 President and General Manager of the Commercial Bank of Haiti (Bankue Commerciale d'Haïti - BCH), always Cleland Joseph Charles is known as a confidant of President François Duvalier and as a businessman of questionable repute. One well-informed Haitian official reports that Charles,

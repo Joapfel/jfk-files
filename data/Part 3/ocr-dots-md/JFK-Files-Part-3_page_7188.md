@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7188.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The growth in communist-bloc intelligence representation over the past several years, not only in the United States but also throughout the rest of the world, is statistically and operationally demonstrable. For convenient reference there is attached to this paper a fact sheet documenting this growth based on information recorded by the CIA and FBI. In considering the number of communist-bloc nationals posted to official establishments outside their countries, it is important to recognize that a substantial proportion of these are intelligence officers. These officers have a primary mission to conduct intelligence operations and official duties involved in their cover positions, if required at all, are secondary and serve mainly to legitimize their cover. In the Soviet case, it is an estimate accepted by the United States intelligence community that at least 40 per cent of the officials are intelligence officers. Indeed, some defector sources have estimated that 70 per cent to 80 per cent of Soviet officials have some intelligence connection, although this figure includes officials who act only in a minimal support capacity and only occasionally.
 

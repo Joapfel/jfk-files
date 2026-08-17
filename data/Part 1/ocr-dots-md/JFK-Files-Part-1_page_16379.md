@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16379.png
-
-Convert to Markdownh. The effectiveness of his own actions against guerrillas in Guatemala and his determination to meet violence with violence;
+h. The effectiveness of his own actions against guerrillas in Guatemala and his determination to meet violence with violence;
 
 i. Recognition of the importance of the information covered in the report, and of its exploitation;
 

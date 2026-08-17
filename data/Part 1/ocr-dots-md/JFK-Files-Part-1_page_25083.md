@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25083.png
-
-Convert to Markdownb. On 29 Jun 1965 "Modesto KARAT" called KOZTEKOV to say he would like to talk with him and also to give him the message that Ricardo was waiting in his office for him. KOZTEKOV said if Modesto was working that day, and who Ricardo said no, he would be sitting at home all day, then KOZTEKOV said he would stop by his house in the afternoon.
+b. On 29 Jun 1965 "Modesto KARAT" called KOZTEKOV to say he would like to talk with him and also to give him the message that Ricardo was waiting in his office for him. KOZTEKOV said if Modesto was working that day, and who Ricardo said no, he would be sitting at home all day, then KOZTEKOV said he would stop by his house in the afternoon.
 
 c. On 6 Jul 1965 "Rودесто", called KOЗТЕКОВ and asked if there was anything new about the people travelling to Helsinki. KOZTEKOY said nothing yet, but he hoped to have some by the end of the week. KOZTEKOY also said if Modesto had received any news from the doctor, and Modesto said no, even though he had sent a telephone. Modesto said he would keep a copy of the telegrams he sent for KOZTEKOV.
 

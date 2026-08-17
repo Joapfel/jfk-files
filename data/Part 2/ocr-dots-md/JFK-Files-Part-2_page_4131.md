@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4131.png
-
-Convert to Markdowninformed by Colonel Steakley's office and he was under the impression
+informed by Colonel Steakley's office and he was under the impression
 that I was informed. However, he was on leave and therefore did not
 know that I had not been informed.
 

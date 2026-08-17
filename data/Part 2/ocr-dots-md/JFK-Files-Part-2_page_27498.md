@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_27498.png
-
 for American Judicature Society, Chicago, Ill. Researched, wrote and edited articles for Society magazine and compiled "Selected Readings: Judicial Selection and Tenure."
 
 Summers 1970 through 1972

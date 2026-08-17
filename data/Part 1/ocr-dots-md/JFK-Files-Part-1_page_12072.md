@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12072.png
-
-Convert to MarkdownSECRET
+SECRET
 Authorized Staff only
 
 28. LIST SPECIAL SKILLS, HOBBIES AND ABILITIES. (Radio, Photography, etc.).

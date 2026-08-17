@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24335.png
-
-Convert to MarkdownCOMMON STOCK
+COMMON STOCK
 
 | Date of Purchase | Stocks | No. of Shares | Purchased at Per Share | Amount | Per Share | 31 Dec 1973 Amount | P/E Rat |
 | :--- | :--- | :--- | :--- | :--- | :--- | :--- | :--- |

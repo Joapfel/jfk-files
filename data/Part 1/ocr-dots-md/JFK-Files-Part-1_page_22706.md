@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22706.png
-
-Convert to MarkdownRELEASING OFFICER
+RELEASING OFFICER
 
 SECRET
 

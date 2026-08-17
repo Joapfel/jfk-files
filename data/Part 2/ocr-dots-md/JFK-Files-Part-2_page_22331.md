@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22331.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 In all cases of surveillance, photographs of the subject and his contacts were taken. Further, the identity of the contact was also ascertained and reported to headquarters. No surveillance was ever placed on a Congressman, Senator, Judge or Justice or other public figure except the newsmen previously mentioned. Mr. Brewer believes that there were no cases of surveillance undertaken by his Unit which did not involve either (1) a threatened security leak to newsmen, or (2) a potential security violation, except Project PARAGON.
 

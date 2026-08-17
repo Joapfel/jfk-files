@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17585.png
-
-Convert to Markdown5 June 1959
+5 June 1959
 
 NEW MEMORANDUM FOR: CI/DA
 SUBJECT : Change of Cryptonyme for LIFEAT Indigenous Personnel

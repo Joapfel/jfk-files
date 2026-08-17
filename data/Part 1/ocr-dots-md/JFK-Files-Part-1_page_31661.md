@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31661.png
-
-Convert to MarkdownCOPY
+COPY
 
 Dr. Berle
 

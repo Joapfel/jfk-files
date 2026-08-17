@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10597.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN MILESTON)
 RTR.
 4-03

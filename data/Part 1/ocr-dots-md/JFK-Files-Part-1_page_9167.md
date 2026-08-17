@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9167.png
-
-Convert to Markdown# COORDINATOR OF INFORMATION
+# COORDINATOR OF INFORMATION
 
 WASHINGTON, D. C.
 

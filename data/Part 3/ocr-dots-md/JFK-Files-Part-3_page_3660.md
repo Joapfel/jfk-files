@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3660.png
-
-Convert to Markdown5-118a (Rev. 3-21-73)
+5-118a (Rev. 3-21-73)
 
 Intelligence Division
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33679.png
-
-Convert to Markdown# Mil Eroe Order
+# Mil Eroe Order
 
 (1) N.E.O.
 Nonparticipating Eroic Order

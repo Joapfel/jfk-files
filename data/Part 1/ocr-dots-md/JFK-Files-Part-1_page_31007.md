@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31007.png
-
-Convert to Markdown19 September 1966
+19 September 1966
 
 MEMORANDUM FOR: Jeremy K. BEMADUR (p)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33125.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET T 171717Z NOV 69 CITE WH/MIAMI 5832 (NEBECKER ACTING)
 

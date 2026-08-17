@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30080.png
-
-Convert to Markdown14-0000
+14-0000
 
 Herman Edward Kimsley
 3700 Massachusetts Avenue, N. W.

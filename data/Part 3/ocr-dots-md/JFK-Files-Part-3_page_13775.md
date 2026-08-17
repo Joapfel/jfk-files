@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13775.png
-
-Convert to MarkdownOFFICIAL USE ONLY
+OFFICIAL USE ONLY
 
 back to their homelands. These programs are now broadcast as follows:
 

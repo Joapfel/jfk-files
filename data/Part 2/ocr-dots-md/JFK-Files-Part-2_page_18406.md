@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18406.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 **Part E. Materials relating to the National Security Agency (NSA) "watch list."** Regarding this request, it should be noted that no central file or individual case regarding the "watch list" has been maintained by the FBI. Accordingly, a diligent search of logical files and inquiries of personnel possibly knowledgeable of information pertinent to the SSC request have been conducted. Materials secured by this effort have been assembled in chronological order, in order to facilitate Staff review.
 

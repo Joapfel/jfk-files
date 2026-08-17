@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13117.png
-
-Convert to MarkdownCG 100-44963
+CG 100-44963
 
 this area. I would like to utilize them specifically to work cases in the "New Left" area, make contacts and would also request authority where necessary to utilize them in under-cover work under my personal supervision and guidance. They would be specifically assigned fulltime to solicit information from the leadership of the "New Left" concerning their plans for demonstrations, confrontations and disruptions of the Democratic Convention and matters relating thereto.
 

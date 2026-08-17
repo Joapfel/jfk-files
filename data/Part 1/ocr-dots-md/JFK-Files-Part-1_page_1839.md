@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1839.png
-
-Convert to Markdown**Chapter III (commencing at page 34)**
+**Chapter III (commencing at page 34)**
 
 1. As in Chapter II, here again Hamilton's distaste for Bender comes through. The difference is particularly one of their political philosophies -- Hamilton being quite conservative and Bender being a liberal, i.e., Hamilton was pro-Nixon, Bender apparently anti-Nixon. Hamilton gets the impression (in both Chapters II and III) that conservative Cuban elements, such as the business and professional communities, would not be much utilized in the Project's plans. In Hamilton's view, the emphasis was on utilizing Cubans who had originally supported Castro but who had fled Cuba when they became aware of the direction in which the Castro Revolution was moving.
 

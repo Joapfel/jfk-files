@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34177.png
-
-Convert to MarkdownAsf mismo agradeceremos que si Ud. tengan alguna publicación de su Asociación que nos pudieran enviar con regularidad nos la hicieron llegar y si lo ley utilicar las declaraciones del Ing. Esparza y del Dr. Tarrab en algun af tículo nos interese ábtener alguna copia.
+Asf mismo agradeceremos que si Ud. tengan alguna publicación de su Asociación que nos pudieran enviar con regularidad nos la hicieron llegar y si lo ley utilicar las declaraciones del Ing. Esparza y del Dr. Tarrab en algun af tículo nos interese ábtener alguna copia.
 
 Esperando tener noticias suyas y seguros que cualquier gestiónuya representará una victoria tanto para Colombia como para los cubanos libres, qquademo de Ud.,
 

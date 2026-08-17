@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3621.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>17</td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="2"></td><td colspan="8">BASIC CANTER TO BE ONLY</td><td>DATE</td><td>CAN</td><td>OF</td><td>CODE</td></tr><tr><td>OHF</td><td>O</td><td>D</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>STAFF</td><td>CLASSIFICATION</td><td>SECRET</td><td>CONFIDENTIALITY RATING</td><td>3</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34246.png
-
-Convert to Markdown"uneers" to Viet Nam, as he might get in the way of American determination and suf-
+"uneers" to Viet Nam, as he might get in the way of American determination and suf-
 fer the consequences.
 
 "The Daggers Hidden Behind the Tricontinental".- The sessions of the Tricontinental

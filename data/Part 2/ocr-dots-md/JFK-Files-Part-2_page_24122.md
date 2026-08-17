@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24122.png
-
-Convert to Markdownproper conduct by entities. Each Agency component involved is responsible for compliance, and the Chief of the Cover and Commercial Staff, the Director of Finance, and the Comptroller are particularly watchful in their areas of concern.
+proper conduct by entities. Each Agency component involved is responsible for compliance, and the Chief of the Cover and Commercial Staff, the Director of Finance, and the Comptroller are particularly watchful in their areas of concern.
 
 B. Project Reviews and Control
 

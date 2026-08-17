@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18413.png
-
-Convert to MarkdownAttachment to
+Attachment to
 FJTA-19609
 
 MEMORANDUM No. 360

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29097.png
-
-Convert to Markdown<table><tr><td>FORM<br/>540</td></tr><tr><td>RESIDENT</td></tr></table>
+<table><tr><td>FORM<br/>540</td></tr><tr><td>RESIDENT</td></tr></table>
 
 CALIFORNIA
 INDIVIDUAL INCOME TAX RETURN

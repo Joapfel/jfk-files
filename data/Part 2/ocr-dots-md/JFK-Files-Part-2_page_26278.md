@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26278.png
-
-Convert to Markdownthat this woman is a cut-out in the communica-
+that this woman is a cut-out in the communica-
 tions between the pro-Communist Peasant Leagues,
 which have run the camps, and the Cuban embassy.
 

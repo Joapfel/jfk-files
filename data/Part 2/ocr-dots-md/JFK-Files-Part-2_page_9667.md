@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9667.png
-
-Convert to MarkdownIDENTIFICATION DIVISION
+IDENTIFICATION DIVISION
 
 The following FBI record, NUMBER 405 550 E, is furnished FOR OFFICIAL USE ONLY.
 

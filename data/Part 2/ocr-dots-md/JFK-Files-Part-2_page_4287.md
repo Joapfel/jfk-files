@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4287.png
-
-Convert to MarkdownColonel King cautioned that we will not be in a position to know how many useful exiles can be recruited until we give it a try. Mr. McCone and Colonel King said that probably the most promising way in which the desired objective can be obtained is eventually to accomplish the defection of significant elements of the Army, the Palace Guard, etc.
+Colonel King cautioned that we will not be in a position to know how many useful exiles can be recruited until we give it a try. Mr. McCone and Colonel King said that probably the most promising way in which the desired objective can be obtained is eventually to accomplish the defection of significant elements of the Army, the Palace Guard, etc.
 
 4. Monthly Report on North Vietnam Operations
 

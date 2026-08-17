@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27208.png
-
-Convert to Markdown# VI. MISCELLANEOUS
+# VI. MISCELLANEOUS
 
 A. Olsen Miscellaneous
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10977.png
-
-Convert to Markdown## A. PRESS RELEASES
+## A. PRESS RELEASES
 
 Employees are forbidden to furnish to the press either directly or indirectly any information concerning Bureau matters without prior authorization from the Bureau except in following instances. (Bureau in turn must obtain departmental clearance as set forth in Departmental Order 2460.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3458.png
-
-Convert to MarkdownActing Chief, Central Division
+Acting Chief, Central Division
 
 ATtn : Support Branch
 

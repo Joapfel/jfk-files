@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9507.png
-
-Convert to Markdownd. The situation has been regarded as serious and potentially dangerous. Even as a propaganda triumph it might serve to strengthen communist drives all over Europe, especially in Germany, and if there was any manifest weakness or temporizing on the part of forces in East Berlin, the Deutschlandtreffen might serve as a springboard to huge gains.
+d. The situation has been regarded as serious and potentially dangerous. Even as a propaganda triumph it might serve to strengthen communist drives all over Europe, especially in Germany, and if there was any manifest weakness or temporizing on the part of forces in East Berlin, the Deutschlandtreffen might serve as a springboard to huge gains.
 
 2. Purpose of CPC plan
 

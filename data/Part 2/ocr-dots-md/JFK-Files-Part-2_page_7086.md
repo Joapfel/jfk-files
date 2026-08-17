@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7086.png
-
-Convert to MarkdownSECRET
+SECRET
 
 British
 

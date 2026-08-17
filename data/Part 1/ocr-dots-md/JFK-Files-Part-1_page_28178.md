@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28178.png
-
-Convert to Markdown16 APR 1979
+16 APR 1979
 
 Dear Frederick,
 

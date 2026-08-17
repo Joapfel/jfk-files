@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34331.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG : D. ROHLFING:nlk
 UNIT : WH/C/CA/EW

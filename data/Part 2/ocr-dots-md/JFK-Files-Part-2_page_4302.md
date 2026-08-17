@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4302.png
-
-Convert to MarkdownThe consensus was that Central Intelligence was meeting its counterinsurgency training obligations and that because of the covert character of the training, an inspection team external to CIA was probably not desirable.
+The consensus was that Central Intelligence was meeting its counterinsurgency training obligations and that because of the covert character of the training, an inspection team external to CIA was probably not desirable.
 
 Paul Eckel
 

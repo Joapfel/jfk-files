@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30289.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>FEBRUARY 1961</td></tr></table>
 

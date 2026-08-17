@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24398.png
-
-Convert to Markdownpilot who had volunteered to assist the CIA in gathering intelli-
+pilot who had volunteered to assist the CIA in gathering intelli-
 gence informed his case officer in Havana that he would probably
 be chosen to fly to Prague on July 21 to return Raul Castro to
 Cuba (Memo to I.G., 1/17/75). On July 20 the pilot confirmed that

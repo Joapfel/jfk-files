@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9115.png
-
-Convert to MarkdownIn the following table is a list of the largest businesses
+In the following table is a list of the largest businesses
 enterprises in Spain and the names of the persons who own
 or control them. Whenever possible I have noted the full name
 of each company, bearing in mind that Spanish business-

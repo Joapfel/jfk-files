@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_544.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td rowspan="2">OCC: Marvin Francis:lq<br/>UN: WH/1/3E04<br/>EXT: 6924<br/>DATE: 11 July 1968</td>

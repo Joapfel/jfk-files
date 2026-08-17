@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_491.png
-
-Convert to Markdown14-0000
+14-0000
 
 TO: J. SEARS:mamd
 IIT: WH/COG/OPS

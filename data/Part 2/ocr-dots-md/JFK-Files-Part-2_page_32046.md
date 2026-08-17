@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32046.png
-
-Convert to MarkdownUSAPSG
+USAPSG
 
 8 - MAR 1967
 

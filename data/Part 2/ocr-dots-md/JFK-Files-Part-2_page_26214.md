@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26214.png
-
-Convert to Markdownthing had on it, whether it would take his
+thing had on it, whether it would take his
 head off or not. [Laughter] I told him to
 shoot it up into the ventilating fan in the
 ceiling. We spent dinner actually, taking

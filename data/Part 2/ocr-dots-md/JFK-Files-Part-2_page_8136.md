@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8136.png
-
-Convert to MarkdownB-88
+B-88
 
 18 APR 1968
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10470.png
-
-Convert to Markdown1. Continuing contacts with intelligence community regarding technical surveillance countermeasures and physical security. This is an exchange of information and reports and has been conducted under the auspices of the USIB Technical Surveillance Countermeasures Community.
+1. Continuing contacts with intelligence community regarding technical surveillance countermeasures and physical security. This is an exchange of information and reports and has been conducted under the auspices of the USIB Technical Surveillance Countermeasures Community.
 
 State . Navy
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2461.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DIRECTOR, FBI (65-65884)
 

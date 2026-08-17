@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6281.png
-
-Convert to Markdown14-0000
+14-0000
 
 Alpha 66 Doings in Los Angeles as of September 1970
 

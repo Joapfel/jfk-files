@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5492.png
-
-Convert to Markdown6. Charles states that Gracia Jacques, chief of the Presidential Guard, "will be needed in the execution of the plan." In terms that Jacques is so longer basically loyal to Maloney and that he can be bought. Once the plan is in the hands of a military junta and Charles, Jacques "will be eliminated."
+6. Charles states that Gracia Jacques, chief of the Presidential Guard, "will be needed in the execution of the plan." In terms that Jacques is so longer basically loyal to Maloney and that he can be bought. Once the plan is in the hands of a military junta and Charles, Jacques "will be eliminated."
 
 7. The banker further stages that honest and competent citizens, who are also proof, will be brought into the government. Some of the exiles are in the US which is in the government.
 

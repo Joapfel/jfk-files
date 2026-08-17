@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14511.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Date: November 19, 1954
 

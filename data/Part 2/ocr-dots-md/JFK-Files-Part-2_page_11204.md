@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11204.png
-
-Convert to Markdownthe criteria to govern the addition of subjects to an: retention of sub-
+the criteria to govern the addition of subjects to an: retention of sub-
 jects in the sec..ty index, set out in 87D 7b (3). Investigation should
 be undertaken whe cases fall within the preceding categories, even though
 under existing criteria the subjects would not be placed in the security

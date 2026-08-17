@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3329.png
-
-Convert to Markdown29 June 1964
+29 June 1964
 
 AMMORID'S MEETING IN NEW ORLEANS, 24 JUN. 1964
 

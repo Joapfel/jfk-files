@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35050.png
-
-Convert to MarkdownANNEX "I-H"
+ANNEX "I-H"
 
 Page No. 3
 

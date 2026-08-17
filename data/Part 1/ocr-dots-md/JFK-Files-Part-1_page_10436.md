@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10436.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 081854Z AUG 63 CITE GUATEMALA CITY 9326
 

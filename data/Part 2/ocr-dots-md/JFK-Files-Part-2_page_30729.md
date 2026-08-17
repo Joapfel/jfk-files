@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30729.png
-
-Convert to MarkdownBetsy palmer
+Betsy palmer
 
 Manuel Ray - Volume XIII
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11581.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 ## SPECIAL INVESTIGATIONS UNIT - WEST
 
 The primary objective in this Unit has been and continues to be the goal of overcoming the threat to American institutions presented by violence prone extremists, such as those within the revolutionary Weatherman organization. This Unit and the Special Investigation Unit - East, supervise security investigations of the Weatherman group and its individual members. Through coordination with the General Investigative Division, which has handled certain criminal investigations involving Weatherman members, and with the Special Investigative Division, which has supervised the investigation of Weatherman fugitives, substantial accomplishments in the task of neutralizing these extremists have been achieved. A number of Weatherman leaders have been indicted on Federal charges involving violations of the Federal Anti-riot, gun control and bombing statutes. Many leaders and activists in the Weatherman organization have gone underground and the organization is currently composed of a few hundred adherents including those underground and above ground. Its underground existence and the fugitive status of its leaders have isolated Weatherman from the mass of American youth. Consequently, Weatherman has experienced a considerable reduction in strength, based on the number of its present adherents and its influence among young people.

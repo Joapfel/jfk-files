@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6190.png
-
-Convert to Markdown# San Francisco
+# San Francisco
 
 Excision (known to be Kevin Crowley) agent of California Alcoholic Beverage Control Board asked to raid a Democratic party fund raiser.
 

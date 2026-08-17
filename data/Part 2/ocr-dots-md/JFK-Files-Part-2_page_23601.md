@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23601.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of Castro, he would not likely be discussing it with you in the full knowledge of a reporter and if Castro were killed or an attempt to kill him would surface you would have the professional duty to rush to your typewriter and report on this conversation, even though it was on a personal basis. And Mr. Goodwin's judgment, and in which I concur, was that presumably the President would not have floated this issue with me, and this is really responsive to my own effort to re-evaluate after the passage of time the President's sincerity in disclaiming any desire to do so.
 

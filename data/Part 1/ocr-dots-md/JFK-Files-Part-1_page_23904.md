@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23904.png
-
-Convert to Markdownat all.
+at all.
 the Encounter thing. She doesn't really like it. I hate to mention this.
 
 Revolution and all—

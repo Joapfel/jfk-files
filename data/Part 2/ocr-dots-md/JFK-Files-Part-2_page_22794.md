@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22794.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1 Now, are you able to testify with respect to the likeli-
 

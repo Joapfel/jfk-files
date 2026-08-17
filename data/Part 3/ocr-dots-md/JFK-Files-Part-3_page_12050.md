@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12050.png
-
-Convert to MarkdownWe developed Gimme, a member of the Czechoslovakian Intelligence Service, in 1962 and operated him until he returned to Czechoslovakia in November, 1963. Thereafter, he was in continual clandestine contact with the CIA until his return to Washington in January, 1969, where he was again operated successfully until his overt defection in June, 1970.
+We developed Gimme, a member of the Czechoslovakian Intelligence Service, in 1962 and operated him until he returned to Czechoslovakia in November, 1963. Thereafter, he was in continual clandestine contact with the CIA until his return to Washington in January, 1969, where he was again operated successfully until his overt defection in June, 1970.
 
 WF 1373-S was a Yugoslav diplomat and intelligence officer who was successfully recruited and operated from July, 1962, until September, 1965. He was believed to be the first professional intelligence Yugoslav officer recruited anywhere in the world.
 

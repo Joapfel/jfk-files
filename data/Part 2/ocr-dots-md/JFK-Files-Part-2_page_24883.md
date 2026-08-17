@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24883.png
-
-Convert to Markdown5. American Officials Had Exaggerated Notions About Their Ability to Control the Actions of Coup Leaders
+5. American Officials Had Exaggerated Notions About Their Ability to Control the Actions of Coup Leaders
 
 Running throughout the cases considered in this report was the expectation of American officials that they could control the actions of dissident groups which they were supporting in foreign countries. Events demonstrated that the United States had no such power. This point is graphically demonstrated by cables exchanged shortly before the coup in Vietnam.
 

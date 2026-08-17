@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23056.png
-
-Convert to Markdown1. Mr. Baron. Did you know of any weapons drops that were made for the purpose of supplying someone inside Cuba with a weapon for the assassination of Fidel Castro?
+1. Mr. Baron. Did you know of any weapons drops that were made for the purpose of supplying someone inside Cuba with a weapon for the assassination of Fidel Castro?
 
 2.
 

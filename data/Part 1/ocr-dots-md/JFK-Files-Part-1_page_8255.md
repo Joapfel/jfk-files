@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8255.png
-
-Convert to MarkdownHENRY P. LOPEZ
+HENRY P. LOPEZ
 
 ATTORNEY AT LAW
 6505 WILSHIRE BOULEVARD

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22180.png
-
-Convert to Markdown**Question:** But GRIBANOV must have approved all the other Deputy Department Chiefs, too. Would the same happen if one of them defected?
+**Question:** But GRIBANOV must have approved all the other Deputy Department Chiefs, too. Would the same happen if one of them defected?
 
 **NOSENKO:** Well, if it was from the Second Department, for example, no, because GRIBANOV wasn't personally supervising it. It would be someone else's proposal. In my case it was his own initiative.
 

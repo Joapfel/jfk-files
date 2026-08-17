@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4027.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 time he looks depressed, but sometimes angry. He wrote many letters about different subjects and some of these, it seems, emanate from a patient who is under the effect of a depressive feeling. The patient was transferred to Ward 22-4-S on 1-15-63.
 

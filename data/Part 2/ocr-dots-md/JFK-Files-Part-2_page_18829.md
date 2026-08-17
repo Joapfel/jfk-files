@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18829.png
-
-Convert to Markdown69748
+69748
 
 105-28333
 

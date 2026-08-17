@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8711.png
-
-Convert to Markdownbut not to coincide with the funeral (laugh).
+but not to coincide with the funeral (laugh).
 
 CALLER : One must take that into consideration.
 

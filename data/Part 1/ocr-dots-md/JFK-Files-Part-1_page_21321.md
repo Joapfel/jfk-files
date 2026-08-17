@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21321.png
-
-Convert to Markdown# ITALY
+# ITALY
 ## Economic
 
 The S.S.I., Machinery Tool Factory, Milan.

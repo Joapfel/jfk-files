@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30731.png
-
-Convert to Markdown# SECTION IV
+# SECTION IV
 
 ## COMMENT:
 

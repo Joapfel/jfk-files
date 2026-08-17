@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7330.png
-
-Convert to Markdown15.01.01
+15.01.01
 
 Is there any subject that tends to get his dander up?
 If so, what is it?

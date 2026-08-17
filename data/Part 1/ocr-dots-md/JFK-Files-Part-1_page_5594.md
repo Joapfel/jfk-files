@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5594.png
-
-Convert to Markdown**Routine**
+**Routine**
 
 IN 70936
 

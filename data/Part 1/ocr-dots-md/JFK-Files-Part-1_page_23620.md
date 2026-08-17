@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23620.png
-
-Convert to MarkdownAir Foxch
+Air Foxch
 
 : Chief of Station, San Jose
 

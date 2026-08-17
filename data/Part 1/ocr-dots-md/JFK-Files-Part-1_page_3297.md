@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3297.png
-
-Convert to Markdown# S SC A B?
+# S SC A B?
 
 ## PART II (cont.) (EE-2753, 23 Feb 65, Case No. 237)
 

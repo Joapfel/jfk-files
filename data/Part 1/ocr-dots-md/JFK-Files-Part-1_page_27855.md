@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27855.png
-
-Convert to MarkdownDCI/DDCI
+DCI/DDCI
 
 DDO
 Routine ..inp

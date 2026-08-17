@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8944.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 27 FEB 63</td><td>SECRET</td></tr><tr><td colspan="2">TO : DIRECTOR</td></tr><tr><td colspan="2">FROM : BUENOS AIRES</td></tr><tr><td colspan="2">ACTION: C/WH 5</td></tr><tr><td colspan="2">INFO : ADDP, C/CA., S/C 2</td></tr><tr><td colspan="2"><table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>14</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td colspan="2">FEB 27 2218Z 63</td></tr><tr><td colspan="2">ROUTINE</td></tr></table>
 

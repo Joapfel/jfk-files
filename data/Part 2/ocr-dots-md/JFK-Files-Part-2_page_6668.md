@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6668.png
-
-Convert to Markdownhistory staff and to form the Historical Review Group that will review the JFK documents and other documents of historical interest.
+history staff and to form the Historical Review Group that will review the JFK documents and other documents of historical interest.
 
 I believe these actions attest to the seriousness of our intent to getting these papers declassified and released, and to open what remains classified to outside non-governmental review. It is against this background that in response to the Committee's request, I cite our few technical reservations about the mechanism established by the joint resolution to achieve this same result. I intend to address only intelligence community concerns. I will defer to the Department of Justice on any additional problems posed by the joint resolution.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6889.png
-
-Convert to Markdown05/09/97
+05/09/97
 
 FRI 12:15
 

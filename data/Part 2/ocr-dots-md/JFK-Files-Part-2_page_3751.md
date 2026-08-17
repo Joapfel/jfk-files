@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3751.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 13-00000
 

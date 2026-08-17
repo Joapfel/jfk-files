@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15330.png
-
-Convert to MarkdownOffice Memorandum
+Office Memorandum
 
 UNITED STATE
 GOVERNMENT

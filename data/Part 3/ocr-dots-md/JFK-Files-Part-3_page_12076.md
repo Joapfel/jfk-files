@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12076.png
-
-Convert to MarkdownBlack Nationalist - South and Racial Informant Unit
+Black Nationalist - South and Racial Informant Unit
 
 5 Supervisors including Supervisor in Charge
 5 clerical personnel

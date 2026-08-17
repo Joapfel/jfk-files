@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22791.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr><tr><td>TO<br/>Chief of Base, JMAVX</td></tr><tr><td>INFO</td></tr><tr><td>FROM<br/>Chief, VND</td></tr><tr><td>SUBJECT</td></tr></table>
+<table><tr><td>DISPATCH</td></tr><tr><td>TO<br/>Chief of Base, JMAVX</td></tr><tr><td>INFO</td></tr><tr><td>FROM<br/>Chief, VND</td></tr><tr><td>SUBJECT</td></tr></table>
 
 <table><thead><tr><th colspan="3">CLASSIFICATION</th></tr><tr><th colspan="3">SECRET</th></tr></thead><tbody><tr><td>PROPOSED</td><td>ACTION</td><td>ACCOUNT COMPLETED</td></tr><tr><td>X</td><td>MARKED FOR REVIEW<br/>NO INCREASING REQUIRED</td><td></td></tr><tr><td></td><td>ONLY QUALIFIED<br/>HEADQUARTERS OF A<br/>CAN FUDGE INDICATING</td><td></td></tr><tr><td></td><td>AESTHETIC</td><td></td></tr><tr><td></td><td>MICROFILM</td><td></td></tr></tbody></table>
 

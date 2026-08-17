@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7026.png
-
-Convert to Markdownreleased. At the same time, avoid confrontations with them on marginal or non-relevant information.
+released. At the same time, avoid confrontations with them on marginal or non-relevant information.
 
 * On-site Directorate reviewers are the most effective way to handle the internal coordination requirements of a large project. Without the DO's JFK team on site it would have been impossible to complete the JFK project.
 

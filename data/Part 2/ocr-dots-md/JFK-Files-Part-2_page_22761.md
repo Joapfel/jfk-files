@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22761.png
-
-Convert to Markdowngshl13
+gshl13
 
 51
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29774.png
-
-Convert to Markdown# POLICE DEPARTMENT
+# POLICE DEPARTMENT
 CITY OF DALLAS
 
 ## Disposition

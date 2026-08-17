@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8041.png
-
-Convert to Markdown10-2
+10-2
 
 From: Habana, Cuba
 Report No: TIJ-1519 Local File No: 10-25

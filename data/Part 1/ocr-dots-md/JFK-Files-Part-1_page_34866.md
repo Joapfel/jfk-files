@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34866.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>OPN: Paul F. Obelst; Jls</td>

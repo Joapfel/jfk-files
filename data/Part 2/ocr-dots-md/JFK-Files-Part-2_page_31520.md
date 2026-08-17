@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31520.png
-
-Convert to MarkdownSubject was observed participating in a picket line of the VDC engaged in picketing General MAXWELL TAYLOR at the Fairmont Hotel, San Francisco, on August 25, 1965.
+Subject was observed participating in a picket line of the VDC engaged in picketing General MAXWELL TAYLOR at the Fairmont Hotel, San Francisco, on August 25, 1965.
 
 Observation by
 Special Agents of

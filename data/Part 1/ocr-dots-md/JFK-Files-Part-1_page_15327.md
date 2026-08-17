@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15327.png
-
-Convert to MarkdownC. 19.d. At what time of the day was the search made?
+C. 19.d. At what time of the day was the search made?
 e. was he present at the search?
 
 20.a. For how long did he remain with the JOHO factory?

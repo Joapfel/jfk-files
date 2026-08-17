@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21344.png
-
-Convert to Markdown1 To SAC, New York
+1 To SAC, New York
 
 Re: NY 3186-PSJ (c)
 

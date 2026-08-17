@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6168.png
-
-Convert to Markdown56 Md. L. Rev. 1, *36
+56 Md. L. Rev. 1, *36
 
 n203. See Exhibit Nine infra p. 54 (contending that "Oswald would not have been any sensible person's choice for a co-conspirator").
 

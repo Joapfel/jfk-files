@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_40.png
-
-Convert to MarkdownAlvaro still in Moscow married to Lidiya.
+Alvaro still in Moscow married to Lidiya.
 
 AEMYRIAD/ married Ol'ga KASMIY, geology student.
 When they engaged, she called to dean's ope +

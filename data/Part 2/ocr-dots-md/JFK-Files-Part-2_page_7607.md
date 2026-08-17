@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7607.png
-
-Convert to Markdown12-06
+12-06
 
 <table>
    <thead>

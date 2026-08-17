@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21261.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">Attitude toward Work</td>
     <td>Good</td>

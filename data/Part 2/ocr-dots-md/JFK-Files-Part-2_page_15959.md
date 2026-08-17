@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15959.png
-
-Convert to Markdown22. All Chapters, Branches, and components of the BLACK PANTHER PARTY must submit a monthly Financial Report to the Ministry of Finance and also the Central Committee.
+22. All Chapters, Branches, and components of the BLACK PANTHER PARTY must submit a monthly Financial Report to the Ministry of Finance and also the Central Committee.
 
 23. Everyone in leadership positions must read no less than two hours per day to keep abreast of the changing political situation.
 

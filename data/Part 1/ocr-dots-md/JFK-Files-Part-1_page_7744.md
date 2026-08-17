@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7744.png
-
-Convert to Markdown10.01.10 When driving with someone else, is he the kind of person who is very relaxed and relatively indifferent to the driving? No ____ Yes ____
+10.01.10 When driving with someone else, is he the kind of person who is very relaxed and relatively indifferent to the driving? No ____ Yes ____
 
 10.01.11 Is he the kind of person who Would never drive when drinking Is inclined to be aware when he should not drive Would always insist on driving, even when drunk
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25487.png
-
-Convert to Markdown22 September 1970
+22 September 1970
 
 Mr. Maurits Roos
 4764 Kenmore Avenue

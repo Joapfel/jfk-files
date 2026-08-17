@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34111.png
-
-Convert to Markdown5) Incorporation of inexperienced personnel to the preparation of "Alta Regalia", (top-quality, hand-made) cigars, which affects the finish of the hand-crafting cigars with the result that undersized, oversized, or too heavy cigars are produced.
+5) Incorporation of inexperienced personnel to the preparation of "Alta Regalia", (top-quality, hand-made) cigars, which affects the finish of the hand-crafting cigars with the result that undersized, oversized, or too heavy cigars are produced.
 
 These and many other irregularities take place today in our industry, without failing to mention that the climax of all this situation is caused by the lack of cigars for national consumption, something definitely unprecedented in the history of our country.
 

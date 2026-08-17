@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2104.png
-
-Convert to Markdown# POSITION CONTROL REGISTER
+# POSITION CONTROL REGISTER
 
 14-02/13/1987 12:01:05
 

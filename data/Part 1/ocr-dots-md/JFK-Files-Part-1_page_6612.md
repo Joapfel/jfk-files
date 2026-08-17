@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6612.png
-
-Convert to Markdown# The Turning Point
+# The Turning Point
 
 On June 17th, 1933 one of the most significant events of the 20th century took place. The inhabitants of the Soviet Zone of Germany rose in rebellion against their Communist overlords. For eight years they had been living under conditions of slavery and starvation.
 

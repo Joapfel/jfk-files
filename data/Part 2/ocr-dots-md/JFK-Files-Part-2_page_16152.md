@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16152.png
-
-Convert to MarkdownDate: 1/16/70
+Date: 1/16/70
 
 Pursuant to an on-the-scene examination of the premises located at 2337 West Monroe Street on January 6, and 7, 1970, the following items were removed from the premises for subsequent Laboratory examination:
 

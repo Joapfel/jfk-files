@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15172.png
-
-Convert to MarkdownSec Paulo le 29 fevereiro
+Sec Paulo le 29 fevereiro
 
 1960
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14848.png
-
-Convert to MarkdownDATE : 305 DJM/JO/JO
+DATE : 305 DJM/JO/JO
 12 MAR '59
 
 CLASSIFIED MESSAGE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3047.png
-
-Convert to MarkdownSAN DIEGO:
+SAN DIEGO:
 
 FRANK L. PRICE, 2705 TOKALON STREET, SAN DIEGO, CALIFORNIA
 

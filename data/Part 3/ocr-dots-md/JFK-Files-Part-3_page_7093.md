@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7093.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 or since age eighteen, whichever is the shorter period. Such period of coverage shall include the following:
 

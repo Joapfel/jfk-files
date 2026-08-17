@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28888.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Clifford Fenton
 Chief Investigator-JFK

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7457.png
-
-Convert to MarkdownEnclosure No. 1 to despatch No. 69 of Edwin S. Cunninahan, American Consul General at Shanghai, China, dated December 10, 1931, on the subject: "Harold H. Issues."
+Enclosure No. 1 to despatch No. 69 of Edwin S. Cunninahan, American Consul General at Shanghai, China, dated December 10, 1931, on the subject: "Harold H. Issues."
 
 COPY
 

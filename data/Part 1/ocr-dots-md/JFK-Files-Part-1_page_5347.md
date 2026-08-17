@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5347.png
-
-Convert to MarkdownLOUIS A. ERIC
+LOUIS A. ERIC
 134 Fifth Ave.
 New York, N.Y.
 

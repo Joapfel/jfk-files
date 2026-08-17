@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33846.png
-
-Convert to Markdown17 April 1952
+17 April 1952
 
 MEMORANDUM FOR: DEPUTY CHIEF, SOUTHEASTERN EUROPE
 SUBJECT: Bulgarian National Committee

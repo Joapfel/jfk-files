@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3446.png
-
-Convert to MarkdownSECRET
+SECRET
 
 on this list are opened. This watch list is revised quarterly. It is made up of names of interest principally to CI, SR Division, and the Security Office, and includes names listed by the FBI.
 

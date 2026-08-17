@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9774.png
-
-Convert to Markdown24 April, 1968
+24 April, 1968
 
 1. LIRING/4 informed Rowton 24 April, 1968, that she received telegram from Mexican Consulate Guatemala City advising her "Consulate inter- vening in case her husband; will continue to keep informed". LIRING/4 on her own initiative (before she able meet with Rowton) asked advice Sergio Valdez and Manuel Marcué Pardiñas (of defunct Politica).
 

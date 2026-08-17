@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5537.png
-
-Convert to Markdownon my own to publish my story in an article or book. But now, the CIA
+on my own to publish my story in an article or book. But now, the CIA
 has not returned this courtesy. Instead, it has released sensitive
 information to the public without speaking to me first.
 Under the circumstances, I would like to respectfully request the

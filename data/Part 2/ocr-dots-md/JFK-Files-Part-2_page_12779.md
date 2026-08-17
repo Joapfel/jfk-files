@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12779.png
-
-Convert to Markdown(f) The project of verifying addresses of security index subjects shall be handled by reopening and assigning the cases for verification and closing the cases administratively upon accomplishment of verifications. Verification should also be made at the time of submission of all [periodic] investigative reports and should be reported therein.
+(f) The project of verifying addresses of security index subjects shall be handled by reopening and assigning the cases for verification and closing the cases administratively upon accomplishment of verifications. Verification should also be made at the time of submission of all [periodic] investigative reports and should be reported therein.
 
 (8) Changes, additions, and deletions of data appearing on security index cards
 

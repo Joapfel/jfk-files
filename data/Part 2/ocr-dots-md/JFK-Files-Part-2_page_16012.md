@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16012.png
-
-Convert to MarkdownMEETING OF WEST SUBURBAN CIVIL WELFARE AT FIRST BAPTIST CHURCH, 2114 MAIN STREET, MELROSE PARK, ILLINOIS, OCTOBER 14, 1969
+MEETING OF WEST SUBURBAN CIVIL WELFARE AT FIRST BAPTIST CHURCH, 2114 MAIN STREET, MELROSE PARK, ILLINOIS, OCTOBER 14, 1969
 
 Hampston, embattled in the courts on assault charges, said one of the worst dangers for blacks is their belief in the white power structure's 'false values.'
 

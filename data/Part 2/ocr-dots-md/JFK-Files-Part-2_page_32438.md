@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32438.png
-
-Convert to Markdownfrequent assistance to exiles from Guatemala, Nicaragua, and other Central American countries living in Mexico. In other instances, assistance is provided through travelers coming from Cuba and through Prensa Latina representatives.
+frequent assistance to exiles from Guatemala, Nicaragua, and other Central American countries living in Mexico. In other instances, assistance is provided through travelers coming from Cuba and through Prensa Latina representatives.
 
 14. The assistance is usually financial. The Cubans appear to have been careful since 1959 to avoid being caught in a blatant act of subversion that could be used to justify concerted inter-American action. Financial assistance is often just as useful and much less risky than actual weapons deliveries. In a number of American countries, small arms and other weapons are available for a price. Unscrupulous or careless arms dealers in the US have also contributed to the arms traffic from which pro-Castro groups have benefitted, directly or indirectly.
 

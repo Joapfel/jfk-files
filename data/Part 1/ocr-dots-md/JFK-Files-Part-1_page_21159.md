@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21159.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, et
 ATTENTION : Security Office

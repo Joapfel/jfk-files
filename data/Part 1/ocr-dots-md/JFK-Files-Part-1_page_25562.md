@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25562.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. It is not to be noted that C.A.R., who was born December 7, 1902, will have 65 years credited in March 1973, and in December 1975 he will be 60 years of age.
 

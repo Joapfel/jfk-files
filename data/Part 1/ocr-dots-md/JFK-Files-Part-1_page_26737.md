@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26737.png
-
-Convert to MarkdownKeel 73-KICO-27
+Keel 73-KICO-27
 
 From 1250, 2 May (Sunday) to 0620, 3 May 1965
 

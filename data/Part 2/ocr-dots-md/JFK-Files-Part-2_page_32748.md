@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32748.png
-
-Convert to Markdownas the 22nd of August 1961, after the Navy and the Air Force had been
+as the 22nd of August 1961, after the Navy and the Air Force had been
 working together for almost 8 months, it was reported to me by both
 Services that development of a single TFX aircraft to fulfill stated
 requirements of both Services was not technically feasible.

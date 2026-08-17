@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25186.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Richardson, John<br/>Diem</td><td>16 Sept 1963</td><td>DIEM</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Richardson, John<br/>Diem</td><td>16 Sept 1963</td><td>DIEM</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

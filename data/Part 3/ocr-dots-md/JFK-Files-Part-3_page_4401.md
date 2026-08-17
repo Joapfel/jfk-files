@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4401.png
-
-Convert to MarkdownSECRET
+SECRET
 
 [Huey P. Newton]
 

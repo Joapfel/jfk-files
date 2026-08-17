@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2262.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REPRODUCTION MASTERS
 

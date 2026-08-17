@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12375.png
-
-Convert to Markdown# MEMORANDUM OF UNDERSTANDING
+# MEMORANDUM OF UNDERSTANDING
 
 Subject: Procedures for Determining Eligibility for Access to Classified Information or Material on the Part of Employees of the Senate and House Select Committees on Intelligence Activities
 

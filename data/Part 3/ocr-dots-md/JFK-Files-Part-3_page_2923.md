@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2923.png
-
-Convert to MarkdownAHW/smnl
+AHW/smnl
 
 t. 5
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18944.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Jaffe indicated to LIN that he intended to remain in contact with him and would forward to LIN his request of the Chinese Government for permission to enter the China Mainland, - S.-
 

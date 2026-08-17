@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7852.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 dated 10 June 1968; Associated Press, Toronto, dated 10 June 1968; Associated Press, London, undated; London, dated 27 June 1968; Associated Press, London, dated 30 June 1968; UPI-33, London, undated; Associated Press, London, dated 18 June 1968; UPI-26, London, dated 17 June 1968; UPI-13, dated 18 June 1968; London, dated 18 June 1968; UPI-30, London, dated 14 June 1968;
 * London, dated 13 June 1968; London, dated 6 July 1968;

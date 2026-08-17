@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21380.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Revolutionary Union
 

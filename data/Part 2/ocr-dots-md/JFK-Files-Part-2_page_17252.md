@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17252.png
-
-Convert to Markdown**DETAILS:**
+**DETAILS:**
 
 This investigation is predicated upon information received that RONALD SATCHHEL, 6846 South Clyde Avenue, Chicago, Illinois, was a member of the Black Panther Party (BPP).
 

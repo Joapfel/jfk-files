@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11163.png
-
-Convert to MarkdownL-9 has contact with the following Embassies in Havana:
+L-9 has contact with the following Embassies in Havana:
 
 Italy - Cantoro and Roqui (sic) - Very good relations here.
 France - Lacaye (sic)

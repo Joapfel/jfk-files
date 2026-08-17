@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6791.png
-
-Convert to Markdowndefer to the Department of Justice on any additional problems
+defer to the Department of Justice on any additional problems
 posed by the joint resolution.
 
 First, vesting in an outside body the determination as to

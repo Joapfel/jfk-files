@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23929.png
-
-Convert to Markdownto meet(?) and then
+to meet(?) and then
 they couldn't keep up (with it).
 
 (Did Sinet bring him to Cambridge's Revolution)

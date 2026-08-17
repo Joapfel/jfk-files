@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30788.png
-
-Convert to Markdowncan't remember nature of
+can't remember nature of
 individual (201) filing
 system on individuals.
 

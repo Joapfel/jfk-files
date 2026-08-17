@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2596.png
-
-Convert to Markdown# File #:
+# File #:
 66-MM-3346
 
 # Serial Scope:

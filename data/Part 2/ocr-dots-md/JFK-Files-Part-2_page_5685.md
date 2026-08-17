@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5685.png
-
-Convert to MarkdownSUBJECT: Release of JFK Documents
+SUBJECT: Release of JFK Documents
 
 inquiry about our present relationship. It is doubtful that our relationship, and certainly our very sensitive operations, could withstand the resulting public debate. The existence of Prague Station, past and present, cannot be surfaced at this time without serious damage to national security. (S)
 

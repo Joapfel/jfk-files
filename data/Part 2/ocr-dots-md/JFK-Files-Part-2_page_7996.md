@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7996.png
-
-Convert to MarkdownComputers in Science Fiction — II
+Computers in Science Fiction — II
 
 Marcia Ascher
 Professor of Mathematics

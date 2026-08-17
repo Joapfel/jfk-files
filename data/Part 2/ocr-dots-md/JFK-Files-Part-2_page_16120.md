@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16120.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 TO : SAC, CHICAGO
 

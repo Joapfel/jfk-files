@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27880.png
-
-Convert to MarkdownMay 5, 1977
+May 5, 1977
 
 Mrs. Denise L. McCray
 Select Committee on Assassinations

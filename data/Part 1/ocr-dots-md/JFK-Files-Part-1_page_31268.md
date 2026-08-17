@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31268.png
-
-Convert to Markdown# DECLARATION OF APPOINTEE
+# DECLARATION OF APPOINTEE
 
 This form is to be completed before entrance on duty. Question 3 is to be answered in all cases, otherwise answer only those questions which require an answer different from that given to the corresponding questions on your application form. If no answers are different, write "NONE" in Item 10, below. Any false statement in this declaration will be grounds for cancellation of application or dismissal after appointment. Impersonation is a criminal offense and will be prosecuted accordingly.
 

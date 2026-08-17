@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22544.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WORLD FESTIVAL, EAST BERLIN, 1973
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10572.png
-
-Convert to MarkdownCUBA POR DENTRO
+CUBA POR DENTRO
 
 Por IGNOTUS
 

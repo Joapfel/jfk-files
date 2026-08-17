@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9592.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 $5.00, monthly dues are $3.00. Other financial information set forth. SAO to publish monthly news and training bulletin and other special bulletins, posters and stickers as need and occasion arises.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29348.png
-
-Convert to Markdown000046
+000046
 
 to Ms. Goodpasture.
 

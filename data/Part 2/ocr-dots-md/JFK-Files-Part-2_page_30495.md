@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30495.png
-
-Convert to MarkdownSECRET
+SECRET
 
 I do remember sending a message to Winn Scott suggesting that, right after the assassination, that the Mexicans put in a ring of guards around the Cuban Embassy and question everybody going in and out. I remember that idea coming out of my head.
 

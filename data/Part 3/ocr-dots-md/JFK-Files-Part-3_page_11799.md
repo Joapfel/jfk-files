@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11799.png
-
-Convert to MarkdownMemorandum C. D. Brennan to W. C. Sullivan
+Memorandum C. D. Brennan to W. C. Sullivan
 
 Re: ADEQUACY OF PERSONNEL
 

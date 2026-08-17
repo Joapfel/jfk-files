@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32213.png
-
-Convert to Markdown2. Removal of remaining Soviet forces from Cuba;
+2. Removal of remaining Soviet forces from Cuba;
 
 3. Preventing Cuba from taking any aggressive military action against other Caribbean states;
 

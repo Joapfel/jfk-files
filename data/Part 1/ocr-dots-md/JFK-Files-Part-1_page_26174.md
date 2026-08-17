@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26174.png
-
-Convert to MarkdownSECRET/NO FOREIGN DISSEM
+SECRET/NO FOREIGN DISSEM
 INTERNAL USE ONLY
 
 Instructions for SWL Form Part VI: Progress Log

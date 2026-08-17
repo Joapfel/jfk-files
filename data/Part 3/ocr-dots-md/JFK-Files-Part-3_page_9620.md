@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9620.png
-
-Convert to MarkdownThe Black Panther,
+The Black Panther,
 June 20, 1970, p. 8.
 
 EXPELLED

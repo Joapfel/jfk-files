@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4376.png
-
-Convert to Markdown# Comparecencia del Doctor
+# Comparecencia del Doctor
 ## MANUEL ARTIME
 
 ### en el Programa "Pan Americana",

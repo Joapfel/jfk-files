@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2447.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the Military Attache supports the claim of NOSENKO that he was an officer of the First Section with the indicated assignment as related by him.
 

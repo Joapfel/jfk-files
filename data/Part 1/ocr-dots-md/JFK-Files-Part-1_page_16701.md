@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16701.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. A. ICI INTEL AGENTS SALVADOR, STATION [16-26]. [REDACTED]
     AYFEDER

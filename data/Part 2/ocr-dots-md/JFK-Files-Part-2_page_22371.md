@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22371.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A Well, let's see. I would say that was probably around
 1965 because Fitzgerald then became Chief, W.H., and then

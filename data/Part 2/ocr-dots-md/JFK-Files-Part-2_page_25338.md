@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25338.png
-
-Convert to Markdown1974. Enrique Nunez Alvarez and Elvico Rivera Limonta active in FLNC terrorism &ocr P. Rico.
+1974. Enrique Nunez Alvarez and Elvico Rivera Limonta active in FLNC terrorism &ocr P. Rico.
 
 MM 105-22094 at TAB Bujile #105-261797
 

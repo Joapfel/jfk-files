@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11780.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : ADPC
 VIA : OD/CO

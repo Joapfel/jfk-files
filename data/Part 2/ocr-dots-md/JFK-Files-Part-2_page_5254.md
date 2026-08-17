@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5254.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 Pursuant to the Treasury, Postal Service and General Government Appropriations Act of 1991, the following language shall be incorporated into and considered a part of the attached nondisclosure agreement:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3038.png
-
-Convert to MarkdownNRG18 MM CODE
+NRG18 MM CODE
 
 9:02 PM NITEL SEPTEMBER 12, 1975 MRW
 

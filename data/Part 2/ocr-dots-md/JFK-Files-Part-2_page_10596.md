@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10596.png
-
-Convert to MarkdownNR018 BS CODED
+NR018 BS CODED
 
 JUL 24 1975
 

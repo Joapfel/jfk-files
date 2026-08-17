@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25891.png
-
-Convert to MarkdownOMF 0 0 0 D. V. BAND 0
+OMF 0 0 0 D. V. BAND 0
 
 SECRET:
 

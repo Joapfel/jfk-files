@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3280.png
-
-Convert to Markdown9 22 38 Z CITE DIRECTOR
+9 22 38 Z CITE DIRECTOR
 
 9 Sept 66
 

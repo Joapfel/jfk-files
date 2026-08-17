@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2866.png
-
-Convert to MarkdownI believe we have lived up to those promises.
+I believe we have lived up to those promises.
 
 The members and staff of this Committee have had unprece-
 dented access to FBI information.

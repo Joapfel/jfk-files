@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15779.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : Mr. Ernest G. Maycrink
 FROM : Special Contracting Officer

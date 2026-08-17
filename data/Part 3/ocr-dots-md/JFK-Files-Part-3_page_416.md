@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_416.png
-
-Convert to Markdown# COMMENTS ON PROPOSED PROCEDURES
+# COMMENTS ON PROPOSED PROCEDURES
 
 1. No problem with this procedure, but feels that the time limits are too tight
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13369.png
-
-Convert to MarkdownSTURGIS: Most of the information in that magazine I did not give him. Most of it is lies. And I plan on bringing -- well, as a matter of fact, my lawyer in Miami, Mr. Ellis Rubin, has been instructed by me to bring a libel suit against TRUE MAGAZINE and Andrew St. George. I have written letters through my lawyer to TRUE MAGAZINE stating the utter lies of that article that came out, that had been in this article by Andrew St. George.
+STURGIS: Most of the information in that magazine I did not give him. Most of it is lies. And I plan on bringing -- well, as a matter of fact, my lawyer in Miami, Mr. Ellis Rubin, has been instructed by me to bring a libel suit against TRUE MAGAZINE and Andrew St. George. I have written letters through my lawyer to TRUE MAGAZINE stating the utter lies of that article that came out, that had been in this article by Andrew St. George.
 
 OLSEN: Was it stated in the TRUE MAGAZINE article that you told Andrew St. George that you had met Howard Hunt back in 1969.
 

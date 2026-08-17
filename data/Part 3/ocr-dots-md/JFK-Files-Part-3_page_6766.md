@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6766.png
-
-Convert to Markdown14. All materials reflecting or pertaining to Director Hoover's "off the record" discussion before "the Rooney Committee", as referred to in his February 5, 1964 memorandum concerning a 9:51 a.m. telephone call from the Attorney General, as well as an unexcised copy of the February 5 memorandum.
+14. All materials reflecting or pertaining to Director Hoover's "off the record" discussion before "the Rooney Committee", as referred to in his February 5, 1964 memorandum concerning a 9:51 a.m. telephone call from the Attorney General, as well as an unexcised copy of the February 5 memorandum.
 
 NP
 

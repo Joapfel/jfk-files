@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6699.png
-
-Convert to MarkdownMi quorido tio:
+Mi quorido tio:
 
 Me ha extranado mucho no tener carta tuya en esta semana; se me Encuadró pensar que quizás hubieran tenido que operar a Magdalena aunque tu se docias en una de tus cartas que se sentía mejor de su vejeculaj cuando yo pade- cía de esa enfermedad estuve tomando durante muchos años una medicina llamada Metischool o algo parecido, que es la maravilla del siglo; si quieres yo creo que aquisé es fácil conseguirla y te podría ayudar un frásquito para que la pro- baran en Magda.-
 

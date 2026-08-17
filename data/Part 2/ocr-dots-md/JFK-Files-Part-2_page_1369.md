@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1369.png
-
-Convert to Markdown8 January 1957
+8 January 1957
 
 MEMORANDUM FOR THE RECORD
 

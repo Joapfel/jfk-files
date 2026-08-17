@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5814.png
-
-Convert to MarkdownAssassinations (HSCA).¹ The HSCA brought together in one place in 1978 the principal documents retrieved over the course of years from earlier investigations, including the Warren Commission, the Rockefeller Commission, and the Church Committee.
+Assassinations (HSCA).¹ The HSCA brought together in one place in 1978 the principal documents retrieved over the course of years from earlier investigations, including the Warren Commission, the Rockefeller Commission, and the Church Committee.
 
 The Warren Commission in 1963 and 1964 was the first major review of the JFK Assassination. Existing records suggest that CIA provided roughly 4,000 pages of documentation to the Warren Commission review, plus testimony by Richard Helms and John McCone. The Warren Commission pursued matters related primarily to events and actions directly associated with the assassination event, including materials from CIA's Mexico City Station, which were considered relevant because of a visit to Mexico City by Lee Harvey Oswald shortly before the assassination.
 

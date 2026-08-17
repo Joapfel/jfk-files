@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7007.png
-
-Convert to MarkdownCCL-3/74,170
+CCL-3/74,170
 SF/C1/M 3 January 1963
 
 Source: Sh-729 (Com) 3,246,933 from COA

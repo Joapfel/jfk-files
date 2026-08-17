@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3580.png
-
-Convert to Markdown<table><tr><td style="vertical-align: top; padding-right: 20px;"><table border="1" style="width: 100%; border-collapse: collapse;">
+<table><tr><td style="vertical-align: top; padding-right: 20px;"><table border="1" style="width: 100%; border-collapse: collapse;">
     <tbody>
         <tr><td>CABLE SECRETARIAT DISSEMINATION</td></tr>
         <tr><td>PERSON/UNIT NOTIFIED</td></tr>

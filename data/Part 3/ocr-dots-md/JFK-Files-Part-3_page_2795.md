@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2795.png
-
-Convert to MarkdownNEW YORK:
+NEW YORK:
 
 JOSEPH L. SCHMIT, 65G HUNT LANE, MANHASSET, NEW YORK
 

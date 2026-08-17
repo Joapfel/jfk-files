@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7030.png
-
-Convert to Markdown* We need to establish early on what information is already in the public domain and address the issue of "official release" in the context of each project.
+* We need to establish early on what information is already in the public domain and address the issue of "official release" in the context of each project.
 
 * Develop a strategy/policy with the IROs concerning the release of information. Be smart about it; do not accept stonewalling by them on relevant information that can be released. At the same time, avoid confrontations with them on marginal or non-relevant information.
 

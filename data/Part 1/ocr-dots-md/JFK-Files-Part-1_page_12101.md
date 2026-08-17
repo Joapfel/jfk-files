@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12101.png
-
-Convert to Markdown28 November 1949
+28 November 1949
 
 KEARANDEEN
 

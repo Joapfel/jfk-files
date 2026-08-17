@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20921.png
-
-Convert to MarkdownWomen's Bail Fund
+Women's Bail Fund
 
 The following are reflections of some WBF members carried under the subcaption "Our Roots - Why We Started - Why We Joined".
 

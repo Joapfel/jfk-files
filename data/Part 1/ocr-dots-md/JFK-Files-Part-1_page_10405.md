@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10405.png
-
-Convert to MarkdownSEC
+SEC
 
 6. LIVING/4 also told Boston that she had managed to find a suitable apartment in the Edificio Condesa, Letra A, #6, for 1,100 pesos per month, through her friend, Blanca Peña, who lives in apartment 2 of Letra O. She added that she had overcome the problem of the fiasor by applying to a Mr. Pulez who advertised in the newspaper and provided her with a certain sra. Gloria Beltrán, Calle Tajin 21,Col. Navarte (at a fee of 330 pesos). She also stated that she has already given the administrator of the edificio Condesa at 500 peso "gratificación" to hold the apartment until she can arrange the fiasor contract.
 

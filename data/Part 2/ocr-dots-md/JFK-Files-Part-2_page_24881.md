@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24881.png
-
-Convert to Markdown2. No Foreign Leaders Were Killed As a Result of Assas- sination Plots Initiated by Officials of the United States
+2. No Foreign Leaders Were Killed As a Result of Assas- sination Plots Initiated by Officials of the United States
 
 The poisons intended for use against Patrice Lumumba were never administered to him, and there is no evidence that the United States was in any way involved in Lumumba's death at the hands of his Congolese enemies. The effort to assas- sinate Castro failed.
 

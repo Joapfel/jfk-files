@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23393.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Baron. This cable requests the views of the Chief of Station on suggestions A, B and C for various covert operations.
 

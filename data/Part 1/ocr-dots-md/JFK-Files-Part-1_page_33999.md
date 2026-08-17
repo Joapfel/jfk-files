@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33999.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>INDEX ☐ YES ☐ NO</td></tr><tr><td colspan="2">CLASSIFY TO FILE NO.</td></tr><tr><td>X-REF TO FILE NO.</td><td></td></tr><tr><td>FILE RID ☐ REF. TO DEPT ☐</td><td></td></tr><tr><td>DESTROY ☐ SIR.</td><td></td></tr><tr><td></td><td></td></tr><tr><td>ACTION WHG 5-8 ☑ RID COPY</td><td>ADVANCE COPY ☐ 100% ☐ 700% ☐ 300%</td></tr><tr><td>INFO</td><td rowspan="2" colspan="2"></td></tr><tr><td>FILE N.R. WH-8 CA-7 CA/Rep, FI</td></tr></table>
 

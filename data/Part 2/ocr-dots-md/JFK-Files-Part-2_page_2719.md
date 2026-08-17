@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2719.png
-
-Convert to Markdown20 DEC 1965
+20 DEC 1965
 
 MEMORANDUM FOR: Deputy Director for Plans
 

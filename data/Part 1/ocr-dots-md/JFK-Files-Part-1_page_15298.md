@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15298.png
-
-Convert to Markdown-VIII-
+-VIII-
 
 KANTCHELI Djibo, 310.
 

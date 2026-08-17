@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27277.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>STANDARD-FORM 52</td></tr></thead><tbody><tr><td>FORM LATELY BY THE</td></tr><tr><td>A. CIVIL SERVICE CONSIDERATION</td></tr><tr><td>B. QUALITY OF PERSONNEL</td></tr><tr><td>UNVOUCHERED</td></tr></tbody></table>
 

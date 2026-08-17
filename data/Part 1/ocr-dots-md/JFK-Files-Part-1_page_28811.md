@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28811.png
-
-Convert to Markdown<table><thead><tr><th>1. NAME</th><th>2. DATE OF BIRTH</th><th>3. JOURNAL OR ACTION NO.</th><th>4. DATE</th></tr></thead><tbody><tr><td>A1950<br/>Mr. Robert T. Shaw</td><td>6-18-25</td><td>F8-54</td><td>7-21-59</td></tr></tbody></table>
+<table><thead><tr><th>1. NAME</th><th>2. DATE OF BIRTH</th><th>3. JOURNAL OR ACTION NO.</th><th>4. DATE</th></tr></thead><tbody><tr><td>A1950<br/>Mr. Robert T. Shaw</td><td>6-18-25</td><td>F8-54</td><td>7-21-59</td></tr></tbody></table>
 
 <table><thead><tr><th colspan="2">This is to notify you of the following action affecting your employment:</th></tr><tr><th>9. NATURE OF ACTION (See standard (specification))</th><th>8. EFFECTIVE DATE</th><th>7. CIVIL SERVICE OR OTHER LEGAL AUTHORITY</th></tr></thead><tbody><tr><td>Transfer</td><td>7-26-59</td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26203.png
-
-Convert to Markdownwas very much opposed to it, and opposed on
+was very much opposed to it, and opposed on
 the ground that I was a military man and they
 didn't want military people in on the situation.
 

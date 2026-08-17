@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8728.png
-
-Convert to Markdownassassinate CASTRO and to request financial support. A-1 said he was one of the five persons who knew the identity of the person who was organizing it, but could not reveal it, even to CIA, because those Cubans believed that U.S. policy toward Cuba had been so wrong that the U.S. Government agencies must have been penetrated by traitors to democracy. A-1 said he did not believe in assassination but felt it was his duty to report it. A-1 said the conspirators didn't know him (A-1) at all, that they knew only A-7, but they did know that the above information reached CIA.
+assassinate CASTRO and to request financial support. A-1 said he was one of the five persons who knew the identity of the person who was organizing it, but could not reveal it, even to CIA, because those Cubans believed that U.S. policy toward Cuba had been so wrong that the U.S. Government agencies must have been penetrated by traitors to democracy. A-1 said he did not believe in assassination but felt it was his duty to report it. A-1 said the conspirators didn't know him (A-1) at all, that they knew only A-7, but they did know that the above information reached CIA.
 
 ### WAVE 2086 (IN 91617) dated 2 August 1963
 

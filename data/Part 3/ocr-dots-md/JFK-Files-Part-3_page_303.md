@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_303.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 "US"
 Also Known As

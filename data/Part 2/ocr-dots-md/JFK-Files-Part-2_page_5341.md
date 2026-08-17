@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5341.png
-
-Convert to Markdown13-00000
+13-00000
 
 SUBJECT: Proposal for Dealing with Employees' Names
 

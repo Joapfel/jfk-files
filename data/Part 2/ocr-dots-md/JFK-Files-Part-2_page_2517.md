@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2517.png
-
-Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+# ADMINISTRATIVE - INTERNAL USE ONLY
 
 Mr. George Martin Roanek
 

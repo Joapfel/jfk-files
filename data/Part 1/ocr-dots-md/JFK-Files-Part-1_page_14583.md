@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14583.png
-
-Convert to Markdownreserved, intelligent, and probably something of an operator. He was Ben Bella's chief of cabinet before joining the Foreign Office in 1961, and he functions more on special assignment than as part of the chain of command. He was a member of the Algerian UN delegation as of 28 September 1965.)
+reserved, intelligent, and probably something of an operator. He was Ben Bella's chief of cabinet before joining the Foreign Office in 1961, and he functions more on special assignment than as part of the chain of command. He was a member of the Algerian UN delegation as of 28 September 1965.)
 
 9. RUIZ tries to give the impression that he enjoys the full confidence of Osvaldo DORTICOS and Raül FON, thereby being able to exercise the full authority of his position. He frequently tells other Cuban diplomats stopping in Madrid that he makes 90% of the decisions without consulting with Havana, explaining that "this is the reason I am here."
 

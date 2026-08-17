@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21370.png
-
-Convert to MarkdownFBI document
+FBI document
 30 March 1973 (NY)
 Subject: Helen Mary Winter
 Bufile: 100-423449

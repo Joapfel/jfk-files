@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16450.png
-
-Convert to Markdown3. ALL was finally a permit set back by the decision, but All did express any意见. Included, however, the uns respect and was hopeful the court, therefore, would not impose so severe a penalty.
+3. ALL was finally a permit set back by the decision, but All did express any意见. Included, however, the uns respect and was hopeful the court, therefore, would not impose so severe a penalty.
 
 4. No one but him who came with him, the judge was in order, and only clean, I reached out my hand as we left the Court, held his hand, and went home.
 

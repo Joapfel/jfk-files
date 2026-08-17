@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18366.png
-
-Convert to MarkdownSEP 18 1975
+SEP 18 1975
 
 NR009 KX PLAIN
 5:43 PM NITEL SEPTEMBER 18, 1975 WEH

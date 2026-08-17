@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22423.png
-
-Convert to MarkdownOf the four other KGB officers on whom has reported in any depth, three were previously identified by NOSEKKO and only by NOSEKKO:
+Of the four other KGB officers on whom has reported in any depth, three were previously identified by NOSEKKO and only by NOSEKKO:
 
 - V.G. SVIRIN, her KGB friend, is an ubiquitous figure in much of her reporting on other subjects and in her account of her personal life, as well as her primary candidate for a Western recruitment approach. SVIRIN had previously been identified by NOSEKKO as a KGB officer of the American Department, Second Chief Directorate, previously involved in the PENKOVSKIY investigation (both of which assignments ~~was confirmed~~).
 

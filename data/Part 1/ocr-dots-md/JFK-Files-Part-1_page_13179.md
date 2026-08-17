@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13179.png
-
-Convert to MarkdownSECRET
+SECRET
 (class: top secret)
 (distribution)
 

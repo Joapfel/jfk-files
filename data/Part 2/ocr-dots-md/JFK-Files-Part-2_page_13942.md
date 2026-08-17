@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13942.png
-
-Convert to MarkdownNovember 7, 1963
+November 7, 1963
 
 The Attorney General
 

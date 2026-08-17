@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20415.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## WOMEN FOR LEGISLATIVE ACTION
 

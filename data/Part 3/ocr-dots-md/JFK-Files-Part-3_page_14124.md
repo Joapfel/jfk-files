@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14124.png
-
-Convert to Markdown authority. The Secretary took issue with a portion of Dr. Land's statement on the grounds that it assumed that there is no one in the intelligence community who has any policy responsibility. The Secretary said that he thought this was incorrect because the Director of Central Intelligence frequently acted as one having policy responsibilities.
+authority. The Secretary took issue with a portion of Dr. Land's statement on the grounds that it assumed that there is no one in the intelligence community who has any policy responsibility. The Secretary said that he thought this was incorrect because the Director of Central Intelligence frequently acted as one having policy responsibilities.
 
 The Secretary observed that while the intelligence needs are great there are other requirements which the United States must take into account and that these must all be balanced out. He emphasized again at this point that overflying another country in peacetime is a difficult thing.
 

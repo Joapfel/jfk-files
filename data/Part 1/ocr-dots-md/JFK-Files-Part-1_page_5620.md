@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5620.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>OFFICE</th><th>DATE</th></tr></thead><tbody><tr><td>C/WH/7</td><td>David L. Smock</td></tr></tbody></table>
 

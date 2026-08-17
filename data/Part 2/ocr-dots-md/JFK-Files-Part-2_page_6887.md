@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6887.png
-
-Convert to MarkdownThe ISCAP, meanwhile, is doing a fine job, but on a tiny scale. And it is already operating at full capacity, although its tasks are expected to escalate sharply in coming years. As ISCAP Chair Roslyn Mazer has noted,
+The ISCAP, meanwhile, is doing a fine job, but on a tiny scale. And it is already operating at full capacity, although its tasks are expected to escalate sharply in coming years. As ISCAP Chair Roslyn Mazer has noted,
 
 > When I consider what the next few years may hold for ISCAP, I fear that to a considerable extent we may become victims of our own successes— and the caseloads that these successes may engender. Unfortunately, ISOO [which also supports the ISCAP] is a very small organization that faces ever-increasing demands on its resources from the dramatic changes in the classification and declassification systems now underway.... the onus on the ISCAP's staffing structure may very well prove too much to bear.¹⁷
 

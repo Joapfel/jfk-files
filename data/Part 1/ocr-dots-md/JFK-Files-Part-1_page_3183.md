@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3183.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CS COY
 SECRET

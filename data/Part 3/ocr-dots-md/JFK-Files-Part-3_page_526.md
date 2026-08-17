@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_526.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 Public source information was furnished to Dennis M. Higgins, special features reporter, "The Philadelphia Inquirer," to expose activities, programs, officers, and true nature of the Philadelphia Social Science Forum Committee (PSSFC), a Communist Party, USA front group. Two articles were prepared to be published about January 17, 1965, and January 24, 1965, in the newspaper. The publications were to bracket a scheduled PSSFC meeting on January 22, 1965.
 

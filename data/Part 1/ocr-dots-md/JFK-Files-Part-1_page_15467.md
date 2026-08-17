@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15467.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">SECRET</td></tr><tr><td>EC. 27561</td><td></td></tr><tr><td>: DIRECTOR</td><td></td></tr><tr><td>M : LEOPOLDVILLE</td><td></td></tr><tr><td>N: C/AF 3</td><td></td></tr><tr><td>D, COP, C/DPO 4, C/CA, C/CI, C/BELL 5, C/W 2, CABLE SEQ,</td><td>DEC 2 22832 61</td></tr><tr><td>S/C 2</td><td>Routine</td></tr><tr><td></td><td>IN 31778</td></tr></table>
 

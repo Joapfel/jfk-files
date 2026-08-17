@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24462.png
-
-Convert to MarkdownHarvey was queried on whether the reasons he had given for not briefing McCone were actually "reasons why he should [have been] briefed forthwith". Harvey replied:
+Harvey was queried on whether the reasons he had given for not briefing McCone were actually "reasons why he should [have been] briefed forthwith". Harvey replied:
 
 > Well, Senator Huddleston, it will be quite easy in looking at it now to say, well, I can see your argument.
 

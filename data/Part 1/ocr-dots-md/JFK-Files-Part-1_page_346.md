@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_346.png
-
-Convert to MarkdownSTETSON, SHIRLEY
+STETSON, SHIRLEY
 DCL STA. CHIEF
 
 SOCIAL, SASHA.

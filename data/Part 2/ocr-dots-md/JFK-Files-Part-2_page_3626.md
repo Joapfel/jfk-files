@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3626.png
-
-Convert to Markdown6. Italy
+6. Italy
 
 b. A clandestine source identifies Prime Minister Hafiz as the leading figure on the side of moderation. General Umran heads the doctrinaire extremists.
 

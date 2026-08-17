@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32523.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SSA-DC/3 #71-0095
 

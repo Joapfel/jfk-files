@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7079.png
-
-Convert to MarkdownDCI/OGC/RJE:ig 76105/ 15 Dec 1992
+DCI/OGC/RJE:ig 76105/ 15 Dec 1992
 
 OGC-92-53256
 

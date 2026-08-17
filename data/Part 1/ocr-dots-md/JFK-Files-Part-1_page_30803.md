@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30803.png
-
-Convert to MarkdownSEC. 13. NAMES OF 5 PERSONS WHO KNOW YOU SOCIALLY IN THE UNITED STATES, NOT REFER- ENCES OR EMPLOYERS—(Give business addresses where possible)
+SEC. 13. NAMES OF 5 PERSONS WHO KNOW YOU SOCIALLY IN THE UNITED STATES, NOT REFER- ENCES OR EMPLOYERS—(Give business addresses where possible)
 
 1. NAME John M. O'Sullivan
 

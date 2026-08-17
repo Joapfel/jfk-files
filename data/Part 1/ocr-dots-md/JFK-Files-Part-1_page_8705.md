@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8705.png
-
-Convert to MarkdownColeccionista (¿Qué colecciona? Armas de fuego, monedas, libros, mariPOSAS, etc.)
+Coleccionista (¿Qué colecciona? Armas de fuego, monedas, libros, mariPOSAS, etc.)
 
 Como coleccionista es Avido ___ De mediano Interés ✓ Despreocupado
 Artes (Pintura, cerámica, etc.) ✓

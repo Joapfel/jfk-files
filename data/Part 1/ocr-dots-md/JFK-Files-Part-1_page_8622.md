@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8622.png
-
-Convert to MarkdownMexico
+Mexico
 
 To September 27,1969
 

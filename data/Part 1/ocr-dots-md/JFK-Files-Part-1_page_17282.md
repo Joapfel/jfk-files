@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17282.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th></th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NO</th><th>PAGE NO</th></tr></thead><tbody><tr><td>TO<br/>CHIEF, WH Division</td><td rowspan="2">SECRET</td><td>EM-A-11257<br/>X-1472</td><td></td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td>HEADQUARTERS FARE NO<br/>50-6-1/1</td><td></td></tr><tr><td>SUBJECT<br/>Operational<br/>LIEMPTY Field Project Outline</td><td colspan="3">DATE<br/>8 October 1958<br/>RE '43 J - (CHECK X' ONE)<br/>MARKED FOR INDEXING<br/>NO INDEXING REQUIRED<br/>INDEXING CAN BE JUDGED<br/>BY QUALIFIED NO. DESK ONLY</td></tr><tr><td>ACTION REQUIRED<br/>Headquarters expeditious approval of LIEMPTY</td><td colspan="3"></td></tr><tr><td>REFERENCE(S)</td><td colspan="3">NEXI 2239, 29 August 1958<br/>DIR 41362, 18 September 1958</td></tr><tr><td>Encls.</td><td>(Odd pages herewith<br/>Even pages USC)</td><td colspan="2">RECORDS OFFICER STAMP<br/>The following action is authorized: <u>AS KAPKOT</u><br/><br/>Signed: <u>Korek Zajner</u><br/>R.O.S. #G30 - Unit <u>LWV/R</u><br/><br/>Note: If destruction, cite reasons on coordinate if appropriate.</td></tr><tr><td>QNO/bot<br/>2 Oct 58</td><td colspan="3"></td></tr><tr><td>Distribution</td><td colspan="3"></td></tr><tr><td>3 - Hqs w/atchmt<br/>2 - Files</td><td colspan="3"></td></tr><tr><td>USE PREVIOUS EDITION<br/>REPLACES FORM<br/>51 28 51-28A N<br/>NOT ARE OF</td><td>CLASSIFICATION<br/>SECRET</td><td>☐ CONTINUED</td><td>PAGE NO</td></tr></tbody></table>
 

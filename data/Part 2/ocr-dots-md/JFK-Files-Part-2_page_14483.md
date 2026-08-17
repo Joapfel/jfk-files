@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14483.png
-
-Convert to Markdown# Memorandum Branigan to Sullivan
+# Memorandum Branigan to Sullivan
 
 Re: BUREAU INFORMANT 200 POLICY
 105-93089

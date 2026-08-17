@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10287.png
-
-Convert to Markdown24
+24
 
 LA CASA DE CARILOS
 

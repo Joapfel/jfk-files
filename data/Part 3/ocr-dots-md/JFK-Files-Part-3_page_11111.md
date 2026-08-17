@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11111.png
-
-Convert to Markdown2 - Legal Counsel Division
+2 - Legal Counsel Division
 (1-Mr. Farrington)
 
 1 - Mr. W. R. Wannall

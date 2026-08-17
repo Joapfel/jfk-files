@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12597.png
-
-Convert to Markdownc. Whether they continue;
+c. Whether they continue;
 
 d. The names of all IRS personnel who ever either directly performed such activities or supervised or administered such activities;
 

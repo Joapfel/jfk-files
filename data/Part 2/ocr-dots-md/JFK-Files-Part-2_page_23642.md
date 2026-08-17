@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23642.png
-
-Convert to Markdownhas been adopted in the Senate over the last 10 or 15 years,
+has been adopted in the Senate over the last 10 or 15 years,
 for instance, with the Committee on Armed Services.
 
 Senator Huddleston. For other departments?

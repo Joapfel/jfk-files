@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_28154.png
-
 s<br>A. Responsible Fields case officer for U.S. ARMY (FOR LIEUTENANT J.R. PARKER).<br>B. Processing officer for Maricopa County Executive to assist in assignment of Pacific Islander labor to Department Labor.<br><br>SECTION III (To be completed at headquarters only)<br><br>DO NOT COMPLETE - FOR HEADQUARTERS USE ONLY</td></tr><tr><td colspan="6">AUTHENTICATION OF REPORT AND SIGNATURES<br><br>1. NAME OF RATER (True)<br>Robert C. Pierson<br><br>2. NAME OF AUTHORIZING OFFICER IN REPORT (True)<br>Robert C. Pierson<br><br>3. THIS REPORT [ ] Yes, [ ] No<br>THIS NOT

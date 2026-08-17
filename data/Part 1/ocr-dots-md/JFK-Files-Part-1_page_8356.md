@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8356.png
-
-Convert to MarkdownSince these recurring expenses would be a minimum of $17,000.00 per month, LIREALM/1 requested that his revolving fund be increased from $1,500.00 to $12,000.00, and that Rowton, in addition to reimbursing him for the $9,078.75 he spent in excess of his loan advance, give him an additional $12,000.00 pesos as his new revolving fund so that he would be able to pay the operational expenses required.
+Since these recurring expenses would be a minimum of $17,000.00 per month, LIREALM/1 requested that his revolving fund be increased from $1,500.00 to $12,000.00, and that Rowton, in addition to reimbursing him for the $9,078.75 he spent in excess of his loan advance, give him an additional $12,000.00 pesos as his new revolving fund so that he would be able to pay the operational expenses required.
 
 6. Guidance/Information Given to Agent:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7900.png
-
-Convert to Markdown13-00000
+13-00000
 
 inform me of this as soon as possible. I would also request that you indicate what standards, if any, you have established for determining whether or not a request for waiver should be granted.
 

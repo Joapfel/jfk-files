@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24651.png
-
-Convert to Markdownrate, they were not disposed of before Lumumba was "successfully neutralized" by being captured and imprisoned by the Congolese government (Hedgman, 8/21/75, pp. 85-86) at the beginning of December, 1960. Hedgman said that he does not recall taking the poisons out of his safe on any occasion other than when he disposed of them on the banks of the Congo River:
+rate, they were not disposed of before Lumumba was "successfully neutralized" by being captured and imprisoned by the Congolese government (Hedgman, 8/21/75, pp. 85-86) at the beginning of December, 1960. Hedgman said that he does not recall taking the poisons out of his safe on any occasion other than when he disposed of them on the banks of the Congo River:
 
 > I think that I took them out probably in a briefcase, or an air bag of some sort, and I believe that the things like the rubber gloves and the mask were thrown away in a bushy area or something where, you know, if they were found, it didn't matter that much. I believe I buried the other matters.
 

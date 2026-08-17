@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15608.png
-
-Convert to MarkdownFREDERICK ALLEN HAMPTON
+FREDERICK ALLEN HAMPTON
 
 Contact with first and second confidential sources, both of whom have furnished reliable information in the past, failed to determine any knowledge on the part of either source in any direct conversation between David Hilliard, Chief of Staff, Black Panther Party, San Francisco, California, and Hampton, Chairman, Illinois Black Panther Party, in regards to the context of Hampton's speech.
 

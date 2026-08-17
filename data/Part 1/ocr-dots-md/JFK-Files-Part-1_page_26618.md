@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26618.png
-
-Convert to Markdown# CENTRAL INTELLIGENCE AGENCY
+# CENTRAL INTELLIGENCE AGENCY
 **Intelligence Information Cable**
 
 • PRIORITY

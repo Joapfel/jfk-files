@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13790.png
-
-Convert to Markdown**El Salvador**
+**El Salvador**
 Salvadorean Women's Fraternity.
 
 **Guatemala**

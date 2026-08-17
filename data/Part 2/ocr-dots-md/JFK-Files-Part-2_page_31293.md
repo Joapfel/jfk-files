@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31293.png
-
-Convert to MarkdownIt appears, from an examination of all available materials, that Lee Harvey Oswald was not interviewed by the CIA following his return to the United States from the Soviet Union. Although persons in a state of the Soviet Russia Division expressed an interest in interviewing Oswald, they never followed up this interest.
+It appears, from an examination of all available materials, that Lee Harvey Oswald was not interviewed by the CIA following his return to the United States from the Soviet Union. Although persons in a state of the Soviet Russia Division expressed an interest in interviewing Oswald, they never followed up this interest.
 
 There is also no indication that the Domestic Security Division of the Office of Operations interviewed Oswald.
 

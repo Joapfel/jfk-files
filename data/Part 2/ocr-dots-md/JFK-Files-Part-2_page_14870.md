@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14870.png
-
-Convert to Markdown### 3. NEED FOR CRIMINAL-TYPE LEGISLATION
+### 3. NEED FOR CRIMINAL-TYPE LEGISLATION
 
 Since April 30, 1958, the Bureau has suggested certain items of legislation relative to establishing some effective curbs on the activities of racketeers. The most recent communication to the Department in this regard was a memorandum to Deputy Attorney General Walsh dated September 2, 1959, captioned "Legislative Program, Eighty-sixth Congress, Second Session." These legislative suggestions are as follows:
 

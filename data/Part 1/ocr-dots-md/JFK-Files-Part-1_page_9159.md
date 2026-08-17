@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9159.png
-
-Convert to Markdown14-0000
+14-0000
 
 FORM
 3-77 179B USE PREVIOUS EDITIONS.

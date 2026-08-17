@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9596.png
-
-Convert to MarkdownPAGE 2 DCD/MIAMI 13876
+PAGE 2 DCD/MIAMI 13876
 
 IDEN S - (GRAY GHOST)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27294.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A. Memo for General Counsel from Dir of Security - 4 Apr 75
 SECRET

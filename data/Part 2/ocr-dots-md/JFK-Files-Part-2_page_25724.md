@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25724.png
-
-Convert to Markdown# Washington Merry-Go-Round
+# Washington Merry-Go-Round
 
 ## Attempts to Kill Castro Laid to CIA
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24971.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Director, Domestic Contact Service
 C. Delaney

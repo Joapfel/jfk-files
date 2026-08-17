@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31674.png
-
-Convert to MarkdownSF14-207
+SF14-207
 
 YOUNG SOCIALIST ALLIANCE (known in the San Francisco Bay area as the Bay Area Young Socialist Alliance, aka the Bay Area Committee of the Young Socialist Alliance, Bay Area Committee for the Young Socialist)
 

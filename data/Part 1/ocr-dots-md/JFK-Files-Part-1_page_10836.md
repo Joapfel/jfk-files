@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10836.png
-
-Convert to MarkdownEn las mesetas del Departamento de Estado en Washington, se sumó que en los primeros meses se articulará un organismo de exiliados cubanos al que se daría apoyo económico y político para restablecer el regimen democrático en Cuba.
+En las mesetas del Departamento de Estado en Washington, se sumó que en los primeros meses se articulará un organismo de exiliados cubanos al que se daría apoyo económico y político para restablecer el regimen democrático en Cuba.
 
 Algo así como el tristemente celíbato Condejo de Jose Miro Cardona y "Tony" Viróna.
 

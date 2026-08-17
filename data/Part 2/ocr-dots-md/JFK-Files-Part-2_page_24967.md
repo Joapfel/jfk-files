@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24967.png
-
-Convert to MarkdownI do not recall any discussion of any assassination plan connected to the United States Government during the entire course of my government service. I do not recall ever hearing of the CIA adopting any assassination plan, nor do I recall ever hearing the President make a statement that could be construed as an order for the assassination of Patrice Lumumba.
+I do not recall any discussion of any assassination plan connected to the United States Government during the entire course of my government service. I do not recall ever hearing of the CIA adopting any assassination plan, nor do I recall ever hearing the President make a statement that could be construed as an order for the assassination of Patrice Lumumba.
 
 3. In answer to a question from Mr. Baron I said that in my opinion the language used in the Memorandum for the Record of the Special Group Meeting of August 25, 1960 is sufficiently broad so it could be interpreted to cover a discussion of assassination:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10721.png
-
-Convert to MarkdownThe following activity took place pursuant to the execution of an arrest warrant, dated August 21, 1971, authorized by U. S. Departmental Attorney GUY L. GOOLDFIN, and issued August 21, 1971, by U. S. Magistrate CHARLES L. RUDD at Camden, N. J.
+The following activity took place pursuant to the execution of an arrest warrant, dated August 21, 1971, authorized by U. S. Departmental Attorney GUY L. GOOLDFIN, and issued August 21, 1971, by U. S. Magistrate CHARLES L. RUDD at Camden, N. J.
 
 PAUL R. COULTING was observed by SA's SNODGRASS and SHERWOOD at about 4:35 a.m., standing against the outside wall of the Selective Service Offices, Fifth Floor, U. S. Post Office building, behind a parapet, on the roof of the Fourth Floor. Counning was told, "FBI, don't move," by SA SNODGRASS, and was immediately placed under arrest by SA's SNODGRASS and SHERWOOD.
 

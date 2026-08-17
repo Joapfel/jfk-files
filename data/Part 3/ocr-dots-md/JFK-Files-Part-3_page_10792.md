@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10792.png
-
-Convert to Markdownas the executive agent of National Intelligence Authority
+as the executive agent of National Intelligence Authority
 in coordinating and supervising all foreign intelligence
 activitios there should be added "performed outside the
 United States and its possessions relating to the national

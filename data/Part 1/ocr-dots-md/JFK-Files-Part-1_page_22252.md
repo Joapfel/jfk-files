@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22252.png
-
-Convert to Markdown659a.
+659a.
 
 b. Remarks
 

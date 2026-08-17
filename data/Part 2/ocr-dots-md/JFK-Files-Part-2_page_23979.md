@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23979.png
-
-Convert to Markdown**Following the September 4 election, the CIA's Directorate of Intelligence circulated an intelligence community assessment of the impact of an Allende government on U.S. national interests. That assessment, dated September 7, 1970, stated:
+**Following the September 4 election, the CIA's Directorate of Intelligence circulated an intelligence community assessment of the impact of an Allende government on U.S. national interests. That assessment, dated September 7, 1970, stated:
 
 Regarding threats to U.S. interests, we conclude that:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17389.png
-
-Convert to Markdown<table><thead><tr><th>ORIG:</th><td>Bustos</td></tr></thead><tbody><tr><td>UNIT:</td><td>1619</td></tr><tr><td>EXT:</td><td></td></tr><tr><td>DATE:</td><td>XA5AXEX</td></tr></tbody></table>
+<table><thead><tr><th>ORIG:</th><td>Bustos</td></tr></thead><tbody><tr><td>UNIT:</td><td>1619</td></tr><tr><td>EXT:</td><td></td></tr><tr><td>DATE:</td><td>XA5AXEX</td></tr></tbody></table>
 
 CLASSIFIED MESSAGE
 

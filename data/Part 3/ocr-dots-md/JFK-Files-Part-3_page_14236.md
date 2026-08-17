@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14236.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 AGENDA FOR JUNE 4, 1964 (Continued):
 

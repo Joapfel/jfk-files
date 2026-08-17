@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26218.png
-
-Convert to Markdowndon't think it would have been completely in the Vietnamese context.
+don't think it would have been completely in the Vietnamese context.
 
 O'BRIEN: Yeah, do you get any of this thinking when you get back? Any contingency planning or thinking about the building of troop levels to a more substantial level, maybe linked with the settling of the Laotian question first?
 

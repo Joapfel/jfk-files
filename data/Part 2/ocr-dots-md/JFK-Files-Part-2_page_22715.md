@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22715.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 historical problems is not being applied, as I understand it, to current operational efforts or investigative needs. There is an entirely different philosophy being applied as to what may be required in terms of understanding the counterintelligence threat to this nation. There is very little emphasis, if any, or concern with such things as deception and disinformation. There is little application of analytical and assessment work to the overall role of foreign intelligence and security services in political action.
 

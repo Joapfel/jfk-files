@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29610.png
-
-Convert to MarkdownJMC: 24 AUG 71
+JMC: 24 AUG 71
 
 <table><thead><tr><th colspan="5">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td>NEF</td><td colspan="3"></td></tr><tr><td>I SERIAL NUMBER<br/>035693</td><td>2 NAME (LAST-FIRST FIRSTNAME)<br/>MAKSYMIEC MYROSLAW A</td><td></td><td></td></tr><tr><td colspan="2">3 NATURE OF PERSONNEL ACTION</td><td>4 EFFECTIVE DATE<br/>07 30 71</td><td>5 CATEGORY OF EMPLOYMENT</td><td>REGULAR</td></tr><tr><td rowspan="2">6 FUNDS</td><td>V TO V</td><td colspan="2"></td></tr><tr><td>C TO V</td><td colspan="2"></td></tr><tr><td colspan="2">9. ORGANIZATIONAL DESIGNATIONS</td><td colspan="2">10. LOCATION OF OFFICIAL STATION</td></tr><tr><td colspan="2">11. POSITION TITLE<br/>D AND E TECH</td><td>12. POSITION NUMBER<br/>9997</td><td>13. SERVICE DESIGNATION<br/>IP</td></tr><tr><td colspan="2">14. CLASSIFICATION SCHEDULE (GS, IB, etc.)<br/>GS</td><td>15. OCCUPATIONAL SERIES<br/>1670.08</td><td>16. GRADE AND STEP<br/>09 6</td><td>17. SALARY OR RATE<br/>12215</td></tr><tr><td colspan="2">18. REMARKS</td><td colspan="2">SIGNATURE OR OTHER AUTHENTICATION</td></tr></tbody></table>
 

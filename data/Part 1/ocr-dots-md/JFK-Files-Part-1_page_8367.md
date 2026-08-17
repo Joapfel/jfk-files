@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8367.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26 FEBRUARY 1969
 

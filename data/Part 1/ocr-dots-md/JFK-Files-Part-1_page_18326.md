@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18326.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO. 45 (Part I)
 1 NOV 55

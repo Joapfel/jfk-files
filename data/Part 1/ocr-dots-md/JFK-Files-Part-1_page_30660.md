@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30660.png
-
-Convert to MarkdownSECRET
+SECRET
 
 h. Keep current records of double agent operations and prepare summaries of them.
 

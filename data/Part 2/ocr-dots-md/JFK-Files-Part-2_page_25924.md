@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25924.png
-
-Convert to MarkdownN THE
+N THE
 
 LEGEND
 

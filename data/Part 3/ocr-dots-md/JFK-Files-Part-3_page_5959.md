@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5959.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 October 14, 1975
 

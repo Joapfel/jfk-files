@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29251.png
-
-Convert to Markdown011475
+011475
 
 INVESTIGATION INTERVIEW SCHEDULE
 

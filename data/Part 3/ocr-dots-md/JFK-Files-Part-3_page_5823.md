@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5823.png
-
-Convert to MarkdownLA 157-2325
+LA 157-2325
 
 Instant report is being submitted instead of LHM as per FD-01 dated 3/27/69 to facilitate handling.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28497.png
-
-Convert to Markdown6 February 1953
+6 February 1953
 
 TO Overseas Branch
 

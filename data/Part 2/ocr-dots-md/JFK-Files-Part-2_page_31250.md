@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31250.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 Sept at source and life
 Gibson a guest of Mario Mauro,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2570.png
-
-Convert to MarkdownBUGAYEVA, Ludmila - IV,F,4
+BUGAYEVA, Ludmila - IV,F,4
 
 BURGI, Richard - IV,D,1
 

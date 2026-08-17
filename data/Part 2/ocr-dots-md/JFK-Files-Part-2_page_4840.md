@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4840.png
-
-Convert to MarkdownSECRET
+SECRET
 
 February of '76 and it's called the Bush paper. It wasn't. I mean, Bush couldn't possibly, even with his staff, have written a new Executive Order in the couple of weeks that he was in the office. It had to be the one that was prepared by Colby and his staff or his staff officers. So that was basically the order that came out in '76 with a Bill Colby related order, an attempt to do something. But again, why should the White House and all of it's parts gone out of its way to work with a guy they weren't sure of? Now when Bush took over in '76 it's a different story. But by that time the damage had been done. It was '75 when the damage was done, not '76, because by '76 the Hearings had died down, the coverage had died down, and it was only starting to come up again when they started to show these green books and the reports and the Hearings and by that time it was the middle of '76. But it doesn't take long to destroy an Intelligence Community. You know, boom.
 

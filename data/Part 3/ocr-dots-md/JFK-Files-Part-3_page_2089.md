@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2089.png
-
-Convert to Markdown<table><thead><tr><th></th><th>PRECEDENCE:</th><th>CLASSIFICATION:</th></tr></thead><tbody><tr><td>☐ Teletype</td><td>☐ Immediate</td><td>☐ TOP SECRET</td></tr><tr><td>☐ Facsimile</td><td>☐ Priority</td><td>☐ SECRET</td></tr><tr><td>☑ Airtel</td><td>☐ Routine</td><td>☐ CONFIDENTIAL<br>☐ EFTO<br>☐ CLEAR</td></tr><tr><td colspan="2">Date 1/23/78</td><td></td></tr></tbody></table>
+<table><thead><tr><th></th><th>PRECEDENCE:</th><th>CLASSIFICATION:</th></tr></thead><tbody><tr><td>☐ Teletype</td><td>☐ Immediate</td><td>☐ TOP SECRET</td></tr><tr><td>☐ Facsimile</td><td>☐ Priority</td><td>☐ SECRET</td></tr><tr><td>☑ Airtel</td><td>☐ Routine</td><td>☐ CONFIDENTIAL<br>☐ EFTO<br>☐ CLEAR</td></tr><tr><td colspan="2">Date 1/23/78</td><td></td></tr></tbody></table>
 
 FD-36 (Rev. 7-27-76)
 

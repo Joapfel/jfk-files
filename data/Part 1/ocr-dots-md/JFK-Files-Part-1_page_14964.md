@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14964.png
-
-Convert to MarkdownGABACHVILI and PATANIDZE were in touch with the Chief of British Intelligence" in 1950-53. GABACHVILI stated that he felt the British worked closely with the Americans, and that the chief intended to bring him to the US. GABACHVILI and PATANIDZE did not know why the British dropped the work, but GABACHVILI felt that after 1953 the British had turned the Near East over to the US. GABACHVILI has not been in touch with the Americans.
+GABACHVILI and PATANIDZE were in touch with the Chief of British Intelligence" in 1950-53. GABACHVILI stated that he felt the British worked closely with the Americans, and that the chief intended to bring him to the US. GABACHVILI and PATANIDZE did not know why the British dropped the work, but GABACHVILI felt that after 1953 the British had turned the Near East over to the US. GABACHVILI has not been in touch with the Americans.
 
 ## B. Agents used by the British
 

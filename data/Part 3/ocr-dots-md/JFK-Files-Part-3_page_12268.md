@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12268.png
-
-Convert to Markdown# Black Panther Party
+# Black Panther Party
 
 FEDERAL BUREAU OF INVESTIGATION
 UNITED STATES DEPARTMENT OF JUSTICE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33624.png
-
-Convert to MarkdownAgain I would like to know what is going through Mr. Nagy's mind.
+Again I would like to know what is going through Mr. Nagy's mind.
 
 ECRT, an American organisation, hired Mr. Deaseffy to be the responsible head of its Hungarian Desk in Munich. Mr. Deaseffy was a very careful choice after weeks of consultation on both sides of the Atlantic. His specific instructions were that the Munich desk should be staffed by people selected for functional competence, excluding, of course, Communists and fascists.
 

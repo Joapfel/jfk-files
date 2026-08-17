@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12198.png
-
-Convert to Markdown1075 IN EDITIONS
+1075 IN EDITIONS
 
 # Intelligence Information Cable
 

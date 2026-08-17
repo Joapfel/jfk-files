@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31111.png
-
-Convert to Markdown218 Belmont Avenue
+218 Belmont Avenue
 Brockton, Massachusetts
 
 January 15, 1961

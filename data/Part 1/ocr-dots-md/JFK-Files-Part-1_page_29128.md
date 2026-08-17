@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29128.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><tr><td>NAME OF EMPLOYEE (Last)</td><td>(First, Middle)</td><td>SOCIAL SECURITY NUMBER</td></tr><tr><td>BUSTOS-VIDELA</td><td>Charlotte</td><td>069-24-3138</td></tr></table>
 

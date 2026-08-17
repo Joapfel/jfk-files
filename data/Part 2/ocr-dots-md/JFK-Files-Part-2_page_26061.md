@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26061.png
-
-Convert to Markdownofficial documents of the French, trying to explain him and so on, by friends, I found very interesting, and I had no way of judging really on it—there was a tremendous sympathy and so forth being expressed, and then a very strong attempt to work out an accommodation with him afterwards, ~~with him~~, by the French. And again, a highly emotional sensitivity to any interference, ~~was~~ what they were trying to do, and they saw almost anything as interference.
+official documents of the French, trying to explain him and so on, by friends, I found very interesting, and I had no way of judging really on it—there was a tremendous sympathy and so forth being expressed, and then a very strong attempt to work out an accommodation with him afterwards, ~~with him~~, by the French. And again, a highly emotional sensitivity to any interference, ~~was~~ what they were trying to do, and they saw almost anything as interference.
 
 So, what is written by them, I read mindful of their sensitivities at the time and what they're trying to prevent anybody ever believing that would be opposite at all, or something different at least, and it was just amazing. The French press was screaming that I was starting World War III in Vietnam in '55 . . .
 

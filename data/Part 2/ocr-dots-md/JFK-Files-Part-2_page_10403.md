@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10403.png
-
-Convert to Markdownthe DD/O, we will not honor any requisition for surveillance equipment unless it has been approved by the CI Staff of the DD/O.
+the DD/O, we will not honor any requisition for surveillance equipment unless it has been approved by the CI Staff of the DD/O.
 
 4. Within the area of contractual responsibilities, the following items are pertinent:
 

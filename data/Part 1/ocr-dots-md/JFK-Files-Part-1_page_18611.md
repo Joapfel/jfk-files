@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18611.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 MEL: 03 JAN 72

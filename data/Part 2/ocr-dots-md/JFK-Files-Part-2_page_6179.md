@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6179.png
-
-Convert to Markdownconsequences for CIA and we expect to refine this timetable both to minimize the resource impact and to allow us and the CIA to proceed most efficiently with the review. We also take very seriously our commitment to Congress to complete our work on schedule. Is the Board prepared to make decisions on records if CIA has not completed its review and to enforce those decisions?
+consequences for CIA and we expect to refine this timetable both to minimize the resource impact and to allow us and the CIA to proceed most efficiently with the review. We also take very seriously our commitment to Congress to complete our work on schedule. Is the Board prepared to make decisions on records if CIA has not completed its review and to enforce those decisions?
 
 ## II. Issues applying to all CIA record groups
 

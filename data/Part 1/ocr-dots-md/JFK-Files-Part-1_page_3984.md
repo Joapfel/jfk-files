@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3984.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Meeting with ANJAVA-4 in New Orleans, 21-23 May 1965
 

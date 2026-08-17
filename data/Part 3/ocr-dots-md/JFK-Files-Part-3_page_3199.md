@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3199.png
-
-Convert to Markdown1811
+1811
 
 of this country?
 

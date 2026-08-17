@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11612.png
-
-Convert to MarkdownS. CHUA), may find it more desirable to postpone his strong letter of reprisal until he actually receives a letter on this matter from the Ambassador, unless he can feasibly explain the anti-American attitude of his Chilean newspaper through overt sources.
+S. CHUA), may find it more desirable to postpone his strong letter of reprisal until he actually receives a letter on this matter from the Ambassador, unless he can feasibly explain the anti-American attitude of his Chilean newspaper through overt sources.
 
 NORMAN S. PAUL
 

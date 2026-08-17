@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27276.png
-
-Convert to MarkdownS-N (Vol. III)
+S-N (Vol. III)
 
 A. Copy of Ltr to David Young from Howard J. Osborn, 11 Aug 71
 

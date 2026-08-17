@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25481.png
-
-Convert to MarkdownFW: Right.
+FW: Right.
 
 ML: And I wrote up the 61.
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_25053.png
-
 to the
 President. And that job was held by General Goodpastor.
 

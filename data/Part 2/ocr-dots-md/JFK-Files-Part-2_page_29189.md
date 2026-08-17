@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29189.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>(1) Name and Address of Each Shareholder</td>

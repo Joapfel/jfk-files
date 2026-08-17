@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5910.png
-
-Convert to MarkdownQuestion 3 - What was the function of the Office of Security/Security Research Staff (OS/SRS)? Why were defector records kept in this component?
+Question 3 - What was the function of the Office of Security/Security Research Staff (OS/SRS)? Why were defector records kept in this component?
 
 The Security Research Staff (SRS) was the component responsible for collecting, developing, and evaluating information of a counterintelligence nature to detect and/or prevent penetration of the Agency's organization, employees, and activities by foreign or domestic organizations or individuals. SRS conducted research in connection with employee loyalty cases and maintained records identifying personalities, environments, and personal traits of individuals who had been of counterintelligence interest over the years. SRS maintained liaison with various government agencies in connection with counterintelligence activities and coordinated the counter intelligence effort throughout OS. SRS reported directly to the Director of Security.
 

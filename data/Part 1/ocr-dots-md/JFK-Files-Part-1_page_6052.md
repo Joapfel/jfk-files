@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6052.png
-
-Convert to MarkdownDRE fue responsable de Departamento de Estado
+DRE fue responsable de Departamento de Estado
 
 En declaración oficial expresan que no pedían aprehar que se utilice tercio de E.U. como base de acción na-
 

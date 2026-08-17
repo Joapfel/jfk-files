@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34642.png
-
-Convert to MarkdownS.E.C.R.
+S.E.C.R.
 
 EXHIBIT 2
 

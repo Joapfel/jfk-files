@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4706.png
-
-Convert to MarkdownSECRET
+SECRET
 
 way or another. And practically all of those had to be dismantled. The DDP,
 then Des Fitzgerald, just before he died as a matter of fact, came up with a

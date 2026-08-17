@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34897.png
-
-Convert to Markdown--- PARROQUIA DE LA PALMA Y LA VELASCA EN LA CINCA DE LA MANANA
+--- PARROQUIA DE LA PALMA Y LA VELASCA EN LA CINCA DE LA MANANA
 
 ----- Consuto por el presente documento, como de una parte: el Señor HON. SANTOVENIA LOPEZ, natural y Ciudadano de Cuba, mayor de edades, casado, expuesto, residuo en el número 5307 de la Avonida Park, en el distrito de New York, Estado de New Jersey, United States of America; y de otro parte: el Señor ROBerto F. Pizarro, natural y Ciudadano de Cuba, mayor de edades, casado, expuesto, y viviendo del número 61-20 del barrio Sur de la Manzana, en - Plauching, Ciudad y Capital de New York, estando Unidades de Norteamérica, convenien lo siguiente:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9606.png
-
-Convert to MarkdownHM#A-1952
+HM#A-1952
 
 29 June 1954
 Page two

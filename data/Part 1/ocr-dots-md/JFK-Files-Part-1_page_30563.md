@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30563.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Chief of Station, Financial
 Incentive

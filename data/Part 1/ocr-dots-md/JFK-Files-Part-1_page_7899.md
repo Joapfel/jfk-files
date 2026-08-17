@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7899.png
-
-Convert to Markdown13 Mar 67 20404
+13 Mar 67 20404
 
 SECRET 131810Z CITE MEXICO CITY 0653
 

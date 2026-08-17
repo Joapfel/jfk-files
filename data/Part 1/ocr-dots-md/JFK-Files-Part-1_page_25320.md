@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25320.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">FIELD INFORMATION REPORT</th></tr></thead><tbody><tr><td>COUNTRY: Mexico</td><td>REPORT NO. MM-1464</td></tr><tr><td>SUBJECT: Soviet Commercial Activities in Mexico</td><td>DATE OF INFO: December 1955</td></tr><tr><td>PLACE ACQUIRED: Mexico City.</td><td>DATE ACQUIRED: Same as above</td></tr><tr><td></td><td>DATE OF REPORT: 5 March 1958</td></tr><tr><td>SOURCE, SOURCE EVALUATION, APPRAISAL OF CONTENT: LIFEAT/LIMEPICK, B-Docmentary.</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">FIELD INFORMATION REPORT</th></tr></thead><tbody><tr><td>COUNTRY: Mexico</td><td>REPORT NO. MM-1464</td></tr><tr><td>SUBJECT: Soviet Commercial Activities in Mexico</td><td>DATE OF INFO: December 1955</td></tr><tr><td>PLACE ACQUIRED: Mexico City.</td><td>DATE ACQUIRED: Same as above</td></tr><tr><td></td><td>DATE OF REPORT: 5 March 1958</td></tr><tr><td>SOURCE, SOURCE EVALUATION, APPRAISAL OF CONTENT: LIFEAT/LIMEPICK, B-Docmentary.</td><td></td></tr></tbody></table>
 
 ## I. ORGANIZATION
 

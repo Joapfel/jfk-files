@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24579.png
-
-Convert to Markdownkeep him out of the limelight (7). As of 4 September 1968, CARDOZA was to take the place of GUTIERRA who had been the head of the PGT in Mexico. GUTIERRA was killed by Guatemalan police in early 1966 (15).
+keep him out of the limelight (7). As of 4 September 1968, CARDOZA was to take the place of GUTIERRA who had been the head of the PGT in Mexico. GUTIERRA was killed by Guatemalan police in early 1966 (15).
 
 9. LEONOV, Nikolay Sergeyevich (201-132139), former Press Attache at the Soviet Embassy in Mexico City and known KGB officer.
 

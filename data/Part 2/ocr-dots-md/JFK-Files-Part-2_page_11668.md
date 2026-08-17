@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11668.png
-
-Convert to MarkdownAugust 27, 1968
+August 27, 1968
 
 MANUAL OF RULES AND REGULATIONS
 REVISION 194.

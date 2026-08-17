@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5934.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 TO : MR. W. C. SULLIVAN
 

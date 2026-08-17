@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12398.png
-
-Convert to Markdown<table><tr><td colspan="2">LAWRENCE STERNTEL</td></tr><tr><td>MSD: SH/COG</td><td>S E C R E T</td></tr><tr><td>FEB 781 R. 1943</td><td></td></tr><tr><td>JAN 20 NOVEMBER 1972</td><td></td></tr></table>
+<table><tr><td colspan="2">LAWRENCE STERNTEL</td></tr><tr><td>MSD: SH/COG</td><td>S E C R E T</td></tr><tr><td>FEB 781 R. 1943</td><td></td></tr><tr><td>JAN 20 NOVEMBER 1972</td><td></td></tr></table>
 
 <table><tbody><tr><td rowspan="5"></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

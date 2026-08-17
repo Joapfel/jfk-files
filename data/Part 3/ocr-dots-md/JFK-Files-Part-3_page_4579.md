@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4579.png
-
-Convert to MarkdownAirtel to SAC, Miami
+Airtel to SAC, Miami
 
 Re: VICTOR DOMINADOR ESPINOSA HERNANDEZ, et al.
 

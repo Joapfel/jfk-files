@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_7686.png
-
 counsel; Waggoner Carr, attorney general of Texas; and Charles Murray, observer.
 
 TESTIMONY OF THOMAS J. KELLEY

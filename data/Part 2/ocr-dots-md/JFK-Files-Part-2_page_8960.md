@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8960.png
-
-Convert to Markdownpaís, escrita en ruso, cartas en el mismo idioma y comprobantes de que estaba casado con una mujer de nacionalidad Soviética llamada MARINA OSWALD.
+país, escrita en ruso, cartas en el mismo idioma y comprobantes de que estaba casado con una mujer de nacionalidad Soviética llamada MARINA OSWALD.
 
 Ademas dijo que era director de una Organización de apoyo a Cuba en la Ciudad de Nueva Orleans y miembro del Partido Comunista de los Estados Unidos. Dijo que tenia la intencion de viajar a Cuba el día 30 de septiembre de 1963, y permanecer por dos semanas o más tiempo.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8966.png
-
-Convert to MarkdownF. M. B.
+F. M. B.
 
 ESTADOS UNIDOS MEXICANOS
 SECRETARIA DE GOBERNACION

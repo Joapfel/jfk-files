@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_449.png
-
-Convert to MarkdownOLC 74-0179
+OLC 74-0179
 
 4 February 1974
 

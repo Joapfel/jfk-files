@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6904.png
-
-Convert to MarkdownRefired. page(s) of memo to
+Refired. page(s) of memo to
 
 The Attorney General
 Director, FBI

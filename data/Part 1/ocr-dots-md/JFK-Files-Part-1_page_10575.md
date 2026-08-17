@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10575.png
-
-Convert to Markdown# LOS CHOMBEROS EN EL EXODO
+# LOS CHOMBEROS EN EL EXODO
 
 Llama grandemente la atención la eterna juventud del Dr. Eduardo (Guarro) Ochon en sus 56 años que parecen 40. Atribuye el ex-alcolde este milagro a su equilibrio espiritual lo-gado en estudios y medi-taciones en las disciplinas de la orden místico de los "Rosacruces".
 

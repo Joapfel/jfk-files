@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10471.png
-
-Convert to MarkdownNR008 DL CODE
+NR008 DL CODE
 
 5:44 PM NITEL 3/26/75 DRH
 

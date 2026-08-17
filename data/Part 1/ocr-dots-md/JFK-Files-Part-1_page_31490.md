@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31490.png
-
-Convert to Markdownrefugees and other agencies active in the field regarding all phases of HOPE work, and particularly that of FACS and RFE.
+refugees and other agencies active in the field regarding all phases of HOPE work, and particularly that of FACS and RFE.
 
 2. The attempt to keep the VCE European Representative and the RFE Political Advisor informed of exigent political developments in Europe which might affect their operations and to control and guide them in developments wherever possible to the advantage of HOPE and RFE. For example, HOPE, designed to wage political warfare on a broad front, was recently almost outflanked in Germany. Some organized means of preventing such occurrences, or at least of reporting their development, should be provided.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13709.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Date: August 20, 1964
 To: Mr. Winston M. Scott

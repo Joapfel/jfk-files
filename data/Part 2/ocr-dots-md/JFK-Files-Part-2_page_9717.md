@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9717.png
-
-Convert to MarkdownNK-157-2011
+NK-157-2011
 
 destruction or killing. Regarding DRAGER's claim to bomb the city on the Fourth of July, LENTZ advised he never heard such plans and regards DRAGER as a blow-hard. LENTZ said he has a news letter from DRAGER dated 1972 where DRAGER claims to be underground.
 

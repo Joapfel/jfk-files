@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27709.png
-
-Convert to Markdown4 March 1957
+4 March 1957
 
 Mr. Thomas John Keenan
 42 East Follett Street

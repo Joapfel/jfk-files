@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23447.png
-
-Convert to MarkdownU.S. Central Intelligence Agency
+U.S. Central Intelligence Agency
 
 intervention. This led to an involved discussion, the general conclusion of which was that such action on our part would not be desirable, but that should Castro be foolish enough actually to attack Guantanamo this would almost certainly mean war. Mr. Gray said that he had had the subject of Cuba inscribed on the NSC agenda for next Monday in order to be able to arrive at a top-level decision on this very point. He thought it essential that the policy of the U.S. should be completely understood by responsible officials, so that any overt Cuban act would be met with a previously-agreed-on response.
 

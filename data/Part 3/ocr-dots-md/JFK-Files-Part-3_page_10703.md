@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10703.png
-
-Convert to Markdownsituation in this area within recent weeks; Through informants and through observations of license tags of automobiles parked at meeting places, Mobile Office is constantly learning of the identities of new persons who have some potential for violence. In all such cases, a case file is opened on that individual, his identity being established and his background being obtained. No particular effort is made to keep those investigations so discreet that the Klansman will not learn that the FBI is inquiring about him. This practice is deemed to be effective with respect to these individuals.
+situation in this area within recent weeks; Through informants and through observations of license tags of automobiles parked at meeting places, Mobile Office is constantly learning of the identities of new persons who have some potential for violence. In all such cases, a case file is opened on that individual, his identity being established and his background being obtained. No particular effort is made to keep those investigations so discreet that the Klansman will not learn that the FBI is inquiring about him. This practice is deemed to be effective with respect to these individuals.
 
 As set forth hereinbefore, Mobile will intensify its efforts to discover information which can be used in the CI program.
 

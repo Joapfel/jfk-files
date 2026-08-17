@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16130.png
-
-Convert to MarkdownAt 6:00 PM, an autopsy was performed on the body of FREDERICK ALLEN HAMPTON by Dr. CHARLES PETTY, pathologist from Dallas, Texas. The autopsy was performed at the Veterans Administration Hospital, Shreveport, Louisiana. Those in attendance, according to a list provided by JOSEPH KEANE, U. S. Marshal, Shreveport, Louisiana, were as follows:
+At 6:00 PM, an autopsy was performed on the body of FREDERICK ALLEN HAMPTON by Dr. CHARLES PETTY, pathologist from Dallas, Texas. The autopsy was performed at the Veterans Administration Hospital, Shreveport, Louisiana. Those in attendance, according to a list provided by JOSEPH KEANE, U. S. Marshal, Shreveport, Louisiana, were as follows:
 
 For the State of Illinois:
 

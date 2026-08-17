@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15172.png
-
-Convert to MarkdownNEW FBI ACADEMY
+NEW FBI ACADEMY
 
 In May, 1965, the Director submitted a proposal to the Attorney General for the building of a new FBI Academy on the Marine Corps Base at Quantico, Virginia. This suggestion was immediately endorsed by the President and the Attorney General. The Director's proposal outlined that with the new facility, instead of training 200 local law enforcement officers annually at the FBI National Academy we could train 1,200 and up to 1,000 local law enforcement officers in specialized courses. The Congress has appropriated funds for the construction of this new facility.
 

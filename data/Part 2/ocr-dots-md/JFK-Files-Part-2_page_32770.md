@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32770.png
-
-Convert to MarkdownNovember 1962, I found that their own views, arrived at independently,
+November 1962, I found that their own views, arrived at independently,
 coincided with mine. After several discussions we concluded:
 
 First, that all the evidence showed that the TFX concept was a valid

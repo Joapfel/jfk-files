@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30346.png
-
-Convert to MarkdownCONTINUED SERVICE AGREEMENT FOR EMPLOYEES ASSIGNED
+CONTINUED SERVICE AGREEMENT FOR EMPLOYEES ASSIGNED
 TO TRAINING THROUGH NON-CIA FACILITIES
 
 1. In consideration of my being assigned by the Central Intelligence

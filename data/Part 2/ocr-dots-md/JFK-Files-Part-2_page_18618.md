@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18618.png
-
-Convert to Markdown2669-11C-01-601
+2669-11C-01-601
 
 August 24, 1965
 

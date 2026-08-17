@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5874.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">REQUEST FOR PRESENT OPERATIONAL STATUS OF SUBJECT</td>
     <td>DATE</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12914.png
-
-Convert to Markdown1. State Department Cable
+1. State Department Cable
 Date: 19 October 1976
 Classification: Confidential
 CARACAS 12401

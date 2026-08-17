@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21840.png
-
-Convert to Markdownc. Access to KGB Residency and Availability
+c. Access to KGB Residency and Availability
 TO CIA
 
 d. Timing of 1962 Contact 752

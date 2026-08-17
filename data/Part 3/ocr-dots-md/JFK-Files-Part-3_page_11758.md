@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11758.png
-
-Convert to Markdown# Nationalities Intelligence Section
+# Nationalities Intelligence Section
 
 ## Front Office
 - Middle and South American Unit (South & Central America, Caribbean countries and ethnic groups)

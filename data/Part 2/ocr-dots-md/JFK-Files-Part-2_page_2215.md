@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2215.png
-
-Convert to MarkdownSECRET
+SECRET
 
 27 NOV 1965
 

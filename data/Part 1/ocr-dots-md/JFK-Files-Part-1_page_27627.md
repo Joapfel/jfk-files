@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27627.png
-
-Convert to MarkdownSEC. 18. GIVE THREE NEIGHBORS AT YOUR LAST NORMAL RESIDENCE IN THE U.S. — (Give residence and business addresses where possible.)
+SEC. 18. GIVE THREE NEIGHBORS AT YOUR LAST NORMAL RESIDENCE IN THE U.S. — (Give residence and business addresses where possible.)
 
 <table><thead><tr><th></th><th>Street and Number</th><th>City</th><th>State</th></tr></thead><tbody><tr><td>1.</td><td>Mr. Robert Cooper</td><td>BUS. ADD.<br/>RES. ADD.</td><td>Knebel Top, Pa.</td></tr><tr><td>2.</td><td>Mrs. Daniel Fire</td><td>BUS. ADD.<br/>RES. ADD.</td><td>Knebel Top, Pa.</td></tr><tr><td>3.</td><td>Mr. Edwin Henry</td><td>BUS. ADD.<br/>RES. ADD.</td><td>Knebel Top, Pa.</td></tr></tbody></table>
 

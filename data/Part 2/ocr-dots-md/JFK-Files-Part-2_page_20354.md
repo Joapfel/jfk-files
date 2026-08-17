@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20354.png
-
-Convert to MarkdownDemonstration Protesting United
+Demonstration Protesting United
 States Policy in Vietnam,
 Washington, D.C., January 15, 1968
 

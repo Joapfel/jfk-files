@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_15024.png
-
 s exist. For example, we recently sent the following letters
 to the Attorney General bring to his attention shortages of judges or U. S.
 Attorneys in the indicated areas:

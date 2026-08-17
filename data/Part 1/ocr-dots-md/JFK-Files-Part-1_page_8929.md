@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8929.png
-
-Convert to Markdown21 October 1963
+21 October 1963
 
 **MEMORANDUM FOR:** Chief, Audit Staff
 

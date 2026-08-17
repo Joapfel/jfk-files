@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8546.png
-
-Convert to MarkdownATTACHMENT B (1)
+ATTACHMENT B (1)
 
 Item No. 22, 28, 152, 172 MSS pp. no. 46, 48, 165, 189
 

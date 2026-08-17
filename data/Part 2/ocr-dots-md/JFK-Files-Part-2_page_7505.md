@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7505.png
-
-Convert to Markdown14-0000
+14-0000
 
 UNCLASSIFIED
 

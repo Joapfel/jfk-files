@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33967.png
-
-Convert to Markdownto the notice of such an application and of any amendment thereto, together with a summary statement of any matter which may be deemed by the Commission to require attention. The applicant is further authorized to submit evidence in support of his claim. Such evidence shall consist of a written statement of facts showing that he has a right to be granted the relief sought, together with appropriate exhibits and other papers necessary to establish the validity of his claim.
+to the notice of such an application and of any amendment thereto, together with a summary statement of any matter which may be deemed by the Commission to require attention. The applicant is further authorized to submit evidence in support of his claim. Such evidence shall consist of a written statement of facts showing that he has a right to be granted the relief sought, together with appropriate exhibits and other papers necessary to establish the validity of his claim.
 
 If the applicant fails to provide the Commission within three months after service of this order with such evidence or show cause therefor, the Commission may grant the relief requested or may dismiss the application with prejudice to the applicant's right to appeal the decision.
 

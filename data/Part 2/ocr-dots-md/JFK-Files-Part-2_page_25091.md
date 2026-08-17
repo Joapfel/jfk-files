@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25091.png
-
-Convert to MarkdownTOP SECRET - SENSITIVE
+TOP SECRET - SENSITIVE
 
 3. The Joint Chiefs of Staff continue to believe that the ultimate US objective toward Cuba must be to establish a government in Cuba that is acceptable to the United States. The concept of attacking the Cuban sugar industry by covert means would furnish another option to the United States in bringing about the collapse of the Castro regime.
 

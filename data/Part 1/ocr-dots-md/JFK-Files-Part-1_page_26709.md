@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26709.png
-
-Convert to MarkdownNEC1 73-KICO-22
+NEC1 73-KICO-22
 
 29 April 1965
 

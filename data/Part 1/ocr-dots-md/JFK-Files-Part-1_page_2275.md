@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2275.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 OLC-78-3040
 

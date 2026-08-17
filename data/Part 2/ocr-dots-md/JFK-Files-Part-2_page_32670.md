@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32670.png
-
-Convert to MarkdownAdverse weather precluded further flights until September 26th. Flights were flown on September 26, September 29, October 5 and October 7. These flights completed the coverage of those areas of Cuba which had been spotlighted as requiring early attention.
+Adverse weather precluded further flights until September 26th. Flights were flown on September 26, September 29, October 5 and October 7. These flights completed the coverage of those areas of Cuba which had been spotlighted as requiring early attention.
 
 Weather prevented any additional flights until October 14. On October 12, the Strategic Air Command was given responsibility for operating the U-2 high altitude reconnaissance missions over Cuba, and on October 14, it flew the flight which gave the first hard evidence of the existence of strategic missiles in Cuba.
 

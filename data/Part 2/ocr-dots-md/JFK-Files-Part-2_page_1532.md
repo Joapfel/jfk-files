@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1532.png
-
-Convert to Markdown6. Security consciousness is excellent.
+6. Security consciousness is excellent.
 
 7. Tact and diplomacy in dealing with others is superior.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2394.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO : Security Officer, GSO
 FROM : CQAAO

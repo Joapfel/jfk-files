@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28326.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Fitness Report - Section C - NARRATIVE COMMENTS (Continued)
 

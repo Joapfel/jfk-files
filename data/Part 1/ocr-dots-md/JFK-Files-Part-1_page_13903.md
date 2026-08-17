@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13903.png
-
-Convert to Markdown762. Salida al 460856.- 1222hs. Rogelio Rodríguez con HF. Ingunza le dice que le estaba hablando a Serrano por necesitan dos mesas para escribir a máquina y que le dijeron que estaba en Puebla, que a qué otra persona se pueda dirigir para las mesas.- Inzunza: que al Sr.Arazil.-- -- Inzunza: que ya se cambiaron que ya no están en Reforma, que están en Avenida -- Juárez número 157, esquina frente Monumento Revolución.--796.
+762. Salida al 460856.- 1222hs. Rogelio Rodríguez con HF. Ingunza le dice que le estaba hablando a Serrano por necesitan dos mesas para escribir a máquina y que le dijeron que estaba en Puebla, que a qué otra persona se pueda dirigir para las mesas.- Inzunza: que al Sr.Arazil.-- -- Inzunza: que ya se cambiaron que ya no están en Reforma, que están en Avenida -- Juárez número 157, esquina frente Monumento Revolución.--796.
 
 757.- Salida al 222401.- 1616hs. Rogelio Rodriguez con García Romero la pregunta que a que horas se va el avión.- Romero: - que más o menos como a las cinco.- Rogelio: que hace falta mandar una cosa urgente para la Habana hoy.- Romero: que cuan to se van a tardar porque el avión casi ya está listo, que hay muy poco pasaje.- Rogelio: que llamó a Cubana y que le dijeron que el avión había salido a las cuatro; que si cree que le da rá tiempo.- Romero: que si llegan antes de las cinco que el cree que sí porque ya está casi para salir.-- 789.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10371.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">FROM FRANCIS MARV</th><td>NAME CHECK AND CONSOLIDATION REQUEST</td></tr><tr><td>BRAH MHI EXT. 4168</td><td>DY-175 BECS TUBE DU7</td><td></td></tr><tr><th>TO</th><th>TUBE</th><th>ROOM</th><th>DATE</th><th>INITIALS</th><th>CHECKING INSTRUCTIONS</th></tr></thead><tbody><tr><td>RID/INDEX</td><td>DT-5</td><td></td><td></td><td></td><td></td></tr><tr><td>REQUESTER</td><td></td><td></td><td></td><td>③</td><td></td></tr><tr><td>RID/FILES</td><td>DT-6</td><td></td><td></td><td></td><td></td></tr><tr><td>REQUESTER</td><td></td><td></td><td></td><td>②</td><td></td></tr><tr><td>RID/ANALYSIS</td><td>GT-7</td><td></td><td></td><td></td><td></td></tr><tr><td>RID/201</td><td>DW-8</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>RID/INDEX</td><td>DT-5</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

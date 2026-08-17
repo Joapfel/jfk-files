@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8311.png
-
-Convert to MarkdownTHE NEWS, Mexico City,
+THE NEWS, Mexico City,
 Thursday, June 5, 1969
 
 # Diplomatic World

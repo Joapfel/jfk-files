@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1534.png
-
-Convert to MarkdownVIA: Air
+VIA: Air
 
 DISPATCH NO. PJJA-1279
 

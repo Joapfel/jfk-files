@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25089.png
-
-Convert to MarkdownTOP SECRET - SENSITIVE
+TOP SECRET - SENSITIVE
 
 b. This paper NOT be forwarded to the commanders of unified or specified commands.
 

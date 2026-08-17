@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6843.png
-
-Convert to Markdown17. Correspondence addressed to Mr. and Mrs. Albert MATT. (Attachment 17)
+17. Correspondence addressed to Mr. and Mrs. Albert MATT. (Attachment 17)
 
 a) Letter dated 23 September 1959 from Ethel ELLIS, 36 W. Elm Street, New York 21, New York. The writer thanks the AA for a gift, apparently money, to help "Fred" get well and pay nursing expenses. "Fred" is recovering from pneumonia.
 

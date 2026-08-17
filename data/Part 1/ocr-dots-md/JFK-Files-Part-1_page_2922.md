@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2922.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 CHAPTER IX
 ***

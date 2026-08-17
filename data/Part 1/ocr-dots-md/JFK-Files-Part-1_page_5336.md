@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5336.png
-
-Convert to MarkdownCeci dit, malgré tous ces obstacles qui sembleraient insurmontables, je n'ai pas totalement perdu l'espoir de pouvoir t'aider à sortir Clémard, sain et sauf, de la prison où sa santé se détériore rapidement, je le sais. L'essentiel est que le Chef lui-même soit percundé que l'inhabilité que nous éprouvons à satisfaire les exigences du moment, ne sont en aucune façon imputables à Clémard mais plutôt à des circonstances totalement indépendantes de notre volonté.
+Ceci dit, malgré tous ces obstacles qui sembleraient insurmontables, je n'ai pas totalement perdu l'espoir de pouvoir t'aider à sortir Clémard, sain et sauf, de la prison où sa santé se détériore rapidement, je le sais. L'essentiel est que le Chef lui-même soit percundé que l'inhabilité que nous éprouvons à satisfaire les exigences du moment, ne sont en aucune façon imputables à Clémard mais plutôt à des circonstances totalement indépendantes de notre volonté.
 
 Je prie Dieu Tout-puissant pour que l'on finisse par réaliser que Clémard, en bon patriote, haît tien, a eu foi en son pays et n'a pas cru bon d'expatrier, comme plus d'un l'a fait, le fruit de ses durs labeurs et de son intelligence productive.
 

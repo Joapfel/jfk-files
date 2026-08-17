@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24275.png
-
-Convert to Markdownlevels of expenditure, and at least approximate indications of performance through comparisons of past and proposed funding by activity. As applied to proprietaries, the CIA, perhaps, should have been providing a whole family of schedules for the proprietaries which actually do business (i.e., excluding "notionals.")
+levels of expenditure, and at least approximate indications of performance through comparisons of past and proposed funding by activity. As applied to proprietaries, the CIA, perhaps, should have been providing a whole family of schedules for the proprietaries which actually do business (i.e., excluding "notionals.")
 
 Then, there is the question of the program impact of propri- etaries. Table I indicates that proprietaries in fact have been heavily involved in CIA intelligence collection and covert action. None of this is shown in the CIA budget submission. Yet a bona- fide policy review of the budget requires programmatic judgments of the necessity and appropriate use of proprietaries in overseas areas.
 

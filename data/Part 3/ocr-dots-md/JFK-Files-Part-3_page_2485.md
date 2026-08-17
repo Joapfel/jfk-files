@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2485.png
-
-Convert to MarkdownSECRET
+SECRET
 
 B. TYPE OF MAIL OPENED OR INTERCEPTED
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32347.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 b. State will prepare a circular telegram to all Latin American Ambassadors requesting that an immediate review of Country Team Emergency and Evacuation Plans be conducted to insure that plans were adequate to meet a stepped-up campaign of Castro-inspired sabotage.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28885.png
-
-Convert to MarkdownDEPARTMENT OF STATE
+DEPARTMENT OF STATE
 WASHINGTON
 
 AUG 9 1963

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27193.png
-
-Convert to MarkdownB-W Files
+B-W Files
 
 V. Intelligence Community Coordination
 ---

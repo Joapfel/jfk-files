@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2357.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a particular period of time or suggested the possibility that he did not
 occupy the position which he claimed to have held.

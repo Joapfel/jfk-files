@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29812.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="4">REQUEST FOR PERSONNEL ACTION</th><th colspan="2">DATE PREPARED</th></tr></thead><tbody><tr><td>1. Serial No.</td><td>2. Name (Last,First, Middle)</td><td>3. No. Or Code</td><td>4. Ver. Prof.</td><td rowspan="3">5. C.S. COD</td><td></td></tr><tr><td></td><td>JACKY, DAVID B.</td><td>No. C<br/>32</td><td>Ver. 6<br/>S.P. 108-72</td><td>No. Da Yr</td></tr><tr><td>7. SCD</td><td>9. CSC Retired</td><td>No. No. 1</td><td>Yes. Yes 2</td><td>No. Da Yr</td></tr><tr><td>Mo</td><td>Do</td><td>Yr</td><td>Code</td><td>16. App. Adv. Code</td><td>11. PERIOD</td></tr></tbody></table>
 

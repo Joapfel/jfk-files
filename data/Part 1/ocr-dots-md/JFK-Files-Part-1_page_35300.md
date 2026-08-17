@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35300.png
-
-Convert to Markdown# JUDICATURA CUBANA DEMOCRATICA
+# JUDICATURA CUBANA DEMOCRATICA
 
 ## INFORME
 Febrero, 1962.

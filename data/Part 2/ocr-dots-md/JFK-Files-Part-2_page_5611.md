@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5611.png
-
-Convert to Markdown1-64
+1-64
 
 OLIVER
 

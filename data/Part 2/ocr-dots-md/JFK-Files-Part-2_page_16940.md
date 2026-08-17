@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16940.png
-
-Convert to Markdown10/9/69
+10/9/69
 
 FRED HAMPTON,
 

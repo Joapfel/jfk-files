@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13763.png
-
-Convert to Markdown2. The following officers from the Department of State have been named to assist in the CIA preparation of comprehensive papers on the following geographic and subject areas:
+2. The following officers from the Department of State have been named to assist in the CIA preparation of comprehensive papers on the following geographic and subject areas:
 
 Greece
 

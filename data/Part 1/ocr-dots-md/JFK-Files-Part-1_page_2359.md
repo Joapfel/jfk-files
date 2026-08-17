@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2359.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The knowledge of NOSENKO concerning cases, KGB operations,
 and other officers can consistently be related to his claimed department

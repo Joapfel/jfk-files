@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28172.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Thomas Howarth, Budget Officer
 FROM: G. Robert Blakey, Chief Counsel and Director

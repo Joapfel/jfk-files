@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18096.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr><td>Mr. Telson</td></tr>
     <tr><td>Mr. Belmont</td></tr>

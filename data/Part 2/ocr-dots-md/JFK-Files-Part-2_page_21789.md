@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21789.png
-
-Convert to Markdown1. Training Branch.
+1. Training Branch.
 2. Mr. DeMarco. From Washington?
 3. Mr. Sarno. Yes.
 4. Mr. Wides. You say the majority of the training was in Florida. What period are we talking about, throughout the period?

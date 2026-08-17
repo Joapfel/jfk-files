@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6696.png
-
-Convert to MarkdownPO Box 7224
+PO Box 7224
 Apex Station
 Washington 4, D.C.
 

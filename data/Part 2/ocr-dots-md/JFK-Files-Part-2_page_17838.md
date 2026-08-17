@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17838.png
-
-Convert to MarkdownPAGE TWO . AT 100-0
+PAGE TWO . AT 100-0
 
 | POSITION | | PER CENT OF TIME |
 |---|---|---|

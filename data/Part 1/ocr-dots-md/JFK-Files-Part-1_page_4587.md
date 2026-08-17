@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4587.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **Denmark:** In via Astrop Airport 15-10-1957
 In via Astrop Airport 16-10-1957

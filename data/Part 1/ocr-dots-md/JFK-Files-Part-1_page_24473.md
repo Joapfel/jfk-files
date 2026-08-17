@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24473.png
-
-Convert to Markdown14-00000
+14-00000
 
 The following information was received in the first half of October 1964 from a source in close touch with Richard CIBSON, the former Editor of "Africa, Latin America, Asia Revolution".
 

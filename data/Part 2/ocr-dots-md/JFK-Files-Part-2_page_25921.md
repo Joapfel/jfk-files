@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25921.png
-
-Convert to MarkdownDear Mr. Attorney General:
+Dear Mr. Attorney General:
 
 I am writing you today on behalf of the Select Committee about the recent death of Samuel Giancana. As you are no doubt aware, his name has been raised in the context of allegations concerning the Central Intelligence Agency's possible involvement in so-called political assassinations.
 

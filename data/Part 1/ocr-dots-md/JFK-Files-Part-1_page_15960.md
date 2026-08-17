@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15960.png
-
-Convert to Markdown14-00000
+14-00000
 
 ORIG. Clayton V. Kallander
 UNIT TSD/IB/FS-4

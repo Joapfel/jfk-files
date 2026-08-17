@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7908.png
-
-Convert to Markdown10. All notes or memorandums pertaining to any telephonic or verbal communications from or on behalf of the District Attorney General of Shelby County, Tennessee, or the Attorney General of Tennessee to the Department of Justice or any division thereof.
+10. All notes or memorandums pertaining to any telephonic or verbal communications from or on behalf of the District Attorney General of Shelby County, Tennessee, or the Attorney General of Tennessee to the Department of Justice or any division thereof.
 
 11. All tape recordings and all logs, transcripts, notes, reports, memorandums or any other written record of or reflecting any surveillance of any kind whatsoever of the following persons:
 

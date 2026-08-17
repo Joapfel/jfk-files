@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27069.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 20. The 29 August mission had confirmed the establishment of a missile defense of Western Cuba. The first mission for September (of the two which had been authorized as a routine matter by the Special Group on 19 July; see para 10) was flown on schedule on 5 September and revealed similar defenses in Las Villas Province. In retrospect, it can be seen that the two groups of SA-2 sites surrounded the areas in which MRBM and IRBM site construction was planned. Photography of these areas in the 29 August and 5 September missions, however, gave no recognizable evidence that any such construction was then under way (although re-examination showed a few vehicles and some construction material at Guanajay Site 1 on 29 August). In fact, there was probably no ballistic missile equipment in Cuba at the time (see discussion in paras. 36-39).
 

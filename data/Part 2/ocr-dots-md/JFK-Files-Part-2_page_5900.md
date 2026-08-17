@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5900.png
-
-Convert to Markdown# Deputy Director for Support
+# Deputy Director for Support
 (DDS) - 1965
 
 * Office of the DDS (ODDS)

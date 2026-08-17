@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31606.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 
 FAIR PLAY FOR CUBA COMMITTEE (cont'd.)
 

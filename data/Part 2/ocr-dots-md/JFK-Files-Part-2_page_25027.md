@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25027.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 I don't know that I would have taken that as a clearcut order
 as Mr. Johnson apparently did. And I think perhaps others

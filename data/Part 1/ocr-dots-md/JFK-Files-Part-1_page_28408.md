@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28408.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><td>NAME OF EMPLOYEE (Last-First-Middle)</td><td>NAME AND RELATIONSHIP OF DEPENDENT</td><td>CLAIM NUMBER</td></tr></thead><tbody><tr><td>ZAMBERNARDI, Robert</td><td>Wife - Martha Cecilia</td><td>61-286</td></tr></tbody></table>
 

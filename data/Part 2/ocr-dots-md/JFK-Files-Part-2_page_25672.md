@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25672.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 THAT THE Metro team is even involved is happenstance. Rosselli lived in Plantation, Broward County, with his sister and brother-in-law. It's just that his killers chose to dump his body in Dade.
 

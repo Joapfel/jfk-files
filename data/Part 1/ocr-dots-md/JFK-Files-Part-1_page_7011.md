@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7011.png
-
-Convert to MarkdownC-C-N-P-I-D-F-N-T-A-L
+C-C-N-P-I-D-F-N-T-A-L
 
 5
 

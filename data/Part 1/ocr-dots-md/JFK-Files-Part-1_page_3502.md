@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3502.png
-
-Convert to Markdown7 April 1964
+7 April 1964
 
 MEMORANDUM FOR THE RECORD
 

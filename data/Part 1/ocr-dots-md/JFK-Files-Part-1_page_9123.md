@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9123.png
-
-Convert to Markdown# CHINA STEEL CORPORATION - CHINA
+# CHINA STEEL CORPORATION - CHINA
 ## China Steel Company 57
 
 Bank of America, N.Y.

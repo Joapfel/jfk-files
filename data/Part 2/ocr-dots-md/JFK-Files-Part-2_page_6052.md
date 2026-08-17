@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6052.png
-
-Convert to MarkdownHENRY FRANKLIN GRAFF, cont'd
+HENRY FRANKLIN GRAFF, cont'd
 
 18. Speeches:
 

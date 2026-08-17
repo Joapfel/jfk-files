@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10967.png
-
-Convert to Markdown# K. RECOMMENDED PLAN OF ACTION
+# K. RECOMMENDED PLAN OF ACTION
 
 A penetrative and objective study of the Bureau's position has led us to conclude that the Bureau should play a much more active and influential role in the clandestine collection of positive intelligence in the United States. We are recommending the implementation of a plan which will lead to a valuable contribution to our national security effort and concurrently will improve our internal security capabilities. This plan presents a concept of an FBI as an Agency primarily responsible for internal security, but supplementing its coverage with a substantially expanded capability in the clandestine collection of positive intelligence. We believe that we have the capability of developing this new look knowing that at the same time we can institute a badly needed leadership to eliminate a gap in the acquirement of high-quality intelligence in the United States. The main features of this plan are:
 

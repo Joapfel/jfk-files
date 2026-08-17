@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2234.png
-
-Convert to MarkdownSpecial Agent Seymour Phillips
+Special Agent Seymour Phillips
 
 November 25, 1975
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10745.png
-
-Convert to MarkdownAt approximately 4:35 a.m., entry was made into the Selective Service Board rooms, Fifth Floor, Federal Courthouse and Post Office, Camden. On entry, seven persons were seen standing in various positions. They were immediately advised that they were under arrest and that they were arrested by Special Agents of the FBI.
+At approximately 4:35 a.m., entry was made into the Selective Service Board rooms, Fifth Floor, Federal Courthouse and Post Office, Camden. On entry, seven persons were seen standing in various positions. They were immediately advised that they were under arrest and that they were arrested by Special Agents of the FBI.
 
 These persons were later identified as PETER DONALD FORDI, MICHAEL JOHN GIOCONDO, ROBERT GLENN GOOD, MICHAEL J. DOYLE, ROSMARY REILLY, KATHLEEN MARY RIDOLFI, and ROBERT W. WILLIAMSON. Each person arrested received a preliminary "pat down" search.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23872.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><tr><td>CLASSIFICATION<br/>SECRET</td><th colspan="3">PROCESSING</th></tr><tr><td></td><th>PROPOSED</th><th>ACTION</th><th>ACCOMPLISHED</th></tr><tr><td></td><td></td><td>MARKED FOR INDEXING</td><td></td></tr><tr><td></td><td>XXX</td><td>NO INDEXING REQUIRED</td><td></td></tr><tr><td>TO<br/>Chief, WE</td><td></td><td>ONLY QUALIFIED<br/>HEADQUARTERS DESK<br/>CAN JUDGE INDEXING</td><td></td></tr><tr><td>INFO<br/><hr/>FROM<br/>Chief of Station, London R.K.</td><td></td><td>ABSTRACT<br/>MICROFILM</td><td></td></tr><tr><td>SUBJECT<br/>(O) Richard Thomas GIBSON (201-306052), Nemo of Understanding</td><td colspan="3"></td></tr><tr><td colspan="4"><b>ACTION REQUIRED - REFERENCES</b></td></tr><tr><td colspan="4">1. Transmitted herewith are copies of a memorandum of understanding signed by GIBSON on 23 February 1965. The original is being retained in the Station.<br/><br/>2. Two receipts signed by GIBSON on 19 February and 23 February 1965, each in the sterling equivalent of $200, were forwarded to Headquarters with London's TA 5-190. We suggest that these receipts be obtained from Finance and incorporated in GIBSON's 201 dossier.</td></tr><tr><td colspan="4">George H. KATZENBACH</td></tr><tr><td colspan="4"><b>Attachments:</b><br/>Herewith<br/><br/><b>Distributions:</b><br/>~~3~~ Chief, WE w/att h/w</td></tr></table>
 

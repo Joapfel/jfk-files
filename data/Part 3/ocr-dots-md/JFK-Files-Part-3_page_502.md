@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_502.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 The National Council of American-Soviet Friendship (NCASF) annual rally was held in Carnegie Hall, New York, on November 12, 1964. Prior to the rally, 238 bogus post-cards were mailed by the New York Office to selected Communist Party, USA (CPUSA), members in the New York area with a message denouncing the Chinese communists and calling for support of the "new Soviet leadership." The cards were mailed to the member's place of employment.
 

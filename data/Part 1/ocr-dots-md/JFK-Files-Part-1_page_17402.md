@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17402.png
-
-Convert to MarkdownASSIFIED MESSAGE
+ASSIFIED MESSAGE
 
 ORIG : LEE O. NORRIS:jp
 UNIT : WH/3/Mexico

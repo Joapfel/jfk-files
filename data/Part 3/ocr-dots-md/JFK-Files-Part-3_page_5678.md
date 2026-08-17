@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5678.png
-
-Convert to MarkdownTO : Mr. W. C. Sullivan
+TO : Mr. W. C. Sullivan
 FROM : Mr. F. J. Baumgardner
 SUBJECT: COMMUNIST PARTY, USA
 NEGRO QUESTION

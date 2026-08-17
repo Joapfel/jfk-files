@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30398.png
-
-Convert to Markdownit stands. They certainly would not have interest in debriefing defectors that I am aware of.
+it stands. They certainly would not have interest in debriefing defectors that I am aware of.
 
 Mr. Goldsmith. In any event, for the purposes of summary, there is today no standard operating procedure of interviewing returning defectors?
 

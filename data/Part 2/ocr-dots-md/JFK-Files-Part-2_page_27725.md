@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27725.png
-
-Convert to MarkdownMarch 4, 1977
+March 4, 1977
 
 Ms. Billie Gay Larson
 514 Sixth Street, S.W.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32788.png
-
-Convert to MarkdownAttachment to AB Memo No. 9562
+Attachment to AB Memo No. 9562
 
 TRAVEL ITINERARY FOR NICARAGUAN ORDINARY PASSPORT No. 86781
 

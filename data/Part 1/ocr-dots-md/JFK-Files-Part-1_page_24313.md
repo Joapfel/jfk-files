@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24313.png
-
-Convert to Markdown29 November 1971
+29 November 1971
 
 **MEMORANDUM FOR:** Chief, CA/B-3
 

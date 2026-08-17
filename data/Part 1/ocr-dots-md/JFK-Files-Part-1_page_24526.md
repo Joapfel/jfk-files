@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24526.png
-
-Convert to MarkdownThe question was brought up of returning to the Peruvians all the natural re-
+The question was brought up of returning to the Peruvians all the natural re-
 sources of the country, particularly copper and [illegible] which are owned by
 American companies. One should point out that USA capital investments in mining
 are six to seven times as great as those in the nationalized oil company, whose

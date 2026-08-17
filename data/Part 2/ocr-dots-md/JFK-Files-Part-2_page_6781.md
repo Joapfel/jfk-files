@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6781.png
-
-Convert to MarkdownFifth and finally, section 6 of the joint resolution, which outlines the grounds for postponement of public release of a document, makes no provision for postponing release of documents that may contain Executive privilege or deliberative process, attorney-client, or attorney work-product information. While such privileges could be waived in the public interest and, in fact, are not likely to arise with respect to factual information directly related to the JFK assassination, they would be unavailable under the joint resolution in the rare case that they might be needed.
+Fifth and finally, section 6 of the joint resolution, which outlines the grounds for postponement of public release of a document, makes no provision for postponing release of documents that may contain Executive privilege or deliberative process, attorney-client, or attorney work-product information. While such privileges could be waived in the public interest and, in fact, are not likely to arise with respect to factual information directly related to the JFK assassination, they would be unavailable under the joint resolution in the rare case that they might be needed.
 
 These are technical problems that I believe can be solved in ways that will, in fact, expedite the release of documents bearing on the assassination of President Kennedy.
 

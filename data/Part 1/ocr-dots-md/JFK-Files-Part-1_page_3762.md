@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3762.png
-
-Convert to Markdown12. Jun 12 1967
+12. Jun 12 1967
 
 SECRET 1223042 CITE JMWAVE 7675
 DIRECTOR

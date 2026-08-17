@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23708.png
-
-Convert to MarkdownIn this specific situation, for example, we've already
+In this specific situation, for example, we've already
 not the Attorney General being involved with the oversight
 responsibilities. When he takes office he already has the
 obligation to see that all the laws and activities of agencies

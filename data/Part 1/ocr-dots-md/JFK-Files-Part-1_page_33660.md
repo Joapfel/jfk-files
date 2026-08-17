@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33660.png
-
-Convert to Markdown7 February 1952
+7 February 1952
 
 MEMORANDUM FOR THE RECORD
 

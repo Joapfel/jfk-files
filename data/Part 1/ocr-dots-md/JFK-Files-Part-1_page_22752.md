@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22752.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ALIEN</td>
     <td colspan="4">LEAVE THIS SPACE BLANK</td>

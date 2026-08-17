@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14137.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Minutes of the October 9, 1962 Meeting
 of the Special Group (Augmented)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15439.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Honorable U. Alexis Johnson
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32807.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE: 5 APRIL 1968
 

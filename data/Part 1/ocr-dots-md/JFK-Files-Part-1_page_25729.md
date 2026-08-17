@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25729.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION<br/>SECRET/KAPOK</th><th colspan="3">PROCESSING</th></tr><tr><th>TO</th><td>Chief, WH Division</td><th>PROPOSED</th><td>ACTION</td><td colspan="2"></td></tr></thead><tbody><tr><td>INFO.</td><td></td><td rowspan="4"><table><tr><td>XX</td><td>NO INSTRUCTIONS REQUIRED</td></tr><tr><td>ONLY QUALIFIED<br/>HEADQUARTERS SEES<br/>CAN MAKE ORDERING</td><td></td></tr><tr><td>ABSTRACT</td><td></td></tr><tr><td>MICROFILM</td><td></td></tr></table></td><td></td><td></td></tr><tr><td>FROM</td><td>Chief of Station, Mexico City</td><td></td><td></td><td></td></tr><tr><td>SUBJECT</td><td>Raymond H. GERENDE (ps)</td><td></td><td></td><td></td></tr></tbody></table>
 

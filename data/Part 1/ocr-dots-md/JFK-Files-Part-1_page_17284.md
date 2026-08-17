@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17284.png
-
-Convert to MarkdownPROJECT OUTLINE
+PROJECT OUTLINE
 
 CRYPTOLOGY LIBRARY
 STATION: Mexico City

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7875.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, WH Division
 Chief, SB Division

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4532.png
-
-Convert to MarkdownDuring the stay at the Dolder Grand Hotel, ALEX and FUEGER made the following telephone calls:
+During the stay at the Dolder Grand Hotel, ALEX and FUEGER made the following telephone calls:
 
 | Date | Number | Person Called |
 |---|---|---|

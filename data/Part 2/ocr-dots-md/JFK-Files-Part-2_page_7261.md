@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7261.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>CABLE SEC DISSEM BY</td><td>PER</td><td>TOTAL COPIES</td><td>RUN BY</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td>SECRET</td><td>REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED</td></tr><tr><td colspan="4"><table border="1"><thead><tr><th>ADVANCE COPY ISSUED/SLOTTED</th><th>BY</th><th>AT</th><th>Z</th></tr></thead><tbody><tr><td>ACTION UNIT<br/>I<br/>N<br/>F<br/>O</td><td>RF</td><td>FILE</td><td>VR</td></tr><tr><td>ACTION #</td><td colspan="3"></td></tr></tbody></table></td></tr><tr><td rowspan="2">T 344592</td><td rowspan="2">EIA750</td><td colspan="2">PAGE 04 IN 699594</td></tr><tr><td colspan="2">TOR:291627Z SEP 75 BUEN 34519</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_81.png
-
-Convert to MarkdownSECRET
+SECRET
 
 have access to the target. It was advised of the importance of these operations and it is believed that he will work out in time.
 

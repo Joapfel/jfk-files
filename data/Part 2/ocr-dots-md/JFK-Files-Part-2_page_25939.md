@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25939.png
-
-Convert to Markdownstate what he was retiring from. In April 1956, Wall's body was found in his home. He had been brutally beaten and his throat had been slashed. We have never discovered who the murderers were, nor have we determined their motive. Perhaps Wall was murdered because the killers learned he had admitted that he was Trafficante's partner in illegal gambling, and that he disclosed confidential facts about the Mafia.
+state what he was retiring from. In April 1956, Wall's body was found in his home. He had been brutally beaten and his throat had been slashed. We have never discovered who the murderers were, nor have we determined their motive. Perhaps Wall was murdered because the killers learned he had admitted that he was Trafficante's partner in illegal gambling, and that he disclosed confidential facts about the Mafia.
 
 In 1960, Sergeant de la Llana obtained—from a confidential source of known reliability—an astounding report about the Mafia and its operation in Tampa. The report had been obtained from Charles Wall in 1945, approximately 6 months after Trafficante, Senior, had made himself a partner in Walls' gambling enterprises.
 

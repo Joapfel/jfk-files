@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15780.png
-
-Convert to Markdown1/28/70
+1/28/70
 
 BLACK PANTHER PARTY (BPP)
 PARKIA, ILLINOIS

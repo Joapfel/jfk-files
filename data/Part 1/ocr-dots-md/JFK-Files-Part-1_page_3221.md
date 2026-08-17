@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3221.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th>Section IX</th>

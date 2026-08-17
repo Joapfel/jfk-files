@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14004.png
-
-Convert to MarkdownUNITED STATES SENATE
+UNITED STATES SENATE
 
 January 13, 1964
 

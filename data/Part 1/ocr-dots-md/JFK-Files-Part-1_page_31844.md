@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31844.png
-
-Convert to MarkdownSO 228 by 11TH TACHTON, DCANG; Andrew AFB, Washington 23, 25, 13 Sep 61
+SO 228 by 11TH TACHTON, DCANG; Andrew AFB, Washington 23, 25, 13 Sep 61
 
 SSgt JAMES J PENNINGTON, AF13427914, PAPSC 43151C, DAPSC 43151C, (Date of Separation: 23 August 1962)(HCR: Cheltenham, MI)
 

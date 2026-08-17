@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11350.png
-
-Convert to Markdown# 1967年3月25日
+# 1967年3月25日
 
 RECEIVED
 TELETYPE'D

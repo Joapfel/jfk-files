@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30291.png
-
-Convert to Markdownhe was seeing her or not. You said assume that he met her
+he was seeing her or not. You said assume that he met her
 16 and 13, and it became known to KGB through surveillance. I
 said by the end of month that at least something will have on
 her, who is she, where she is working, where she studied, where

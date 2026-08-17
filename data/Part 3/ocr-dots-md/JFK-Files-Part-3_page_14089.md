@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14089.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 As to the Board's study, Mr. Bundy told Dr. Killian that the Board should include in its review discussions with the Secretaries of State and Defense and the Chairman of the Joint Chiefs of Staff -- Mr. Bundy indicating that the Secretary of Defense has particular reservations about the DCI's report.
 

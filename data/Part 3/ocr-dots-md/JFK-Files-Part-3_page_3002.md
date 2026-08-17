@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3002.png
-
-Convert to MarkdownSHARRIS/smnl
+SHARRIS/smnl
 
 t. 8
 

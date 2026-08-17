@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31606.png
-
-Convert to MarkdownRFE 7 7-21-53
+RFE 7 7-21-53
 
 PHENIX LANG WALKER GRIFFITH FM CONEON
 

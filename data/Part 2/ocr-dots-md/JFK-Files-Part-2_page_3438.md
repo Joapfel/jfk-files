@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3438.png
-
-Convert to MarkdownSECRET
+SECRET
 
 responsible to control from the female operation officer who has
 recently been transferred to LILINK control. It is possible that

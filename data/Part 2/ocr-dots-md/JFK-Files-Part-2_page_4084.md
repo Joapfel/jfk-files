@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4084.png
-
-Convert to MarkdownLA 65-7445
+LA 65-7445
 
 After above mentioned incident, RICHARD again would have nothing to do with her. She kept track of him through her other son, LOUIS, who is a year and a half older than RICHARD. Mrs. NAGELL was in a way happy to have the boys get together after years of estrangement. She described LOUIS as being an almost hopeless alcoholic. She thought since both sons had serious problems, they might be able to help each other. LOUIS has told her, however, that he was never able to straighten out RICHARD.
 

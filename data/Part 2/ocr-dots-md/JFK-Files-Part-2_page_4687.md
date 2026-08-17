@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4687.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: Yeah, he did in '74. He was pardoned in, what, August of '74.
 But I think if the election had gone differently, and there had been some

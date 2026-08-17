@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_32370.png
-
 in Ops Support functions and his performance to date has been excellent. In his new duties Mr. Flores requires very little supervision. This can be attributed in part to his degree of intelligence as well as the background he obtained for his present duties while assigned to his previous job in RID/INDEX. Mr. Flores spent approximately one year in his former job and the knowledge he brought with him relating to name tracing procedures has enabled him to grasp the duties of his new position quite rapidly.
 
 As a means of furthering his education Mr. Flores is attending American University at night. He has expressed a desire to obtain some agency training and would like very much to be enrolled in the Intelligence Orientation Course as soon as possible.

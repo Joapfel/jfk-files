@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17652.png
-
-Convert to Markdown# Unaffiliated Individuals
+# Unaffiliated Individuals
 
 In the areas of revolutionary (new left) and extremist activities, some investigations are conducted of individuals who are not affiliated with organizations. Investigation of an individual is undertaken when information is received that the person:
 

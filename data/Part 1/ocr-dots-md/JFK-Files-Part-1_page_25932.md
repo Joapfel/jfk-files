@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25932.png
-
-Convert to MarkdownTO: Director
+TO: Director
 Federal Bureau of Investigation
 
 ATTN: Intelligence Division

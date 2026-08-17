@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9783.png
-
-Convert to Markdown8 May,1968
+8 May,1968
 
 Subject: LILING/4 Report Concerning sentencing of LIKING/3.
 

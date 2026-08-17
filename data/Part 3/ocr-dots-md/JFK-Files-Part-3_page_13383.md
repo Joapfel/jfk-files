@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13383.png
-
-Convert to MarkdownOLSEN: All right, Frank, we're back on the record with the next belt here. You were talking about this effort in 1968 with respect to freeing political prisoners. I understand that the contact that led to this venture being undertaken was the contact that you had from Jenis?
+OLSEN: All right, Frank, we're back on the record with the next belt here. You were talking about this effort in 1968 with respect to freeing political prisoners. I understand that the contact that led to this venture being undertaken was the contact that you had from Jenis?
 
 STURGIS: Yes, sir.
 

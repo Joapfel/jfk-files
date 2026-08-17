@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_228.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REQUEST FOR CANCELLATION
 

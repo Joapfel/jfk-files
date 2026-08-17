@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6081.png
-
-Convert to Markdown* A essas palavras, que não precisam de comentário, há que se juntar a anulação do recurso de "habeas corpus" e à criação dos "Tribunais Revolucionários", enjas terríveis características são as seguintes:
+* A essas palavras, que não precisam de comentário, há que se juntar a anulação do recurso de "habeas corpus" e à criação dos "Tribunais Revolucionários", enjas terríveis características são as seguintes:
 
 1) Fazer parte da jurisdição militar, que indíga em cada caso os soldados e oficiais do Exército Rebelde e das Milícias que deverão integrá-los; soldados e oficiais, iletrados na maioria das vezes, que padecem das condições minimas de inyarcialidade, independência e paciçlade necessárias à função de administrar a justiça.
 

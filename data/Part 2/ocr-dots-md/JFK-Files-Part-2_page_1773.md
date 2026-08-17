@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1773.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">SECTION C</th><th>NARRATIVE COMMENTS</th></tr></thead><tbody><tr><td colspan="3">Indicate significant strengths or weaknesses demonstrated in current position based on specific relationship to overall performance. State suggestions made for improvement of work performance, give recommendations for training. Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Manner of performance of managerial or supervisory duties must be described, if applicable.</td></tr><tr><td colspan="3">During the four months Woods has been under my supervision he has demonstrated very real supervisory ability and a talent for getting maximum performance from a small staff while handles an increasingly large volume of work. He has also shown his ability to cut the costs of his operation.</td></tr><tr><td colspan="3">Woods not only runs a most efficient Registry but is also constantly seeking ways to improve and stream-line its operation. He is a man who takes such interest in his job that his ideas and plans for improvement are carefully worked out and sound.</td></tr><tr><td colspan="3">Though I have observed his work for only four months, I believe his over-all performance is "Strong" and close to "Outstanding." He has been recommended for promotion. He deserves it.</td></tr></tbody></table>
 

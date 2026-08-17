@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_7982.png
-
 ”, called “DWIM”; this was a “front end” or preprocessor to an interactive program for operating with LISP expressions. The front end was tolerant of the programmer’s mistakes in typing, in low-
 
 mistake occurred, it would inquire of the human programmer what he meant, suggesting the correctly spelled alternative, and so on. In this way the human programmer was relieved of much of the burden of expressing himself exactly and correctly the first time, and his efficiency in using the LISP interactive program greatly increased.

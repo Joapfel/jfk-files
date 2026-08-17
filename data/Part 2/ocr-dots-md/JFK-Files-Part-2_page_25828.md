@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25828.png
-
-Convert to Markdown- COPI-
+- COPI-
 
 (Original copy cannot be reproduced)
 

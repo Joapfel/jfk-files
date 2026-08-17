@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6460.png
-
-Convert to Markdown13-00000
+13-00000
 
 RECOMMENDATIONS
 -----------------

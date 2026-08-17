@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3839.png
-
-Convert to Markdownhas merit in view of the limited amount of time the Attorney General can give to personal supervision and the after-the-fact role of legislative oversight regarding the separate agency.
+has merit in view of the limited amount of time the Attorney General can give to personal supervision and the after-the-fact role of legislative oversight regarding the separate agency.
 
 Finally, legislation to create a separate foreign counterintelligence agency must deal with relationships to the Central Intelligence Agency, the State Department, and other foreign intelligence agencies. The current FBI-CIA agreement on their respective jurisdictions is only a "memorandum of understanding". It allows the CIA to undertake certain clandestine — activities within the United States, in coordination with the FBI. (Tab G) Proposals are currently circulating in the Executive Branch for a new National Security Council Intelligence Directive to clarify this matter, as well as to regulate CIA electronic surveillance of American citizens abroad. (Tab H)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7475.png
-
-Convert to Markdown29 MAY 1975
+29 MAY 1975
 
 MEMORANDUM FOR: Members of the USIB Ad Hoc Coordinating Group
 

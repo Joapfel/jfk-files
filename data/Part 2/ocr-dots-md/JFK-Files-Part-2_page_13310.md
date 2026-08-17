@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13310.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee
 
 Mr. O'Connor noted that even though formal current rules have not been agreed upon with the Committee, it appears that Elliff's cooperation in furnishing the above information indicates a willingness to abide by the terms and conditions that I had requested Mr. O'Connor to seek in behalf of the FBI.

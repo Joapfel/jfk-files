@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_836.png
-
-Convert to Markdown**ISSUE:** Should the Intelligence Gathering-Function of the FBI Be Separated From the Law Enforcement Function of the FBI?
+**ISSUE:** Should the Intelligence Gathering-Function of the FBI Be Separated From the Law Enforcement Function of the FBI?
 
 Note that the issue, as originally raised, referred to law enforcement and intelligence functions. What was meant by intelligence was the missions of internal security and counterintelligence. Criminal intelligence, e.g., against organized crime, was intended to fall within the law enforcement mission. However, the functions of the FBI do not neatly fall within "intelligence" and "law enforcement" categories. Internal security cases are both intelligence and law enforcement operations, and counterintelligence sometimes involves arrests and prosecutions, i.e., law enforcement. To most accurately reflect the diverse missions of the FBI the terms law enforcement, internal security, and counterintelligence will be used throughout this paper.
 

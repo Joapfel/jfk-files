@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13072.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>OFFICE</td><td>R.A. Ortman:Jeb</td></tr><tr><td>UNITED STATES DISTRICT COURT, WESTERN DISTRICT OF MISSOURI</td><td>7451</td></tr><tr><td>DATE</td><td>29-June-1967</td></tr></table>
 

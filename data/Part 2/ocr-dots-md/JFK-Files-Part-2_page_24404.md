@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24404.png
-
-Convert to Markdownprobably $150,000, for Castro's assassination* (O'Connell, pp. 16,
+probably $150,000, for Castro's assassination* (O'Connell, pp. 16,
 111; Memorandum, Osborn to DCI, 6/24/66).
 
 (2) Contact With The Syndicate

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23709.png
-
-Convert to MarkdownMr. diGenova. Mr Chairman, I would add in that regard
+Mr. diGenova. Mr Chairman, I would add in that regard
 that with regard to the specific recommendation, this is
 not going down into the Agency. This is talking about the
 Attorney General who is the head of an agency, first of all,

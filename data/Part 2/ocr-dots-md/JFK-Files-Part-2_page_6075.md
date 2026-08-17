@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6075.png
-
-Convert to Markdown"The American Legal Tradition," Dinner Address, Dinner in Honor of the Bicentennial of the U. S. Constitution, United States Embassy, Finland, Helsinki, Finland, February 1987.
+"The American Legal Tradition," Dinner Address, Dinner in Honor of the Bicentennial of the U. S. Constitution, United States Embassy, Finland, Helsinki, Finland, February 1987.
 
 "The Imperial Judiciary," Loyola College of Law, Chicago, Illinois, April 1987.
 

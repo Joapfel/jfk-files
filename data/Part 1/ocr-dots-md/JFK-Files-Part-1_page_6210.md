@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6210.png
-
-Convert to MarkdownNOMBRE
+NOMBRE
 
 Marta Hdez. Manila 105
 QUINTAIROS SÁNCHEZ, Gerardo Jose Antonio Quintairos (hermano k/o Joa Rita, R. Pied P.R.) .

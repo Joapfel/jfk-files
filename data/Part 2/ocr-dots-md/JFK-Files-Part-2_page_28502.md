@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28502.png
-
-Convert to MarkdownEmployment (cont.)
+Employment (cont.)
 
 Associate Editor, America Magazine, 1969-1974,
 Contributing Editor, 1974-present.

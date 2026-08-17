@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15037.png
-
-Convert to MarkdownMartin Edward Underwood                                     15
+Martin Edward Underwood                                     15
 Virginia Stanfill Savell                                       16
 Donald Edwin Ganoung, Departmental Applicant, Consultant, Law Enforcement Assistance Administration, Washington, D. C.      17
 William Henry Rentschler                                      18

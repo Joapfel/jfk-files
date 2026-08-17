@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3449.png
-
-Convert to MarkdownSECRET SENSITIVE NOFORN
+SECRET SENSITIVE NOFORN
 
 any of the other geographic divisions. If the divisions had
 any significant cases, Kalaris was unaware of them because

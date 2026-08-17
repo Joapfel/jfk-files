@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25036.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 -- you would read that sentence to indicate that an assassination was within the bounds of the kind of activity that might be used to get rid of Lumumba?
 

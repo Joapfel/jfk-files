@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13249.png
-
-Convert to Markdownget the green light from the people in Castro's Air Force and Army to go ahead with an attempt?
+get the green light from the people in Castro's Air Force and Army to go ahead with an attempt?
 
 MR. STURGIS: Oh, they wanted to do it, sir. The only thing that held them back was me, I am the only one that held them back, because they wanted to kill him in a minute.
 

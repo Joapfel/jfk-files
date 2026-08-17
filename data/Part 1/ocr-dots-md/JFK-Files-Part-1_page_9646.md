@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9646.png
-
-Convert to Markdown<table><thead><tr><th>OFFICE SYMBOL</th><th>DATE</th><th>OFFICER'S NAME</th></tr></thead><tbody><tr><td>A</td><td>5/15/73</td><td>John C. Murray</td></tr></tbody></table>
+<table><thead><tr><th>OFFICE SYMBOL</th><th>DATE</th><th>OFFICER'S NAME</th></tr></thead><tbody><tr><td>A</td><td>5/15/73</td><td>John C. Murray</td></tr></tbody></table>
 
 <table><thead><tr><th>CORRESPONDENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>HMMWV-19453</td><td>11 MAY 1973</td></tr><tr><td></td><td>CLASSIFICATION</td><td></td></tr><tr><td></td><td>SECRET</td><td></td></tr></tbody></table>
 

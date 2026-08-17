@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16040.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, WH/7
+MEMORANDUM FOR: Chief, WH/7
 
 SUBJECT: Possible Clandestine Planning Involving Haiti
 

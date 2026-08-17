@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23277.png
-
-Convert to Markdown76000061731
+76000061731
 
 WARS & FARRI
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_9104.png
-
-Convert to MarkdownLS 185-6
+LS 185-6
 
 On September 6, 1974, detailed information developed during Federal Bureau of Investigation (FBI) investigation concerning the discovery of five (5) sticks of dynamite inside the Mediation Room of the United Nations General Assembly (UNGA) Building, New York, New York, on August 7, 1974, was presented to a Federal Grand Jury (FGJ), Southern District of New York (SDNY), New York, New York, which subsequently returned a sealed true bill indictment against MICHAEL HALSEY BROWN, 101 Cherry Road, Berea, Kentucky, charging BROWN with violation Title 18, United States Code, Sections 371 (Conspiracy), 112A (Attempt to Injure Foreign Diplomat or Official Guest of the United States) and 970 (Protection of Foreign Diplomatic Establishments and International Organizations), on same date. Following the above indictment, a bench warrant was issued for MICHAEL Halsey BROWN by United States District Court Judge WILLIAM C. CONNOR, SDNY, New York, New York, with $100,000 surety bond recommended.

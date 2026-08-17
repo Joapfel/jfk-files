@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29171.png
-
-Convert to Markdown# MICHIGAN INDIVIDUAL INCOME TAX RETURN
+# MICHIGAN INDIVIDUAL INCOME TAX RETURN
 
 Please Print or Type ▼
 

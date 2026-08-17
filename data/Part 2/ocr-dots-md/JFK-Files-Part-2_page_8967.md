@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8967.png
-
-Convert to Markdown# ADVERTENCIAS
+# ADVERTENCIAS
 
 1. EL IMPUESTO QUE CAUSA K O E DOCUMENTO ES DE $6.25.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24279.png
-
-Convert to MarkdownThe budgetary presentation and review procedures only par-
+The budgetary presentation and review procedures only par-
 tially focus upon proprietary profits. MUTUAL's profits are
 invisible in the Agency budget; they are taken into account and
 subject to scrutiny only within CIA; operationally, the DDO annual

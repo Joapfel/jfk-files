@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_4649.png
-
 s, and Charley Ford was one of those
 who sat in here. There were about four or five guys in
 there doing all kinds of different things. Charley

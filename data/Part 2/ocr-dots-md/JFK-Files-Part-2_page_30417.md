@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30417.png
-
-Convert to MarkdownMr. Goldsmith. If it is an office chrono file does that
+Mr. Goldsmith. If it is an office chrono file does that
 meant that everything is filed in a chronological order?
 
 Mr. Tovar. Not necessarily. Here you ought to consult

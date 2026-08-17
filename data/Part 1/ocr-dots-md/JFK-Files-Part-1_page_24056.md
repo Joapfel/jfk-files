@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24056.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (WITHIN FILLER OF
 STATEMENT of EARNINGS and DEDUCTIONS

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10414.png
-
-Convert to Markdown--that the conduct of any counterintelligence
+--that the conduct of any counterintelligence
 operation or other activity overseas directed
 specifically at U. S. citizens (other than CIA
 employees) will be undertaken in coordination

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27116.png
-
-Convert to MarkdownSECRET
+SECRET
 
 24 AUG 76 STAFF
 

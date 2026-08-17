@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24298.png
-
-Convert to MarkdownAnnex B
+Annex B
 
 HR 230-8 and HHB 230-1
 Concerning Regulation and Administration

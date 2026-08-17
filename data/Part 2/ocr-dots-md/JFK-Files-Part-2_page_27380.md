@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27380.png
-
-Convert to MarkdownB-w
+B-w
 (IV-c)
 
 A. Agency Employees Detailed to the White House and Federal Govt Agencies, 1963-1975 SECRET

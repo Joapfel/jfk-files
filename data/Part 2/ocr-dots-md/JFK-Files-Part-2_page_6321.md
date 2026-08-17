@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6321.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 government functions or activities, may be placed in the JFK Assassination Records Collection;
 

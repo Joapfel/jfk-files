@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13150.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On 5/20/65, Nilo Messer, 27 N.W. 47th Street, Miami, advised that he had been Manuel Artime Buesa's secretary and as such traveled thousands of miles with Artime in the US, South America and Europe. He said that he was planning to leave this secretarial position and had obtained another job.
 

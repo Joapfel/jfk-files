@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13380.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET 252180Z
 DIR INFO SAGO PALP CITE WAVE 7479

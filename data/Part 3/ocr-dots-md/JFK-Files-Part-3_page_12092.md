@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12092.png
-
-Convert to MarkdownNATIONALITIES INTELLIGENCE
+NATIONALITIES INTELLIGENCE
 
 |                       | Cases | Men  | Average |
 | :-------------------- | -----: |-----: | -------: |

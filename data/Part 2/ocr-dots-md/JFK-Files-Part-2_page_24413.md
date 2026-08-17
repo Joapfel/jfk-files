@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24413.png
-
-Convert to Markdownthen gave them to Roselli (O'Connell, p. 43).
+then gave them to Roselli (O'Connell, p. 43).
 
 In late February or March 1961, Roselli reported to O'Connell that the pills had been delivered in Cuba to an official close to Castro who may have received kickbacks from the gambling interests (I.G., p. 23). The official kept the pills for a few weeks, then returned them. Roselli and O'Connell ascribed his failure to a case of "cold feet" (Roselli, p. 24; O'Connell, p. 44). The Inspector General noted that he had lost his position in the Prime Minister's office, and thus access to Castro, before he received the pills (I.G., p. 28).
 

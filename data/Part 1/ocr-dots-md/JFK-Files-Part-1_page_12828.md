@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12828.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td><td>CLASSIFIED MESSAGE, TOTAL CLASS: SECRET</td></tr><tr><td>ORIGINAL UNIT NOTED</td><td colspan="2"></td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLIPPED</td><td colspan="2"><table><tbody><tr><td>SECRET</td><td>• TANF (FAX)</td><td>• REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td>3</td><td></td><td></td></tr><tr><td>4</td><td></td><td></td></tr></tbody></table></td></tr><tr><td>BY: [REDACTED] AT: 2877 P. R.C.P. .103</td><td>DATE: CLUW6</td><td>[Handwritten: 958]</td></tr><tr><td>AUTHORITATION: FILE VR DCL ADDS CHG fcl fcl fndrecz</td><td></td><td></td></tr></table>
 

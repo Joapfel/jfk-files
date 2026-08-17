@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15432.png
-
-Convert to MarkdownATTACHMENT B
+ATTACHMENT B
 
 With State Department approval we are developing live
 sources in official establishments of countries listed below.

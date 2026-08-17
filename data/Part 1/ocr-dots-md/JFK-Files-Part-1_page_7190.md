@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7190.png
-
-Convert to MarkdownSECRET
+SECRET
 
 México, D.P.
 22 July, 1966

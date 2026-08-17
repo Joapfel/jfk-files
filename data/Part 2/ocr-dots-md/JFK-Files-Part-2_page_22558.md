@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22558.png
-
-Convert to MarkdownThe contact list is set out as follows:
+The contact list is set out as follows:
 
 **CIA Covert Source** - Long-time SRS consultant whom Mr. Wiley met through Mr. McCord. CIA Covert Sources has furnished an entree for Mr. Wiley to several individuals whom he otherwise could not have seen.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17511.png
-
-Convert to Markdown# PROJECT LIFEAT
+# PROJECT LIFEAT
 ## PROJECT OUTLINE, PART I
 
 1. Area of Operations

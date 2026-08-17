@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14100.png
-
-Convert to Markdown- 15 -
+- 15 -
 
 Mr. Clifford to observe that if the President thinks a good intelligence operation took place, this could have dangerous implications, and therefore the Board should push on with its thorough review of the subject no matter what attitudes of resistance are encountered among the Government agencies involved. Dr. Killian expressed complete agreement with these observations of Mr. Clifford.
 

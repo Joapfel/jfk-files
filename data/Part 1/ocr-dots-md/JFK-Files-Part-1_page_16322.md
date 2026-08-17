@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16322.png
-
-Convert to MarkdownHowever, gave me detailed account of the campaign, and, understanding why Tshombe has not called up yet, suggested press of other business. Says he will get his own way with that asap, and I am sure the boys are real friends. And so he says. I know him well and can recognize his friends.
+However, gave me detailed account of the campaign, and, understanding why Tshombe has not called up yet, suggested press of other business. Says he will get his own way with that asap, and I am sure the boys are real friends. And so he says. I know him well and can recognize his friends.
 
 Just as I was beginning to lose heart, Tshombe made his decision. Sent for me 1000 troops Agha, 500 men at once, see Gen. Nobutu. Say Nobutu. Anticipated some resistance to the idea but fears totally unfounded. So far, so far, efficient, powerful. Back to Tshombe to finish off details of contracts, rates of pay etc. Appointment for Sunday, and carpet all the way. Car at our disposal, laisser passer, everything.
 

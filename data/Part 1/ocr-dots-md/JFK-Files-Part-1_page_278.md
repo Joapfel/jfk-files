@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_278.png
-
-Convert to Markdown14-00000
+14-00000
 
 To Leslie 3/3/78
 

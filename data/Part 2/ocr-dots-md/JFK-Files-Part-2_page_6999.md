@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6999.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 IV. Identification forms provided to NARA for each DIF Document
 

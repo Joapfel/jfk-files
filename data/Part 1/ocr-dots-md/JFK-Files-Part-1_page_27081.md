@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27081.png
-
-Convert to Markdown# RYBAT
+# RYBAT
 SECRET
 
 28 April 1965

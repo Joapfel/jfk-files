@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32101.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Supplement to Staff Employee Personnel
 Action for Integration of Mr. Joseph Piccolo

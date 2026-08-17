@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7267.png
-
-Convert to Markdown(c) Someone from the Garza Travel Service.
+(c) Someone from the Garza Travel Service.
 Subject also gave me an Air France tourist pamphlet on
 the USSR in Spanish for my information.
 

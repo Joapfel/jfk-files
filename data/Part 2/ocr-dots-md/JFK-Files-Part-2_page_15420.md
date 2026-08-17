@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15420.png
-
-Convert to MarkdownCOPY
+COPY
 
 Letter to SAC, WFO
 RE: INDONESIAN ACTIVITIES IN THE UNITED STATES

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5068.png
-
-Convert to MarkdownORLANDO BOSCH AVILA;
+ORLANDO BOSCH AVILA;
 LETÉLIER ASSASSINATION
 
 closed that MARTÍNEZ TORRES resides in Santiago at Avenida Las Soporas 98, Apartment 401.

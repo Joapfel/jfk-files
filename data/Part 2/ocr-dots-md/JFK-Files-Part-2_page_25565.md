@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25565.png
-
-Convert to MarkdownDecember 19, 1975
+December 19, 1975
 
 Professor E. W. Pfeiffer
 University of Montana

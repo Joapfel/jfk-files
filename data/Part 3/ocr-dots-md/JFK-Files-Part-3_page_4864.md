@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4864.png
-
-Convert to MarkdownThe following investigation was conducted by
+The following investigation was conducted by
 
 SA MICHAEL E. DILL:
 

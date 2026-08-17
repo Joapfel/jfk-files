@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34097.png
-
-Convert to MarkdownA press release
+A press release
 
 A PRESS SERVICE FROM
 MOVIMIENTO UNIDAD REVOLUCIONARIA (U.R.)

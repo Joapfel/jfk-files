@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3816.png
-
-Convert to MarkdownName __________ MAR - 1957
+Name __________ MAR - 1957
 1st Notice _________
 2nd Notice ________
 Return __________

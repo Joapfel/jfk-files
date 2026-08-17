@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4219.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 connection had ever been admitted, publicity would implicate the Administration and CIA in the negotiation because of recent press stories (most particularly the Herald Tribune articles) identifying Administration and CIA activities and citing the exact amount of 17 million dollars as representing the Government cost of the drugs. I pointed out that certain elements of competition between the members of the drug industry made it almost a certainty that "leaks" would come from industry sources as long as the letter of credit were outstanding, regardless of Mr. Donovan's denials.
 

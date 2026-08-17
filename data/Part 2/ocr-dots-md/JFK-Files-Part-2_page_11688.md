@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11688.png
-
-Convert to Markdown# PART II
+# PART II
 
 ## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTRACTS
 

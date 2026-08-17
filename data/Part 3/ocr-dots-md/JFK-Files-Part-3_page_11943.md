@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11943.png
-
-Convert to Markdown4-E
+4-E
 
 of the White House Staff and other highly placed United States Government officials began receiving cryptogram messages which, after decryption, disclosed implication of bombings of certain major cities on 11/29/70. Content of the messages revealed that the writer was privy to intelligence information and possibly had knowledge of United States nuclear weapon deployment. The receipt of these messages was the object of extreme concern by the recipients and resulted in our investigation.
 

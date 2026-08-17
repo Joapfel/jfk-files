@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35625.png
-
-Convert to Markdown# Programa radial "El Medico yListed"
+# Programa radial "El Medico yListed"
 ## Aosto, 1965
 
 | Day | Time | Description |

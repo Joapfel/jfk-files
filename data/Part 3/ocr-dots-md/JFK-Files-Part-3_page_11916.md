@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11916.png
-
-Convert to MarkdownAt the present time, we have designated 75 individuals as Key Activists. Of this number, 40 are currently the subject of investigative action. This has definitely severely disrupted the entire New Left movement as well as component New Left organizations.
+At the present time, we have designated 75 individuals as Key Activists. Of this number, 40 are currently the subject of investigative action. This has definitely severely disrupted the entire New Left movement as well as component New Left organizations.
 
 Through the New Left Movement reports prepared quarterly by each field office, we have provided to interested agencies timely and informative documents on the activities of the New Left movement, thus making a substantial contribution to the objective that responsible officials be fully aware of the threat the New Left presents to our democratic society.
 

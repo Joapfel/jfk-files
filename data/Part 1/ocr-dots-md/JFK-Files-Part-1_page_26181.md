@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26181.png
-
-Convert to MarkdownS-F-C-R-E-1
+S-F-C-R-E-1
 
 NO FOREIGN BISSESS
 

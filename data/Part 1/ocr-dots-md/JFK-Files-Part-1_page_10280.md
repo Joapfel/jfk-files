@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10280.png
-
-Convert to Markdown10
+10
 
 Sílvaria chielostrófidea en la vestigia que el hieda, hipótesis, órdenes de un cierto nivel y estrechamiento —no podían ser identificadas— tuvieron del fundamento.
 

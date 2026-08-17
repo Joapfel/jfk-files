@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32335.png
-
-Convert to MarkdownVIII. Other Special Actions
+VIII. Other Special Actions
 
 United States Information Agency
 

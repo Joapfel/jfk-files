@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8578.png
-
-Convert to Markdown# Los Terrenos que Pide Mao Tao-tung de Rusia
+# Los Terrenos que Pide Mao Tao-tung de Rusia
 
 Nocolle Kuravlev, en representación de Zar Nicolás I.
 

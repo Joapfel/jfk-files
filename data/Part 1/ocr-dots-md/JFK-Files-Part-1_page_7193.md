@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7193.png
-
-Convert to Markdown20 July 66
+20 July 66
 
 Subject, and that there were groups from all the countries. He asked Subject if they would be willing to take a trip to the Embassy. On his arrival at the airport Subject and his group went directly to the Embassy. On the following day Subject and his group visited three more cases of code.
 

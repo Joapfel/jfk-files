@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31633.png
-
-Convert to MarkdownSECRET
+SECRET
 SECURITY INFORMATION
 
 E. TO THE COMMUNISTS:

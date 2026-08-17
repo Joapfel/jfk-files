@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4159.png
-
-Convert to Markdown14-0000
+14-0000
 
 MEMORANDUM FOR THE RECORD
 

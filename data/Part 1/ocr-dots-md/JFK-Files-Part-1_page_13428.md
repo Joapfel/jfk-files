@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13428.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td rowspan="3">
       <table><tbody><tr><td>DISPATCH</td></tr><tr><td colspan="2">CLASSIFICATION</td></tr><tr><td colspan="2">SECRET</td></tr><tr><td>TO</td><td>Chief of Station, Buenos Aires</td></tr><tr><td>INFO.</td><td>Chief, WH</td></tr><tr><td>FROM</td><td>Chief of Station, JMAWAVE</td></tr><tr><td>SUBJECT</td><td>DIVOUR/JMDEVIL/Operational</td></tr><tr><td>C</td><td>Transmittal of letter from Juan Carlos LOUREIRO to AMICE-31</td></tr><tr><td>ACTION REQUIRED</td><td>REFERENCES</td></tr></tbody></table>

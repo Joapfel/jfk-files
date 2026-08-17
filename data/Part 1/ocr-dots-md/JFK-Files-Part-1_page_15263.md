@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15263.png
-
-Convert to MarkdownTO : Chief, SR Division
+TO : Chief, SR Division
 
 ATTN : George FILL
 

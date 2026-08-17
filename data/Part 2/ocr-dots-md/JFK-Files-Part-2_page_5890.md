@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5890.png
-
-Convert to MarkdownThe Nagell, Novel and Ruby files were designated assassination records and copies were provided to HRP. The Sheridan and Weisberg files were made available and were reviewed by the ARRB Staff. (Attachment 13)
+The Nagell, Novel and Ruby files were designated assassination records and copies were provided to HRP. The Sheridan and Weisberg files were made available and were reviewed by the ARRB Staff. (Attachment 13)
 
 ## CIA-IR-29 Oswald LeWinter
 

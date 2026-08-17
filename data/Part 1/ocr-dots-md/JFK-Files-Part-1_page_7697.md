@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7697.png
-
-Convert to Markdownready and that she would stop by the Embassy to say goodbye (perhaps going
+ready and that she would stop by the Embassy to say goodbye (perhaps going
 to the USSR). (1).
 
 42). (Miss) Mercedes *PINTO*, no identifiable traces.

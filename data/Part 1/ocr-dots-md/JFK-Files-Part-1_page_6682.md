@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6682.png
-
-Convert to Markdown14-0000
+14-0000
 
 FORM 6-25A (REV. 3-1-86)
 

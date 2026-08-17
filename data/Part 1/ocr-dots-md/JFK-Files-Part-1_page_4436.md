@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4436.png
-
-Convert to Markdown10 April 1970
+10 April 1970
 
 MEMORANDUM FOR: Director of Personnel
 

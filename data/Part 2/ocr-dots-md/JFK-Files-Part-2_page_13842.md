@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_13842.png
-
-Convert to MarkdownEnclosure
+Enclosure
 
 116395.

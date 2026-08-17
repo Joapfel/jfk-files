@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25873.png
-
-Convert to MarkdownRe:Loach to Mohr 12-6-63
+Re:Loach to Mohr 12-6-63
 Date: Assassination of the President
 
 that before looking at the FBI as to possible "leaks," he should carefully examine his own house. I told him I was quite thoroughly familiar with the way Guthman and Rosenthal dealt with the press and that as he well knew the wire service people stayed constantly in Guthman's private office. I told him it was quite obvious to me how the AP had learned that the report had been sent over to the Department.

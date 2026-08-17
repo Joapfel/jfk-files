@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19095.png
-
-Convert to MarkdownWFO 105-35316
+WFO 105-35316
 
 WFO is requested to consider the advisability of contacting [redacted] when available for any information concerning the projected meeting mentioned in the LIM on 1/13/68 or 1/20/68. If such interview is deemed advisable, discretion should be exercised in any contact with [redacted] to avoid divulging the identity of [redacted].
 

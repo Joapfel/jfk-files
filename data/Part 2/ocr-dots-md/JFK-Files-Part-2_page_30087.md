@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30087.png
-
-Convert to MarkdownFEBRUARY PAID IN MARCH
+FEBRUARY PAID IN MARCH
 
 DATE: 3/14/77
 

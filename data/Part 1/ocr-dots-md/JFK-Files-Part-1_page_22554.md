@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22554.png
-
-Convert to MarkdownSECRET-EGES ONLY
+SECRET-EGES ONLY
 
 (Comment: This "intermediary" appears to have been Tomas Stocker. The significance of this and the security problem it posed will become apparent from one of the later entries for 31 May.)
 

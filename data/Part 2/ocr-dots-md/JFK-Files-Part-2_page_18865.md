@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18865.png
-
-Convert to Markdownlobby, the Agents noticed that the JAFFEES were very observant of
+lobby, the Agents noticed that the JAFFEES were very observant of
 persons in the lobby. In view of the late hour, few people were in
 the lobby.
 

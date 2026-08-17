@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25905.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">CABLE DECISION OF 45 PER TOTAL COPIES</td>
    </tr>

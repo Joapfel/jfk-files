@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26982.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A Well, it is a matter of record in the AMOT history
 that this indeed did take place. Now, what I have been trying

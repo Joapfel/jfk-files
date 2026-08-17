@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_31499.png
-
 to be
 recruited and appointed
 

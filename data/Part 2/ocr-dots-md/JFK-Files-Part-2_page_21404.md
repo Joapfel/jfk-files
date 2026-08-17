@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21404.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Letter to SAC, Boston
 RE: RICHARD THOMAS GIBSON

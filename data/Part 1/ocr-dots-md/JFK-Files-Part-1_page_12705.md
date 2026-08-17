@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12705.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td colspan="2">CABLE SEC DISSEMINATED BY</td><td>PER</td></tr></thead><tbody><tr><td colspan="2">PERSON UNIT NOTIFIED</td><td>SECRET</td></tr></tbody></table>
 

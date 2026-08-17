@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10678.png
-
-Convert to Markdown# FEDERAL BUREAU OF INVESTIGATION
+# FEDERAL BUREAU OF INVESTIGATION
 
 <table><tr><td>REPORTING OFFICE<br/>NEWARK</td><td>OFFICE OF ORIGIN<br/>NEWARK</td><td>DATE<br/>5/9/72</td><td>INVESTIGATIVE PERIOD<br/>1/27/72 - 5/4/72</td></tr><tr><td colspan="2">TITLE OF CASE<br/>DALE SPEERS CUNNINGHAM;<br/>SA ROBERT H. WALLER-VICTIM</td><td colspan="2"><table><tr><td>REPORT MADE BY<br/>ROBERT H. WALLER (A)</td><td>TYPED S<br/>mjk</td></tr><tr><td>CHARACTER OF CASE<br/>AFO and OOJ</td><td></td></tr></table></td></tr><tr><td colspan="4">REFERENCES: Newark report of SA ROBERT H. WALLER dated 12/29/71<br/>Philadelphia airtel to Newark dated 2/3/72<br/>New York letters to Newark dated 3/9/72 and 4/29/72<br/>Sacramento letter to Newark dated 4/13/72.</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27016.png
-
-Convert to MarkdownPHOTOCOPY FROM THE GERALD R. FORD LIBRARY
+PHOTOCOPY FROM THE GERALD R. FORD LIBRARY
 
 covered by this history includes the last year of the Eisenhower Administration)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24039.png
-
-Convert to MarkdownConein, the CIA official who dealt directly with the Generals,* testified that he was first told of McCone's response to the assassination alternative by Ambassador Lodge around October 20 (Conein, p. 35). Conein testified (but did not so indicate in his detailed After-Action Report) that he then told General Don that the United States opposed assassination, and that the General responded, "alright, you don't like it, we won't talk about it anymore" (Conein, p. 36).
+Conein, the CIA official who dealt directly with the Generals,* testified that he was first told of McCone's response to the assassination alternative by Ambassador Lodge around October 20 (Conein, p. 35). Conein testified (but did not so indicate in his detailed After-Action Report) that he then told General Don that the United States opposed assassination, and that the General responded, "alright, you don't like it, we won't talk about it anymore" (Conein, p. 36).
 
 The United States increased pressure on Diem to mend his ways. On October 17, General Richard Stillwell (MACV J-3) informed Secretary Thuan that the United States was suspending aid to the special forces units responsible for the pagoda raids until they were transferred to the field and placed under Joint General Staff (JGS) command (Pentagon Papers, p. 217). On October 27, Lodge traveled to Dalat with Diem, but did not receive any commitment from Diem to comply with American requests (Pentagon Papers, p. 219).
 

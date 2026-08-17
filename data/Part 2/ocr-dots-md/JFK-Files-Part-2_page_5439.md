@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5439.png
-
-Convert to Markdownemployees, the decision is again not entirely theirs. If,
+employees, the decision is again not entirely theirs. If,
 after careful review, the Agency does not have a strong
 position on the employee maintaining the cover, the officer
 should be permitted to decide. He or she should be

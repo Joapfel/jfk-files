@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31836.png
-
-Convert to Markdown**STATEMENT OF PERSONAL HISTORY**
+**STATEMENT OF PERSONAL HISTORY**
 
 INSTRUCTIONS: Read the certification at the end of this questionnaire before entering the required data. Print or type all answers. All questions and statements must be completed. If the answer is "None," so state. Do not misstate or omit material fact since the statements made herein are subject to verification. If more space is needed, use the Remarks section, item 20, and attach additional sheets if necessary. The information entered hereon is for official use only and will be maintained in confidence.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16770.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG: C. BUSTOS dd
 UNIT : WH/3/MEXICO ☐ INDEX

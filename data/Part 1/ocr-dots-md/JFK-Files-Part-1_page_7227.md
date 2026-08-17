@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7227.png
-
-Convert to Markdown- y reconienda vee la embajada de elgin otro pafla Latino - Americano.
+- y reconienda vee la embajada de elgin otro pafla Latino - Americano.
 
 3 May.66
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3124.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Guatemala or removing it to the US should be raised
 again with the Special Group. The Agency's repre-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27380.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 25 SEP 1958
 

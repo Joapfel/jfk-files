@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34640.png
-
-Convert to Markdown14-00000
+14-00000
 
 Review Staff: 75/880
 

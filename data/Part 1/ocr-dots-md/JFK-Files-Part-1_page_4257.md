@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4257.png
-
-Convert to MarkdownMinisterio de Recuperación de Humanos
+Ministerio de Recuperación de Humanos
 
 3213 N. E. 2 COURT
 MIAMI, FLORIDA

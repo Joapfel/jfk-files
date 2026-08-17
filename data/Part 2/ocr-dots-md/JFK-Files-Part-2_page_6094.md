@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6094.png
-
-Convert to Markdowninitiative to classify records beyond that time when they fall into specific categories that, in order to protect the national interest or privacy interests, must continue to be restricted.
+initiative to classify records beyond that time when they fall into specific categories that, in order to protect the national interest or privacy interests, must continue to be restricted.
 
 3. The criteria to be used to determine what constitutes an assassination record will likely consist of several elements: the proximity of the record either to the time of the assassination or to the related activity of an assassination principal, and/or the content of the record manifestly relating it to the assassination, or an association of the record to the related activity of someone known to have been involved in events plausibly connected to the assassination.
 

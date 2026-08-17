@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_91.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td><table><tr><td>SECRET</td></tr></table></td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td><table><tr><td>SECRET</td></tr></table></td></tr></table>
 
 RECORDS OFFICER STAMP
 

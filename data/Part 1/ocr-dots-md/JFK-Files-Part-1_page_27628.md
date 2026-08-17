@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27628.png
-
-Convert to Markdown**10**
+**10**
 
 FROM __________ TO __________
 City or Section Country Purpose

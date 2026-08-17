@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14808.png
-
-Convert to MarkdownGuy Onions, a Negro, was born March 5, 1934, in New York City, the illegitimate son of his father, Henry Winston. He is often referred to as his father. He has been active in communist affairs since the late 1930s. At one time, he offered a mental breakdown and pentinz time in the Soviet Union; however, he was hospitalized. He also attended school there. For a time, he lived with his brother and Winston, although he is currently living in apartment C-6, 150 Sixth Street, New York City, and is unemployed.
+Guy Onions, a Negro, was born March 5, 1934, in New York City, the illegitimate son of his father, Henry Winston. He is often referred to as his father. He has been active in communist affairs since the late 1930s. At one time, he offered a mental breakdown and pentinz time in the Soviet Union; however, he was hospitalized. He also attended school there. For a time, he lived with his brother and Winston, although he is currently living in apartment C-6, 150 Sixth Street, New York City, and is unemployed.
 
 ## Education
 

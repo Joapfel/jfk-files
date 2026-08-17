@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33974.png
-
-Convert to Markdown"UNIDAD" MONTHLY, ISSUE No. 39, JULY, 1967.
+"UNIDAD" MONTHLY, ISSUE No. 39, JULY, 1967.
 
 ## FRONT PAGE:
 

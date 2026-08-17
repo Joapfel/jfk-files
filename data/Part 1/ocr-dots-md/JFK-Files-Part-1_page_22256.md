@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22256.png
-
-Convert to Markdown6. KGB Investigations*
+6. KGB Investigations*
 
 8. Compromise of POPOV
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7631.png
-
-Convert to Markdownairtel
+airtel
 
 December 15, 1972
 

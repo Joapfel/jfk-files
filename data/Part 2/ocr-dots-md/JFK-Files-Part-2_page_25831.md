@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25831.png
-
-Convert to Markdownb. Favorable factors (from standpoint): In the summer of 1962 gave $500 in Helsinki to be deposited for L-1 in a European bank "for a rainy day." In March 1961, L-1 showed great sensitivity on the subject of bank accounts in Europe by Cuban officials, indicating that he might shoot any official so involved.
+b. Favorable factors (from standpoint): In the summer of 1962 gave $500 in Helsinki to be deposited for L-1 in a European bank "for a rainy day." In March 1961, L-1 showed great sensitivity on the subject of bank accounts in Europe by Cuban officials, indicating that he might shoot any official so involved.
 
 c. Conclusion: While it cannot be discounted that L-1 may be a Castro agent, it may be that he has been sincere in his dealings with CIA. Resolution of doubts through an polygraph interview has been impossible since L-1 bit the ceiling when the matter was first mentioned.
 

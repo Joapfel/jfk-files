@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4724.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTERVIEWER: You have reason to know.
 

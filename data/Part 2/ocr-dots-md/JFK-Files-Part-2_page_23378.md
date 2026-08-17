@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23378.png
-
-Convert to Markdownon an exceptional and sensitive mission like this one?
+on an exceptional and sensitive mission like this one?
 
 Mr. Tweedy. Would you say that again?
 

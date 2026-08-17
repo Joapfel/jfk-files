@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6125.png
-
-Convert to Markdown NW 88614 DocId:32989673 Page 239
+NW 88614 DocId:32989673 Page 239
 
 TREAT AS YELLOW
 5-WOOL/VS

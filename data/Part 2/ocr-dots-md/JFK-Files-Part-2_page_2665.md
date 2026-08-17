@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2665.png
-
-Convert to Markdown(4)
+(4)
 
 OCCUPATION
 

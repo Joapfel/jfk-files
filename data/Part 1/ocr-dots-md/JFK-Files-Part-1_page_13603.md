@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13603.png
-
-Convert to Markdown14-00060
+14-00060
 
 17:57
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8395.png
-
-Convert to Markdown14-0000:
+14-0000:
 
 CONTACT REPORT:
 SUBJECT: LIROBIN/1 and 2

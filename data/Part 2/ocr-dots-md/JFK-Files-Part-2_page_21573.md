@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21573.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 This division, as I recall, was the Plans Staff of the Foreign Intelligence Division of the Clandestine Services which is known as the Deputy Director of Plans, DDP.
 

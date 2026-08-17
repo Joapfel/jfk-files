@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9680.png
-
-Convert to MarkdownGovernment agencies or any left wing organization that would be doing the "bidding" of the supportive Government in power. Additional targets of the right wing, would include the United States Treasury Department and the Internal Revenue Service, and such organizations as the Jewish Anti-Defamation League, who although is not a Government agency, he feels it receives its authority to act from the Government.
+Government agencies or any left wing organization that would be doing the "bidding" of the supportive Government in power. Additional targets of the right wing, would include the United States Treasury Department and the Internal Revenue Service, and such organizations as the Jewish Anti-Defamation League, who although is not a Government agency, he feels it receives its authority to act from the Government.
 
 DRAGUN agreed that to succeed in the violent overthrow of the country a supply of weapons and ammunition would be necessary. He stated he knows of no right wing organization who currently has a stockpile of weapons and advised that the source of weapons at the right time would be the United States military establishment, whose leaders and white members he predicts will join his cause when it is time for action. Although he has heard that the Minutemen organization was stockpiling weapons, he has no evidence that that organization currently has any large supply of weapons in its possession.
 

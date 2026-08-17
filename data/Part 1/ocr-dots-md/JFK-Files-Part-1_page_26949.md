@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26949.png
-
-Convert to Markdown11 January 1974
+11 January 1974
 
 Chief, Domestic Collection Division
 ATTN : Support Branch/OSS (Ryan/Ashe)

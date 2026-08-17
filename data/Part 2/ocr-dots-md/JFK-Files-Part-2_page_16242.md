@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16242.png
-
-Convert to MarkdownDuring the early morning hours of June 4, 1969, Special Agents of the FBI conducted a raid on panther headquarters in an effort to locate and apprehend GEORGE SAMS, JR. Eight panthers at the headquarters at the time were arrested and charged with harboring. SAMS was not found on the premises.
+During the early morning hours of June 4, 1969, Special Agents of the FBI conducted a raid on panther headquarters in an effort to locate and apprehend GEORGE SAMS, JR. Eight panthers at the headquarters at the time were arrested and charged with harboring. SAMS was not found on the premises.
 
 During a search of the headquarters following the arrest, Special Agents seized 13 guns, a large quantity of ammunition, swords, gas masks, office machinery, books, a quantity of records, posters and BPP literature.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8279.png
-
-Convert to Markdownand Subject told him that he would be taken and working with 2 American businessmen who would arrive on Sunday. Subject added that they would bring a tennis hat for LOG ( they did). LOG said that he would want to visit Josephine ABAYAGA, probably on Thursday July 10, but would phone him to arrange for a meet before coming to his ( and Josephine's ) apt. LOG also reminded Subject & to prepare him for that meet a written report on the opinion of Mexican government officials about the Interamerican Economic Conference at Port of Spain.
+and Subject told him that he would be taken and working with 2 American businessmen who would arrive on Sunday. Subject added that they would bring a tennis hat for LOG ( they did). LOG said that he would want to visit Josephine ABAYAGA, probably on Thursday July 10, but would phone him to arrange for a meet before coming to his ( and Josephine's ) apt. LOG also reminded Subject & to prepare him for that meet a written report on the opinion of Mexican government officials about the Interamerican Economic Conference at Port of Spain.
 
 3. After returning from the apt Subject told F that LOG had phoned to Josephine and told her that he would visit them on Thur a little after 2000 hrs and that he would bring to Josephine 2 bottles of Vodka.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31189.png
-
-Convert to Markdownand the facts of the State Dept. message, SECRET
+and the facts of the State Dept. message, SECRET
 
 60C22775 P1275
 Comment

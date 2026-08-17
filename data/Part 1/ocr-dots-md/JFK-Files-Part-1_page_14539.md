@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14539.png
-
-Convert to MarkdownItem 12-continued.
+Item 12-continued.
 
 with the Minister who told him that next week they would discuss
 the matter of costs and that the Minister was in favor of Ruiz'

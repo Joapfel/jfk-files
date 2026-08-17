@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7684.png
-
-Convert to Markdowncareful of here, would be to rather clearly define the type of information which
+careful of here, would be to rather clearly define the type of information which
 should be transmitted, because after all, there are hundreds of thousands or
 millions of Americans going back and forth every year, and those records are
 the records of the Immigration Service, the Passport Division.

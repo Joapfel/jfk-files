@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14185.png
-
-Convert to Markdown132. 10/1/62 - According to reports subsequently reviewed, "On October 1 explosions were reportedly occurring at a highly secure construction project at a location now identified from photography as Site 1 (Sagua La Grande area). Material delivered to the project included lumber and prefabricated concrete forms. This suggests that site construction was underway at that time." (Source: Joint Evaluation Report, 10/24/62)
+132. 10/1/62 - According to reports subsequently reviewed, "On October 1 explosions were reportedly occurring at a highly secure construction project at a location now identified from photography as Site 1 (Sagua La Grande area). Material delivered to the project included lumber and prefabricated concrete forms. This suggests that site construction was underway at that time." (Source: Joint Evaluation Report, 10/24/62)
 
 133. 10/1/62 - This is the estimated date for the beginning of major construction on the Remedios IRBM site. ". . . the date at which the site acquired a recognizable photographic signature is not determinable." (Source: CIA Chronology, 11/7/62)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20962.png
-
-Convert to MarkdownMEMORANDUM FOR: Mr. Kermit Roosevelt
+MEMORANDUM FOR: Mr. Kermit Roosevelt
 
 ATTENTION : Mr. John Baker
 SUBJECT : Mr. Paul D. Langevin; Employment as CIA Staff Officer

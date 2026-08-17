@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16847.png
-
-Convert to Markdown24. A receipt from the Northlake Currency Exchange, 23 North Wolf Road, Northlake, Illinois, dated March 16, 1968, for a money order payable to McCabe Realty.
+24. A receipt from the Northlake Currency Exchange, 23 North Wolf Road, Northlake, Illinois, dated March 16, 1968, for a money order payable to McCabe Realty.
 
 25. A scrap of paper bearing the name KATHIE, 826-8125, and the notation "met at JERRY's house".
 

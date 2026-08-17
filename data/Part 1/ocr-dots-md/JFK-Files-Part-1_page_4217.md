@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4217.png
-
-Convert to Markdown19 de Diciembre de 1965
+19 de Diciembre de 1965
 
 Estudio Sur:
 

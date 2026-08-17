@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10163.png
-
-Convert to MarkdownOfficer and has advised that the same delivery arrangements will
+Officer and has advised that the same delivery arrangements will
 be in effect for compartmented material. When necessary clearance
 arrangements have been perfected so that delivery of compartimented
 material can begin, you will be advised.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3013.png
-
-Convert to Markdownsmn
+smn
 
 an organization in an undercover capacity, he can sit there and glean all the information that he wants, and that is not in the Constitution as a protected area. But we do have this problem.
 

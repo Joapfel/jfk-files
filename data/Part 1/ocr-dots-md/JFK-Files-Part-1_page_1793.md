@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1793.png
-
-Convert to Markdown# Merger of Covert Action Staff and International Organizations Division
+# Merger of Covert Action Staff and International Organizations Division
 
 The DD/P has advised us of his desire to merge the Covert Action Staff with the International Organizations Division. While this is contrary to the trend of divesting staffs of operational duties, we nevertheless do not observe any major reasons against such a merger and believe that it should be tried out in accordance with the DD/P's wishes.
 

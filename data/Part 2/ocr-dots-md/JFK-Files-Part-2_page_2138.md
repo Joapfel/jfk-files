@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2138.png
-
-Convert to Markdown20 MAR 1965
+20 MAR 1965
 
 MEMORANDUM FOR: Director of Personnel
 THRU : DDP/OP

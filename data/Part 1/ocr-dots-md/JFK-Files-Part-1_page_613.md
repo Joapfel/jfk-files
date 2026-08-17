@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_613.png
-
-Convert to Markdown27 November 1962
+27 November 1962
 
 Subject: Reported Use of Yacht Potomac by Alpha 66
 

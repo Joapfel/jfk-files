@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13424.png
-
-Convert to Markdownamt 25
+amt 25
 
 2213
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9497.png
-
-Convert to MarkdownI feel compelled to apologize if I appear particularly dense as to the utilization of this phrase COINTELPRO. If it was a program operating over a period of years the only explanation I can offer at this moment is that conceiably some field offices other than Atlanta were initially involved therein. If this was the case, Atlanta may well have been included therein subsequent to my departure.
+I feel compelled to apologize if I appear particularly dense as to the utilization of this phrase COINTELPRO. If it was a program operating over a period of years the only explanation I can offer at this moment is that conceiably some field offices other than Atlanta were initially involved therein. If this was the case, Atlanta may well have been included therein subsequent to my departure.
 
 Q. (John Bailey) When the telephone surveillance was discontinued on the King residence and on SCLC who took care of that.
 

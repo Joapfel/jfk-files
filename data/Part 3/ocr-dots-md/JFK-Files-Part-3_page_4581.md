@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4581.png
-
-Convert to MarkdownREVIEWED BY LBJ TASS FORCE
+REVIEWED BY LBJ TASS FORCE
 
 ON 10/9/97 my机laz
 * [x] RELEASE IN FULL

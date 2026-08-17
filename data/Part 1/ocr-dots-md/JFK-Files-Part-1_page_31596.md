@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31596.png
-
-Convert to Markdownb. Commentaries over Radio Moscow in Russian and Polish and over Radio Warsaw.
+b. Commentaries over Radio Moscow in Russian and Polish and over Radio Warsaw.
 
 c. Articles in the Romanian and Hungarian press.
 

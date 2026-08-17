@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31719.png
-
-Convert to Markdown2 February 1953
+2 February 1953
 
 MEMORANDUM FOR: TO/TONIC
 SUBJECT: Call from Jim real fast

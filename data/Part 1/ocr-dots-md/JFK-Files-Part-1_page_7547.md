@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7547.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 THE INDEPENDENT
 

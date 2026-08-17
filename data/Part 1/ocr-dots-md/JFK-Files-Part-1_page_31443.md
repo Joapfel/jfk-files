@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31443.png
-
-Convert to MarkdownSECRET
+SECRET
 
 c. They submit that there are some problems with the proposals, but they consider the arguments additional to other audience than ours (other than central and eastern Europe).
 

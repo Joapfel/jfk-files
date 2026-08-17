@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2984.png
-
-Convert to MarkdownSECRET
+SECRET
 
 be ruined if the doctored parts accidentally got in-
 314/

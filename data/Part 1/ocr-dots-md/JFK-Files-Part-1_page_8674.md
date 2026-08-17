@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8674.png
-
-Convert to Markdown4.01.04 ¿Tiene apodo?
+4.01.04 ¿Tiene apodo?
 En caso afirmativo, ¿lo molesta que lo llamen por él?
 
 Sí ____ No ____

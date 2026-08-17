@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5970.png
-
-Convert to Markdown3791 (6.75) NW 88614 Dooid:32989673 Page 84
+3791 (6.75) NW 88614 Dooid:32989673 Page 84
 
 TREAT AS YELLOW
 

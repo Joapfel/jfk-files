@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5435.png
-
-Convert to MarkdownYou say that it was a matter which was then a violation of the law. Within the warrantless wiretaps under ordinary circumstances they could conceivably be construed as a violation, but under the umbrella of the protection of the country they have been authorized, so I don't subscribe to the feeling that they knowingly, in such an installation, violated the law with the intent to violate the law.
+You say that it was a matter which was then a violation of the law. Within the warrantless wiretaps under ordinary circumstances they could conceivably be construed as a violation, but under the umbrella of the protection of the country they have been authorized, so I don't subscribe to the feeling that they knowingly, in such an installation, violated the law with the intent to violate the law.
 
 **QUESTION:**
 

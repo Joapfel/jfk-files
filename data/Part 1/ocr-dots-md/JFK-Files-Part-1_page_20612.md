@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20612.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">NOTIFICATION OF ESTABLISHMENT<br/>OF MILITARY COVER BACKSTOP</td><td>DATE</td></tr><tr><td rowspan="2">TO:<br/>(Check)</td><td>CHIEF, PERSONNEL OPERATIONS DIVISION</td><td rowspan="2">ESTABLISHED FOR</td></tr><tr><td>CHIEF, OPERATING COMPONENT (For action)</td></tr><tr><td>ATTR:</td><td></td><td>FILE NO.</td></tr><tr><td>REF:</td><td></td><td>ID CARD NO.</td></tr><tr><td>MILITARY COVER BACKSTOP ESTABLISHED</td><td></td><td>EMPLOYEE NO.</td></tr></table>
 

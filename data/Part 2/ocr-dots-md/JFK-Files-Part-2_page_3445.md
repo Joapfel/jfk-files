@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3445.png
-
-Convert to Markdownthe mail opening program except they worried about its security and also thought it would be more effective if expanded. This is how the survey described the project in 1959:
+the mail opening program except they worried about its security and also thought it would be more effective if expanded. This is how the survey described the project in 1959:
 
 >a. The Project Branch conducts a project of censorship within the US of mail from the USSR which is called HTLINGUAL. Originally this project was developed by the Office of Security at the request of SR Division in 1952. Its purpose was to identify and to obtain samples of handwriting and basic background facts on long established correspondence between persons in the USSR and the United States. Such information was to be used operationally to sustain any communications with secret writing, which would likely pass the Soviet censors and could be picked up in the U.S.A. The interception is done at the central Post Office in New York, and the letters are delivered to the Agency for processing and return. As the need for Soviet communication camouflage lessened with the increase of legal travel to and from the USSR the Project was re-oriented and expanded toward direct CI and FI goals in September 1956, and it was taken over by the CI Staff.
 

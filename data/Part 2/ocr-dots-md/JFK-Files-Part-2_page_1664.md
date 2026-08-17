@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1664.png
-
-Convert to Markdown5 January 1952
+5 January 1952
 
 Mr. James B. Woods
 2017 Comm. Ave. N. W.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9924.png
-
-Convert to Markdown2.
+2.
 
 FAR, Gen. Oca, the Primero de Mayo, the "Crazos" and other splinter groups - but there were reasonably, during the last six months many senters filtering into Mexico and this MEXICAN would have to come with extreme caution in his contacts with the revolutionaries. II.FS/3 told "Ocas that he felt this an opportune opening to relate his story of his life and did so briefly. By Pereira commented that she first met Cruzco in Havana when she was very much involved there with Guatemalan revolutionaries. The added that she was favorably impressed with Cruzco and was surprised to learn only that he had inserted from FAR. She added that there was another FAR inserted in Mexico City even more important than Cruzco, in the name of "M. Balle" or "El Gutiyo", whose true name she did not know.
 Schreiber und Schaefer

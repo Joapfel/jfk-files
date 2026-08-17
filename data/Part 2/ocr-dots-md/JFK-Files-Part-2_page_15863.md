@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15863.png
-
-Convert to MarkdownSource advised the political orientation classes, which the source had attended were normally presided over by BOBBY RUSH, who normally discussed the BPP ten-point program to ascertain whether those in attendance had committed the ten points to memory. Source stated FRED HAMPTON had, in the past, discussed statements from Chairman's MAO "Red Book," and had those in attendance offer their views. The source also stated "Essays of Huey," and military discipline were discussed by the Panther leaders.
+Source advised the political orientation classes, which the source had attended were normally presided over by BOBBY RUSH, who normally discussed the BPP ten-point program to ascertain whether those in attendance had committed the ten points to memory. Source stated FRED HAMPTON had, in the past, discussed statements from Chairman's MAO "Red Book," and had those in attendance offer their views. The source also stated "Essays of Huey," and military discipline were discussed by the Panther leaders.
 
 12/15/69)
 

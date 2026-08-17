@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3112.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Ivan Gavrilovich ALFERYEV
 

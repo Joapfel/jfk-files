@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_258.png
-
-Convert to Markdown1. President John F. Kennedy (World wide)
+1. President John F. Kennedy (World wide)
 
 2. Counter Espionage involving Soviet Intelligence Services
 

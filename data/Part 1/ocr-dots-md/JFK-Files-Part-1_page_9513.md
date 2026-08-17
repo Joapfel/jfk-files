@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9513.png
-
-Convert to Markdown31 March
+31 March
 
 JEB: Spont an hour and a half this morning at the home of James Burnham; present - Burnham, Denby, myself and Col. Lansdalo from Chester's office.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3623.png
-
-Convert to Markdown2. Indonesia-Malaysia
+2. Indonesia-Malaysia
 
 a. Sukarno is beefing up the subversive aspects of his confrontation campaign against Malaysia.
 

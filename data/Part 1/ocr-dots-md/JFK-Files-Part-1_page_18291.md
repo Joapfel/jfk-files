@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18291.png
-
-Convert to Markdown21 June '61
+21 June '61
 
 Memo for File - William P. Burke
 

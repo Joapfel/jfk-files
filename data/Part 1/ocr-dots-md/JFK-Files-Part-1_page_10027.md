@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10027.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OROZCO MIGHT VERY WELL BE ACCEPTED.
 

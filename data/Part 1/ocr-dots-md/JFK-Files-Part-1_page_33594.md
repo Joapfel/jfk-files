@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33594.png
-
-Convert to Markdown10 January 1952
+10 January 1952
 
 MEMO: FOR: DEPUTY DIRECTOR OF GENERAL INTELLIGENCE
 SUBJECT: National Information Bureau, Inc.

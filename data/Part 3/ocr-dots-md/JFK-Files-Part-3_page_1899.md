@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1899.png
-
-Convert to MarkdownLIMITED OFFICIAL USE FBB778
+LIMITED OFFICIAL USE FBB778
 
 JAN 31 5 20 PM '78
 

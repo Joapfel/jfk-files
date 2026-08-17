@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8104.png
-
-Convert to Markdown(a) Harold Linebaugh, who in 1964 was employed at FBI headquarters;
+(a) Harold Linebaugh, who in 1964 was employed at FBI headquarters;
 
 (b) Elmer Todd, who in 1964 was employed at the Washington Field Office.
 

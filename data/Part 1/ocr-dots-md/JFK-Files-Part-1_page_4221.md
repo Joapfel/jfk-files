@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4221.png
-
-Convert to MarkdownTherefore, should A-1's project meet with success, Sonora would benefit both financially and politically. It is difficult to imagine A-1 deriving the same advantages especially when added to these considerations, is the fact that they have nothing whatever to do with Cuba or Cubans.
+Therefore, should A-1's project meet with success, Sonora would benefit both financially and politically. It is difficult to imagine A-1 deriving the same advantages especially when added to these considerations, is the fact that they have nothing whatever to do with Cuba or Cubans.
 
 4. As to the second factor, and returning to the more realistic aspects of the problem, A-1 in the past has demonstrated his ability to sell ideas and projects. In a word he is a politician. However, when it comes to administrative, business and financial matters he is singularly inept. This was amply demonstrated during the AWORLD era when it was only thanks to the efforts of other well-qualified people that the project was ever able to sustain itself. In summary, as it now stands A-1 is in the position of being wholly beholden of the good offices of General Somoza. He further derives no political advantages from this and is engaged in projects for which he has no basic qualifications. In a sense he is leading with his weakest card. More seriously, his efforts are politically out of focus.
 

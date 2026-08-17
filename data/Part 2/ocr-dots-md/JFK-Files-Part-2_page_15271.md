@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15271.png
-
-Convert to MarkdownLetter to SAC, New York
+Letter to SAC, New York
 
 RE: NATIONALITY GROUP COVERAGE
 105-97459-234

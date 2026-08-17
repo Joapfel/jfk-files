@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28969.png
-
-Convert to Markdown# Do Not Complete the Rest of This Form if You Do Not Have a Pre-1970 Capital Loss Carryover to 1976 (See Instruction A).
+# Do Not Complete the Rest of This Form if You Do Not Have a Pre-1970 Capital Loss Carryover to 1976 (See Instruction A).
 
 ## Instructions
 

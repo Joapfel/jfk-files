@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6740.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 CENTRAL INTELLIGENCE AGENCY
 DCI History Staff

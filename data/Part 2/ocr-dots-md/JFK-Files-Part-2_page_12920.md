@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12920.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION</td>
     </tr>

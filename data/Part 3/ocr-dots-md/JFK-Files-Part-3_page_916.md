@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_916.png
-
-Convert to MarkdownThe Deputy Attorney General
+The Deputy Attorney General
 
 After assuming the office of Director I have had an opportunity to afford further thought to this question and appreciate that there are some substantial considerations that question whether the Director of the FBI should be restricted to a given term of office. From a practical standpoint, it is doubted that legislation to specifically restrict the term of office of a Presidential appointee is necessary. We know of no clear-cut authority to remove an official who has received a Presidential appointment. However, in the final analysis, the President would likely get his way because he has the power to appoint a successor, in this case the Director. In effect, in absence of tenure, the Director will be serving at the pleasure of whoever is President.
 

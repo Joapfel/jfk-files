@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34230.png
-
-Convert to Markdown"Vidalia Star Rapidly Declining".- Castro's about to enter his seventh year in power under bad ones. Dictators Michado and Batista fell precisely on their seventh year, and Castro's situation shows that his star is rapidly declining and that he's heading straight for the abyss.
+"Vidalia Star Rapidly Declining".- Castro's about to enter his seventh year in power under bad ones. Dictators Michado and Batista fell precisely on their seventh year, and Castro's situation shows that his star is rapidly declining and that he's heading straight for the abyss.
 
 **December 24, 1965:**
 

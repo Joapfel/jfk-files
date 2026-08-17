@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3113.png
-
-Convert to MarkdownVol. 14
+Vol. 14
 
 The United States Senate
 

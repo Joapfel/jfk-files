@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7094.png
-
-Convert to Markdownold, a current investigation shall be required but may be limited to that necessary to bring the individual's file up to date in accordance with the investigative requirements set forth in paragraph 4, above. Should new information be developed during the current investigation which bears unfavorably upon the individual's activities covered by the previous investigation, the current inquiries shall be expanded as necessary to develop full details of this new information.
+old, a current investigation shall be required but may be limited to that necessary to bring the individual's file up to date in accordance with the investigative requirements set forth in paragraph 4, above. Should new information be developed during the current investigation which bears unfavorably upon the individual's activities covered by the previous investigation, the current inquiries shall be expanded as necessary to develop full details of this new information.
 
 ## Evaluation
 

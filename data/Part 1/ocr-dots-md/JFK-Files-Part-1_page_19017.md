@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19017.png
-
-Convert to Markdown# Intelligence Information Report
+# Intelligence Information Report
 
 DIRECTORATE OF
 PLANS

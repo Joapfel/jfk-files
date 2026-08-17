@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19171.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>Form 602-95A</th></tr></thead><tbody><tr><td>(6-31)</td></tr></tbody></table>
 

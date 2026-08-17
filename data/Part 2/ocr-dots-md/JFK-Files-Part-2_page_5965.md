@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5965.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 **TO:** J. Barry Harrelson@DCI
 **FROM:** W. Curtis Chaloner

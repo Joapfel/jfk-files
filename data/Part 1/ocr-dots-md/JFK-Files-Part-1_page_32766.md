@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32766.png
-
-Convert to MarkdownSubject turned over receipts as follows:
+Subject turned over receipts as follows:
 
 a. National Airlines Flight No. 108, Miami to Washington, 16 April 1968 $64.05
 

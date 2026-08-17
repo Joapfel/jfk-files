@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21726.png
-
-Convert to Markdown1. account of an incident when he was stationed at Taipei and he said that he had written a cable to CIA headquarters outlining a propaganda program because he was involved in propaganda operations at that point. And he said, unbeknownst to him, someone else in his station with the approval of the Chief of Station attached an extra paragraph to this cable which suggested the assassination of Chou En Lai in preparation for the Bandoeng Conference where Chou En Lai was supposed to be an important spokesman on behalf of many Asian nations.
+1. account of an incident when he was stationed at Taipei and he said that he had written a cable to CIA headquarters outlining a propaganda program because he was involved in propaganda operations at that point. And he said, unbeknownst to him, someone else in his station with the approval of the Chief of Station attached an extra paragraph to this cable which suggested the assassination of Chou En Lai in preparation for the Bandoeng Conference where Chou En Lai was supposed to be an important spokesman on behalf of many Asian nations.
 2
 3
 4

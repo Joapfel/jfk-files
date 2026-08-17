@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30303.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 you understand that it is necessary time, time to settle psy-
 chologically, he doesn't know how he will be living, what he will

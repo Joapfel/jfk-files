@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24405.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 It was arranged that Roselli would go to Florida and recruit Cubans for the operation (Roselli, pp. 11-12). Edwards informed Bissell that contact had been made with the gambling syndicate (Bissell, 6/9, pp. 20-21; I.G., p. 17).
 

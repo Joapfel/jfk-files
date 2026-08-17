@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3657.png
-
-Convert to MarkdownTHEODORE G. SHACKLEY
+THEODORE G. SHACKLEY
 C/WHD
 
 RELEASING OFFICER

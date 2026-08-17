@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19573.png
-
-Convert to MarkdownAT 100-7300
+AT 100-7300
 
 regarding ISOBEL FORBES CERNEY's connection with the
 organization is being set forth in the enclosed LHM,

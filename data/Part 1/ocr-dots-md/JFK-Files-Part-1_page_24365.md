@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24365.png
-
-Convert to MarkdownB. SCHWARTZENBERG
+B. SCHWARTZENBERG
 
 PARIS 19 DECEMBRE 1969
 

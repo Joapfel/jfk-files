@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20087.png
-
-Convert to MarkdownADDENDUM, Form 45 (Fitness Report), for period March 67-March 68.
+ADDENDUM, Form 45 (Fitness Report), for period March 67-March 68.
 
 # Section D
 

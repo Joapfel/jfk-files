@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4978.png
-
-Convert to MarkdownIN 05778?
+IN 05778?
 
 WARNING NOTICE
 

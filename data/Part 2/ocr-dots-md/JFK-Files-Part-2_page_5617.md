@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5617.png
-
-Convert to Markdown# Appendix 1
+# Appendix 1
 
 Alphabetical and numerical listing of CIA employees, agents and collaborators and organizations controlled, financed and influenced by the CIA.
 

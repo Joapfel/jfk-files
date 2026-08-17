@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10809.png
-
-Convert to MarkdownPH 52-7165 SUB S
+PH 52-7165 SUB S
 
 All of the above that was taken from SWINGLISH was listed on a form. Everything taken was shown to SWINGLISH. He read the receipt, made no comment, and refused to sign the receipt.
 

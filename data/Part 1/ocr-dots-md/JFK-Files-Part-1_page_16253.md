@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16253.png
-
-Convert to Markdown# Handwriting Assessment Report
+# Handwriting Assessment Report
 
 ## Alastair Wicks AF
 

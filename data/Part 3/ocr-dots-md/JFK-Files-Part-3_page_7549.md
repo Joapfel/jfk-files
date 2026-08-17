@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7549.png
-
-Convert to MarkdownCOPY RETAINED IN
+COPY RETAINED IN
 PERSONNEL RECORDS UNIT
 
 84 JUN 3 1975.

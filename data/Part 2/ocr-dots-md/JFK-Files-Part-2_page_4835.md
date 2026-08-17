@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4835.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: Well, partly. Sure. Remember, the Freedom of Information Act was just beginning to be used. And it's part of the whole business, it's against the establishment. And one of the guys who was on the Church Committee staff, one of the staffers, Rick Inderfurth, I think is his name.
 

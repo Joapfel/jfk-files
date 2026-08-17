@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28059.png
-
-Convert to Markdown<table><tr><td>Employee Name (First-Middle-Last)<br/>Carole Hansen (Amato)</td><td>Effective Date<br/>12/13 October 1976</td></tr><tr><td>Employee Social Security Number<br/>257-56-9440</td><td>Type of Action<br/>☑ Appointment<br/>☐ Salary Adjustment<br/>☐ Termination (At close of business on effective date)</td></tr><tr><td>Employing Office or Committee<br/><hr/>Select Committee on Assassinations</td><td></td></tr></table>
+<table><tr><td>Employee Name (First-Middle-Last)<br/>Carole Hansen (Amato)</td><td>Effective Date<br/>12/13 October 1976</td></tr><tr><td>Employee Social Security Number<br/>257-56-9440</td><td>Type of Action<br/>☑ Appointment<br/>☐ Salary Adjustment<br/>☐ Termination (At close of business on effective date)</td></tr><tr><td>Employing Office or Committee<br/><hr/>Select Committee on Assassinations</td><td></td></tr></table>
 
 (If type of action is an Appointment or Salary Adjustment, complete the following information)
 

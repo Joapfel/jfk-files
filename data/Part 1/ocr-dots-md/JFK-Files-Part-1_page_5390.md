@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5390.png
-
-Convert to Markdown3. S源: 源家相信,当香消市minus will do is to take the money from wherever Charles has it (the source professes not to know where the money now is) and delivers it to Haiti.
+3. S源: 源家相信,当香消市minus will do is to take the money from wherever Charles has it (the source professes not to know where the money now is) and delivers it to Haiti.
 5. The source plans to fly to Port-au-Prince on either 2 or 3 May 1968 and to return to New York on 6 May 1968. This schedule is, of course, subject to change, depending upon the location of Charles's money and depending upon whether or not Source is correct in his surmise that Charles wants him to act as courier.
 
 6. SOURCE REQUESTED US TO NOTIFY THE US EMPASSY IN HAITI THAT HE WILL BE IN THE COUNTRY. HE WISHES THE EMPASSY TO BE NOTIFIED AS A PRECAUTION. SOURCE IS A NATURALIZED US CITIZEN OF HAITIAN BIRTH AND DOES NOT FEAR THAT ANYTHING UNToward WILL HAPPEN TO HIM. HE FEELS THIS MAY NOT ONLY BECAUSE OF HIS US CITIZENSHIP BUT ALSO BECAUSE THE REASONS THAT THE HAITIANS WILL NOT KILL THE ENEMY ARE AS follows:

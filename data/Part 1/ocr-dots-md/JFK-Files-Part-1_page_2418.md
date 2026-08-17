@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2418.png
-
-Convert to Markdowncannot be established with certainty, it is evident that truth and
+cannot be established with certainty, it is evident that truth and
 fact are not what NOSENKO relates. By almost any test, virtually
 any of NOSENKO's above claims are impugned by fact or probability,
 or contradicted or retracted in his own statements. NOSENKO is

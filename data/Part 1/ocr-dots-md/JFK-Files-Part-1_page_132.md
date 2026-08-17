@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_132.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 DOHB 70-1-1
 CHAPTER III, ANNEX B

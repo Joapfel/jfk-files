@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6435.png
-
-Convert to MarkdownMay 31, 1963
+May 31, 1963
 
 BY COURIER SERVICE
 

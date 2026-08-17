@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7715.png
-
-Convert to MarkdownThe following are highlights of the chronology of Source's (Subject's) professional career:
+The following are highlights of the chronology of Source's (Subject's) professional career:
 
 **September 1944:** Subject was mobilized and sent to the Frunze Artillery School in Odessa where he remained until July 1945. At that time Subject left the Artillery School before completion of the course and enrolled in a Counterintelligence School.
 

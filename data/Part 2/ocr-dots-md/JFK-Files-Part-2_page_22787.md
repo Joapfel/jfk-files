@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22787.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 The Chairman. The hearing will please come to order.
 

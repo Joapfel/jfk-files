@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34540.png
-
-Convert to Markdownwith the words, "Oh, Mr. Nikolayev! How are you? I remember you.
+with the words, "Oh, Mr. Nikolayev! How are you? I remember you.
 
 You visited England with the team of boxers."
 

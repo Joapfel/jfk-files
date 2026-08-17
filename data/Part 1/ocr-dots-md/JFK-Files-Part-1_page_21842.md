@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21842.png
-
-Convert to Markdown# I. INTRODUCTION
+# I. INTRODUCTION
 
 This review presents the facts and observations which bear on the bona fides of the Soviet defector Yuriy Ivanovich NOSENKO.
 

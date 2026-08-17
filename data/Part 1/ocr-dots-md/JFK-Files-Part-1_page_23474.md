@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23474.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Date:
 

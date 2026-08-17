@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_843.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Section C. Narrative Comments (Continued)
 

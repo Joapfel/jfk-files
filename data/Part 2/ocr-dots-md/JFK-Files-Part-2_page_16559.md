@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16559.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGA
+FEDERAL BUREAU OF INVESTIGA
 
 Date 6/4/69
 

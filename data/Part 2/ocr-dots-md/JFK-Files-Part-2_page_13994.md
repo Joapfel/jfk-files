@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13994.png
-
-Convert to MarkdownDistribution:
+Distribution:
 
 1 - Mr. Wilderotter
 

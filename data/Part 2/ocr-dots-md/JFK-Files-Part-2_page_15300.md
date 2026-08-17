@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15300.png
-
-Convert to Markdownat the establishment of 25 non-Soviet-bloc countries. The principal cost involved in this phase relates to Agent time devoted to investigations of sources and time spent in handling these sources.
+at the establishment of 25 non-Soviet-bloc countries. The principal cost involved in this phase relates to Agent time devoted to investigations of sources and time spent in handling these sources.
 
 ## 2. Positive Results Achieved
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16601.png
-
-Convert to Markdownthat he saw no objection to making these premises available
+that he saw no objection to making these premises available
 to the FBI, but he desired to first consult with other
 attorneys, whom he did not identify, and stated he would
 call SAC JOHNSON later that weekend. CUNNINGHAM said he

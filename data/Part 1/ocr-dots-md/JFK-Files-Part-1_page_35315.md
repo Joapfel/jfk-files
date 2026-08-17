@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35315.png
-
-Convert to MarkdownHE RECIBIDO de "Judicatura Cubana Democrática la canti-
+HE RECIBIDO de "Judicatura Cubana Democrática la canti-
 dad de <u>Ciente currenta y siete collares círculos</u>
 importe de la asignación correspondiente al presente----
 

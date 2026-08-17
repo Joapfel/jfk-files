@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5340.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 FBI investigations; and information which originated with other agencies, including foreign intelligence agencies. They were all also informed that an FBI representative would be available in the Atlanta FO for consultation purposes should such a need arise. This procedure, as explained to these SAs, provides that if a question arose during the interview in one of the areas set out above, the SA had the privilege, before replying, of consulting with the FBI representative. The representative did not accompany these Agents to the interviews but was available in the Atlanta FO located in the same building where the interviews took place. Instances of the use of this representative for consultation purposes are indicated in the appropriate memorandum being furnished.
 

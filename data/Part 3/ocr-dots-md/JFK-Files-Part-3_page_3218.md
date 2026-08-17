@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3218.png
-
-Convert to MarkdownkellyGSH
+kellyGSH
 
 11/19/75
 Tape 10 1

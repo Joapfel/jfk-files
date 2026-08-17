@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23055.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1 infiltration team. He was a UDT man.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8628.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 México, D.F., Septiembre 26 de 1969.
 

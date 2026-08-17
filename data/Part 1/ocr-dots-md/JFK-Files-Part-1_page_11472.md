@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11472.png
-
-Convert to Markdown<table><tr><td>14-0000p</td></tr></table>
+<table><tr><td>14-0000p</td></tr></table>
 
 TO FOREIGN DISTRIBUTE
 

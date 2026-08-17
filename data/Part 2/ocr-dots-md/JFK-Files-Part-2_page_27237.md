@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27237.png
-
-Convert to MarkdownB-G-G (II-S)
+B-G-G (II-S)
 
 A - Memo for The Legal Staff from Marvin Gray - Subj: The Final Report - dtd 14 Mar 75.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12144.png
-
-Convert to MarkdownIt is noted that this case was originally opened as a PSI and potential double agent case. It is still in a pending status and is still being reported by you as a potential double agent case, when in fact the individual (Azaryan), against whom Nelson was directed departed the U.S. in June, 1970.
+It is noted that this case was originally opened as a PSI and potential double agent case. It is still in a pending status and is still being reported by you as a potential double agent case, when in fact the individual (Azaryan), against whom Nelson was directed departed the U.S. in June, 1970.
 
 A review of the Nelson file fails to contain any instructions or directions regarding the development of Nelson as a double agent and in addition a review of the Azaryan file similarly contains no information or instructions from the Bureau in this regard. There appears to be a definite weakness in the overall administration and supervision of this "potential double agent" at the Seat of Government.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31219.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9 May 1967
 

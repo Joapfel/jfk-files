@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_941.png
-
-Convert to Markdown# E. Type of Information Disseminated
+# E. Type of Information Disseminated
 
 Name check requests received from agencies within the Executive Branch, as a general rule, are checked against FBI files for "subversive-type" references only and criminal-type references are not reviewed. However, for some agencies, at their specific request, all references in Bureau files are reviewed. All agencies are aware of the limitation on the type of search made as they are furnished a copy of an FBI booklet describing procedures for requested name checks.
 

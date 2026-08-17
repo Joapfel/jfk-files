@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6784.png
-
-Convert to Markdownb. El sector industrial.
+b. El sector industrial.
 
 Aunque el estancamiento de la agricultura y, en particular, de los productos alimenticios, reduce considerablemente la significación del aumento total en la producción de bienes materiales, el hecho de que la producción de la industria de elaboración aumentó a un promedio anual de 32% por cápita —más del doble del aumento de la agricultura— el hecho aportó algo sustancial, tanto cualitativa como cuantitativamente al desarrollo material alcanzado durante este período.¹² Un resultado es el cambio que se operó en la distribución por sectores del PBN de Latinoamérica. En 1945 la industria de elaboración y la construcción representaban el 17% del PBN y la agricultura el 26%, mientras que en 1957, como ya hemos indicado, la participación de la industria de elaboración y de la construcción juntas igualaron la de la agricultura, representando cada una el 23.5%.¹³
 

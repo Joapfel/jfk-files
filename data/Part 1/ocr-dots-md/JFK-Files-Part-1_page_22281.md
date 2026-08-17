@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22281.png
-
-Convert to Markdowncontrol.* He has also used this explanation to support his claim that there were no recruitments of military attaches during this period.
+control.* He has also used this explanation to support his claim that there were no recruitments of military attaches during this period.
 
 An exception, wherein the KGB did carefully compile a great deal of vulnerability data on an Army Attache, was described by NOSENKO in connection with the approach to Walter MULE (Page 104). On the basis of these explanations, NOSENKO's knowledge of the official and unofficial activities of his alleged targets in this period deserves attention.
 

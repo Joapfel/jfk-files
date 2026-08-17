@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16823.png
-
-Convert to Markdown# SHOT PELLET COMPARABLE IN SIZE AND/OR WEIGHT TO #7 1/2 SECTION
+# SHOT PELLET COMPARABLE IN SIZE AND/OR WEIGHT TO #7 1/2 SECTION
 
 One shot pellet, Q239, was comparable in size to #7 1/2 shot. Some weight loss was evident and while the measurable diameter was comparable to that of #7 1/2 shot, its weight was slightly less than standard for #7 1/2 shot.
 

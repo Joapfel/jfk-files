@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14368.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 261023Z JUN 79 CITE MADRID (1466)
 

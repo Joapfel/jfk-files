@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_13513.png
-
 and on his staff. My impression, but again I must emphasize that this is an uncertain impression, is that I was encouraged to go ahead with the investigation and planning of this operation, and by investigation I mean simply to find out what would be involved to make some assessment of the likelihood of success, and other aspects of the matter.
 
 20

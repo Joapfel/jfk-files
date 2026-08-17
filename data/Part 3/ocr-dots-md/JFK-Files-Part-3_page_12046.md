@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12046.png
-
-Convert to Markdown- 6 -
+- 6 -
 
 Paragraph f notes many instances of cases concerning "PDA's" have been opened for varying periods of time, and, again, the lack of extensive outgoing communications noted. It is again stressed that the designation of "PDA" is an arbitrary one, these files are evaluated and administered on an individual basis in accordance with Bureau requirements related to PSI's and SI's, and not solely on their double-agent potential. These requirements are met in these cases.
 

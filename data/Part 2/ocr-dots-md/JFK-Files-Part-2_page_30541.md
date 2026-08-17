@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30541.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Employees
 & last officers - intelligence officers

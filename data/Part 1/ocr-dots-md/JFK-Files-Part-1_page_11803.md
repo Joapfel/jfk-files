@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11803.png
-
-Convert to MarkdownJuly 18, 1965
+July 18, 1965
 
 Thank you very much for your letter of June 14th, 1965, explaining that you are still considering the possibility of aid for our group.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6096.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>Office of Origin: (REDACTED)</td>
     <td>Report Made At:</td>

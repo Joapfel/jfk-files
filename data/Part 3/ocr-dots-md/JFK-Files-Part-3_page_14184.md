@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14184.png
-
-Convert to Markdown(131. 10/1/62 Continued)
+(131. 10/1/62 Continued)
 
 (3) In the Western Army area, the 3 (possibly 4) SA-2 sites form a linear pattern for the defense of the military airfield at San Antonio de los Banos and the Havana-Mariel complex (San Antonio is headquarters for the Cuban Revolutionary Air Force and the assembly point for all MIGs except MIG-21s).
 

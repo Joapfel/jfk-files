@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22420.png
-
-Convert to Markdown821.
+821.
 
 # F. Introduction
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15128.png
-
-Convert to Markdownan Autos durchführte. Ich weiss die Nummer der Einheit nicht mehr in der ich meine Grundausbildung erhielt. Zu diesem Zeitpunkt waren die Kasernen überfüllt, meistens Soldaten der Infanterie und Artillerie die inner wieder abgelöst wurden.
+an Autos durchführte. Ich weiss die Nummer der Einheit nicht mehr in der ich meine Grundausbildung erhielt. Zu diesem Zeitpunkt waren die Kasernen überfüllt, meistens Soldaten der Infanterie und Artillerie die inner wieder abgelöst wurden.
 
 E. SPEZIALAUSBILDUNG: Einen Monat Fahrschule wie oben erwähnt.
 

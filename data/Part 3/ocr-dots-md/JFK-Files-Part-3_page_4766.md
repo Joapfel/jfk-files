@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4766.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 <table><thead><tr><td>REPORTING OFFICE</td><td colspan="2">OFFICE OF ORIGIN</td><td>DATE</td><td>INVESTIGATIVE PERIOD</td></tr></thead><tbody><tr><td>MIAMI</td><td colspan="2">MIAMI</td><td>11/25/68</td><td>9/27 - 11/20/68</td></tr><tr><td>TITLE OF CASE</td><td colspan="4">REPORT MADE BY<br/>ALLAN M. TRANKLEY</td><td rowspan="2">TYPED BY<br/>neb</td></tr><tr><td>NORMAN ROTHMAN, aka.</td><td colspan="4">CHARACTER OF CASE<br/>AR</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14869.png
-
-Convert to Markdown# 2. FEDERAL CLEARINGHOUSE OF CRIMINAL INFORMATION
+# 2. FEDERAL CLEARINGHOUSE OF CRIMINAL INFORMATION
 
 Various proposals have been brought forth in the past by individuals such as Senator Kefauver, Chief William Parker of the Los Angeles Police Department, Milton Wessel of the Department, and Senator McClellan for the establishment of a central Federal clearinghouse of information on crime. More recently New York State Attorney General Louis J. Lefkowitz has proposed a clearing-house of information concerning frauds on the consumer and investor public.
 

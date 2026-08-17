@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15849.png
-
-Convert to Markdown1. An Austrian passport, birth certificate and drivers license have been prepared for issuance containing following biographic data:
+1. An Austrian passport, birth certificate and drivers license have been prepared for issuance containing following biographic data:
 
 Name: George Franz REINER
 POB: Salsburg, Austria

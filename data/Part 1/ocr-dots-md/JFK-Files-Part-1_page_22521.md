@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22521.png
-
-Convert to MarkdownSECRET-eyes ONLY
+SECRET-eyes ONLY
 
 As a further prelude to a chronological review of operation
 ECLIPPES, we think it would be useful to identify the people

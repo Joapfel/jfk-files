@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17621.png
-
-Convert to MarkdownAttachment to FM-A-10198
+Attachment to FM-A-10198
 KAPOK-1401
 
 | Field Agent | Presently | Possible Future |

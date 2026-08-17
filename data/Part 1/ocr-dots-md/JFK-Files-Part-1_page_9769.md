@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9769.png
-
-Convert to Markdown17 April, 1962
+17 April, 1962
 
 Subject: LIMING/4 Report on Visit to LIMING Offices.
 

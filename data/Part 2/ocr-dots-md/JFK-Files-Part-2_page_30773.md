@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30773.png
-
-Convert to MarkdownMr. Patrick Carpentier
+Mr. Patrick Carpentier
 
 March 8, 1978
 Page 6

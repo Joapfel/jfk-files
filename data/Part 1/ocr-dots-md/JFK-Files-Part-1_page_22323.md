@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22323.png
-
-Convert to Markdownmet with LEVINA a number of times, but she never reported anything interesting and was never used directly in operations involving the Americans. She was fired from the Embassy at the end of 1960 or early 1951.
+met with LEVINA a number of times, but she never reported anything interesting and was never used directly in operations involving the Americans. She was fired from the Embassy at the end of 1960 or early 1951.
 
 (vi) Johan PREISFREUND
 

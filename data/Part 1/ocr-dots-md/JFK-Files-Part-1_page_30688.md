@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30688.png
-
-Convert to MarkdownSection C cont., Newton S. Miller
+Section C cont., Newton S. Miller
 
 coordinating agency operations with the overall policy objectives of the Embassy, the rating officer believes that Mr. Miller must be given the benefit of the doubt on this point.
 

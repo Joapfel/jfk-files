@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16976.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 entering through the back door of the apartment. Upon entering the apartment, Groth spotted a woman with a shotgun. The woman fired the shotgun and the police returned the fire. Sergeant Groth stated the firing of the shotgun created enough light in the darkness to illuminate a man standing behind the door, also armed with a shotgun. One of the officers exchanged shots with this man. The individual was hit and was later identified as that of Mark Clark. Groth stated at this point he called for the Panthers to surrender and heard a man's voice reply, "Shoot it out". The statement was made from someplace in the apartment. Shooting again resumed and one of the officers, John Ciszewski, shouted that he had been shot. (Officer Ciszewski received minor wounds, was treated at the hospital, and released.) Later, Sergeant Groth heard a man shout "Shoot it out with the pigs". Shortly thereafter, the gunfire ceased and those arrested as set forth above surrendered to the police.
 

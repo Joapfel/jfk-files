@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1308.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Cuban agent as early as July 1963 (which would have been when he was screening names for the AMTRUNK Operation), one from LITAMIL-9, and the other from Fernando REY reported by VASLOUCH-1. As mentioned above, these charges could well be true; yet RABEL could have fulfilled his duties for CASTRO superficially, for his own purposes, and not necessarily have compromised his work with the Agency until he was captured. The difficulties he had in exfiltrating his wife could have been, partially, punishment by CASTRO for not fulfilling his duties as an agent; otherwise, had his work in the U.S. been valuable, CASTRO could have facilitated the exfiltration of RABEL's wife so that RABEL could continue his work as an agent undisturbed.
 

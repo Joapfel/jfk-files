@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3679.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td colspan="3">CABLE SECRETARIO DE SECCION</td></tr><tr><th colspan="2">PERSON/UNIT NOTIFIED</th><th>SECRET (When Needed)</th></tr></thead><tbody><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td><td>SLOTTED REPRODUCTION OF THIS COPY PROHIBITED ☐</td></tr><tr><td>BY: ____________ AT: ____________<br>DENIED BY: ____________ PER: Lef.</td><td></td><td>☑ YES ☐ NO<br>CLASSIFY TO CC FILE NO. _________________<br>SHORT TO CC FILE NO. _________________<br>☐ FILE AND ☐ RETURN TO _________________ BRANCH</td></tr><tr><td>ACTION UNIT __WHD8<br>ACTION NO. 717</td><td>FILE. VR. 56150</td><td></td></tr></tbody></table>
 

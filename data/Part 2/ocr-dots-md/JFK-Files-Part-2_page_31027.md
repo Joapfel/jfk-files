@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31027.png
-
-Convert to MarkdownSECRET
+SECRET
 
 p.6 George Kرات
 

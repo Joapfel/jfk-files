@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15304.png
-
-Convert to Markdown9. After having been thrown out from the Lycée Hoche, David was sent to a communique school in Viroflex, some three kilometers away from their home. He was given money for the street car, however, he did not take the car; he used the money to buy what he needed for his silly things and acts.
+9. After having been thrown out from the Lycée Hoche, David was sent to a communique school in Viroflex, some three kilometers away from their home. He was given money for the street car, however, he did not take the car; he used the money to buy what he needed for his silly things and acts.
 
 10. At the end of the term David was taken back to the Lycée: his mother, probably, had asked for this, and had given some maney, - one can do everything with money. He remained in this school until they moved back to Paris, to Vanves.
 

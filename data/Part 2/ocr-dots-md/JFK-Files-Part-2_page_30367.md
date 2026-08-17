@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30367.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Nosenko. Sir, I do not remember dates, but --
 Mr. Fithian. It was between February and April?

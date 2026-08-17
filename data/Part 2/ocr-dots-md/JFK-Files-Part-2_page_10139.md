@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10139.png
-
-Convert to MarkdownSD 66-1714
+SD 66-1714
 
 CONFIDENTIAL
 

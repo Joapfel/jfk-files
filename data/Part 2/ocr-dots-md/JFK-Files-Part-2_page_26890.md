@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26890.png
-
-Convert to MarkdownSECRE
+SECRE
 
 part of that Special Group. He called the meetings, he presided,
 he did a number of things.

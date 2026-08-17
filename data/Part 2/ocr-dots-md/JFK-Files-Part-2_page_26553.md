@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26553.png
-
-Convert to Markdown7. UAR-Yemen-Egypt
+7. UAR-Yemen-Egypt
 
 a. The Saudis told our embassy in Jidda yesterday that a Saudi village near the Yemeni border was attacked Thursday by Egyptian aircraft.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9042.png
-
-Convert to MarkdownTowards the end of the article it reports that
+Towards the end of the article it reports that
 MC KEVITT had received an official denial from "a Washington source"
 that any of the official agencies which have been named in
 connection with the RIHA case actually had any knowledge of

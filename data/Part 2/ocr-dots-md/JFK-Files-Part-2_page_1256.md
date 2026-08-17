@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1256.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CENTRAL INTELLIGENCE AGENCY
 WASHINGTON 28. D. C.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23227.png
-
-Convert to MarkdownJournalistic Background - AGV
+Journalistic Background - AGV
 
 14 April 1957.
 

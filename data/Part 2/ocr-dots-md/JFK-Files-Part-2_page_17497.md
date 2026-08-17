@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17497.png
-
-Convert to Markdown# DAVID HILLIARD
+# DAVID HILLIARD
 
 Source stated that Hilliard, Garry and Rush all appeared on the Marty Faye television show, Channel 26, WCIY, Chicago, on December 20, 1969, at 10:00 PM, wherein Hilliard talked about the BPP ten-point program and police harassment of the BPP. Garry indicated that he was responsible for bringing approximately $150,000 to his law firm before he began representing the BPP members and now brings in about $30,000. He also indicated that the police were harassing the Panthers as is evident by all the arrests throughout the nation.
 

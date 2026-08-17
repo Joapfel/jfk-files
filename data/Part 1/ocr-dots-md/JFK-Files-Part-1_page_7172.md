@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7172.png
-
-Convert to MarkdownCARTED
+CARTED
 
 668-
 

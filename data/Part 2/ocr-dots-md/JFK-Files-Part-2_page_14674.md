@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14674.png
-
-Convert to MarkdownMemorandum to Mr. Gale
+Memorandum to Mr. Gale
 
 Re: Harold Frank Reis
 

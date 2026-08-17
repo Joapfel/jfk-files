@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18605.png
-
-Convert to MarkdownMemorandum for Messrs. Tolson, Belmont,
+Memorandum for Messrs. Tolson, Belmont,
 DeLoach, and Sullivan
 
 August 24, 1965

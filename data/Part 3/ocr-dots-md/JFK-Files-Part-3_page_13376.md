@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13376.png
-
-Convert to MarkdownSTURGIS: Yes, sir.
+STURGIS: Yes, sir.
 
 OLSEN: Have you tried to be completely candid with us about the whole subject matter that we have covered with you in this interview?
 

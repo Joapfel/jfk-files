@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35073.png
-
-Convert to Markdown# GASTOS RELATIVOS AL CHEQUE No. 419
+# GASTOS RELATIVOS AL CHEQUE No. 419
 FGR $ 6,937.52 - "Paula and Sosa"
 
 ## PARTIDA No. 5

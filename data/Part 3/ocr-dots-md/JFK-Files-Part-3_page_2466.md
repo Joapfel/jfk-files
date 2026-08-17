@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2466.png
-
-Convert to MarkdownFile - Serial Charge Out
+File - Serial Charge Out
 FD-5 (Rev. 1: 60)
 
 File ____________ 66-2091 Date ____________

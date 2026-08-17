@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6929.png
-
-Convert to Markdowng) Letter, dated 16 May 1958, from Oscar Lewis, at the University of Illinois, concerning some translations HALFTHAN was doing for LANS. Lewis says that he has overdramm his research account and asks HALFTHAN to take this into account when computing his bill for the translations. LANS also says that he is hoping to be able to visit Mexico the first two weeks in June.
+g) Letter, dated 16 May 1958, from Oscar Lewis, at the University of Illinois, concerning some translations HALFTHAN was doing for LANS. Lewis says that he has overdramm his research account and asks HALFTHAN to take this into account when computing his bill for the translations. LANS also says that he is hoping to be able to visit Mexico the first two weeks in June.
 
 3. This correspondence was obtained from a usually reliable and highly sensitive source and should not be disseminated further.
 

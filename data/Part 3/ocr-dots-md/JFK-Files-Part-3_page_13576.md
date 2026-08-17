@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13576.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 there have been occasions when a Secretary or a comptroller would come to me and say we think we have got a problem here that you should know about. I cannot think of fraud problems, but undesirable practices problems, for example, yes.
 

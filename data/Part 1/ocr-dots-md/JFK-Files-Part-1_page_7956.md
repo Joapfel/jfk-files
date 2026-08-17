@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7956.png
-
-Convert to MarkdownSECRET
+SECRET
 NO FOREIGN PRESS
 
 30 NOV 1964

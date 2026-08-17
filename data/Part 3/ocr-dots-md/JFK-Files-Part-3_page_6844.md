@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6844.png
-
-Convert to Markdown7. All materials reflecting proposals, recommendations or decisions to include Martin Luther King on the Security, Reserve, Rabble-Rouser, and/or Agitator Index or list, and/or his designation as a Key Activist, Key Black Extremists, Top Functionary and/cr Key Figure.
+7. All materials reflecting proposals, recommendations or decisions to include Martin Luther King on the Security, Reserve, Rabble-Rouser, and/or Agitator Index or list, and/or his designation as a Key Activist, Key Black Extremists, Top Functionary and/cr Key Figure.
 
 8. All materials from August 28, 1963 to December 31, 1964 which pertain to the distribution by the United States Information Agency of a film of the march on Washington, including such materials as concern or reflect contacts or correspondence between the FBI and the USIA or between the FBI and the White House concerning such film.
 

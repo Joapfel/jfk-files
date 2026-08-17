@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19100.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. CADI was largely successful in realising its demands, for the Statute of Immigrants which was passed by the Consultative Assembly (the Statute was composed of the ordonnance of 26 March 1948, the ordonnance of 2 November 1949, the ordonnance of 19 October 1948, the ordonnance of 25 October 1948, and the decree of 25 December 1948) gave to immigrants an equality of rights approximate so those enjoyed by a French citizen. The most active supporter of the CADI measures in the Consultative Assembly in 1948 was Madeleine BRACHA, prominent Communist and one of the leaders of the French National. The Communist Party and the CPT also heavily backed these measures.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23896.png
-
-Convert to Markdownobviously the money
+obviously the money
 Sinet had
 
 So he went to Paris and then he came to Switzerland and/then he started to set up -- he had some money, obviously in France . . . and then he started transferring his funds from Algiers-from Lausanne - transferred it on his person, on my person - no he never carried any money, but I carried some, and Kessel did too. Kessel claimed that he was actually stopped and searched and that he had this money in 500 franc bills in his hip pocket and they never looked in there. Any way, he did get the money in from Fracne. And he began publication of Revolution as a monthly in September of 1963.

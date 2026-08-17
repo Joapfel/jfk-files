@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27432.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="7">EXPERIENCE. (Start with your present position and work back.)</th></tr></thead><tbody><tr><td>① Date of employment (month, year)<br/>From 21 May 1923</td><td>To present time</td><td>Salary or earnings<br/>Starting $ 71 per week<br/>Final $ 75 per week</td><td>Name and address of employer (firm, organization, etc.)<br/>Department of State, Justice Department</td><td>Place of employment<br/>City Washington, D.C.<br/>State &amp; zip Code U.S.</td><td>Kind of business or organization<br/>(manufacturing, accounting, insurance, etc.)<br/>U.S. Government</td><td>Name and title of immediate supervisor<br/>Steven S. Kassell</td></tr><tr><td colspan="7">Reason for leaving: To get a better job in the government of the United States.</td></tr><tr><td colspan="7">Description of work performed: Responsible for all activities related to the administration of the U.S. Government, including the operation of the Justice Department's offices and the general administration of State, Justice, and Governmental Affairs.</td></tr></tbody></table>
 

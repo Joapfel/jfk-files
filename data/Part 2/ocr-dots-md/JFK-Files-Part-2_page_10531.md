@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10531.png
-
-Convert to Markdownd. Coverage of Latin American exile groups in the United States would be the responsibility of the FBI since CIA had ceased the extensive coverage formerly targeted against these groups since it was now considered an internal security function.
+d. Coverage of Latin American exile groups in the United States would be the responsibility of the FBI since CIA had ceased the extensive coverage formerly targeted against these groups since it was now considered an internal security function.
 
 5. On 27 April 1972 a meeting was held at a buffer office of Station WJ/Miami with the USSS Chief of Communications, Station personnel and a Headquarters representative. It was agreed that name traces would be handled by Miami security field office courier from the USSS to buffer office until the USSS established communications links from their command post in convention center, at which time trace requests would be sent from the command post to USSS headquarters and relayed to CIA Headquarters. Cuban name traces are relayed to Station WJ/Miami by the Signal Center and non-Cuban traces are conducted by KH/COG. Replies to USSS requests on non-Cubans are coordinated with CI/SG.
 

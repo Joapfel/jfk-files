@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30179.png
-
-Convert to Markdown14-0000
+14-0000
 
 BSJ: 14 SEPT 70
 

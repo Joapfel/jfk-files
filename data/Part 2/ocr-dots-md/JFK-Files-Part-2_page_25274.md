@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25274.png
-
-Convert to Markdown# American Wali a Hari Who Duped Castro
+# American Wali a Hari Who Duped Castro
 
 (Continued from page 2)
 

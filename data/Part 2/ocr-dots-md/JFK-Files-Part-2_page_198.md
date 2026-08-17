@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_198.png
-
-Convert to Markdowne. LICOCKY-2 continued to report travel of Communists or leftists from Central America to Eastern Europe. During this period he reported on eight such travelers.
+e. LICOCKY-2 continued to report travel of Communists or leftists from Central America to Eastern Europe. During this period he reported on eight such travelers.
 
 ## 2. Operations
 

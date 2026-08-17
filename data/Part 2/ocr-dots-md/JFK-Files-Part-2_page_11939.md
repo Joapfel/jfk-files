@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11939.png
-
-Convert to Markdownb. Pamphlets, brochures, etc., prepared by private company for distribu-
+b. Pamphlets, brochures, etc., prepared by private company for distribu-
 tion or sale to public. (This does not include highly technical
 pamphlets, even if unclassified, which are prepared for limited use
 and not intended for release to public.)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24401.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 syndicate contacts to assassinate Castro. The earliest evidence of the operation is a conversation between Deputy Director of Plans (DDP) Richard Bissell and Colonel Sheffield Edwards, Chief of the Office of Security. Edwards recalled that Bissell asked him to locate someone who could assassinate Castro (Edwards, pp. 2-3). Bissell confirmed that he requested Edwards to find someone to assassinate Castro, and believed that Edwards raised the idea of contacting members of a gambling syndicate operating in Cuba* (Bissell, 6/9, pp. 71-73). Edwards assigned the mission to James P. O'Connell, Chief of the Operational Support Division of the CIA's Office of Security, explaining that he and Bissell were looking for someone to "eliminate" or "assassinate" Castro (O'Connell, pp. 6-8, 95-96).
 

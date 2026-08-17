@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26179.png
-
-Convert to Markdownthe government and subjects beyond anything
+the government and subjects beyond anything
 like land reform. And I suspect that
 
 Ladejinsky had started getting very political

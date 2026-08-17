@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1610.png
-
-Convert to Markdown14-00000
+14-00000
 
 7 March 1966 (Roberts) received letter from Itkin but his secretary advised that (Roberts) was on vacation in Austria. Itkin contacted (Roberts) in (Austria) and set up meeting in (Geneva, Switzerland.)
 

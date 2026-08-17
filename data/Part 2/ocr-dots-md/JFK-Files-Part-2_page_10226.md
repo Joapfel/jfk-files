@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10226.png
-
-Convert to Markdownprotect foreign visitors. Recently, John Harn was detailed to the Secretary of the Treasury along with four other Agency employees. We have even, in rare instances, detailed our people to Congressional Staffs for short periods of time.
+protect foreign visitors. Recently, John Harn was detailed to the Secretary of the Treasury along with four other Agency employees. We have even, in rare instances, detailed our people to Congressional Staffs for short periods of time.
 
 ### 3. Details to the White House and Government Agencies - Discussion:
 

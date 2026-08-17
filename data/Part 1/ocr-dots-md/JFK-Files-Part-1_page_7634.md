@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7634.png
-
-Convert to MarkdownFrances L. PATUEL
+Frances L. PATUEL
 
 4 Dec. 1922, Madrid, Spain
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18176.png
-
-Convert to MarkdownAirtel
+Airtel
 
 To: SAC, New York (105-14691)
 

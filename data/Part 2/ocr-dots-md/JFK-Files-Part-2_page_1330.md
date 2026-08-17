@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1330.png
-
-Convert to Markdown23 February 1971
+23 February 1971
 
 MEMORANDUM FOR: Secretary, CSCS Board
 SUBJECT: Recommendation for Promotion - Robert P. Wheeler

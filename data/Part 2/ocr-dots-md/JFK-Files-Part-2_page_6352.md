@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6352.png
-
-Convert to Markdown. MAR 01 '95 12:51PM
+. MAR 01 '95 12:51PM
 
 P.2
 

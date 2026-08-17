@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11866.png
-
-Convert to Markdown# "SECRET - NO FOREIGN DISSEMINATION"
+# "SECRET - NO FOREIGN DISSEMINATION"
 
 6. Development of personnel of foreign diplomatic establishment or international organization
 

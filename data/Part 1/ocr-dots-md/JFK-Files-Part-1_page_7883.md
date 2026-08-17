@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7883.png
-
-Convert to MarkdownVisa Mexicana Expedida en: Aerolinea
+Visa Mexicana Expedida en: Aerolinea
 
 Salida
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8517.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>WARNING NOTICE</td>
    </tr>

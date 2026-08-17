@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10949.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM OF CRRIL COMMITMENTS
 

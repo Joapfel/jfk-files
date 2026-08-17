@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11149.png
-
-Convert to Markdown36
+36
 
 ... de la 29 de octubre. -- 11.4.- Alberú con MP --
 - en el undecimo. Le di la hora a D. Meléndez, -

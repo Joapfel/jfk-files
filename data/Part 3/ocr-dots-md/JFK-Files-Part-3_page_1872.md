@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1872.png
-
-Convert to Markdown1 - Mr. Monahan
+1 - Mr. Monahan
 
 1 - Mr. Peelman
 

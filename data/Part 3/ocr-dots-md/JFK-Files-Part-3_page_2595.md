@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2595.png
-
-Convert to Markdownd. list of "action groups";
+d. list of "action groups";
 
 e. "security" index;
 

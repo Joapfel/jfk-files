@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3394.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 46. The following Oral History Interview filed in the
 Dwight D. Eisenhower Library:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7586.png
-
-Convert to Markdownthe CAPITALIZO in question. (See 50-6-55/3, CR of 13 Sept. 1980.)
+the CAPITALIZO in question. (See 50-6-55/3, CR of 13 Sept. 1980.)
 
 71. LOGINOV. When Subject was leaving the Embassy on 15 June (about 1835), he met LOGINOV in front of the Reception Room. They talked, chiefly about sports, for about 15 minutes. LOGINOV said skiing and speed skating were two of his favorite sports, and that his greatest sporting interest in Mexico was playing tennis. Subject said that LOGINOV seemed to be an avid sportsman. LOGINOV said that he was going to Moscow on vacation toward the end of July. No reference was made to Subject teaching LOGINOV's son English when the LOGINOVS return from vacation, but Subject assumes this is still LOGINOV's wish.
 

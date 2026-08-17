@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12115.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PREPARED BY: Rita N. TOLJANIC
 DATE: 3 October 1967

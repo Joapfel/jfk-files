@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_613.png
-
-Convert to MarkdownSECRET
+SECRET
 
 20 APR 67 N. 49085
 

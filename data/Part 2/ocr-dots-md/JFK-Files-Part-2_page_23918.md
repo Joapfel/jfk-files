@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23918.png
-
-Convert to MarkdownZR/RIFLE. Harvey testified that QJ/WIN's function after the advent of Project ZR/RIFLE in 1961 was restricted to the "spotting" of potential assets for "multi-purpose" covert use.
+ZR/RIFLE. Harvey testified that QJ/WIN's function after the advent of Project ZR/RIFLE in 1961 was restricted to the "spotting" of potential assets for "multi-purpose" covert use.
 
 However, in the Fall of 1960--before Harvey was assigned to create Project ZR/RIFLE by Richard Bissell--agent QJ/WIN had been dispatched to the Congo by Arnold Silver, his supervising CIA case officer in Europe. William Harvey, as the Chief of the CIA Foreign Intelligence staff on which Silver worked, had ordered QJ/WIN's mission to the Congo (CIA Dispatch AUDW-147, 11/2/60) and arranged the financial accounting for the mission afterward (Memorandum to Finance Division from William K. Harvey, 1/11/61). [QJ/WIN's activities in the Congo are treated in detail in the discussion of the Lumumba case; see Section ___, supra.]
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30961.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>0: Renahan/Tsikerdanes</td>
     <td>MESSAGE BOX</td>

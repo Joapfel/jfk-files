@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30682.png
-
-Convert to MarkdownSECRET
+SECRET
 
 left the Soviet Union, was the responsibility of the State Department, the Immigration and Naturalization service, and the FBI.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12193.png
-
-Convert to MarkdownUse Cubans to Kill Allende Kin
+Use Cubans to Kill Allende Kin
 
 When Otero started to testify about his activities in Chile, government prosecutors objected that the information was immaterial to the bombing charges.
 

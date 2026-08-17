@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16557.png
-
-Convert to Markdown# Education
+# Education
 
 Completed John Marshall
 High School, Chicago,

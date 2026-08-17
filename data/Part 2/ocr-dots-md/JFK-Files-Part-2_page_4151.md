@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4151.png
-
-Convert to Markdown<table><tr><td>TOP SECRET</td></tr></table>
+<table><tr><td>TOP SECRET</td></tr></table>
 
 TEND CONTRIBUTE TO THAT BASIC OBJECTIVE.
 

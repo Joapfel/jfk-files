@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29003.png
-
-Convert to Markdown**PART II Sales or Exchanges of Property Used in Trade or Business and/or Involuntary Conversions**
+**PART II Sales or Exchanges of Property Used in Trade or Business and/or Involuntary Conversions**
 (Section 18181-82) see Instruction E
 
 ### Section A - INVOLUNTARY CONVERSIONS DUE TO CASUALTY AND THEFT

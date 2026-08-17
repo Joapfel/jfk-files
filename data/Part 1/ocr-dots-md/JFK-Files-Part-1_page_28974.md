@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28974.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">RATED OFFICER'S NAME AND SERVICE NUMBER<br/>CONEIN, Lucien F., O.I. 42769</td>
    </tr>

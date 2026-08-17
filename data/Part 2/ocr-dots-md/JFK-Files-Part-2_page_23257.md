@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23257.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 intelligence by whatever means, yes, absolutely.
 

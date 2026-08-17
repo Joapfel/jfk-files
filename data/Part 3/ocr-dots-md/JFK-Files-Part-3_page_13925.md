@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13925.png
-
-Convert to MarkdownMr. Clifford invited the DCI to take up any other matters he wished to cover. Mr. McCone said there were a few that time didn't permit him to cover, but he would furnish the Board memoranda on "Deep Cover" and "Soviet Trawlers".
+Mr. Clifford invited the DCI to take up any other matters he wished to cover. Mr. McCone said there were a few that time didn't permit him to cover, but he would furnish the Board memoranda on "Deep Cover" and "Soviet Trawlers".
 
 As to scheduled CORONA launchings care should be taken as to their frequency having in mind that CORONA shots cost $9 million each and GAMBIT $12 million.
 

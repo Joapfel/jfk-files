@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22886.png
-
-Convert to Markdown101
+101
 
 4 Mr. Bundy. Well, if you had asked me that question a year ago, Senator, I would have said in my experience with him he was not such an officer, but I have no way of dealing with the kind of thing you have just described.
 

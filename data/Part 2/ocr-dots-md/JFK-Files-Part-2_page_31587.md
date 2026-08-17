@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31587.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 Sergeant DAHL further explained that at approximately 2:00 PM, February 7, 1966, 12 demonstrators began a sit-in protest in the hall outside U.S. Congressman CONELAN's office. At 5:00 PM, which was the office closing hour, the 3 above-mentioned individuals were told to leave. At 7:00 PM, they were again told to leave the building, which they refused to do. They remarked they would not leave until they had a personal confrontation with U.S. Congressman CONELAN. As previously mentioned, they were arrested by Miss KENKE at approximately 7:45 PM.

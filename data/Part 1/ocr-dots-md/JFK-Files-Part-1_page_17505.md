@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17505.png
-
-Convert to Markdown-4-
+-4-
 
 HMM-6344, 1 May 1962 (Activities of Spanish Republicans in Exile)
 

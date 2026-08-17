@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17230.png
-
-Convert to MarkdownHAROLD KEITH BELL
+HAROLD KEITH BELL
 
 APPENDIX
 

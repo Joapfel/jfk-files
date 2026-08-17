@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6518.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 9 April 1976
 

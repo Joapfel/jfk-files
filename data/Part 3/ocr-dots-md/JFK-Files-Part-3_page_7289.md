@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7289.png
-
-Convert to MarkdownMemorandum for Mr. Wannall
+Memorandum for Mr. Wannall
 
 RE: UNITED STATES INTELLIGENCE BOARD (USIB) MEETING OF 1/24/75
 

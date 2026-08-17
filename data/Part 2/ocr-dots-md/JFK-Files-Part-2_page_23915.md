@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23915.png
-
-Convert to Markdownattempts (see detailed treatment at Section (b), supra). There
+attempts (see detailed treatment at Section (b), supra). There
 is no testimony to the contrary. The account of this conversa-
 tion raises a question as to whether Bissell acted properly in
 withholding from Bundy the fact that assassination efforts

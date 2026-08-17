@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28658.png
-
-Convert to MarkdownN
+N
 J
 I
 F

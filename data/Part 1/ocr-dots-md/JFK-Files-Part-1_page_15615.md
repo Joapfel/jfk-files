@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15615.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE : 165</td><td></td><td>RECEIVED</td></tr><tr><td>22 DEC 60</td><td></td><td></td></tr><tr><td>TO : DIRECTOR</td><td></td><td>3-4 Nov</td></tr><tr><td>FROM : LEOPOLDVILLE</td><td></td><td>DEC 22 - 338 C</td></tr><tr><td>ACTION : C/AF 3</td><td></td><td>PRIORITY</td></tr><tr><td>INFO : COP, C/PG, C/C1, C/F1-2, S/C 2</td><td>DEC 22</td><td>IN 2096</td></tr></table>
 

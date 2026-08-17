@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26471.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. Reports of trainees indicate that weapons training is confined to weapons they will be able to obtain, maintain, and replenish in their own countries. We have reliable and corroborative reports that trainees and sponsoring leaders alike have been told Cuba does not intend to supply appreciable quantities of weapons because a guerrilla must be self-sustaining. It should be noted that while Cuba does supply some funds, guerrilla handbooks also suggest that bank robberies make guerrillas self-sufficient in this respect. Leftist militants have in fact resorted to robberies in Peru, Venezuela, and Argentina
 

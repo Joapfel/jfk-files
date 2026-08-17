@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10926.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td>MARVED FOR RELEASE</td></tr><tr><td></td><td>NO MOVES REQUIRED</td></tr><tr><td></td><td>ONLY QUALIFIED SEAN<br>CARRY PROCESSING</td></tr><tr><td>SECRET</td><td>MARCROFILED</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td>MARVED FOR RELEASE</td></tr><tr><td></td><td>NO MOVES REQUIRED</td></tr><tr><td></td><td>ONLY QUALIFIED SEAN<br>CARRY PROCESSING</td></tr><tr><td>SECRET</td><td>MARCROFILED</td></tr></tbody></table>
 
 <table><tr><td colspan="2">DISPATCH</td><td>CLASSIFICATION</td><td>PROCESSING ACTION</td></tr><tr><td>To: Chief of Station, Mexico City</td><td colspan="3"></td></tr><tr><td>Info: Chief, WH Division</td><td colspan="3"></td></tr><tr><td>SUBJECT: PERUMEN/OA for LITAMIL-9</td><td colspan="3"></td></tr></table>
 

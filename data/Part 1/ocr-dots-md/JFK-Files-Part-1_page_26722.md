@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26722.png
-
-Convert to Markdown14-00000
+14-00000
 
 Acct 72-MICD-24
 

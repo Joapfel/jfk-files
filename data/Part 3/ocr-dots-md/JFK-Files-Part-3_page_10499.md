@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10499.png
-
-Convert to Markdown<table><tr><td>U.S. DEPARTMENT OF LABOR</td></tr><tr><td>LIFE INSURANCE INSURANCE CORPORATION</td></tr></table>
+<table><tr><td>U.S. DEPARTMENT OF LABOR</td></tr><tr><td>LIFE INSURANCE INSURANCE CORPORATION</td></tr></table>
 
 RECEIVED TELEPHONE
 

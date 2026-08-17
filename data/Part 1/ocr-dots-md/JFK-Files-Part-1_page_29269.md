@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29269.png
-
-Convert to MarkdownAttachments:
+Attachments:
 
 Tab A - Mr. Lynch's request and 3 endorsements
 

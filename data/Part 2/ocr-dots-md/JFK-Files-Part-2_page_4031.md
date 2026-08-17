@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4031.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 Subject claimed he had the names of all Americans involved in activities against the United States in a safe deposit box, the key to which he gave to a close friend in the event of his death.
 

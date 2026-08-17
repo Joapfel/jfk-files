@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24862.png
-
-Convert to Markdown(Draft--9/8/75)
+(Draft--9/8/75)
 
 A. Summary
 

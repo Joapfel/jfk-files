@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19276.png
-
-Convert to Markdown7 NOV 1977
+7 NOV 1977
 
 MEMORANDUM FOR: Chief, Domestic Collection Division
 VIA : Deputy Director for Operations

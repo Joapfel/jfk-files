@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2398.png
-
-Convert to MarkdownSEC. 4. MOTHER (Give the salary of step-mother on a separate sheet)
+SEC. 4. MOTHER (Give the salary of step-mother on a separate sheet)
 
 **FULL NAME**
 Bessie Birch Matthews

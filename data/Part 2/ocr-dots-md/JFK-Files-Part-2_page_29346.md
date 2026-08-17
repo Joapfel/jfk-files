@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29346.png
-
-Convert to MarkdownKENNEDY
+KENNEDY
 
 SELECT COMMITTEE ON ASSASSINATIONS
 

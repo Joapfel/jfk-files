@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34319.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th></tr></thead><tbody><tr><td>TO</td><td>Chief, WH</td></tr><tr><td>INFO.</td><td></td></tr><tr><td>FROM</td><td>Chief of Station, JMWAVE</td></tr><tr><td>SUBJECT</td><td>MHVIPER/Exploitation Cuban Trade Practices</td></tr><tr><td>ACTION REQUIRED</td><td>For use as Headquarters determines</td></tr><tr><td>REFERENCES:</td><td>A. WAVE-5942.<br>B. DIR-45158</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th></tr></thead><tbody><tr><td>TO</td><td>Chief, WH</td></tr><tr><td>INFO.</td><td></td></tr><tr><td>FROM</td><td>Chief of Station, JMWAVE</td></tr><tr><td>SUBJECT</td><td>MHVIPER/Exploitation Cuban Trade Practices</td></tr><tr><td>ACTION REQUIRED</td><td>For use as Headquarters determines</td></tr><tr><td>REFERENCES:</td><td>A. WAVE-5942.<br>B. DIR-45158</td></tr></tbody></table>
 
 1. We forward by separate cover the article described in the references. It is the first item in the AMSCROLL economic report which can and should be attributed to AMSCROLL research. It may be of interest to record that the first paragraph of this item was developed from 0/27839-65 of 17 September as authorized by reference B. The second paragraph was developed from a lead obtained from 0/27812-65 of 22 September which sent us to two publications by Merrill Lynch, Pierce, Fenner and Smith. The last sentence of paragraph 3 was developed from information in the Wall Street Journal of 22 and 28 September.
 

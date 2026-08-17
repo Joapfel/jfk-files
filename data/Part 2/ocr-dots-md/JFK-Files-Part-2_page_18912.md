@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18912.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Jaffe told Bruk he could not believe Vinogradov could possibly say anything like that. According to Jaffe, Bruk, who claims he is Jewish, is "always trying to convince American Jews there is no anti-Semitism in Russia." During the party, Bruk gave a long-winded speech and later Jaffe "sounded off" in a speech "and implied that he (Bruk) was the Soviet Union's House Jew." Jaffe indicated this incensed Bruk.
 

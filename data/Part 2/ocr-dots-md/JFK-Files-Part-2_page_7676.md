@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7676.png
-
-Convert to MarkdownSpeaker and President pro tempore, in other words, the line of succession under the Constitution but not below that.
+Speaker and President pro tempore, in other words, the line of succession under the Constitution but not below that.
 
 (Discussion off the record.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2928.png
-
-Convert to Markdown2515
+2515
 
 or a viable intent.
 

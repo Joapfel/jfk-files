@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4089.png
-
-Convert to MarkdownLA 65-7445
+LA 65-7445
 
 JOHN NOBURO MIYAKI (JACK MIYAKI) stated on March 23, 1964, to SA HOOSE that he and his wife, CAROLINE MIYAKI, reside at 645 North Westmoreland Avenue, Los Angeles, California. MIYAKI did not recognize name or photograph of RICHARD NAGELL. When further descriptive data was furnished MIYAKI, he recalled he had met NAGELL on one occasion about a year ago at The Happy Rabbit, a beer joint at 2709 West Sixth Street, Los Angeles
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16228.png
-
-Convert to MarkdownOn July 8, 1969, advised that SATCHEL was attempting to formulate a medical program to handle the following three categories:
+On July 8, 1969, advised that SATCHEL was attempting to formulate a medical program to handle the following three categories:
 
 1) First aid classes.
 

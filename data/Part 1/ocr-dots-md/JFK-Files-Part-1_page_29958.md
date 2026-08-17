@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29958.png
-
-Convert to Markdown13 April 1959
+13 April 1959
 
 It is noted that detailed comments concerning competence, performance and potential were transmitted to Headquarters in his last Fitness Report by dispatch Rmss-1003 dated 28 September 1958 recommending promotion from grade GS-15 to grades GS-16, which recommended promotion has since been approved and made effective.
 

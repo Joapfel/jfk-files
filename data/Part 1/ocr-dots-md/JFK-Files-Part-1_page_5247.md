@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5247.png
-
-Convert to MarkdownOf course in the political, military and intellectual domain we have had real stars. However, our economic and social history is rather poor on a certain point of view. This means that very few are those who, in spite of numerous obstacles, have succeeded by notably increasing the national economy and improving the living condition of our people. Our understanding of the "Benevolent State" requires that this objective be its main job.
+Of course in the political, military and intellectual domain we have had real stars. However, our economic and social history is rather poor on a certain point of view. This means that very few are those who, in spite of numerous obstacles, have succeeded by notably increasing the national economy and improving the living condition of our people. Our understanding of the "Benevolent State" requires that this objective be its main job.
 
 There have been numerous attempts, indeed. Comes to our memory Pantaleón Quilbaud, the tobacco king during the time of our youth, but at last! just fugitive attempts! If this is the case and of us really love this country we wish to be fully ours, our duty is to tie up the old man binding us, and meaning hatred, meanness, above all, envy. Then we will limit the consumption of our valuable men.
 

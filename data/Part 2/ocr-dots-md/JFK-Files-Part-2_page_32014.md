@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32014.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>German American Republican League.</td>

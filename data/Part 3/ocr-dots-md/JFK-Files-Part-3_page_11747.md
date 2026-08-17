@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11747.png
-
-Convert to Markdownman from within that Section should be made available to implement
+man from within that Section should be made available to implement
 this program.
 
 If the Inspector feels two men should be made immediately

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24544.png
-
-Convert to MarkdownRobert Kennedy often talked directly with Helms and other CIA officials working on the Mongoose program, outside of the Special Group Augmented channels. (Helms, 7/17, p.13; 7/18, pp.60-61). As Helms stated:
+Robert Kennedy often talked directly with Helms and other CIA officials working on the Mongoose program, outside of the Special Group Augmented channels. (Helms, 7/17, p.13; 7/18, pp.60-61). As Helms stated:
 
 "I can say absolutely fairly we are constantly in touch with each other in these matters. The Attorney General was on the phone to me, he was on the phone to Mr. Harvey, to Mr. Fitzgerald, his successor. He was on the phone even to people on Harvey's staff, as I recall it." (Helms, 7/17, p.13).
 

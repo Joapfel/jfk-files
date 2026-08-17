@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32252.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Draft Jan 23 1963
 

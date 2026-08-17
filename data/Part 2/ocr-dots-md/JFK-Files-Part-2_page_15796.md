@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15796.png
-
-Convert to MarkdownAnother suspect in the shooting, LANCE S. BELL, Negro male, age 20, of 5809 South Indiana, Chicago, was shot and captured in the alley behind the shooting incident. BELL was wounded in the leg and right arm and has been charged with murder. He is currently incarcerated at the Bridewell Hospital, Chicago.
+Another suspect in the shooting, LANCE S. BELL, Negro male, age 20, of 5809 South Indiana, Chicago, was shot and captured in the alley behind the shooting incident. BELL was wounded in the leg and right arm and has been charged with murder. He is currently incarcerated at the Bridewell Hospital, Chicago.
 
 The police report on the incident reflects that the incident was apparently the result of a previous personal altercation between BELL and one JAMES CALDWELL, male Negro, 5804 South Calumet, who is a guard at the Cook County Jail, Chicago.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3240.png
-
-Convert to MarkdownIn weighing this option, the Committee should consider
+In weighing this option, the Committee should consider
 the following issues:
 
 1. Whether it is possible to reveal the essence of some programs and policies and the details of some inves-tigations without jeopardizing the effectiveness of legitimate programs.

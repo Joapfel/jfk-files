@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17371.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>ORIG</td>
         <td>J. R. Reeves:j.</td>

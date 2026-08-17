@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3293.png
-
-Convert to Markdown14-00000
+14-00000
 
 AB-2753, Case No. 23, 23 Feb 65 (cont.)
 

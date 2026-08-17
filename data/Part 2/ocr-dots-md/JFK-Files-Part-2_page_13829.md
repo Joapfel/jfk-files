@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13829.png
-
-Convert to Markdown1 - Mr. Adams
+1 - Mr. Adams
 1 - Mr. Wannall
 1 - Mr. Cregar
 1 - Mr. Mintz

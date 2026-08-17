@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23902.png
-
-Convert to Markdown14-00000
+14-00000
 
 That's why I'd like to know, I don't know what—really, if not really,
 possibility — although it's a very slim one— just over across the street

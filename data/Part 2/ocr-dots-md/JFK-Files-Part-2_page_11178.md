@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11178.png
-
-Convert to Markdown(b) Data appear on separate attached card
+(b) Data appear on separate attached card
 
 I. Following data must be placed on a separate card to be attached to reverse side of the security index card being filed in the geographical, special, or unavailable sections. Data will not be attached to the Security Index card filed in the alphabetical section. These cards contain printed captions to assist in recording the descriptive information. Captions are not all-inclusive and should be augmented by other data required.
 

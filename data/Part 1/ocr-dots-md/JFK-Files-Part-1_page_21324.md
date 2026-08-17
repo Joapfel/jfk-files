@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21324.png
-
-Convert to MarkdownS/1612
+S/1612
 
 The people are very united and there are not the old differences between the parties of the Frente Popular. The policy of National Union is unknown, he has heard no one speak of it.
 

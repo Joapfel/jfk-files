@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11389.png
-
-Convert to MarkdownREPRODUCTION BY OTHER MEDIA IS ILLEGAL. REPRODUCTION OF THIS COPY IS ILLEGAL.
+REPRODUCTION BY OTHER MEDIA IS ILLEGAL. REPRODUCTION OF THIS COPY IS ILLEGAL.
 
 <table><tr><td>TO:</td><td>: DIRECTOR</td></tr><tr><td>FROM:</td><td>: MEXICO CITY</td></tr><tr><td>ACTION:</td><td>: TOW TO</td></tr><tr><td>INFO :</td><td>: CUP, CI/GPS, CI/IC 2, CI/CA, WH 7, S/C 2</td></tr></table>
 

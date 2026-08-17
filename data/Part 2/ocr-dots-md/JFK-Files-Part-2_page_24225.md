@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24225.png
-
-Convert to Markdowntrations. A security probe is a testing of the current effec-
+trations. A security probe is a testing of the current effec-
 tiveness of all or part of a security system within an Agency
 or Agency contractor's installation. A security penetration is
 an internal covert investigation and search targeted at possi-

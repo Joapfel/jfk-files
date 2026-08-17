@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11696.png
-
-Convert to Markdownh. If an item to be submitted appears on more than one page of the news- paper, the words "Continued on page...," the subheadline on the con- tinued page, and the words "Continued from page...:" should not be mounted.
+h. If an item to be submitted appears on more than one page of the news- paper, the words "Continued on page...," the subheadline on the con- tinued page, and the words "Continued from page...:" should not be mounted.
 
 i. Mounted clippings should read from top to bottom, column by column, from left to right.
 

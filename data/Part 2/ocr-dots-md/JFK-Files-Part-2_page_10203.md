@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10203.png
-
-Convert to Markdown- OPTIONAL FORM NO. 10
+- OPTIONAL FORM NO. 10
 MAY 1962 EDITION
 OSA GEN. REG. NO. 27
 

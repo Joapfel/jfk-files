@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_29913.png
-
 chief investigator for the California Department of Motor Vehicles, later indicted for bribery, grand theft, extortion, and assorted other crimes; and Fred Black, Jr. Levinson also joined with Baker and Black in a stock deal which involved the Farmers and Merchants State Bank in Tulsa, Oklahoma. |
 | | In May 1967, a U. S. Grand Jury in Las Vegas returned an indictment of income tax evasion against Levinson; Edward Torres, former vice president of the Fremont Hotel; and Paul Weyerman and Cornelius Hurlay, former stockholders and employees of the Fremont Hotel. |
 | | In March 1968, Levinson pled nolo contendere to the "skimming" charges, admitting that he had "willfully aided and assisted in the preparation of false corporate tax returns for the fiscal year ending in 1963", and was fined $5,000. |

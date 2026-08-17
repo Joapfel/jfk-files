@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30957.png
-
-Convert to MarkdownI. 30 November. Revolutionary Movement Leader! Menolo Ray Jesus FERNÁNDEZ Kennedy Osnivka BETANCURT COLLEAU Roddy Puy Carden Rodley Giralda (Leader of Much 1942 into Mid 60's)
+I. 30 November. Revolutionary Movement Leader! Menolo Ray Jesus FERNÁNDEZ Kennedy Osnivka BETANCURT COLLEAU Roddy Puy Carden Rodley Giralda (Leader of Much 1942 into Mid 60's)
 
 II MRR
 

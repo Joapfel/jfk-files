@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23461.png
-
-Convert to Markdown8 Feb. 1956.
+8 Feb. 1956.
 
 COVER PREPARATION - (Arthur G. Vaiveda)
 

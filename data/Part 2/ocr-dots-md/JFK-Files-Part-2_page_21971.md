@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21971.png
-
-Convert to MarkdownKissinger, in his testimony before the Committee, regarded the CIA memorandum of conversation as substantially correct, although somewhat more detailed than he would have remembered. (Kissinger testimony, p. 52)
+Kissinger, in his testimony before the Committee, regarded the CIA memorandum of conversation as substantially correct, although somewhat more detailed than he would have remembered. (Kissinger testimony, p. 52)
 
 He believed the Agency had been told to "stand down and preserve your assets."
 

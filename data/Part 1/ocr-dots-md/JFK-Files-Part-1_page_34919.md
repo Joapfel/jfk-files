@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34919.png
-
-Convert to Markdown15 MAIDEN LANE
+15 MAIDEN LANE
 NEW YORK N. Y. 10030
 
 Mr. Paul G. Avent

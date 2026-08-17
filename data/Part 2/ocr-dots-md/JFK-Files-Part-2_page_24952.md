@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24952.png
-
-Convert to MarkdownCOS did not recall agent QJWIN. He did recall that O'Donnell may have brought an asset into the Congo to help him. He said, however, that based on our representation that QJWIN was in the Congo in the fall of 1960, he must have known of QJWIN's activities.
+COS did not recall agent QJWIN. He did recall that O'Donnell may have brought an asset into the Congo to help him. He said, however, that based on our representation that QJWIN was in the Congo in the fall of 1960, he must have known of QJWIN's activities.
 
 ## WIROGUE
 

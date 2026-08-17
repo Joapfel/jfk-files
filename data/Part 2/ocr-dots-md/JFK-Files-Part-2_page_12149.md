@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12149.png
-
-Convert to Markdownd. Flash notice is to be placed by field with Identification Division by submission of form FD-165, using informant's true name for each informant who has fingerprints on file.
+d. Flash notice is to be placed by field with Identification Division by submission of form FD-165, using informant's true name for each informant who has fingerprints on file.
 
 e. When informant is discontinued, retain flash notice for one year. Insure that notice is canceled at that time by submission of form FD-165 or advise Bureau as to why notice should be continued. If fingerprints obtained solely for this purpose, remove fingerprints from criminal file.
 

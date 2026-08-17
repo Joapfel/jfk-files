@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12581.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>CABLE SECRETARIAT DISSEMINATION</th></tr></thead><tbody><tr><td>PERSON/UNIT NOTIFIED<br/>ADVANCE COPY ☐ ISSUED ☐ ROTTED<br/><br/>BY____ AT____<br/>D circled BY ____ PER ____<br/>ACTION UNIT WHS I P<br/>FILE, VR 109</td></tr><tr><td>CLASSIFIED MESSAGE • TOTAL COPIES<br/>:SECRET: GROUP 1 (Who is Related? - get name and phone number) REPRODUCTION OF THIS COPY PROMISED INDEX: ☐ YES ☐ NO CLARIFY TO CS FILE NO. REF: TO CS FILE NO. ☐ FILE ID ☐ RETURN TO BRANCH</td></tr><tr><td>Routing and/or Details shown by:<br/>1 S<br/>2 S<br/>3<br/>4 S</td></tr></tbody></table>
 

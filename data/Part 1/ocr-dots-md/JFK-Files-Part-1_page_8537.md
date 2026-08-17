@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8537.png
-
-Convert to Markdownthe feasibility of meeting together separately. As L/I and leaving the Soviet Embassy, the/Ambradon specified that he would be con- versing with, and walked over to L/I with whom he proposed . a toast, and they drank to the UDI.
+the feasibility of meeting together separately. As L/I and leaving the Soviet Embassy, the/Ambradon specified that he would be con- versing with, and walked over to L/I with whom he proposed . a toast, and they drank to the UDI.
 
 5. Beginning with 14 November, the following classes were held:
 

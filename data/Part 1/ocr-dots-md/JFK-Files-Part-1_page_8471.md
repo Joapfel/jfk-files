@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8471.png
-
-Convert to Markdowntime.
+time.
 
 13. My wife and I entertained Subject and his wife at our home on 27 November, but the evening was not meant to and did not afford an opportunity to discuss the Soviets any further. Subject did tell me, however, that he had not gone to the 7 November Soviet reception afterall, because, despite by assurances that there was no reason for him not to go, he felt it was simply safer to stay away from the Soviet Embassy altogether. At my suggestion, we agreed to get together for lunch sometime in the near future.
 

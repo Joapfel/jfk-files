@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4430.png
-
-Convert to MarkdownIN REPLY, PLEASE REFER TO
+IN REPLY, PLEASE REFER TO
 FILE No. 65-58190
 
 June 29, 1954

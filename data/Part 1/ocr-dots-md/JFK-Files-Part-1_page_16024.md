@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16024.png
-
-Convert to Markdown# GUN STRENGTH Figures
+# GUN STRENGTH Figures
 ## Played Dramatic Roles
 
 By Bruce Galphin

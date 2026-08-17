@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7398.png
-
-Convert to Markdown<table><tr><td colspan="2"> SENDER WILL CHECK CLASS </td><td colspan="2"> TION TOP AND BOTTOM </td></tr><tr><td> UNCLASSIFIED </td><td> [ ] </td><td> CONFIDENTIAL </td><td> < </td><td> SECRET </td></tr></table>
+<table><tr><td colspan="2"> SENDER WILL CHECK CLASS </td><td colspan="2"> TION TOP AND BOTTOM </td></tr><tr><td> UNCLASSIFIED </td><td> [ ] </td><td> CONFIDENTIAL </td><td> < </td><td> SECRET </td></tr></table>
 
 OFFICIAL ROUTING SLIP
 

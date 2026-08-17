@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7630.png
-
-Convert to MarkdownMemo for Mr. Felt
+Memo for Mr. Felt
 Re: Reorganization of C
 
 To assume White House name checks and appropriate correspondence, compilation of data and preparation of memoranda on individuals requesting special tours or meetings with the Director; compilation of data and preparation of background memoranda for dissemination to authorized individuals; and preparation of information memoranda pertaining to organizations asking for data. These functions formerly handled by the Summary Memoranda Unit,

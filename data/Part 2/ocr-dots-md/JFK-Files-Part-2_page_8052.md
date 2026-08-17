@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8052.png
-
-Convert to Markdown"Vardiet on Sirhan." *Newweek*, 28 April 1969, pp. 41+.
+"Vardiet on Sirhan." *Newweek*, 28 April 1969, pp. 41+.
 Weiss, P. and M. Mannes, "Reflections on a tragedy." *Somesteen*, August 1968, pp. 194-195.
 "What was in Sirhan's mind?" *Time*, 24 January 1969, p. 54.
 Weick, Paul R. "The Oregon Primary." *New Republic*, 3 June 1968, pp. 14-15.

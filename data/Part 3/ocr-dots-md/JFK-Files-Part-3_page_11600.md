@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11600.png
-
-Convert to Markdowninfluence on the choice of properties made available to the Soviets. As a result of our action it appears almost certain that the Soviets are settling on a property considered by us to offer the best advantage for counterintelligence coverage.
+influence on the choice of properties made available to the Soviets. As a result of our action it appears almost certain that the Soviets are settling on a property considered by us to offer the best advantage for counterintelligence coverage.
 
 In late January, 1971, we furnished information to State Department and White House concerning activities of a very aggressive KGB officer in Washington, D. C., who was attempting to obtain equipment involved in a classified communications system used by White House and other agencies. We suggested to State that subject be declared persona nongrata and State, after securing concurrence of White House, decided instead to personally admonish a representative of the Soviet Embassy concerning these activities. This action resulted in curtailing the Soviet's intelligence activities and probably resulted in his early recall.
 

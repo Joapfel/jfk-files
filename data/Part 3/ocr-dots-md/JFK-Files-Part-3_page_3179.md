@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3179.png
-
-Convert to Markdown1791
+1791
 
 of information that may be supplied to you if it happens to be
 of a sensational nature or of a surprising nature, do you ever

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10239.png
-
-Convert to Markdown1. June 1973
+1. June 1973
 
 MEMORANDUM FOR: Mr. William E. Colby
 

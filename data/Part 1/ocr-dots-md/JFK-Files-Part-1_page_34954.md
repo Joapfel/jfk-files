@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34954.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>FECIMA DEL NACIMIENTO</th><th>METRAS MORTUARES</th><th>PIELAGIO</th></tr></thead><tbody><tr><td>Diciembre</td><td>No constan.</td><td>NINGUNA</td></tr></tbody></table>
 

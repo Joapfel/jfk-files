@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14997.png
-
-Convert to Markdown# ROBERT EARL BARNES
+# ROBERT EARL BARNES
 ## INTERSTATE TRANSPORTATION OF STOLEN PROPERTY
 
 Robert Earl Barnes is the notorious burglar with an extensive arrest record who was the main witness at the trial in District Court of 5 policemen charged with bribery and conspiracy. Trial, which ended March 11, 1967, resulted in the conviction of 3 District of Columbia police officers and the acquittal of the other 2.

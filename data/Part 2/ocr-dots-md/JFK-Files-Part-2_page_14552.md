@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14552.png
-
-Convert to Markdown# Office Mer... • UNITED STATES GOVERNMENT
+# Office Mer... • UNITED STATES GOVERNMENT
 
 TO : A. H. Belmont
 FROM : S. B. Donahoe

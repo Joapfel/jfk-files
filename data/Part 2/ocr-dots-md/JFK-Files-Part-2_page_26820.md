@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26820.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q Which of these activities, if any of them were actually being conducted within the Cuban community in Miami?
 

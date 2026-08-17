@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8698.png
-
-Convert to Markdown13-00000
+13-00000
 
 which consisted of elimination of high GOC personalities.
 

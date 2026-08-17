@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15332.png
-
-Convert to MarkdownMemorandum for Mr. Boardman from Mr. Belmont
+Memorandum for Mr. Boardman from Mr. Belmont
 
 ADDENDUM: JMD:dmd 12-14-55
 

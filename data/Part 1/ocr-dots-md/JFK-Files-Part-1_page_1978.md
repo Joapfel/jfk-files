@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1978.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, Technical Services Division
 

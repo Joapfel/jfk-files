@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29691.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">SECTION C:</th></tr><tr><td colspan="2"><strong>NARRATIVE COMMENTS</strong></td></tr></thead><tbody><tr><td>Indicate significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give recommendations for training/Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Manner of performance of managerial or supervisory duties must be described, if applicable.</td></tr><tr><td>The volume of work produced by Mr. Maksymiec has been adequate; the quality of work produced has been good but there is need for further improvement. However, Mr. Maksymiec is making every effort to improve the quality of his work. He is cooperative and gets along well with his fellow employees.</td></tr></tbody></table>
 

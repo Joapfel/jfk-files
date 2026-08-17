@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5881.png
-
-Convert to MarkdownOctober 24, 1975
+October 24, 1975
 
 MEMORANDUM FOR: All Divisions, Staffs, and Groups
 SUBJECT : President Kennedy Assassination File Search.

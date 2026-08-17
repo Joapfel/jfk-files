@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20224.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NAME OF EMPLOYEE (LAST-FIRST-MIDDLE)</td><td>DATE OF BIRTH</td><td>CASE OR CLAIM NUMBER</td></tr><tr><td>HIDALGO, Ealmes</td><td>1nk</td><td>58-112</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9953.png
-
-Convert to Markdown-2-
+-2-
 
 Creo que no es necesario que te aclare,que en general,tendras que acostumbrarte a estas problemas,pues las cosas a veces le parecen a una muy fáciles y desde luego no lo son mas que en experiencia,es necesario comprender a los otros,máxime en estas cosas,un poco pensar come ellos;alguna vez en nuestras discusiones me has señalado como yo justificaba las cosas siempre con la frasehasta cierto punto tal o tales cosas son inevitables";creo que eso no es una frase sin sentido no es una cézeda salida, es para mi una conclusión de las realidades que me han tocado vivir aquí,hoy la sigo re pitiendo y aún tiene más sentido.Le exterior,por supuesto,no significa que hay que resignarse y esperar que las consecuencias se desarrollen normalmente,todo lo contrario,hay que provocar le rup tura,cómo?,justamente "aprendiendo a rascarse con las propias uñas", demostrando con hechos y un pece "no esperar nada de nadie".
 

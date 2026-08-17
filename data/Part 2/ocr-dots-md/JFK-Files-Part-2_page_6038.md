@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6038.png
-
-Convert to MarkdownWilliam L. Joyce
+William L. Joyce
 
 SELECTED PUBLICATIONS, continued
 

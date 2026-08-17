@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29192.png
-
-Convert to MarkdownSCHEDULE F - SHAREHOLDERS SHARE OF INCOME AND CREDITS
+SCHEDULE F - SHAREHOLDERS SHARE OF INCOME AND CREDITS
 (If additional space is needed, attach schedule)
 
 <table><thead><tr><th>(1)<br>Name and Address of Each Shareholder</th><th>(2)<br>Social Security<br>Number</th><th>(3)<br>Number or<br>Shares</th></tr></thead><tbody><tr><td>(a) GAGE RUBY<br>450 STONEY RIVER, BIRM. MICH.</td><td rowspan="2"></td><td rowspan="2">7,800</td></tr><tr><td>(b) ESTATE OF GEORGE MARCUS<br>69 W. WASHINGTON H-1150 CHICAGO, ILL. 60602</td></tr><tr><td>(c)</td><td></td><td></td></tr><tr><td>(d)</td><td></td><td></td></tr><tr><td>(e)</td><td></td><td></td></tr><tr><td>(f)</td><td></td><td></td></tr><tr><td>(g)</td><td></td><td></td></tr><tr><td>(h)</td><td></td><td></td></tr><tr><td>(i)</td><td></td><td></td></tr><tr><td>(j)</td><td></td><td></td></tr></tbody></table>

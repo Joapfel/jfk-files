@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11536.png
-
-Convert to Markdownf. Socialist Workers Party and other Marxist-Leninist or Trotskyite groups
+f. Socialist Workers Party and other Marxist-Leninist or Trotskyite groups
 
 The New York Office should submit quarterly reports on the
 Socialist Workers Party designating reports as pending.
