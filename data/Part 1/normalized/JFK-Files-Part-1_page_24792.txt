@@ -8,8 +8,6 @@ FROM Chief of Station, Santo Domingo MACROFILM
 
 SUBJECT Operational/MHSPAWN/TICHBORN Press Analysis
 
-ACTION REQUIRED - REFERENCES
-
 Reference: HDCW - 2588
 
 Action: FYI

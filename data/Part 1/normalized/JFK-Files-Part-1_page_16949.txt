@@ -10,8 +10,6 @@ FROM Chief of Station, Mexico City RECEIVED
 
 SAS Project LIENETY/Progress Report 1 February through 30 April 1966
 
-ACTION REQUIRED REFERENCES References: A. HMA-28322, dated 17 February 1966
-
 B. DIR-01875, dated 20 February 1966
 
 C. MEXI-6479, dated 7 March 1966
@@ -21,8 +19,6 @@ D. MEXI-6611, dated 22 March 1966
 E. MEXI-6668, dated 23 March 1966
 
 F. MEXI-6794, dated 6 April 1966
-
-Action Required: For Your Information.
 
 1. SUMMARY OF PROJECT REPORTING AND ACTIVITY
 

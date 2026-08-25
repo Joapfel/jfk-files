@@ -12,8 +12,6 @@ clps/An. 2 clps/82-3 clrs6
 
 clrs6/stt c/s8 5 xx
 
-STAFF
-
 1 4
 
 2 3

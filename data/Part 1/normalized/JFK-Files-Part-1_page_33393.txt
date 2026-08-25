@@ -14,8 +14,6 @@ Mil 7 N F O FILE: EUFOR, EUR-8, SSS
 
 ACTION *
 
-STAFF
-
 1 4
 
 2 5

@@ -10,8 +10,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT Operational/Transmittal of LIFEAT Report
 
-ACTION REQUIRED REFERENCES
-
 Ref: HMMA-19741, 4 September 1962 Action: Per Paragraph Two.
 
 1. Transmitted herewith in attachment is a LIFEAT report of 10 September 1962, of a second telephone call from Moscow to Vladilan Ivanovich SAMOKHIN, Head of the Soviet Information Bulletin Office in Mexico City.

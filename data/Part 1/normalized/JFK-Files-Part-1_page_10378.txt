@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT TYPIC/OPERATIONAL/LIRING/Review of LIRING-3 Operation FYI
 
-ACTION REQUIRED - REFERENCES Attached is an operational review of the LIRING-3 operation prepared by Wallace B. ROWTON. Attention is also called to PQ Parts I and II. Part I was sent as HMQA 30540 and part II to be provided for processing.
-
 Frank C. Weidberg for Willard C. CURTIS
 
 Attachment: LIRING-3 Review HERewith

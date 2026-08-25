@@ -8,10 +8,6 @@ FROM Chief, WH Division
 
 SUBJECT LIFCAT Project Renewal
 
-ACTION REQUIRED REFERENCES
-
-ACTION REQUIRED: For your information only
-
 REFERENCE : H01-A-17199, 12 June 1961
 
 1. The LIFCAT Project was renewed on 8 September 1961.

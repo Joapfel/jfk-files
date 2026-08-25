@@ -6,8 +6,6 @@ FROM Chief of Station, JMWAVE AKR
 
 SUBJECT TYPIC/AMSPELL/Operational AMSPELL Progress Report - December 1964
 
-ACTION REQUIRED REFERENCES
-
 FYI:
 
 REF: UFGA-19,195, 28 December 1964

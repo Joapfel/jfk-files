@@ -20,8 +20,6 @@ DT
 
 AM DCC
 
-X
-
 TH
 
 DG

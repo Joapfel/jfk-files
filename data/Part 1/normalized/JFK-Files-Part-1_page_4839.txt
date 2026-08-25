@@ -1,8 +1,4 @@
-OUTGOING MESSAGE
-
 Signal Center - Use Only
-
-OMF-0 0 0 0 0 0 0
 
 CLASSIFICATION
 

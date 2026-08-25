@@ -8,8 +8,6 @@ FROM Chief, WHD
 
 SUBJECT Citizenship of AMMUG-1
 
-ACTION REQUIRED - REFERENCES
-
 REFERENCE: UFAX-14
 
 1. On 27 January, Alien Affairs Staff advised that under Section 313 of Immigration and Naturalization Act, AMMUG-1 cannot become an American citizen until after 10 years from April 1964. While normal Cuban exile must wait five years, Communist party members must wait 10 years. AMMUG-1's position as "intelligence officer" is considered a "meaningful extension" of CP membership.

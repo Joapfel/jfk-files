@@ -34,8 +34,6 @@ CHIEF, CIVILIAN PERSONNEL BRANCH
 
 &nbsp;
 
-&nbsp;
-
 FROM TITLE Field Representative
 
 GRADE AND SALARY By discharge from the Navy CAF-12, $5180.p.e.
@@ -50,10 +48,6 @@ OFFICIAL STATION Shanghai
 
 DEPT OR FIELD Field
 
-&nbsp;
-
-&nbsp;
-
 TITLE Field Representative
 
 GRADE AND SALARY By discharge from the Navy CAF-12, $5180.p.e.
@@ -67,7 +61,5 @@ SECTION
 OFFICIAL STATION Shanghai
 
 DEPT OR FIELD Field
-
-&nbsp;
 
 RE

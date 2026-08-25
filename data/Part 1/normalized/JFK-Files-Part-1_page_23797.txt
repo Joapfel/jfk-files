@@ -8,8 +8,6 @@ FROM Chief of Station, London DATE 11 June 1965
 
 SUBJECT O STEBONY JAGUAR Report on STEBONY/1 RE "43-J - CHECK X ONE
 
-ACTION REQUIRED
-
 REFERENCES
 
 Following is the text of a JAGUAR letter, dated 2 June:

@@ -10,8 +10,6 @@ CCS Z I F N
 
 ACTION # O
 
-STAFF
-
 1 4
 
 2 5

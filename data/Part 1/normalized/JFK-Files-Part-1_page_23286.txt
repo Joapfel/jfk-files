@@ -20,21 +20,21 @@ TRAINING SUBJECTS RATINGS
 
 SUPERIOR EXCELLENT SATISFACTORY POOR FAILURE
 
-Security X
+Security
 
-Cover X
+Cover
 
 Observation &amp; Description
 
-Interviewing X
+Interviewing
 
-Interrogation X
+Interrogation
 
-Surveillance X
+Surveillance
 
-7. Telephones &amp; Mikes (Theory) X
+Telephones &amp; Mikes (Theory)
 
-General CI Methods X
+General CI Methods
 
 Contacting
 
@@ -46,14 +46,14 @@ Training of Agents
 
 Agent Management &amp; Control
 
-14. Double Agent Management &amp; Control X
+Double Agent Management &amp; Control
 
-Reporting X
+Reporting
 
-CE Operations X
+CE Operations
 
-Communist Theory X
+Communist Theory
 
-Soviet IS X
+Soviet IS
 
 Psychological Warfare </td

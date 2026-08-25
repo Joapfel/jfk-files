@@ -10,8 +10,6 @@ FROM Chief, LCPIPIT/London C.B.LL MICROFILM
 
 SUBJECT RYBAT/DTDORIC/QRPHONE/MHPROBE/British Residence Status
 
-ACTION REQUIRED - REFERENCES QRPHONE/1 has received a letter from the Home Office which removes the previous restrictions on his stay in Britain. There is now no limit on the length of his stay in Britain and he does not need to report his address, etc., to the police. Further, he may now obtain employment in Great Britain without the need to obtain official permission.
-
 For the record, we are forwarding under separate cover, a copy of the letter.
 
 MICROFILMED

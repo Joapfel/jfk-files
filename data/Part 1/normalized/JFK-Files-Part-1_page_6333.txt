@@ -8,8 +8,6 @@ FROM Chief of Station, JAWAVE
 
 SUBJECT CYROST/Operational--Transmittal of CAC Reports
 
-ACTION REQUIRED REFORMED
-
 ACTION: Per your information
 
 Transmitted herewith are fourteen CKA reports and an index of same.

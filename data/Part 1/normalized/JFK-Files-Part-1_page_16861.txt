@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT LIEMPTY Project/Operational Report, 1 July - 30 September 1970
 
-ACTION REQUIRED - REFERENCES
-
 REFERENCES: A. HMMA-39188, 10 July 1970 B. HMMW-17950, 10 June 1970
 
 OPERATIONS

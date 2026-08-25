@@ -14,8 +14,6 @@ eques: X
 
 rpg X
 
-X
-
 ege:
 
 tnf

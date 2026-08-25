@@ -10,10 +10,6 @@ FROM Chief of Station, JEWAVE ABSTRACT
 
 SUBJECT TYPIC/Operational Transmittal of Operational Plan for ANTRONIX VII MACROFILE
 
-ACTION REQUIRED: REFERENCE
-
-Action Required: Request Approval
-
 References : A. UFGA-9312, ANTRONIX Op Plan, 1 June 1963
 
 B. UFGA-10436, Amendment of ANTRONIX Op Plan,

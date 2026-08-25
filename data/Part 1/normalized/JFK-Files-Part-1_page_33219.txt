@@ -10,8 +10,6 @@ FROM Chief of Station, Buenos Aires
 
 SUBJECT RYBAT/REDTOP/AERONAUT/AETARGET/TECHS Air-conditioner Plugs
 
-ACTION REQUIRED - REFERENCES
-
 References: A. BUENOS AIRES 0624, 15 May 1968 B. DIRECTOR 01179, 19 May 1968
 
 1. Attached please find the following (we have marked each in accordance with our lettering): A. Two plugs which were actually cut off of the REDTOP air-conditioners by José CASTAGNA. You will note that one of these plugs is fused together to a local adaptor. This adaptor is the type utilized by the local FJSTEALERS on those air-conditioners which still have original plugs. B. A locally produced plug which is utilized by the FJSTEALERS to replace the original plugs (A above). This locally produced plug (B) was actually taken by AMSTALK-1 from José CASTAGNA's workshop. C. A locally produced plug which, though slightly larger than (B) above, can be placed on the target air-conditioners.

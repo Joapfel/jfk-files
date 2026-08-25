@@ -6,10 +6,6 @@ FROM: Chief, WH Division ABSTRACT MICROFILM
 
 SUBJECT: LIENVOY Targets
 
-ACTION REQUIRED REFERENCES
-
-ACTION REQUIRED: Per paragraph 3
-
 REFERENCE : ENRA-18752, 23 March 1962 (RYBAT)
 
 1. Referenced dispatch listed the target lines for LIENVOY for December 1961 and January 1962. Your attention is drawn to the fact that the targets listed coincide exactly with the list of 173 tapes furnished in ENRA-18246 dated 1 December 1961.

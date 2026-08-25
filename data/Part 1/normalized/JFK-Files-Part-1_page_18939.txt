@@ -97,3 +97,5 @@ STATE ANY OTHER ELEMENTS CONSIDERED
 STANDARD Adjective rating Adjective rating
 
 Deviations must be explained on reverse side of this form
+
+Plus marks on all underlined elements, and no minus marks. Plus marks on at least half of the underlined elements, and no minus marks. Check marks or better on a majority of underlined elements, and any minus marks overcompensated by plus marks. Check marks or better on a majority of underlined elements, and minus marks not overcompensated by plus marks. Minus marks on at least half of the underlined elements. E Excellent Rating official: E</td

@@ -6,8 +6,6 @@ FROM COS, Caracas
 
 SUBJECT WKSCARLET-3 Termination of WKSCARLET-3
 
-ACTION REQUIRED REFERENCES
-
 WARNING NOTICE--SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED
 
 Forwarded herewith is an agent service record for WKSCARLET-3 who was amicably terminated on 13 February 1976. Forwarded as a separate cover attachment is the termination secrecy oath executed by WKSCARLET-3 at the time of termination.

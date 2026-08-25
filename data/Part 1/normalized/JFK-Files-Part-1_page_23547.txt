@@ -16,7 +16,7 @@ Training Subjects
 
 FAILURE POOR SATISFACTORY EXCELLENT SUPERIOR
 
-1. Security .................................... X
+Security ....................................
 
 2. Cover ........................................
 
@@ -34,15 +34,15 @@ FAILURE POOR SATISFACTORY EXCELLENT SUPERIOR
 
 9. Contacting .....................................
 
-10. Intrafield Communications...................... X
+Intrafield Communications......................
 
-11. Recruiting of Agents .......................... X
+Recruiting of Agents ..........................
 
-12. Training of Agents .......................... X
+Training of Agents ..........................
 
-13. Agent Management &amp; Control ................ X
+Agent Management &amp; Control ................
 
-14. Double Agent Management &amp; Control ...... X
+Double Agent Management &amp; Control ......
 
 15. Reporting ......................................
 

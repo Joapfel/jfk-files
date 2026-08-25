@@ -8,8 +8,6 @@ FROM Chief, AF Division
 
 SUBJECT Summary of Information on Subject of 201-233477
 
-ACTION REQUIRED - REFERENCES
-
 FYI
 
 FYI

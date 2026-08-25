@@ -10,8 +10,6 @@ FROM: Chief of Station, JMWAVE ABSTRACT
 
 SUBJECT: TYPIC/Operational Transmittal of AMBUD Case Histories
 
-ACTION REQUIRED: REFERENCE
-
 Per telecon between Frederick J. INGHURST and Mark K. HOLMES-2 February 1967 we are forwarding herewith the original HEW reports on AMBUD cases 4, 7, 10, 16, 27, 38, 39, 49, 54, 65, 92, and 144.
 
 Frederick J. Inghurst Philip E. ELMARD

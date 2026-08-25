@@ -8,8 +8,6 @@ FROM COS, Brussels
 
 SUBJECT Cuban Travel
 
-ACTION REQUIRED REFERENCES
-
 REF: CBST-2278, 4 August 1965
 
 Attached is Cuban travel information received from NICALE during August.

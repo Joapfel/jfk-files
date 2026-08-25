@@ -6,8 +6,6 @@ FROM Chief of Station, JMWAVE
 
 SUBJECT Operational/TYPIC/AMLASH/AMHAM/AMTRUNK/ANOT Statements made by Manuel ARTIME Buesa and Article Reporting His Appearance on TV
 
-ACTION REQUIRED REFERENCES
-
 Action: None, For Your Information
 
 Reference: UFGA-24875, 31 March 1966
@@ -41,8 +39,6 @@ downloading and
 decryption
 
 ES COPY 201-267437
-
-GROSS REFERENCE TO DATE TYPED DATE DISPATCHED
 
 APR 27 1966
 

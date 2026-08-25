@@ -24,8 +24,6 @@ SUBJECT GENERAL = Administrative/LIFEAT SPECIFIC = Procurement of recorders
 
 Reference: DCS-8143 (KAPOK 1106), 2 October 1957
 
-ACTION REQUIRED: Clarification of request for recorders.
-
 1. Paragraph four, e, of reference contains a request for ten used EXOTAPE recorders. However, it is not clear whether this request is in addition to or in place of the request contained in MEXI-918, dated 9 August 1957. The recorders requested in MEXI-918 were forwarded to the Station under cargo numbers 20369 and 20370 on 16 and 17 September 1957 (see DIR 35369 and DIR 35748), and probably arrived at the Station after the referenced dispatch was written.
 
 2. There are no used EXOTAPE recorders available at Headquarters for shipment to the Station. However, KURIOT has advised the Desk that should any used recorders become available at Headquarters or at other field stations, they will make every effort to send them to Mexico City. As the Station probably knows, EXOTAPE recorders are no longer manufactured.

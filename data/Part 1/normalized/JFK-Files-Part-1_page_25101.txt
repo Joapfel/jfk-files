@@ -4,8 +4,6 @@ FROM Chief, SR via Chief, WH
 
 SUBJECT REDWOOD SPR ON Valeriy Vladimirovich KOSTIKOV (201-30552)
 
-ACTION REQUIRED REFERENCES ACTION REQUIRED: None for information only.
-
 REFERENCE : HMB4A-25722, 2 April 1965
 
 Subject SPR typed in final form is forwarded herewith.

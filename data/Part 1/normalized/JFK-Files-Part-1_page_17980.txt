@@ -10,8 +10,6 @@ FROM : Chief of Station, Mexico City DATE 15 February 1961
 
 SUBJECT: A. Automobile License Check REF "A-3" - [CHECK ONE]
 
-ACTION REQUIRED - See below. MARKED FOR INDEXING
-
 REFERENCE(S) X NO INDEXING REQUIRED INDEXING CAN BE JUDGED BY QUALIFIED MQ DESK ONLY
 
 1. It is requested that a prompt check of the following license plate be made and the results forwarded to Mexico City Station:

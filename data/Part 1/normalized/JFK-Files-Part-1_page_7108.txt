@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico City MICROFILM
 
 SUBJECT REDCOAT/LCIMPROVE - Ernesto CHAZANO Ferogrino
 
-ACTION REQUIRED REFERENCES
-
 REFERENCE: EMA-14816, 25 August 1966
 
 The Station's final report on Subject was forwarded in HMA-29714, 9 August 1966.

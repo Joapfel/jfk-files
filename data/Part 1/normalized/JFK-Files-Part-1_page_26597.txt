@@ -8,10 +8,6 @@ FROM MICROFILM
 
 SUBJECT Victor RICO Galan
 
-ACTION REQUIRED REFERENCES
-
-ACTION REQUIRED: FYI
-
 REFERENCE: MEXICO CITY-8281
 
 1. Attached for Headquarters information and retention are copies of two memoranda concerning Victor RICO Galan which were passed to LIRAMA on 15 February and 8 April 1965.

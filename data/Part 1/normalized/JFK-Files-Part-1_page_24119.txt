@@ -8,8 +8,6 @@ FROM Chief, LCPIPIT
 
 SUBJECT DTBDRIC/Operational OPERONY/OREBONY/1's Meeting with RNSLIVER
 
-ACTION REQUIRED - REFERENCES
-
 Transmitted herewith is a brief memo for the record summarizing a conversation between the undersigned and RNSLIVER in which the latter recounted his impressions of a meeting with QREBONY/1. Transmitted USC is a brief note from QREBONY/1 to RODIGAST covering the events of the same evening.
 
 P.F. CILIBERTY

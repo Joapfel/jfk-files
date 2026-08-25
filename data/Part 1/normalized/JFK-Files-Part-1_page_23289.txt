@@ -2,45 +2,45 @@ STUDENT EVALUATION RATINGS
 
 Above AVERAGE Average Below Average Not Observed
 
-Security consciousness X
+Security consciousness
 
-2. Ability to work with and get along with others X
+Ability to work with and get along with others
 
-3. Ability to follow instructions X
+Ability to follow instructions
 
-4. Maturity of judgment and common sense X
+Maturity of judgment and common sense
 
-Initiative X
+Initiative
 
-6. Resourcefulness and independence of judgment X
+Resourcefulness and independence of judgment
 
-7. Tactfulness and sense of discretion X
+Tactfulness and sense of discretion
 
-Cooperativeness X
+Cooperativeness
 
-Sense of discipline X
+Sense of discipline
 
-Imagination and creativeness X
+Imagination and creativeness
 
-11. Amenability to constructive criticism X
+Amenability to constructive criticism
 
-12. Attention to necessary details X
+Attention to necessary details
 
-13. Observant and careful in the collection of facts. X
+Observant and careful in the collection of facts.
 
-14. Political sophistication and awareness X
+Political sophistication and awareness
 
-15. Interest and enthusiasm for proposed assignment X
+Interest and enthusiasm for proposed assignment
 
-16. Motivation for clandestine activities X
+Motivation for clandestine activities
 
-17. Ability to relate theory to practice X
+Ability to relate theory to practice
 
 STUDENT'S COMPARATIVE EVALUATION TO OTHERS TRAINED FOR IDENTICAL OR SIMILAR ASSIGNMENT
 
-ABOVE AVERAGE X
+ABOVE AVERAGE
 
-AVERAGE [ ] X
+AVERAGE [ ]
 
 BELOW AVERAGE [ ] [ ]
 

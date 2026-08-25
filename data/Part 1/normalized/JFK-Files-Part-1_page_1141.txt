@@ -1,7 +1,5 @@
 DOHB-70-1-1 CHAPTER III, ANNEX B
 
-15 November 1974
-
 Sorts can be made within sorts. For example, 201 personalities may be sorted alphabetically by surname within OI codes for given countries of location. Because two OI codes may be listed for each personality, those names with two OI codes would be listed twice.
 
 Scheduled Listings.

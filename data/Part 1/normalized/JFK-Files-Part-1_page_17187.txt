@@ -10,8 +10,6 @@ FROM Chief, WH Division
 
 SUBJECT LIEMPTY Project Renewal
 
-ACTION REQUIRED REFERENCES
-
 Reference: IOMA-30403
 
 1. The LIEMPTY Project was renewed on 13 January 1967 for the period 1 December 1966 through 30 November 1967 for a total of $45,000. Of this, $29,020 is for FY 1967 and $15,980 is for FY 1968.

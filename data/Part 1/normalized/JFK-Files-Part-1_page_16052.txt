@@ -10,8 +10,6 @@ SS COPY
 
 FEB 10
 
-X
-
 Headquarters:
 
 1 - FE/TBL/T

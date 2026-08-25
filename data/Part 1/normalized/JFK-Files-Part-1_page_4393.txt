@@ -8,8 +8,6 @@ FROM Chief of Station, JMWAVE BPV ABSTRACT REVISION
 
 SUBJECT TYPIC/Operational Transmittal of letter
 
-ACTION REQUIRED - REFERENCES
-
 AR: FYI
 
 1. The Station has received, via William S. WIRALDA, a letter addressed to AMBIDDY-1, JMHOPE Post Office Box.

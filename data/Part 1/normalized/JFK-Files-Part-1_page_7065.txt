@@ -8,8 +8,6 @@ FROM Chief, SR via Chief, MI
 
 SUBJECT REDWOOD Valentin Sergeyevich LOGINOV (201 285412)
 
-ACTION REQUIRED REFERENCES
-
 REFERENCE: MEXI 4363, 7 August 1965 1. Forwarded herewith are summary traces in SPR format on Valentin Sergeyevich LOGINOV, reflecting a digest of available information in Headquarters files. 2. Paragraph 9 of the above attachment (PHYSICAL DESCRIPTION AND PHOTOS) will be forwarded to you at a later date under separate dispatch as soon as the photos have been processed here at Headquarters. 3. Forwarded under separate cover is Paragraph 21 (IDENTITIES).
 
 BRUCE H. GINTALAS

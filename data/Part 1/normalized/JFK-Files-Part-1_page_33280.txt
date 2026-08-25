@@ -1,12 +1,8 @@
-OUTGOING MESSAGE
-
 10 20 . . . . . .
 
 20 . . . . . . . .
 
 30 . . . . . . . .
-
-STAFF
 
 CONF: INFO: FILE
 

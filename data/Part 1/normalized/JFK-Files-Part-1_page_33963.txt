@@ -8,8 +8,6 @@ FROM Chief of Station, JMWAVE
 
 SUBJECT Operational, TYPIC/AMSCROLL Termination of AMSCROLL Personnel
 
-ACTION REQUIRED REFERENCES AR: See paragraph 3.
-
 1. The AMSCROLL activity was terminated 31 August 1967 and all operations ceased at that time. 2. The following AMSCROLL employees were terminated effective 31 August 1967 and were given a termination settlement of three months' salary.
 
 Fernando ALLOZA (radio script writer) 201-286580

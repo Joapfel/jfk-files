@@ -8,10 +8,6 @@ FROM Chief of Station, JMAWAVE
 
 SUBJECT TYPIC/Operational/AMTRUNK PRQ Part II, AMLUNT-2
 
-ACTION REQUIRED REFERENCES
-
-ACTION REQUIRED - Please Grant OA
-
 REFERENCE - DIR-50920, POA Granted 15 Oct 65
 
 Transmitted herewith are three (3) copies of PRQ Part II for Subject. Request Headquarters grant OA.
@@ -21,5 +17,3 @@ Philip G. ELMARD
 ATT: PRQ Part II, 3 cys
 
 Distribution 3 - WH/C w/att
-
-CLASSIFICATION HQS FILE NUMBER-201-334081

@@ -6,10 +6,6 @@ FROM Chief, WH Division
 
 SUBJECT LIFETAT Project Removal
 
-ACTION REQUIRED REFERENCES
-
-ACTION REQUIRED: For Your Information
-
 REFERENCE : H2A-19129, 1 June 1962
 
 1. Project LIFETAT has been renewed for the period of 1 July 1962 through 30 June 1963 in the amount of $99,000.00.

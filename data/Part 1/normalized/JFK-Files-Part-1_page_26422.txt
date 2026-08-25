@@ -36,12 +36,6 @@ TO PRODUCE: 1
 
 COPY
 
-R I C O P Y
-
 COPY
 
-R I C O P Y
-
 COPY
-
-R I C O P Y

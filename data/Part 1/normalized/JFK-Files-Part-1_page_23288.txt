@@ -30,9 +30,9 @@ Cover
 
 Observation & Description
 
-Interviewing X
+Interviewing
 
-Interrogation X
+Interrogation
 
 Surveillance
 
@@ -40,15 +40,15 @@ Telephones & Mikes (Theory)
 
 General CI Methods
 
-Contacting X
+Contacting
 
-Intrafield Communications X
+Intrafield Communications
 
-Recruiting of Agents X
+Recruiting of Agents
 
-Training of Agents X
+Training of Agents
 
-13. Agent Management & Control X
+Agent Management & Control
 
 14. Double Agent Management & Control
 

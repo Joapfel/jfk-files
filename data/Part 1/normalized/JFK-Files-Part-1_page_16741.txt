@@ -6,8 +6,6 @@ FROM: Chief, WH Division BIOGRAPHY
 
 SUBJECT: LIENVOY Tapes for Training
 
-ACTION REQUIRED REFERENCES
-
 REF: HMT-3694
 
 Returned under separate cover are the 15 tapes which were furnished Headquarters for training purposes.

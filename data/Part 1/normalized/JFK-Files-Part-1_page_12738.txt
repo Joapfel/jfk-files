@@ -20,8 +20,6 @@ RF FILE VR
 
 CCS-2 DGD
 
-STAFF
-
 1 4
 
 2 3

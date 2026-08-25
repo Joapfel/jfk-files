@@ -34,8 +34,6 @@ SECTION III PERFORMANCE OF DUTY
 
 Considering only officers of his grade, branch, and about the same time in grade, rate the officer on performance of his duty assignment. Read all descriptions and place a heavy X in the box opposite best description.
 
-RATER
-
 INDORSE
 
 7. Excels any other officer I know in performance of this duty.
@@ -62,8 +60,6 @@ SECTION IV PROMOTION POTENTIAL
 
 Considering officers of his grade, branch, and about the same time in grade, what is your opinion of this officer's promotion potential? Place a heavy X in the box opposite best description.
 
-RATER
-
 INDORSE
 
 5. One of the few exceptional officers who should be considered for more rapid promotion than his contemporaries.
@@ -81,8 +77,6 @@ INDORSE
 SECTION V OVER-ALL VALUE
 
 What is your estimate of the rated officer's overall value to the service? Compare him with officer's of the same grade, branch, and about the same time in grade. Place a heavy X in the box opposite best description.
-
-RATER
 
 INDORSE
 

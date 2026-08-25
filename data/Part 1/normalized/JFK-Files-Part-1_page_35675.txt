@@ -34,8 +34,6 @@ R
 
 27 Asma
 
-R
-
 11 Martes
 
 28 Schock
@@ -43,8 +41,6 @@ R
 12 Miercoles
 
 29 Parasitismo
-
-R
 
 13 Jueves
 
@@ -97,8 +93,6 @@ R
 27 Jueves
 
 42 Alcohólismo
-
-R
 
 28 Viernes
 

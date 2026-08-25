@@ -8,8 +8,6 @@ FROM Chief, WHD
 
 SUBJECT ABASSAULT/Forwarding of Photographs on Nikolay Sereyevich LEONOV
 
-ACTION REQUIRED - REFERENCES (201-132139)
-
 Reference: DIRECTOR 08247 Forwarded herewith, for Bogota and Mexico, are seven photos of LEONOV.
 
 James M. BEGLINGER

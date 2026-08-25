@@ -34,6 +34,8 @@ EDUCATION,
 
 A. Give the highest elementary or high-school degree obtained If you completed high school, give date 1939
 
+B. Name and location of last high school attended; Assessment High School, Assessment Road, Assessment Avenue Graduation Date, Assessment Avenue, Assessment Road Assessment High School, Assessment Avenue, Graduation Date, Assessment Road, Assessment Avenue, Assessment High School
+
 C. Name and location of college or university Dates attended Years completed Credit hours Degrees received
 
 Baptist College Fall 1939 Semester or Quarter Semester or Quarter As Provided

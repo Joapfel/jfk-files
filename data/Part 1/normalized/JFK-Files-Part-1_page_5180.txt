@@ -6,8 +6,6 @@ FROM Chief of Station, Santiago
 
 SUBJECT RYBAT FUDWELL - Forwarding of Documents
 
-ACTION REQUIRED · REFERENCES Reference: A. SANTIAGO 35326 (HCS-10,772) B. SANTIAGO 35351 (HCS-10,775) C. SANTIAGO 35352
-
 WARNING NOTICE - SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED
 
 Forwarded herewith are sanitized copies of the documents cited in references.

@@ -12,10 +12,6 @@ FROM - Chief of Station, JMWAVE [Signature] [Title]
 
 SUBJECT Operational AMMUG/1 Identification of Manuel ESTEVEZ Perez
 
-ACTION REQUIRED REFERENCES
-
-ACTION REQUIRED: None; for your information and files.
-
 Reference: OSBW 1022 23
 
 Distribution:

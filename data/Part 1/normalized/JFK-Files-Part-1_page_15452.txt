@@ -12,8 +12,6 @@ FROM Chief of Station, Leopoldville
 
 SUBJECT Major Peter DE GROEVE
 
-ACTION REQUIRED
-
 ATTACHMENT
 
 DATE 2 April 1962

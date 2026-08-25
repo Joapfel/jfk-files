@@ -1,12 +1,8 @@
-OUTGOING MESSAGE
-
 0 . . . . . . . .
 
 . . . . . . . . .
 
 ONF-0 0 0 0 0 0 0
-
-STAFF
 
 COM:
 

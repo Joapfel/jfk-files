@@ -8,8 +8,6 @@ FROM Chief of Station, Madrid
 
 SUBJ RYBAT TYPIC TECHS/Construction of New PBRUMEN Embassy
 
-ACTION REQUIRED - REFERENCES
-
 Reference: OSMA 24774
 
 1. The PBRUMEN government has approved the construction in Madrid of a new office building to be used as an Embassy, Commercial office and residence for the PBRUMEN Minister. The site has been identified and work is expected to begin soon, probably after the return of AMAUTO-1 from PBRUMEN, sometime within the next two weeks. The builders expect to complete the building within eight months.
@@ -27,8 +25,6 @@ Distribution: (continued)
 2 - COS, WH/Miami
 
 2 - COR, FRANTECH
-
-GROSS REFERENCE TO DEPATCH SYMBOL AND NUMBER DATE
 
 OSMA 26040 18 March 1970
 

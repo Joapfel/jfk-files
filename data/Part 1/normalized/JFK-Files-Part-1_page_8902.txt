@@ -6,8 +6,6 @@ FROM Chief WH Division
 
 SUBJCT 1963 Cover Income Tax Returns
 
-ACTION REQUIRED - REFERENCES
-
 PRIORITY
 
 1. According to the records in the Office of Finance, the following named individuals have failed to file the required Cover Income Tax returns for 1963. Since the due date for Income Tax Returns is 15 April for individuals physically present in PAYMENT on that date and 15 June for individuals who are abroad on 15 April, all of the following individuals are now delinquent with respect to their PAYMENT Income Tax responsibilities:

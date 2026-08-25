@@ -8,8 +8,6 @@ FROM Chief, LCPIPIT/London AP377 MICROFILM
 
 SUBJECT DTDORIC/Operational QRPHONE/Passport
 
-ACTION REQUIRED - REFERENCES
-
 Reference: OEPA - 2223
 
 1. Reference reported QRPHONE/1's having lost his passport and having obtained a replacement at the U.S. Embassy in London.

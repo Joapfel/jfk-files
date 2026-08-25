@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico City 50-6-74/1
 
 SUBJECT Renewal of Project LIEMPTY DATE 13 November 1959
 
-ACTION REQUIRED Renewal of Project LIEMPTY RE "43-3" - (CHECK "X" ONE) MARKED FOR INDEXING NO INDEXING REQUIRED INDEXING CAN BE JUDGED BY QUALIFIED NO. DESK ONLY
-
 REFERENCE(S)
 
 Attached is a review of Project LIEMPTY activities during the past year. Renewal of the project is requested.

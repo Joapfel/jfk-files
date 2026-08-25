@@ -1,7 +1,5 @@
 DOHB-70-1-1 CHAPTER III, ANNEX B
 
-15 November 1974
-
 OI Code: a two letter symbol used in conjunction with the 201 personality records in the 201 system to record the association of an individual with organizations or activities of operational interest. OI codes cover intelligence and security service affiliation, whether staff or agent, or known or suspect, as well as activities of DDO interest. There are two categories of OI codes for use by components:
 
 (1) general OI codes (Attachment 4)

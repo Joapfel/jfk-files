@@ -8,11 +8,7 @@ FROM Chief, WHD MICROFILM
 
 SUBJECT Forwarding of Documents of Correspondence between Carlos A. BONILLA and Hicolay Bergreyevich LEOBOV
 
-ACTION REQUIRED · REFERENCES
-
 Reference: DIRECTOR 99758, 14 May 1968
-
-Action Required: For Information
 
 Forwarded herewith are copies of documents relating to an exchange of correspondence between Carlos A. BONILLA Sanchez (201-273728) and the Soviet press attaché in Mexico City, Hicolay Bergreyevich LEOBOV (201-132139). The station may wish to look into this relationship, possibly through GENEVA-10.
 

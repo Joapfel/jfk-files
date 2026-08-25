@@ -6,8 +6,6 @@ FROM Chief, SR via Chief, WH
 
 SUBJECT RECIPIENT/OPERATIONAL Ivan Dmitriyevich OBYEDKOV
 
-ACTION REQUIRED - REFERENCES
-
 REFERENCE: IBM 1004, 25 May 1965
 
 1. Headquarters agrees that Subject is probably not identical with Ivan Ivanovich OBYEDKOV (201-121531) as was earlier believed, and has accordingly assigned Ivan Dmitriyevich 201-779495. A full Headquarters trace under that name turned up no information other than that originating from Mexico City Station, which has now been re-classified into the new file. We are puzzled by the fact that MEXI-1850, dated 1 September 1962, the first piece of correspondence from Mexico City Station on Subject, reported him as Ivan Ivanovich.

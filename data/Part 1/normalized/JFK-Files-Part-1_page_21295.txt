@@ -8,8 +8,6 @@ FROM Chief of Base, Barcelona CGS.
 
 SUBJECT Counter Espionage Luis TEDESCHI, possibly Luis TEDECHI
 
-ACTION REQUIRED For your information
-
 REFERENCE(S) OIRW-18463
 
 There are no base file or QUOTA traces on Subject in Barcelona.

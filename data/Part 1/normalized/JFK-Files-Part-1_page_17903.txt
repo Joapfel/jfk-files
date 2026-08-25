@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT Reverse Telephone Listings
 
-ACTION REQUIRED See paragraph 2
-
 REFERENCE(S) DATE 8 October 1958
 
 OF ... (CHECK IF CND)

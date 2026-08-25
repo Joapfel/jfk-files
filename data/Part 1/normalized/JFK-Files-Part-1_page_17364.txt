@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT Monthly Activities Report for Project LIENVOY
 
-ACTION REQUIRED REFERENCES
-
 The following is the November 1962 report for Project LIENVOY:
 
 A. Target lines, as of 1 December

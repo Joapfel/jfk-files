@@ -16,10 +16,6 @@ FROM Chief of Station, JMWAVE [Signature]
 
 SUMMARY: Operational/CYROSE/AMCUTLER-1 Progress Report for November and December 1967.
 
-ACTION REQUIRED REFERENCES
-
-Action Required: For your information.
-
 Reference: UFGA-6637, dated 23 November 1967.
 
 Developments:

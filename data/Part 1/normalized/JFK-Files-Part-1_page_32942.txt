@@ -50,8 +50,6 @@ AM
 
 AD
 
-X
-
 H
 
 LI

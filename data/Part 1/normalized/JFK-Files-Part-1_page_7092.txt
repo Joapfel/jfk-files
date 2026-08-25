@@ -43,5 +43,3 @@ GROUP-1
 Excluded from automatic classification and declassification
 
 HMMMA - 29626 27 JULY 1966
-
-CLASSIFICATION HQS FILE NUMBER-201-285412

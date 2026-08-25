@@ -8,8 +8,6 @@ FROM Chief, WH Division ONLY QUALIFIED USER CAN CHANGE INFORMATION
 
 SUBJECT LIFEAT/Support
 
-ACTION REQUIRED REFERENCES
-
 Thomas C. LUND reported on returning to Headquarters after his TOY in Mexico that one of the LIFEAT basehouse keepers, possibly LIFEUD-1, was having difficulty in getting the pens for the dial recorders to write. Therefore, Headquarters has shipped by transmittal manifest to the Station 100 reels of pressure tape for the LIFEAT basehouses to use with the dial recorders. Headquarters hopes that this will be a satisfactory solution to your problem, and if not, please advise.
 
 Chester D. DAINOLD

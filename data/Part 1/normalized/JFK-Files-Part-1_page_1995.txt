@@ -2,8 +2,6 @@
 
 FRP:
 
-STAFF
-
 CONF: C/LA-8 , OLC, (20/P)
 
 INFO: ODPD-D, VR, FILE, C/EUR-6, , C/PCS,

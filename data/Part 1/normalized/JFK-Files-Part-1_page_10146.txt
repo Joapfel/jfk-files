@@ -8,8 +8,6 @@ FROM: : Chief, WH Division
 
 SUBJECT: : LITANIL-7
 
-ACTION REQUIRED - REFERENCES
-
 REF: EOMW-11739
 
 LITANIL-7 was granted an OA on 20 August 1963 for use as outlined in PRQ II forwarded in EMMA-21539.

@@ -1,12 +1,6 @@
-OUTGOING MESSAGE
-
-SIGNAL CENTER USE ONLY
-
 CDE . . . .
 
 . . . . .
-
-OMF-0 0 0 0 0 0 80
 
 PAGE OF PAGES
 

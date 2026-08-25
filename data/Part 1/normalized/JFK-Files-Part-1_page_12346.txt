@@ -16,8 +16,6 @@ AN KG
 
 as X
 
-X
-
 P3
 
 BX

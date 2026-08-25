@@ -8,8 +8,6 @@ FROM Chief, LCPIPIT/London
 
 SUBJECT DTDORIC/MHPROBE/Operational QRPHONE/British Immigration Status
 
-ACTION REQUIRED - REFERENCES
-
 CLASSIFICATION
 
 S P O R T / R Y B A T
@@ -21,8 +19,6 @@ MARRED FOR INDEXING
 NO ENCASENG REQUIRED
 
 ONLY QUALIFIED DESE CAN RUDGE INDEXENG
-
-MICROFILM
 
 1. On 12 March 1969 QRPHONE/1 was granted an extension on his British visa valid until 15 February 1970.
 

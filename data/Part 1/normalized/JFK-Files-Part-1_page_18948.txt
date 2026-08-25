@@ -20,19 +20,19 @@ APPROXIMATE DATES OF SERVICE LOCATION
 
 FROM TO COUNTRY STATION TDY PCS COMMENTS
 
-Oct 44 March 46 India New Delhi X
+Oct 44 March 46 India New Delhi
 
-Ceylon Kandy X
+Ceylon Kandy
 
-China Rumming X
+China Rumming
 
-Shanghai X
+Shanghai
 
-Apr 46 Feb 47 U.S. Hqtrs X
+Apr 46 Feb 47 U.S. Hqtrs
 
-Feb 47 Feb 49 India Bombay X
+Feb 47 Feb 49 India Bombay
 
-Mar 49 May 51 U.S. Hqtrs X
+Mar 49 May 51 U.S. Hqtrs
 
 June 51 Oct 53 Mexico Monterrey X Apr-May 54 TDI Guatemala
 

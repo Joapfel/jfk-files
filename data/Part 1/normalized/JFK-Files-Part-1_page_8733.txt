@@ -42,43 +42,15 @@ I
 
 V
 
-O
-
-S
-
-I
-
 G
 
-A
-
 P
-
-O
 
 B
 
 U
 
-T
-
 L
-
-R
-
-E
-
-A
-
-S
-
-I
-
-R
-
-E
-
-A
 
 D
 
@@ -90,68 +62,8 @@ Z
 
 H
 
-I
-
 G
 
-I
-
-R
-
-E
-
 W
-
-S
-
-A
-
-I
-
-S
-
-E
-
-A
-
-T
-
-R
-
-I
-
-S
-
-I
-
-R
-
-O
-
-R
-
-O
-
-S
-
-E
-
-A
-
-T
-
-R
-
-I
-
-S
-
-O
-
-T
-
-A
-
-R
 
 R</

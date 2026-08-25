@@ -22,8 +22,6 @@ Total Nevada 200.00
 
 TAMPA:
 
-Payroll:
-
 Dec. 1 Gustavo Cotayo 175.00
 
 Others:
@@ -35,8 +33,6 @@ Dec. 7 Budget of the Delegation 1151 393.00
 Total Tampa 768.00
 
 MIAMI:
-
-Payroll:
 
 Dec. 1 Thelma Carregado 125.00
 
@@ -51,8 +47,6 @@ Dec. 1 Otto Ruiz 998 300.00
 Total Miami 985.00
 
 KEY WEST:
-
-Payroll:
 
 Dec. 1 José M. Caramés 200.00
 

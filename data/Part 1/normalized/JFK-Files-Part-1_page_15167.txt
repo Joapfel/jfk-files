@@ -8,8 +8,6 @@ FROM Chief of Base, Sao Paulo DC/1
 
 SUBJECT REDWOOD/ABACRE Accommodation Address.
 
-ACTION REQUIRED See below
-
 REFERENCE(S) SAOP-1036, 2 October 1959
 
 In connection with paragraph 2 of reference, effective immediately it is requested that letters sent to Timothy K. Rancifer for insertion in the local mail system be sent instead to the following address:

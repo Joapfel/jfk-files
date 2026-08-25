@@ -8,8 +8,6 @@ FROM Chief of Station, Managua
 
 SUBJECT Traces on Persons Mentioned in Letters from AMBIDDY-1
 
-ACTION REQUIRED • REFERENCES
-
 REFERENCE: HNMW-2005, 5 June 1967
 
 ACTION : None, For Your Information

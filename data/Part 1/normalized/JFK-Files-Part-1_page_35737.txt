@@ -8,8 +8,6 @@ FROM Chief of Station, Habana
 
 SUBJECT Operational Transmittal of blank Documentation
 
-ACTION REQUIRED Hence.
-
 REFERENCE(S) DIR-36520 (RITAT)
 
 1. Transmitted herewith as attachment No. 1 for KURIOT are the following blank documents which are not used or required for the State in Habana E/8 Operation referred to in referenced cable. The KURIOT Document Specialist requested that the documents be returned to Headquarters.

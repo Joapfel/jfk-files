@@ -34,12 +34,6 @@ R SECRET I C CFN O P Y
 
 R I C O P Y
 
-R I C O P Y
-
-R I C O P Y
-
-R I C O P Y
-
 R I C O P Y**
 
 (35)

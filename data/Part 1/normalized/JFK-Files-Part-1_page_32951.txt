@@ -14,8 +14,6 @@ FROM Chief of Station, JMWAVE
 
 SUBJECT FJDUST/SGSWIRL/PURSIMEN Transmittal of SGSWIRL Reports
 
-ACTION REQUIRED REFERENCES
-
 Action: None
 
 1. Forwarded herewith are the following SGSWIRL reports with below list of IRD numbers, 201 numbers and cryptonyms:

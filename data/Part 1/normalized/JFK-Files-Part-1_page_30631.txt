@@ -15,8 +15,6 @@ X FIELD DEPARTMENTAL X FIELD DEPARTMENTAL
 
 13. VETERAN'S PREFERENCE NOW WWII OTHER S. PT. 10-POINT HIGH LOW
 
-X
-
 14. POSITION CLASSIFICATION ACTION NEW VICE I. A. REAL
 
 SD/DI 15. SEX M 16. APPROVALATION FROM-7-3786-55-040 MTO: Game 715-03 17. SUBJECT TO C. S. RETIREMENT ACT (YES-NO) Yes 18. DATE OF APPOINT. MENT AFFIDAVITS (ACCESSIONS ONLY) LEGAL RESIDENCE CLAIMED PROVED STATE: REMARKS: Subject is to be paid the difference between CIA salary of $9420 and FSS salary of $9380, to be paid by the International Cooperations Administration and allowances in accordance therewith Ten days(10) annual leave and all sick leave will be transferred to ICA by OGB/OCL

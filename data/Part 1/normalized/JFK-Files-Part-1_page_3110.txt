@@ -1,7 +1,5 @@
 RECORD COPY T
 
-STAFF
-
 1 4
 
 2 5

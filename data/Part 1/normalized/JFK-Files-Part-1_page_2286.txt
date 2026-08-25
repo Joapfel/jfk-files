@@ -24,8 +24,6 @@ ACTION # 2. 5.
 
 6.
 
-STAFF
-
 T 325447 EIA-549
 
 PAGE 02-02

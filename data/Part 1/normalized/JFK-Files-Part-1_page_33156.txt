@@ -8,8 +8,6 @@ FROM Chief of Station, WJ/Miami
 
 SUBJECT AMCHALK/ AMCHALK-5; Reinstatement of QA
 
-ACTION REQUIRED · REFERENCES References: A. DIRECTOR 18422, 6 February 1963
-
 B. UFGA-29702, 12 March 1968
 
 C. UFAW-417, 23 May 1969

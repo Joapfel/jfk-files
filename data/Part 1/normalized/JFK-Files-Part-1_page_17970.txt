@@ -6,8 +6,6 @@ FROM: Chief of Station, Mexico City
 
 SUBJECT: LIFEAT Report for March 1961 X DATE: 14 April 1961 RE: 433 - (CHECK "T" ONE) MARRED FOR INDEXING
 
-ACTION REQUIRED: Information Only. INDEXING CAN BE JUDGED BY QUALIFIED MQ DESK ONLY
-
 (REFERENCES)
 
 1. The following report is submitted in accordance with CSHB-F 52-6-1, section V. paragraph 2 (d) (1):

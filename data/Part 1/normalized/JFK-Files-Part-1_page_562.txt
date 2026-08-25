@@ -1,7 +1,5 @@
 FRP:
 
-STAFF
-
 CONF: C/EA-8 SA/D0/0 (14/P)
 
 INFO: FILE, VR, , C/PCS, , ODPD-D,

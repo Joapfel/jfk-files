@@ -6,8 +6,6 @@ FROM Chief. Western Hemisphere Division
 
 SUBJECT Summary of KDFACTOR Project Security Review
 
-ACTION REQUIRED - REFERENCES Forwarded under split transmission for your information is a copy of the KDFACTOR security review. Also included are two memoranda containing C/WOLENS and C/WOMUSE comments on the security review.
-
 Roger W. Bicego
 
 DISTRIBUTION:

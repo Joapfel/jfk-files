@@ -6,8 +6,6 @@ FROM Chief, WH Division BECF RM
 
 SUBJECT Contract of Raymond H. GERENDE
 
-ACTION REQUIRED - REFERENCE
-
 Subject's contract expires 30 September 1967. Shall we renew it on the present basis or do you wish to suggest any amendments?
 
 Theresa H. BACHARDY

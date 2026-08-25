@@ -10,8 +10,6 @@ FROM : Chief, WH Division BEST COPY
 
 SUBJECT : LIENVOY-8
 
-ACTION REQUIRED - REFERENCES
-
 1. As a result of the recent review done of the LIFEAT and LIENVOY Project, it came to Headquarters attention that LIENVOY-8, who was believed to have been terminated, was still covered by the LIENVOY Project.
 
 2. According to MDA-14576, LIENVOY-8 was the cause of a security problem for LIENVOY in February 1960 when he requested release from LIENVOY and a transfer to his parent organization, the General Staff of the Presidency. LIENVOY-8 was described as a "scur" nationalist who disapproved of ODTOKK's sharing of the LIENVOY take.

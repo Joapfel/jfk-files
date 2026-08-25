@@ -37,8 +37,6 @@ FIELD DEPARTMENTAL FIELD DEPARTMENTAL
 
 BILL OTHER
 
-X
-
 SEX
 APPROPRIATION FROM: To: M W 6296.93
 REMARKS: Subject to the satisfactory completion of a trial period of one year. Subject to the satisfactory completion of a medical examination. RC-93 DOG: 2/24/56 CSWOD: 2/29/56 LCD: 2/29/56 SCD: 6/02/51 PGI Due: 2/24/57

@@ -1,7 +1,5 @@
 COPY
 
-12 February 1953
-
 110 W. 57th Street New York City
 
 Dear Ed,

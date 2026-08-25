@@ -14,8 +14,6 @@ FROM Chief, WH Division
 
 SUBJECT LIEMPTY Project Renewal
 
-ACTION REQUIRED REFERENCES
-
 REFERENCE: HMA 17999, 31 October 1961
 
 1. The LIEMPTY Project was renewed on 12 January 1962 for a total of $49,500; $29,500 for FY 1962 and $20,000 for FY 1963. The renewal request submitted in HMA 17999 was approved without change.

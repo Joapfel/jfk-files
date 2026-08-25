@@ -12,8 +12,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT LIEMPTY/LIENTRAP/LIEMPTY-10 Security E.C. X
 
-ACTION REQUIRED Note: If connection is lost and coordinate center is not available, the station will be instructed to establish a local contact for information only and continue monitoring the situation. If appropriate, the station will be informed of the need to establish a local contact.
-
 REFERENCE(S) 1. At 1110 hrs., 20 September 1959, while on an operational assignment, LIEMPTY-10 and the LIENTRAP vehicle were temporarily detained by the Servicio Secreto de Mexico (Mexican Secret Service). LIEMPTY-10 was held under unofficial custody for approximately 26 hours before his release was obtained. There follows below an account of the more important details pertaining to this incident.
 
 2. LIEMPTY-10 was instructed on 17 September to case the area surrounding the Theatre Iris, located at Donceles 36, preliminary to undertaking a photographic surveillance of all persons entering and leaving the theatre between the hours of 0930 and 1200 hrs., 20 September. In this instance, the Station's target was a pro-Cuban rally sponsored by the Circulo de Estudios Mexicanos (CEM). The Station had received information that many of the leading Mexican and Central American Communists would attend this rally and that this was an opportune time to establish which ones did attend and to collect their photographs. The Station did not know that the Mexican Secret Service would also be covering this meeting for the purpose of preventing a Communist-inspired demonstration.

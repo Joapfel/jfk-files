@@ -6,8 +6,6 @@ FROM Chief of Station, San Jose HEADQUARTERS FILE NO. 201-32723
 
 SUBJECT Operational/field Traces CORIERO Calderon Family
 
-ACTION REQUIRED
-
 REFERENCE(S) FCS-H- 1730
 
 1. Field traces reveal the following on the CORIERO Calderon family:

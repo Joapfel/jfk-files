@@ -6,8 +6,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT LIENVOY Targets
 
-ACTION REQUIRED For your information
-
 REFERENCE(S) HMM-W-10,620
 
 An error was made by the person preparing HMM-A-18,752 (RYBAT-1833) or by the typist who chose the DFS list of taps (in HMM-A-18,246) instead of the correct LIENVOY list of targets.

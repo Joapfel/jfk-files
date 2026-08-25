@@ -10,8 +10,6 @@ FROM Chief of Station, JMWAVE-549
 
 SUBJECT TYPIC/AMSPELL/Operational o AMSPELL Progress Report, April 1965
 
-ACTION REQUIRED - RESEARCH
-
 FYI:
 
 REF: UFGA-21,514, 20 May 1965

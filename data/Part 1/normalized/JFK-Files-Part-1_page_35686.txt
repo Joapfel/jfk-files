@@ -10,10 +10,6 @@ FROM Chief of Station, JMWAVE
 
 SUBJECT TYPIC/Operational MOC Amendment for Subject of 201-307337
 
-ACTION REQUIRED - REFERENCES
-
-Action Required: Please Record Amendment
-
 References : A. UFGA-11381, 27 September 1963 (MOC Amendment)
 
 B. UFGA-15436, 23 April 1964 (MOC Amendment)

@@ -1,5 +1,3 @@
-STAFF
-
 1 NAME FILE NO.
 
 A B C

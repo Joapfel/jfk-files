@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT Cormac Unibath Six Minutes Photographic Developer
 
-ACTION REQUIRED
-
 REFERENCE(S)
 
 1. Enclosed is a clipping advertising a UNIBATH developer, one step photo developing solution, that replaces the three separate solutions now used by the operational darkroom technician who processes the take from the LIMERICK basculebox.

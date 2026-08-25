@@ -10,10 +10,6 @@ FROM Chief of Station, JMWAVE Ake
 
 SUBJECT Operational/GYROSE Review and Analysis of AMFAUNA Operation
 
-ACTION REQUIRED REFERENCES
-
-Action Required:
-
 1. Traces on AMFAUNAs 2 through 23, identified in Attachment E. POAs on AMFAUNAs 2, 3, 4, 6, 10, 11, 12, 13, 17, 18, 19.
 
 2. Ascertain whether AMFAUNA-3 is of operational interest to ODIBEX (see paragraph 15b).

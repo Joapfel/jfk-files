@@ -10,8 +10,6 @@ LAF AGC/DOO, OP5+T6Y, c10PS,
 
 ACTION # I N F O C14,
 
-STAFF
-
 1 4
 
 2 5

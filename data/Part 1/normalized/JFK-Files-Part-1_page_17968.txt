@@ -6,8 +6,6 @@ FROM Chief of Station, Mexico City per CSH-43-43
 
 SUBMIT LIFEAT Report for April, May, June, July, and August 1961
 
-ACTION REQUIRED For your information
-
 REFERENCES 1. The following report is submitted in accordance with CSHB-F 52-6-1, section V, paragraph 2 (d) (1): a. Exploitation of Leads (1) LIFEAT/LIERODE with related lines continued to provide valuable information for use in support of Station operations. However, coverage of the LIERODE official installation was cut on 19 May for security reasons. The following leads were provided: As a result of a LIFEAT provided lead, the Station was able to develop an operation in cooperation with the Mexican Government whereby Mario CHAVEZ, Guatemalan who is representative of the Castroite Bohemia, was placed under Mexican surveillance and ultimately arrested. LIFEAT also provided a check on the activities of LITANGO-1. Further, provision of travel information to and from Cuba by Nicaraguan and Guatemalan exiles was of continuing importance. (2) LIFEAT was employed as a check of the activities of former KUBARK agents LIVESTOCK-2 and LIVESTOCK-3. This coverage has contributed measurably to Station security. (3) LIFEAT/LITMUS provided vital coverage of the LITMUS official installation during the EECORN recruitment operation. Also of value were the leads pointing to two suspected LITMUS Intelligence Service agents. Other Station assets are now investigating these leads. (4) LIFEAT coverage of the American Communist Group in Mexico City (ACCM) continues to provide excellent coverage of the activities, travel, and contacts of the American Communists living in Mexico. This information is of primary importance to ODEMY.
 
 Processing of Material LIFEAT processors continue to process the take from the LIENVOY/LIMERICK coverage.
@@ -35,5 +33,3 @@ PT
 A&D
 
 50-6-32/3
-
-X

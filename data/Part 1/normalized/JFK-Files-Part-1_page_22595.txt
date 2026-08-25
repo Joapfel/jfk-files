@@ -8,10 +8,6 @@ FROM Chief, WID
 
 SUBJECT JPASH/Adm. Administrative Matters
 
-ACTION REQUIRED: REFERENCES
-
-ACTION REQUIRED: As Indicated
-
 REFERENCES: (A) UFGT-135, std 290ct60
 
 (B) UFGT-150, std 4Rev60

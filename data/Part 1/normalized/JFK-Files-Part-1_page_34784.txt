@@ -10,8 +10,6 @@ FROM Chief of Station, JMWAVE FJQ
 
 SUBJECT OPERATIONAL/TYPIC/AMBUD Transmittal of Biographic Data
 
-ACTION REQUIRED REFERENCES: A. UFGA-25261, 3 June 1966 B. UFGA-26584, 6 December 1966
-
 1. AMTIKI-1 has obtained biographic data on Case No. 17 which is forwarded under separate cover. The case number is keyed to Reference A, attachment No. 1:
 
 Case No. 17 : Requirement completed.

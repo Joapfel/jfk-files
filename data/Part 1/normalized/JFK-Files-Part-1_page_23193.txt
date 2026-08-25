@@ -18,8 +18,6 @@ SUBJECT { GENERAL - Operational SPECIFIC Proposed assignment of Arthur C. VAIVAD
 
 REP: HN04-5825
 
-ACTION REQUIRED: Station comments and/or concurrence
-
 (Releasing officer)
 
 (Coordinating officer)

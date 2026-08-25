@@ -8,8 +8,6 @@ FROM: Chief of Station, JEWAVE
 
 RECEIVED: Operational/TYPIC/AMWORLD/AMOT-Activities in AMWORLD and of AMBIDDY-1 CDC MICRO
 
-ACTION REQUIRED: REFERENCES Action Required: None. For Your Information.
-
 1. The AMOTs have recently submitted two short reports providing some information about AMWORLD and AMBIDDY-1 activities.
 
 2. AMOT-84 reported the following in Report DD-1414, 19 May 1965, which he had acquired from Iden A, whose ultimate source of information was AMWORLD-2:

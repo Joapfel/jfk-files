@@ -8,10 +8,6 @@ FROM : Chief, WHD DATE :
 
 SUBJECT : LIFEAT/ZONAR RE-43-3" - (CHECK "X" ONE) MARKED FOR INDEXING
 
-ACTION REQUIRED X NO INDEXING REQUIRED
-
-ACTION REQUIRED : None INDEXING CAN BE JUDGED BY QUALIFIED HQ. DESK ONLY
-
 REFERENCE(S) MTTA-13043, 5 June 1959
 
 The following system which will give the Station 26 new target symbols for use in LIFEAT/ZONAR has been assigned to Mexico City:

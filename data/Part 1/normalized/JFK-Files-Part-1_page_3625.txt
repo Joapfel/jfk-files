@@ -12,8 +12,6 @@ F
 
 ACTION # O
 
-STAFF
-
 1 4
 
 2 3

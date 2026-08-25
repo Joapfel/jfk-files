@@ -20,12 +20,6 @@ New position (Specify whether establish, change grade or title, etc.)
 
 &nbsp;
 
-&nbsp;
-
-&nbsp;
-
-&nbsp;
-
 FROM- Area Ops. Off. GS-0136.01-12 DUP/EX Austrian Station Operations Staff
 
 Vienna, Austria
@@ -35,11 +29,3 @@ X FIELD &nbsp;&nbsp;&nbsp; DEPARTMENTAL A POSITION TITLE AND NUMBER SERVICE RATE
 POSITION CLASSIFICATION ACTION REAL &nbsp;&nbsp;&nbsp; VER SUBJECT TO: C.S. RETIREMENT ACT. (YES-NO) DATE OF APPOINTMENT AFFIDAVIT (ACCESSIONS ONLY)
 
 &nbsp; 80-DI
-
-&nbsp;
-
-&nbsp;
-
-&nbsp;
-
-&nbsp;

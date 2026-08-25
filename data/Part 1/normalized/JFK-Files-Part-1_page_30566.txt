@@ -1,7 +1,5 @@
 COFF
 
-25 November 1947
-
 TO : CPD Thru: FRZ and COPS
 
 FROM : COD

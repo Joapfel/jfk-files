@@ -8,8 +8,6 @@ FROM Chief, WP Division
 
 SUBJECT FMZIP/Operational Jose Maria IASA Irrutibeasco 05
 
-ACTION REQUIRED REFERENCES AR: FYI
-
 1. During your recent TDI to Headquarters, you requested all available information regarding a young Cuban named (LASA) who talked to Identity 1.
 
 2. Identity 2 met with Jose Maria IASA Irrutibeasco and Identity 1 on 2 October 1961. Identity 1, apparently, had been requested by Subject's uncle, a Cuban official in Switzerland, to meet with IASA who had recently departed from Cuba under a safe conduct agreement.

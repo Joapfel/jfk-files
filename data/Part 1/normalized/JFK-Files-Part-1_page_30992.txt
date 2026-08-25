@@ -8,10 +8,6 @@ FROM Chief of Station, Mexico City MICROFORM
 
 SUBJECT ADMINISTRATIVE/PERSONNEL Transmittal of Forms SF 176-T
 
-ACTION REQUIRED - DELIVERIES
-
-ACTION REQUIRED: Process Forms
-
 REFERENCE: FN 20-86, dated 2 February 1968
 
 Forwarded herewith are the forms for the below listed personnel:

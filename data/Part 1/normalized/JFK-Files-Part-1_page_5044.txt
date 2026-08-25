@@ -1,12 +1,8 @@
-OUTGOING MESSAGE
-
 0 . . . . . .
 
 . . . . . . .
 
 3
-
-OMF-0 0 0 0 0 0 0
 
 MESSAGE HANDLING GROUP STAFF
 

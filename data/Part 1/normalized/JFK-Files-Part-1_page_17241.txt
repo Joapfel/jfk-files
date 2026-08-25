@@ -10,8 +10,6 @@ FROM: Chief, WH Division
 
 SUBJECT LIEMTY/Request for Project Renewal
 
-ACTION REQUIRED REFERENCES
-
 ACTION: See below
 
 REFERENCE: R09-8515, 25 February 1960

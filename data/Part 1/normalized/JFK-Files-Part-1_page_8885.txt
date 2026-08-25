@@ -8,8 +8,6 @@ FROM XX MICROFILM
 
 SUBJECT General - Operational/Specific - Edward G. TICHBORN Letter of Resignation to William D. KIMROY
 
-ACTION REQUIRED - REFERENCES
-
 REFERENCE: MEXI-1745, dated 25 November 1964
 
 Forwarded as a separate cover attachment to this dispatch is a copy of the letter which TICHBORN prepared and forwarded to KIMROY on 25 November 1964.

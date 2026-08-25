@@ -6,8 +6,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT LIEMPTY/Memoranda of Oral Commitments
 
-ACTION REQUIRED None, for Hqs. info only
-
 REFERENCE(S)
 
 Attached for Headquarters files are copies of recently revised Memoranda of Oral Commitments on several LIEMPTY agents:

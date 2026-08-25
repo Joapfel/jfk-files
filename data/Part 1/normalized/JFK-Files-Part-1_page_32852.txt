@@ -10,8 +10,6 @@ SUBJECT Operational/TYPIC/MHGUILE/AMSTALK Pedro Luis PINERO Eiria
 
 ACTION REQUISITE REFERENCES
 
-Action Required: FYI
-
 Reference: HMMA-33829, 12 January 1968
 
 1. On 30 January 1968 AMSTALK-1 was shown the passport picture of Pedro Luis PINERO Eiria, which was received at JMWAVE as an attachment to the reference, for possible identification as one of the two Cubans he had met with in Madrid on 23 June 1967.

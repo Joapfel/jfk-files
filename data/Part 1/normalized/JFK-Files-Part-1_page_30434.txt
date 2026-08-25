@@ -36,15 +36,9 @@ FROM ... TO ...
 
 (City or State) (Country) (Purpose)
 
-FROM ... TO ...
-
 (City or State) (Country) (Purpose)
 
-FROM ... TO ...
-
 (City or State) (Country) (Purpose)
-
-FROM ... TO ...
 
 (City or State) (Country) (Purpose)
 

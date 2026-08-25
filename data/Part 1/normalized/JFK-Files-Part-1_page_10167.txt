@@ -8,8 +8,6 @@ FROM: : Chief of WH Division ABSTRACT END OF LINE
 
 Subject: : LITMIL-7
 
-ACTION REQUIRED - REFERENCE
-
 ACT. REQ.: Submission of PRQ Part II
 
 1. The POA on Subject has expired as of 10 March 1963.

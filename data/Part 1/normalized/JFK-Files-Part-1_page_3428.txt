@@ -10,8 +10,6 @@ FROM Chief of Station, JWAVE
 
 SUBJECT NYAT/TYPIC/OPERATIONAL/AM WORLD
 
-ACTION REQUIRED - REFERENCE ACTION REQUIRED: None
-
 REFERENCE: REFERENCE: None
 
 Transmitted herewith are five ANOT reports on AWORLD activities which may be of interest to BECKHUEV.

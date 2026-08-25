@@ -8,8 +8,6 @@ FROM Chief of Station, Buenos Aires AEROFORM
 
 SUBJECT RYBAT/REDTOP/DIOGENESIS/AFROOR - Surveillance Reports
 
-ACTION REQUIRED - REFERENCES
-
 Reference: HABA-20512, dated 26 April 1969
 
 1. Reference dispatch described our efforts against AEBOOR and stated that the next phase would consist of a 24 hour a day surveillance of Subject for a period of about two weeks. The coverage was initiated at 0800 hours on 19 May, and terminated at 1515 hours on 26 May, the day of AEBOOR's departure for home leave.

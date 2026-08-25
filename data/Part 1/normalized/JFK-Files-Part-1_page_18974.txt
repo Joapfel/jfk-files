@@ -12,8 +12,6 @@ Rating received at end of this training.
 
 Dates of duty assignment (months, years):
 
-From: To:
-
 (d) What did you do during this duty assignment?
 
 (e) Second Special Service School attended:
@@ -24,8 +22,6 @@ Location:
 
 Dates attended (months, years):
 
-From: To:
-
 Rating received at end of this training:
 
 (g) Duty assignment after this training:
@@ -33,8 +29,6 @@ Rating received at end of this training:
 (h) What did you do during this duty assignment?
 
 Dates of duty assignment (months, years):
-
-From: To:
 
 List on a separate sheet of paper any additional experience, training, service, or special duty assignments during military service or hospitalisation.
 

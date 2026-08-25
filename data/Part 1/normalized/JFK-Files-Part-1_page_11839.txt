@@ -1,10 +1,4 @@
-OUTGOING MESSAGE
-
 0 . . . . . . . . . . . . . . .
-
-SIGNAL CENTER USE ONLY
-
-OMF-0 0 0 0 0 0 0
 
 CLASSIFICATION SECRET
 

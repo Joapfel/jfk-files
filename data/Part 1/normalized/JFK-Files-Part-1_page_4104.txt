@@ -10,10 +10,6 @@ FROM Chief of Station, JMWAVE
 
 SUBJECT TYPIC, Operational/AMWORLD/AMLILACs C Report on AMBIDDY-1
 
-ACTION REQUIRED REFERENCES
-
-ACTION REQUIRED - FYI
-
 REFERENCE - None
 
 1. In late July 1965 members of the AMLILAC Group reported the following information as a result of their contacts with various members of AMYUM located in the JMWAVE area.

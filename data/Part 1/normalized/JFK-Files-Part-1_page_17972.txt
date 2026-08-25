@@ -8,8 +8,6 @@ Chief, WHD
 
 SUBJECT Automobile License Check
 
-ACTION REQUIRED REFERENCES
-
 RDMA-16477, 15 February 1961
 
 MICROFILMED

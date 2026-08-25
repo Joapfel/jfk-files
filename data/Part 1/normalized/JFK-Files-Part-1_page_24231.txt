@@ -10,8 +10,6 @@ FROM Chief of Station, Paris/LCPIPIT BJS.
 
 SUBJECT CTDDORIC/Operational Assessment of QREBONY/1
 
-ACTION REQUIRED - REFERENCES
-
 Ref: OFLH-1494
 
 1. Forwarded herewith is a 6-1/2 page answer by RODIGAST to the questions posed in reference. If any further clarification is required by Headquarters, please advise.

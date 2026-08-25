@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico
 
 REF LIFET Monthly Report - December 1959
 
-ACTION REQUIRED Information only
-
 (REFERENCES) ENM A-11253, 16 Dec. 1959
 
 1. The following report is submitted in accordance with EN 52-670, paragraph 3(c)(2);

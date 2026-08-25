@@ -1,18 +1,12 @@
-OUTGOING MESSAGE
-
 0 1 . . . . . .
 
 . . . . . . . .
 
 . . . . . . . .
 
-OMF-0 0 0 0 0 0 0
-
 CLASSIFICATION SECRET
 
 MESSAGE HANDLING INDICATOR
-
-STAFF
 
 CONF: INFO: FILE
 

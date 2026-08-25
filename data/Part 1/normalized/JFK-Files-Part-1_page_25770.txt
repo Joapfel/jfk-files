@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico City PER '43' - (CHECK 'X' OR 'O')
 
 SUBJECT New Contract for Raymond H. GERENDE (p) AWARDED FOR INDOING X NO INDICATING REQUIRED
 
-ACTION REQUIRED INCARCERING CAN BE JUDGED BY QUALIFIED HO. DESK ONLY
-
 REFERENCE(S) Headquarters preparation of a new contract.
 
 HMMW-5626, 3 December 1957

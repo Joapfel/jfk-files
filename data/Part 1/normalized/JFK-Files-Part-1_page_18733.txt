@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT Recommendation for Promotion --
 
-ACTION REQUIRED · REFERENCES
-
 Reference: A. HMMT-7514 B. HMMT-6090
 
 Action : See paragraph 1.

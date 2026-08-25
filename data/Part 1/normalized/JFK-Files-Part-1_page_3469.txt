@@ -8,8 +8,6 @@ FROM: Chief of Station, JEWAVE RECEIVED: [Signature]
 
 SUBJECT: HYBAT/TYPIC/AMWORLD Recent Declarations by Manuel ARTINE Buena ARCHIVED: [Signature]
 
-ACTION REQUIRED: REFERENCES ACTION REQUIRED: None REFERENCE: None
-
 Transmitted herewith is an AMOT report concerning the Referendum and exile reactions to Manuel ARTINE's speech before A.R.E.C., which may be of interest to BECKHOFF.
 
 END OF DISPATCH
@@ -17,8 +15,6 @@ END OF DISPATCH
 Attachment: AMOT Report ID-778 One copy herewith
 
 Distribution: S - C/SAS, w/att/h/w
-
-GROSS REFERENCE TO DATE TYPED: 3-14-84 APR 2 A 1964 DATE DISPATCHED: 201-267437
 
 CLASSIFICATION: SECRET [Signature] 19-124-27/3
 

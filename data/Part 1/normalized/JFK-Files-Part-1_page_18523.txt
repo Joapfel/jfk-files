@@ -1,7 +1,5 @@
 DATE OF REQUEST
 
-17 March 1965
-
 NAME (Last, First, Middle)
 POSITION TITLE
 GRADE

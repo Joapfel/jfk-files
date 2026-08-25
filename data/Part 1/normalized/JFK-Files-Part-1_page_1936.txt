@@ -1,7 +1,5 @@
 File
 
-24 November 1964
-
 Chief, Alien Affairs Staff
 
 Santiago ARGUELLES Izquierdo (AAC-1130) - #244420(C) Angel Manuel BENITEZ Benitez (AAC-1131) - #744305(C) Alicio CALAS Roque (AAC-1132) - #737175(C) Alfredo FERNANDEZ Martinez (AAC-1133) - #737177(C) Conrado FERNANDEZ Morales (AAC-1134) - #272300(C) Felix FUENTES Games (AAC-1135) - #284891(C) Orlando GARCIA Duarte (AAC-1136) - #218729(C) Jose Angel GONZALEZ Castro (AAC-1137) - #223976(C) Guillermo GONZALEZ Lazo (AAC-1138) - #733496(C) Jose Severino HERNANDEZ Martinez (AAC-1139) - #283744(C) Pedro LOPEZ Cristo (AAC-1140) - #284375(C) Raimundo MARTINEZ Gonzalez (AAC-1141) - #284148(C) Ricardo Anibal MORALES Navarrete (AAC-1142) - #380858(C) Alberto PEREZ Martinez (AAC-1143) - #223124(C) Manuel A. RIVERO Colona (AAC-1144) - #228117(C) Jorge Delio RODRIGUEZ Triana (AAC-1145) - #744303(C) Mario Andres ROMERO Arias (AAC-1146) - #277933(C) Jorge Luis SILVA Del Monte (AAC-1147) - #218751(C) Juan Cornelio TAMAYO Cordovi (AAC-1148) - #218752(C)
@@ -41,16 +39,6 @@ Ch PSD
 # SRD File
 
 6/12W
-
-6/6
-
-6/6
-
-6/6
-
-6/6
-
-6/6
 
 6/6
 

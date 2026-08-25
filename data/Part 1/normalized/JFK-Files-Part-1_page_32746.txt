@@ -10,8 +10,6 @@ FROM Chief, Western Hemisphere Division
 
 SUBJECT Chief of Station, Buenos Aires RYBAT RESTOP AERONAUT AETARGET Letter for AMSTALK-1's Wife
 
-ACTION REQUIRED RETERMINES
-
 1. Forwarded under cover, please find a letter written by AMSTALK-1 for delivery to his wife. AMSTALK-1 tells us (we certainly agree) that he would prefer for JM/AVE to mail the letter rather than trusting the international mail from here.
 
 2. Incidentally, to date we are highly pleased with AMSTALK-1. We greatly appreciate JM/AVE's assistance in the AERONAUT operation.

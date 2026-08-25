@@ -6,8 +6,6 @@ FROM Chief of Station, Mexico City 12 November 1958
 
 SUB Project LIFEAT Request for Spare Parts [BOS] - (CHECK ONE) X NO MORE THAN REQUIRED
 
-ACTION REQUIRED Station Mexico That the Items Below be procured and Forwarded to/ INDEED CAN BE ADOPTED BY QUALIFIED NO DEMANDED
-
 1. It is requested that the following items be procured and forwarded to Station Mexico for use in Project LIFEAT:
 
 A. Vacuum Tube:

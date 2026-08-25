@@ -10,8 +10,6 @@ FROM MICROFILM
 
 SUBJECT AMCHALK/Report by AMBEDEW-1
 
-ACTION REQUIRED · REFERENCES
-
 Attached for your information and retention is a report by AMBEDEW-1.
 
 Joyce K. JAWGIEL
@@ -50,18 +48,4 @@ RELEASING
 
 [ ] [ ] [ ]
 
-[ ] [ ] [ ]
-
-[ ] [ ] [ ]
-
-[ ] [ ] [ ]
-
 [ ] [x] [ ]
-
-[ ] [ ] [ ]
-
-[ ] [ ] [ ]
-
-[ ] [ ] [ ]
-
-[ ] [ ] [ ]

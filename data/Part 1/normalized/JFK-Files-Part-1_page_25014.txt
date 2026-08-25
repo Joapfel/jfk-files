@@ -30,10 +30,4 @@ REF: DIRECTOR 194115
 
 [Signature] X
 
-[Signature] X
-
-[Signature] X
-
-[Signature] X
-
 [Signature] X <

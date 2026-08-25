@@ -6,8 +6,6 @@ FROM : Chief of Station, Mexico City
 
 SUBJECT: LIEMPTY Project Renewal
 
-ACTION REQUIRED: Renewal of Project.
-
 REFERENCES
 
 Attached are the requisite number of copies of the Request for Renewal of Project LIEMPTY.

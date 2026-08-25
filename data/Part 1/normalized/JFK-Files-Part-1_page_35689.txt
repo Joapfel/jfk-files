@@ -10,8 +10,6 @@ FROM Chief of Station, JMWAVE ABSTRACT
 
 SUBJECT TYPIC/Operational MOC Amendment for Subject of 201-307337 MICROFILM
 
-ACTION REQUIRED REFERENCES Action Required: Please Record Amendment
-
 Reference : UFGA-11381, 27 September 1963 (Transmittal of MOC for Subject)
 
 1. Transmitted herewith are three (3) copies of an amended MOC for Subject. This amendment has been written to delete the requirement for a covert income tax return from Subject's MOC and to place Subject on the JMWAVE payroll whereby taxes will be deducted from Subject's salary.
@@ -26,12 +24,6 @@ Distribution: 3 - C/SAS w/atts. MOCS - H/W IDEN Sheet - USC
 
 DATE SUBMITTED
 
-DATE SUBMITTED
-
 15 Apr 64
 
-DATE SUBMITTED
-
 UFGA-15-136
-
-DATE SUBMITTED

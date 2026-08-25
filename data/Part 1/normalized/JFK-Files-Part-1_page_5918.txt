@@ -2,8 +2,6 @@
 
 FRP:
 
-STAFF
-
 CONF: LA-5
 
 INFO: FILE, VR, IP/DMS, ODPD-D, (S/P)

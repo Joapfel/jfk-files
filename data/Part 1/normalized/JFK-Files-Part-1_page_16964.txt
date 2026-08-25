@@ -8,8 +8,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT C Project LIEMPTY/Progress Report 1 May through 31 July 1965
 
-ACTION REQUIRED - REFERENCES References: A. HNMA-26027, 5 May 1965
-
 B. HNMA-26243, 4 June 1965
 
 C. NEXI-4167, 16 July 1965

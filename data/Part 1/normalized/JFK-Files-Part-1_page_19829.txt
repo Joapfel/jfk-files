@@ -28,37 +28,23 @@ PRESENT ADDRESS
 
 (St. and Number) (City) (State)
 
-(Citizenship)
+FULL NAME AGE
+
+(First) (Middle) (Last)
+
+(St. and Number) (City) (State)
 
 FULL NAME AGE
 
 (First) (Middle) (Last)
 
-PRESENT ADDRESS
-
 (St. and Number) (City) (State)
-
-(Citizenship)
 
 FULL NAME AGE
 
 (First) (Middle) (Last)
 
-PRESENT ADDRESS
-
 (St. and Number) (City) (State)
-
-(Citizenship)
-
-FULL NAME AGE
-
-(First) (Middle) (Last)
-
-PRESENT ADDRESS
-
-(St. and Number) (City) (State)
-
-(Citizenship)
 
 SEC. 8. FATHER-IN-LAW
 

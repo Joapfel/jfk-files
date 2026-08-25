@@ -24,14 +24,6 @@ TYPE (Last) (First) (Middle)
 
 N2
 
-N2
-
-N2
-
-N2
-
-N2
-
 SEX #1
 DATE OF BIRTH #1
 COUNTRY OF BIRTH #1
@@ -46,16 +38,6 @@ O1 CODE M1
 15. DOCUMENT SYMBOL & NUMBER #1 DATE #1 16. RESIDENCE #1
 
 17. COMMENTS (text for Index cards) e1
-
-e1
-
-e1
-
-e1
-
-e1
-
-e1
 
 e1
 

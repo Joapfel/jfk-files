@@ -1,12 +1,8 @@
-OUTGOING MESSAGE
-
 0 . . . . . . .
 
 07/18/84
 
 2
-
-OMF-0 0 0 0 0 0 0
 
 CLASSIFIED SECRET
 

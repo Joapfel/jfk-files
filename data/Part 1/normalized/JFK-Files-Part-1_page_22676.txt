@@ -6,8 +6,6 @@ FROM Chief, WH
 
 SUBJECT Harold R. GOEMAYR
 
-ACTION REQUIRED See below
-
 REFERENCE(S) FAB-585
 
 1. In answer to your queries of reference, we wish to direct your attention to FIB-20-620-1, dated 28 November 1958, which provides information on overseas medical benefits available from KUBARK. This new handbook should be of great help in the future on questions of this nature as it sets forth in one place KUBARK provisions for employee and dependent medical benefits, together with the procedures required.

@@ -4,8 +4,6 @@ FROM Chief, WH Division
 
 SUBJECT Raymond H. GERZHEDE
 
-ACTION REQUIRED IF NOTIFIED
-
 Reference: B00W-14620
 
 Please reply immediately to Reference concerning GERZHEDE's contract since it expires on 30 September 1966.

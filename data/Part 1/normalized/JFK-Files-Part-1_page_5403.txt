@@ -8,8 +8,6 @@ FROM Chief, WHD MICROFILM
 
 SUBJECT Plotting Against the Duvalier Regime
 
-ACTION REQUIRED - REFERENCES
-
 ACTION: Information Only
 
 Forwarded under separate cover is a Memorandum for the Record prepared by an LNGOLD Official on the reported plotting by Clemard Joseph Charles to overthrow the Duvalier regime. The memorandum was prepared on the basis of a conversation held with a representative of Charles in Washington on 29 June 1967.
@@ -23,8 +21,6 @@ Distribution:
 Attachment:
 
 1 - Memorandum, U.S.C.
-
-GROSS REFERENCE TO DISPATCH SYMBOL AND NUMBER DATE MARFOR
 
 12/JUL 1967
 

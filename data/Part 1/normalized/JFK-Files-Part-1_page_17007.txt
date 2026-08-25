@@ -6,8 +6,6 @@ FROM Chief of Station, Mexico City
 
 SUBJECT Operational/Assignment of Cryptonym
 
-ACTION REQUIRED None
-
 (REFERENCES)
 
 IDC-A-11257 - LIEMPTY

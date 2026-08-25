@@ -10,10 +10,6 @@ FROM Chief of Station, WH/Miami
 
 SUBJECT PBRUMEN/AMDESK-1
 
-ACTION REQUIRED - REFERENCES
-
-Action Required: For your information
-
 References:
 
 UFAA-4533, 8 November 1972

@@ -27,9 +27,3 @@ AO IP
 AO WH/REG
 
 AO WH/REG
-
-AO C/WH/1
-
-AO C/WH/1
-
-AO C/WH/1

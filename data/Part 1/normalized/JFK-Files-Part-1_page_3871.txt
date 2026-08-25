@@ -6,8 +6,6 @@ FROM Chief, WH Division
 
 SUBJECT AMBIDDY-1 Discussions with Frank MARSHALL and Daniel ODUBER
 
-ACTION REQUIRED - REFERENCES
-
 REFERENCES: A. HRS-3845, 12 December 1966 B. HNHW-1930, 19 December 1966
 
 1. AMBIDDY-1 gave the following information to James D. ZABOTH in Managua on 15 December 1966 and was told to pass it on to his headquarters contact for proper handling and distribution. This report is forwarded as a follow-up in case the information failed to get into proper channels, as it has a direct connection with Reference A and is a sequel to Reference B.
@@ -31,8 +29,6 @@ MICROFILMED
 JAN 16 1967
 
 DOC. MICRO. OFF.
-
-GROSS REFERENCE TO
 
 HNMA-3735
 

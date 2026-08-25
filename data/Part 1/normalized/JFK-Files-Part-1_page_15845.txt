@@ -6,8 +6,6 @@ FROM: Chief, Africa Division
 
 SUBJECT: Operational/WIROGUE/1
 
-ACTION REQUIRED REFERENCES See Below A. ACIW-192, dated 14 November 1960
-
 B. LEOP,0478, dated 17 December 1960
 
 C. DIR-17181, dated 10 December 1960

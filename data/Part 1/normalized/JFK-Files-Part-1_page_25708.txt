@@ -6,8 +6,6 @@ FROM Chief, M.I. Division BROILEUR
 
 SUBJECT Payer D. GILBERT
 
-ACTION REQUIRED REFERENCES
-
 Reference: HUMA-24,220
 
 1. The contract for GERENDE expires on 30 September 1965. Please notify Headquarters whether you wish to have the contract extended another year, and whether any changes are desired.

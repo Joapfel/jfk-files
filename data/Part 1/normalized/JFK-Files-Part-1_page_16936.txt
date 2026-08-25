@@ -10,10 +10,6 @@ FROM Acting Chief, WH Division
 
 SUBJECT Identification of Florida License Plate 1-105538
 
-ACTION REQUIRED NUTRICES
-
-Action Required: For your information
-
 References: A. MEXI-8361, 24 August 1966
 
 B. DIR-31174, 27 August 1966

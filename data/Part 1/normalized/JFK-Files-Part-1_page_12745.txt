@@ -8,8 +8,6 @@ ACTION UNIT W48 VR: Jeh, SB8, C/fop2
 
 ACTION #
 
-STAFF
-
 4
 
 1 3

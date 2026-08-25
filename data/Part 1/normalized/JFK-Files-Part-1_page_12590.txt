@@ -10,8 +10,6 @@ FROM Chief, Western Hemisphere Division
 
 SUBJECT Top Secret UMBRA Captured Document in Code
 
-ACTION REQUIRED - REFERENCES REF: HVCA 15939 1. After a number of false starts, the attachment to reference was determined to be in code rather than Turkish language as suspected. Returned for your information is the original attachment and the resulting document after the code had been broken. We are advised that this is a fairly unsophisticated system.
-
 Victor I. CRAPULLI
 
 ATTACHMENT: As stated above

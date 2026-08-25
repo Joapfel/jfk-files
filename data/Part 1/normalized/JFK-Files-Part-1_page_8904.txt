@@ -8,8 +8,6 @@ FROM Chief, WH Division
 
 SUBJECT Edward G. TICHBORN
 
-ACTION REQUIRED - REFERENCES Subject's contract will expire 18 November 1964. Please advise by return dispatch whether the contract should be renewed and if any changes are desired.
-
 Chester D. DAINOLD
 
 Distribution: O&amp;I - COS, Mexico City

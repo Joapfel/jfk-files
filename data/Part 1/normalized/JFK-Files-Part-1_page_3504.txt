@@ -10,10 +10,6 @@ FROM Chief of Station, JMWAVE
 
 SUBJECT RYBATE TYPIC A WORLD Speeches of Manuel Artine Buesa
 
-ACTION REQUIRED - REFERENCES
-
-Action Required: None, FYI
-
 Reference : None
 
 Transmitted herewith are three AMOT reports concerning recent public appearances of Manuel ARTIME Buesa which may be of interest to BECKHOFF.
@@ -31,8 +27,6 @@ AMOT Report DD-764 - 1 cy
 Distribution:
 
 3 - SAB, w/att/h/w
-
-GROSS REFERENCE TO GROUP-1 Included in group Grouping one decals reported DATE 201-267437
 
 CROSS REFERENCE
 

@@ -6,8 +6,6 @@ FROM Chief of Station, JMWAVE
 
 SUBJECT OPERATIONAL/TYPIC/AMBUD Transmittal of Biographic Data
 
-ACTION REQUIRED REFERENCES
-
 References A. DIRECTOR 59411 B. UFGA 26584, 8 December 1966
 
 1. The additional biographic data on certain dependents and trustees requested by Headquarters in Reference A will be forwarded under separate cover as it is received from AMTIKI-1.

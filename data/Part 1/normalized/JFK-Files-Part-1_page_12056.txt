@@ -20,15 +20,15 @@ Subject is the president of a company which will provide accreditation in Japan 
 
 4. Limits, if any, to investigation: None
 
-5. Is Subject aware that an investigation is in process: Yes No X
+Is Subject aware that an investigation is in process: Yes No
 
-6. Is Subject aware of CIA interest? Yes No X
+Is Subject aware of CIA interest? Yes No
 
-7. Has Subject been briefed on "cover" story? Yes No X
+Has Subject been briefed on "cover" story? Yes No
 
-8. Has Subject established "cover" for investigation with probable contacts? Yes No X
+Has Subject established "cover" for investigation with probable contacts? Yes No
 
-9. Is Prov. Operational Clearance necessary? Yes No X
+Is Prov. Operational Clearance necessary? Yes No
 
 10. Investigation to be Routine ____ Expedite Must be completed by: 1 June 1952
 

@@ -84,80 +84,20 @@ Finland
 
 Switzerland
 
-Denmark
-
 Sweden
 
 Poland
 
-Germany
-
 France
-
-Spain
-
-Portugal
-
-Italy
 
 Malta
 
-Germany
-
-Denmark
-
-Sweden
-
-Finland
-
-Spain
-
-Portugal
-
-Italy
-
 Switzerland
-
-Denmark
-
-Sweden
-
-Finland
-
-Germany
 
 France
 
-Spain
-
-Portugal
-
-Italy
-
 Malta
 
-Germany
-
-Denmark
-
-Sweden
-
-Finland
-
-Spain
-
-Portugal
-
-Italy
-
 Switzerland
-
-Denmark
-
-Sweden
-
-Finland
-
-Germany
 
 France </

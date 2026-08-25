@@ -22,14 +22,6 @@ TYPE (Last) (First) (Middle)
 
 N2
 
-N2
-
-N2
-
-N2
-
-N2
-
 SEX F1 F2 N2
 
 COUNTRY OF BIRTH

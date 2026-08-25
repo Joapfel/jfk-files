@@ -6,8 +6,6 @@ FROM Chief, WH Division
 
 SUBJECT REDTOP Alexandr Mikbaylovich BROVAKH (201-185114)
 
-ACTION REQUIRED - REFERENCES
-
 Reference: HSS-6229, 19 December 1968
 
 CLASSIFICATION SECRET
@@ -15,8 +13,6 @@ CLASSIFICATION SECRET
 PROCESSING ACTION MARKED FOR INDEXING
 
 ONLY QUALIFIED DESK CAN JUDGE INDEXING
-
-MICROFILM
 
 1. LIFERE reported the PCS departure of the BROVAKH family on 22 September 1968 aboard Sabena Flight 556. Subject travelled on Soviet Diplomatic Passport D-008133.
 

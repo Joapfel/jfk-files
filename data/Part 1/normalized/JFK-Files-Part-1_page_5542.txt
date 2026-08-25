@@ -12,12 +12,6 @@ WH COMMENT: Ref describes contact of Clemard CHARLES with Station officer.
 
 C/WHD
 
-C/WHD
-
-C/WHD
-
-C/WHD
-
 NO NO
 
 C/FI

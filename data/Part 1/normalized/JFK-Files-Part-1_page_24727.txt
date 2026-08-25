@@ -8,8 +8,6 @@ FROM Chief of Station, Lima CAS
 
 SUBJECT Operational/JMR-08 Transmittal of Letter
 
-ACTION REQUIRED - REFERENCES
-
 REFERENCE: DIRECTOR 26978
 
 Forwarded herewith is a copy of the torn letter as requested per Reference.

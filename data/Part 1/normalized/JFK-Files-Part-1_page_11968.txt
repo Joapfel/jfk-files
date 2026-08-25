@@ -6,8 +6,6 @@ ACTION # RF FILE VR.
 
 A N O
 
-STAFF
-
 ACTION # RF FILE VR.
 
 2 3

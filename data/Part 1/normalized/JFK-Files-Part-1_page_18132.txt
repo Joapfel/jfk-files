@@ -8,11 +8,7 @@ FROM Chief, Western Hemisphere Division
 
 SUBJECT KDFACTOR Project Amendment
 
-ACTION REQUIRED REFERENCES
-
 X NO IMMEDIATE ACTION ONLY IF LOST OR FOUND (CAN BE REMOVED)
-
-ACTION REQUIRED REFERENCES
 
 1. Project KDFACTOR was amended 10 December 1971 for $4,260 for FY 1971 to cover the termination bonuses for KDFACTOR-1 and KDFACTOR-7. The Project amendment also provides funds of $19,000 for FY 1972 and $20,000 for FY 1973.
 

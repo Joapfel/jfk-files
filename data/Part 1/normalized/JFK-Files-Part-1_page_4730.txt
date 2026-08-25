@@ -2,8 +2,6 @@
 
 CHF-0 0 0 0 0 0
 
-STAFF
-
 CONF: INFO: FILE
 
 B90701

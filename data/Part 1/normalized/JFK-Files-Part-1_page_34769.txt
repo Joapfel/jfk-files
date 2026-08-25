@@ -8,8 +8,6 @@ FROM Chief of Station, JMWAVE A8
 
 SUBJECT TYPIC/AMBUD/OPERATIONAL AMBUD Dependent Payments
 
-ACTION REQUIRED REFERENCES Action Required: See Below
-
 References: A. DIRECTOR 63288, 20 January 1967
 
 B. UFGW 6351, 19 January 1967

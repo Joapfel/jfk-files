@@ -8,8 +8,6 @@ FROM Chief of Station, JMWAVE
 
 SUBJECT Processing and Exploitation of Photographic Coverage of LIRING by the AMOT Organization.
 
-ACTION REQUIRED FJI
-
 Reference: HMMA-33841, 17 January 1968
 
 1. The following comments are for the information and assistance of those officers who are in the process of determining the future of the LIONION operation: a. The AMOTs have received and reviewed a number of the prints from the LIONION operation and report that it is a time-consuming and largely unproductive effort.
