@@ -1,0 +1,27 @@
+MHFNO: 96-4653466. SENSIND: RYBAT.
+
+Staff. Action: EUR/PLANS (694). Info: EUDORECORD, MDSX, NR/OPSB, NR/ORG, OCC/CRG, OCC/RB, ODPD, RYBAT, FILE (O/W).
+
+96 4653466 ASP. IN 4653466. NEWARK 20442. TOR: 031305Z JUL 96. 031358Z JUL 96. CITE NEWARK 20442. TO: Priority Director.
+
+FOR: Limit EUR/PLANS info OCC/CRG, NR/ORG, NR/OPSB.
+
+SLUGS: WNINTEL, RYBAT, FASTTRACK, MXLETTER.
+
+Subject: Continuation of payment to C/LPAVERT for e-mail account.
+
+Reference: A. NEWARK 19245. B. DIRECTOR 415240.
+
+1. Action required: Please advise if there is interest in C/LPAVERT renewing his CompuServe account per below.
+
+2. On 25 June 1996, C/LPAVERT called Station and asked for recently resigned C/O Gerald K. HauseInan (HauseInan) regarding whether he should renew his CompuServe account. According to Ref A and as reflected in his MOU, LPAVERT received US$1,700 as an administration fee for the e-mail account which he opened on NWBOLTON's behalf.
+
+3. Per Ref B para 3, we noted that C/LPAVERT told IC MacDonald E. Zappley (Zappley) in August 1995 that he was convinced that NWBOLTON was involved in the assassination of President Kennedy. In light of that remark, EUR decided not to use the account for a sensitive field asset but rather for an application of less sensitivity. Ref B advised further that the account might be dropped after the first year.
+
+4. Station has had no contact with C/LPAVERT since 20 September 1995. Please advise if Station should request C/LPAVERT renew his account, which is due to expire in August.
+
+5. CL by 0535054; CL reason: 1.5 (C); decl on: X1; drv from: HUM 4-82.
+
+6. File: CS-6754; 201-1490579.
+
+End of message.

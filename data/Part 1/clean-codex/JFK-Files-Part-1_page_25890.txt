@@ -1,0 +1,9 @@
+Outgoing message.
+
+INFO: FILE CHG//SYS.ADC2.GC5N10.
+
+26144Z
+
+CIR
+
+Dissem by.

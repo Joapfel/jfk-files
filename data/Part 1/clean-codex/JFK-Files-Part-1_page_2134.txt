@@ -1,0 +1,19 @@
+Position Control Register. Date.
+
+Name/serial no.; division/office; date of arrival/office; age/office; patent no./office; name/location; division/location; date of arrival/location; age/location; patent no./location; submitting officer; see attempted location.
+
+John H. Doane N; JCS 136, 113; 2 3111 + C; C 21; patent no. 583800600.
+
+Farris, Joseph V M; GJS 136, 112; 3111 D; C 19.
+
+Brown, Charles L E M P's MARS D; GS 1184, 0112; 3111 D; C 19.
+
+Haynes, Raymond; GS 126, 117; 2 3113 + C.
+
+Williamson, John M MARS A; GS 116, 112; 3113 D; C 18.
+
+Larkins, David G MARS S; GS 136, 112; 3113 D; C 19.
+
+Eagle, Richard; GS 146, 117; 3113 D; C 16.
+
+Miles Jefferson; GS 136, 111; 2 3116 + C.

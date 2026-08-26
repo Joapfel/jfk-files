@@ -1,0 +1,19 @@
+Salesman: Barlo & Co. Commission number. Week ending.
+
+Customer name: Description; Present, disaster: Carolina; Type business: Pine; Planned: Duty; Application: Duty; Revenue booked, one time: State, date acquired; Monthly: Call, date acquired; Comments and expense notes: Gains or losses.
+
+Customer: MAY SUGAR 1; date acquired: 11-12-71; application: 11-19-71; revenue booked, one time: 4.93; monthly: 18.84; gains or losses: .50-.
+
+Customer: MAY PLYWOOD 1; date acquired: 11-10-71; application: 11-19-71; revenue booked, one time: .91.-; monthly: 68.76; gains or losses: 101-.
+
+Customer: MAY PLYWOOD 1; date acquired: 11-11-71; application: 11-19-71; revenue booked, one time: .91.-; monthly: 89.50; gains or losses: 101-.
+
+Customer: MAY SUGAR 2; date acquired: 11-23-71; application: 11-24-71; revenue booked, one time: 5.10; monthly: 5.03; gains or losses: .73-.
+
+Customer: MAY SUGAR 1; date acquired: 11-26-71; application: 11-30-71; revenue booked, one time: 5.17; monthly: 5.14; gains or losses: .31.-.
+
+Customer: MAY SUGAR 1; date acquired: 11-29-71; application: 12-1-71; revenue booked, one time: 5.33; monthly: 5.22; gains or losses: (31--).
+
+Customer: MAY PLYWOOD 1; date acquired: 11-23-71; application: 12-1-71; revenue booked, one time: .89.-; monthly: 89.50; gains or losses: (65-).
+
+Customer: MAY MAY SUGAR 1; date acquired: 12-3-71.

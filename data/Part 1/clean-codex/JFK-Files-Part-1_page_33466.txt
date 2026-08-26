@@ -1,0 +1,31 @@
+C/LA/AN/S. Subject and Project File Request and Field Notification of Action.
+
+From (Division): C/IF/DMS. Station/Office: C/LA.
+
+Information for Requesters.
+
+Complete items 1 through 2.
+
+Item 3: All file titles must be sterile since they will appear on the field copies and on magnetic lists.
+
+Item 6: All remarks must be sterile.
+
+Item 7 and 8: Use first three letters of department symbols for field stations and let departments file according to established numeric codes.
+
+Item 10: Enter old title when amending a file. Only any files, such as 201 org project files that are related to the file covered by this request; item 10 is also deemed to be reasonable for the action being requested, to identify the type of material to be filed in a file or to make other explanatory remarks.
+
+Item 11: A records officer must sign all file action requests. Consult your BMD on any problems that may arise.
+
+Information Concerning File.
+
+1. Type of File: Subject.
+
+7. Code (File) Number. Country number: 015. Category number: 124. Specific subject number: 052.
+
+File Title (Specific Subject) (Projects limited to 15 spaces): FUOMEN.
+
+Action Required.
+
+4. Analysis Action: Open file. Amend file title.
+
+5. Disposition: Close file; indicate disposition. Retain. Destruction recommendation through date. Redo/purge.

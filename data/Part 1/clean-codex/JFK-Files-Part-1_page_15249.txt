@@ -1,0 +1,31 @@
+PART TWO (Operational Data)
+
+Biographical
+
+1. Agent's cryptonym: AEASPIC.
+
+Russian spelling.
+
+2. Agent's operational name: Native language spelling (if other than Russian).
+
+Familiya, otchestvo, imya.
+
+FamiliyR, otchestvo, imya.
+
+3. Operational names for mother and father.
+
+Russian spellings.
+
+Mother: imya, otchestvo.
+
+Father: imya, otchestvo.
+
+Infiltration
+
+4. Approximate date of agent's departure from training area: 4–26 September 1959.
+
+Date of agent infiltration: 10–26 day, 8–27 month, 1–5 year.
+
+5. Approximate.
+
+6. If infiltration is by air or water, how long will the agent stay in hiding before traveling to the target area? 1 hour, 30 minutes.

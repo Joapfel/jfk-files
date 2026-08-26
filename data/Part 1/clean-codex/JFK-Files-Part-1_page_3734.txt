@@ -1,0 +1,13 @@
+Document Transfer and Cross Reference.
+
+BI file no. Dispatch or source document symbol no. Source ciphertext. Analyst. Date processed. Disseminated by. Date.
+
+Document disposition. Cross referred to this file. Transferred to BI file no.
+
+Pertinent information:
+
+Artime Buesa (Ruesa), Manuel. 201-267437. Sex M DDB? CIT CURA. Occ? < CURA. Operates military training camps in Central America.
+
+201-294682. DBC-47308. 18 MAR 69. FBI. R 6904110968.
+
+File in 201-. File this form in file no.

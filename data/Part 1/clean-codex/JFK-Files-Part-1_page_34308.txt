@@ -1,0 +1,11 @@
+012209Z.
+
+DIR CITE WAVE 7627. TYPIC MHSPAWN AMWASP.
+
+Reference: DIR 60778+.
+
+Prefer Journal request interview through AMSCROLL in view of AMWASP-1 overt connection. Letter should be addressed to AMWASP-1 care of IDEN. AMWASP-1 available to go to New York any time.
+
+CFN 7627 60778 AMSCROLL AMWASP-1 -1 -1 New York.
+
+State Journal of Commerce has no representative. WAVE, NERD, AMWASP must travel to New York.

@@ -1,0 +1,7 @@
+Action Code. Employ. Code. Office Coding: numeric, alphabetic. Station Code: 75013. IntegEE Code: 1. Mqgrs Code: no, day, year; 12, 88, 35. Date of Birth: no, day, year. Date of Grade: month, day, year. Date of LEI.
+
+NTE Expires: month, day, year. Special Reference: code. Retirement Data: type; no, day, year. Correction, Continuation Data. EOD Data.
+
+Vet. Preference: code; 0—none, 1—SFT, 2—SFT. Serv Comp Date: month, day, year. Long Comp Date: SAN RESV, EPOL TEMP; code. Career Category: code; 0—wars, 1—yes. Federal Health Insurance: health ins code. Social Security No.
+
+Previous Civilian Government Service: code; 0—no previous service, 1—no break in service, 2—break in service (less than 1 year), 3—break in service (more than 1 year). Leave Category Code. Form Executed: 1—yes, 2—no. Federal Tax Data: no tax exemptions. State Tax Data: form executed, 1—yes, 2—no. Signature or Other Authorization.

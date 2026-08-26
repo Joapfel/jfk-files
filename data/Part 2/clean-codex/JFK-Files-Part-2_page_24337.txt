@@ -1,0 +1,7 @@
+Common Stock.
+
+Columns: Date of purchase; Stocks; No. of shares; Purchased at per share; Purchased amount; Per share; 31 December 1974 amount; P/E ratio.
+
+Housing: Shapell Industries, purchased 2/72, 5,000 shares, at 25-1/2 per share, amount 127,859.50, 31 December 1974 amount 27,500, P/E ratio 3.
+
+Insurance: American Reinsurance, purchased 2/73, 8,000 shares, at 42-7/8 per share, amount 342,850.00, 31 December 1974 amount 104,000. American Reinsurance, purchased 4/73, 2,000 shares, at 38-1/2 per share, amount 77,000.00, 31 December 1974 amount 26,000. Total and average price: 10,000 shares, 42 per share, amount 419,850.00, 31 December 1974 amount 130,000, P/E ratio Def. Gulf Life Holdings, purchased 1/73, 24,000 shares, at 17-3/4 per share, amount 426,572.95, 31 December 1974 amount 153,000, P/E ratio 4. Hanover Insurance, purchased 9/72, 2,000 shares, at 26 per share, amount 52,000.00, 31 December 1974 amount 11,500. Hanover Insurance, purchased 10/72, 4,000 shares, at 25-7/8 per share, amount 103,575.00, 31 December 1974 amount 23,000. Hanover Insurance, purchased 11/72, 400 shares, at 26 per share, amount 10,400.00, 31 December 1974 amount 2,300. Total and average price: 6,400 shares, 25-7/8 per share, amount 165,975.00, 31 December 1974 amount 36,800, P/E ratio 5. Reliance Group, purchased 5/72, 5,000 shares, at 20-1/2 per share, amount 102,731.20, 31 December 1974 amount 28,750. Reliance Group, purchased 7/73, 2,000 shares, at 12-5/8 per share, amount 25,

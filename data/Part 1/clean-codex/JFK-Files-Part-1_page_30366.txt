@@ -1,0 +1,11 @@
+Verified Record of Overseas Service.
+
+To: Office of Personnel, Statistical Reporting Branch, R004 192 Circle Hall.
+
+Employee serial no.: 57124. Name of employee: McCord, James W. Office/component: -11.
+
+Instructions: Use appropriate space below to report data for either PCS or TOY. Insert appropriate code number in “Code” column to designate which submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS Dates of Service. Type of data: 1 - PCS (Basic). Arrival and departure data: code, month, day, year, weeks, day, year. Country. Omit. Type of data: 2 - Correction. Type of data: 3 - Cancellation.
+
+TOY Dates of Service. Type of data: 7 - TOY (Basic). Departure and return data: code, month, day, year, weeks, day, year. Areas (1). Omit.

@@ -1,0 +1,15 @@
+To: Office of Personnel, Statistical Reporting Branch, Room S E 2506, Headquarters.
+
+Employee serial no.: 26700. Name of employee: Murphy, David. Office/component: 44.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Select appropriate code number in the “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month and last two digits only for year.
+
+PCS dates of service.
+
+Type of data: 1 — PCS (Basic); 2 — Correction; 3 — Cancellation. Arrival. Departure. Country. Omit.
+
+TDY dates of service.
+
+Type of data: 2 — TDY (Basic); 3 — Correction; 4 — Cancellation. Departure. Retention. Areas. Omit.
+
+TDY data: Type 2. Departure: 05/27/63. Retention: 05/30/63.

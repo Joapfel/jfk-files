@@ -1,0 +1,43 @@
+Serial No. C35324; arrival date 621106; CUR 1; C/L CC; area 450; return date 631214; MAWHINNEY ELLEN F; time YRMODA 010109; Mexico.
+
+Serial No. C19143; arrival date 621205; CUR 1; C/L FC; area 450; return date 681027; HENNICK DOROTHY J; time YRMODA 051023; Mexico.
+
+Serial No. C35641; arrival date 621207; CUR 1; C/L CC; area 450; return date 650615; HAMMEI RUTH I; time YRMODA 020609; Mexico.
+
+Serial No. C54841; arrival date 621209; CUR 1; C/L RR; area 450; return date 670930; FELDMANN ROBERT H; time YRMODA 040922; Mexico.
+
+Serial No. C19762; arrival date 630121; CUR 1; C/L FR; area 450; return date 671119; MUSGRAVE MARY G; time YRMODA 040920; Mexico.
+
+Serial No. G88924; arrival date 630216; CUR 1; C/L S1; area 450; return date 630401; JOHNSON PATRICIA I; time YRMODA 020116; Mexico.
+
+Serial No. C55455; arrival date 630421; CUR 1; C/L CC; area 450; return date 651201; SHAW ROBERT T; time YRMODA 020700; Mexico.
+
+Serial No. C37507; arrival date 630430; CUR 1; C/L CC; area 450; return date 690527; JOHNSEN MARTIN I; time YRMODA 020028; Mexico.
+
+Serial No. C60942; arrival date 630615; CUR 1; C/L CC; area 450; return date 680708; THOMAS WADE F; time YRMODA 050024; Mexico.
+
+Serial No. C37004; arrival date 630629; CUR 1; C/L CC; area 450; return date 650629; SILVERLIEB JOAN G; time YRMODA 020001; Mexico.
+
+Serial No. 062241; arrival date 630717; CUR 1; C/L FF; area 450; return date 661016; DINAGEN JAMES F; time YRMODA 030230; Mexico.
+
+Serial No. C38031; arrival date 630819; CUR 1; C/L S1; area 450; return date 651107; SANCHEZ DOLORES; time YRMODA 020219; Mexico.
+
+Serial No. C27739; arrival date 630823; CUR 1; C/L CC; area 450; return date 651001; ASHLEY JOSEPH P; time YRMODA 020109; Mexico.
+
+Serial No. C25015; arrival date 630911; CUR 1; C/L FF; area 450; return date 650715; SWIDER RAYMOND J; time YRMODA 011005; Mexico.
+
+Serial No. C12027; arrival date 631031; CUR 1; C/L 49; area 450; return date 650531; MACKAY LORNA J; time YRMODA 010701; Mexico.
+
+Serial No. C37954; arrival date 631207; CUR 1; C/L CC; area 450; return date 651220; RODRIGUEZ NEIDA; time YRMODA 020014; Mexico.
+
+Serial No. C27747; arrival date 640219; CUR 1; C/L CC; area 450; return date 660810; HUMPHREY L D JR; time YRMODA 020522; Mexico.
+
+Serial No. C38306; arrival date 640429; CUR 1; C/L CC; area 450; return date 660513; PURKEY EARL K; time YRMODA 020015; Mexico.
+
+Serial No. 037171; arrival date 640511; CUR 1; C/L RR; area 450; return date 661108; LADENEURG ARTHUR T; time YRMODA 020528; Mexico.
+
+Serial No. C25644; arrival date 640521; CUR 1; C/L CC; area 450; return date 660730; BRIGHT WILLIAM C; time YRMODA 020210; Mexico.
+
+Serial No. C14680; arrival date 640715; CUR 1; C/L CC; area 450; return date 670726; BOJARSKI TED S; time YRMODA 030012; Mexico.
+
+Serial No. 032618; arrival date 640910; CUR 1; C/L CC; area 450; return date 671203; FARMER MICHAEL J; time YRMODA 030224.

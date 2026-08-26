@@ -1,0 +1,51 @@
+DOHB 70-1-1. Chapter III, Annex B. 15 November 1974.
+
+Desk blocks on the 201 Personality File Action Request (Form 831). The standard listings available are:
+
+1. Alphabetical by surname, leading to a 201 number.
+2. Alphabetical by given name, leading to a 201 number.
+3. Alphabetical by cryptonym, leading to a 201 number.
+4. Numerical, leading to a surname.
+5. Numerical, leading to a cryptonym.
+
+FUL & CHINA. 201 Surname Alpha List. 03 October 1973.
+
+Names and 201 numbers:
+
+CHEN, SHOU I. — 7115/1343/6030/  
+CHEN, SHOU I. — 7115/1343/0001/  
+CHEN, SHOU I. — 7115/1343/0001/  
+CHEN, SHOU-I-  
+CHEN, SHOU-  
+CHEN, SHOU-VI-  
+CHEN, SHU-AAN-  
+CHEN, SHU-HAN — 7115/2495/6490/  
+CHEN, SHU-HAN — 7115/2495/74-  
+CHEN, SHU-HAN — 7115/2495/77-  
+CHEN, SHU-MSHV — 7115/2495/8133/  
+CHEN, SHU-MUA-  
+CHEN, SHU-KUH — 7115/2495/5030/  
+CHEN, SHU-KUT — 7115/2495/2710/  
+CHEN, SHU-LA-  
+CHEN, SHI LIANG — 7115/0647/009-  
+CHEN, SHI LI — 7115/2579/2651/  
+CHEN, SHI-LIN — 7115/2473/010-  
+CHEN, SHU-NIN-  
+CHEN, SHU-NIN — 7115/2P85/0589/  
+CHEN, SHU-PAO — 7115/2579/0202/  
+CHEN, SHU-SFM — 7115/2895/2773/  
+CHEN, SHU-SAY — 7115/2579/051-  
+CHEN, SHU-TS — 7115/2445/1795/  
+CHEN, SHU TEH — 7115/  
+CHEN, SHU TING — 7115/0647/6639/  
+CHEN, SHU TUU — 7115/2445/2737/  
+CHEN, SHU TZU — 7115/0647/0337/  
+CHEN, SHU-YAU — 7115/2655/1031/  
+CHEN, SHU-YI-  
+CHEN, SHY-TI — 7115/2845/5391/  
+CHEN, SHY-TIN — 7115/2579/4942/  
+CHEN, SHY-TS-  
+CHEN, SHU-YII-  
+CHEN, SHU-TII — 7115/2579/3842/
+
+Type values: A, A, A, A, A, A, R, A, R, A, R, A, V, A.

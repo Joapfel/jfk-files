@@ -1,0 +1,15 @@
+Date of Report: 04/02/2001.
+
+Record ID No. (104/180): 104-10078-10014. 104 No.: 104-10078-10014. JFK ID No.: 1995.09.27.16:41:00:970028. Box Number: JFK17. Volume Folder: F21. Status: SAN. Postpone Count: 9. Next Document Issue Date: 12/01/2005.
+
+General Comments: São Paulo and Rio de Janeiro, SAOP; PROTECT (BE) RELEASE (TIDE); OPS DETAIL: LIGHT STATE.
+
+Issues:
+
+Issue: BE DIGRAPH. Occurrence Count: 2. Action Document Issue Date: 12/01/2005. Issue Comment: See 104-10017-10041. Other documents with later dates.
+
+Issue: CABLE PREFIX. Occurrence Count: 1. Action Document Issue Date: 10/01/2017. Issue Comment: Note exceptions to 2017 release in document comments.
+
+Issue: CIA INSTALLATION. Occurrence Count: 5. Action Document Issue Date: 10/01/2017. Issue Comment: Note exceptions to 10/2017 in general comments.
+
+Issue: OPERATIONAL DETAILS. Occurrence Count: 1. Action Document Issue Date: 10/01/2017. Issue Comment: Note exceptions to 2017 in general comments.

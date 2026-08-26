@@ -1,0 +1,3 @@
+Process Sheet for Domestic Contact Service Collections.
+
+Field Office. Report Number. Forwarder. Case Number. Subject and Area. Type of O.O.E. Sub-source (Name, Title, Organization, Address). Contact (Name/Title, Organization, Address). Method of Collection: Debriefing; Other Document. Source (Name, Title, Organization, Address). Subject. Headquarters Comments. Field Comments.

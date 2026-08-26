@@ -1,0 +1,7 @@
+Teletype unit received.
+
+Invoice for payment of total amount due for the period starting and ending. Date of payment. Amount.
+
+New York, New York. April 24, 1960. The amount due is $12.00.
+
+Approved for payment: April 24, 1960.

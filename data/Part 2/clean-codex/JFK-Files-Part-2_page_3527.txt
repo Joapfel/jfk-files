@@ -1,0 +1,11 @@
+Dissemination Control Abbreviations.
+
+NOFORN: Not releasable to foreign nationals.
+
+NOCONTRACT: Not releasable to contractors or contractor/consultants.
+
+PROPIN: Caution—proprietary information involved.
+
+ORCON: Dissemination and extraction of information controlled by originator.
+
+REL...: This information has been authorized for release to...

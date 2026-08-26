@@ -1,0 +1,11 @@
+Position Control Register.
+
+Lt. CHESTER H: Schedule G5; Occupancy 0136.91; Grade 13; Position Number C.A. SD 4878; Employee Number D; F name 008791; Yr. C; Sex 24; Type of Emp Code M; Level P 10; Date of Grade Mo 002303; Date of Grade Yr 1057; PCS Q/S Date Mo 37587; P.E. Report Number 47340032803.
+
+Co-operative Officer: Schedule G5=0136.91; Grade 12; Plan Incumber 8; Position Number C.A. SD 3889; Employee Number D.
+
+Scott Durand R: Schedule G5; Occupancy 0136.91; Grade 12; Position Number C.A. SD 3889; F name 007998; Yr. C; Sex 27; Type of Emp Code M; Level P 10; Date of Grade Mo 001062; Date of Grade Do 0559; Date of Grade Yr 37587.
+
+Lavanboux Oliver U: Schedule G5; Occupancy 0136.91; Grade 17; Position Number C.A. SD 3089; F name 007207; Yr. C; Sex 31; Type of Emp Code M; Level P 10; Date of Grade Mo 122263; Date of Grade Do 0599; Date of Grade Yr 37587.
+
+Maxim William T: Schedule G5; Occupancy 0136.91; Grade 33; Position Number C.A. SD 3089; F name 0063701; Yr. C.

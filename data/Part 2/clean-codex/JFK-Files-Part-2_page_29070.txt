@@ -1,0 +1,37 @@
+Income Averaging.
+
+See instructions on pages 3 and 4. Attach to Form 1040.
+
+Name(s) as shown on Form 1040: SAMUEL PHYLLIS RUBY.
+
+Your social security number: 322 12 7997.
+
+Taxable Income and Adjustments.
+
+1. Taxable income: computation year 1973, 7626; 1st preceding base period year 1972, -0-; 2d preceding base period year 1971, -0-; 3d preceding base period year 1970, -0-; 4th preceding base period year 1969, -0-.
+
+5. Adjusted taxable income or base period income: computation year 1973, 7626; 1st preceding base period year 1972, -0-; 2d preceding base period year 1971, -0-; 3d preceding base period year 1970, -0-; 4th preceding base period year 1969, -0-.
+
+Computation of Averagable Income.
+
+6. Adjusted taxable income from line 5, column (a): 7626.
+
+7. 30% of the sum of line 5, columns (b), (c), (d), and (e): -0-.
+
+8. Averagable income (line 6 less line 7): 7626.
+
+Complete the remaining parts of this form only if line 8 is more than $3,000. If $3,000 or less, you do not qualify for income averaging. Do not fill in rest of form.
+
+Computation of Tax.
+
+9. Amount from line 7: -0-.
+
+10. 20% of line 8: 1525.
+
+11. Total (add lines 9 and 10): 1525.
+
+12. Amount from line 3, column (a), less any income subject to a penalty under section 72(m)(5) which was included in line 3.
+
+13. Total (add lines 11 and 12): 1525.
+
+14. Tax on amount on line 13: 219.

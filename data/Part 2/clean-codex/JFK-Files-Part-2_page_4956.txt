@@ -1,0 +1,3 @@
+MHFNO: 96-4016553. SENSIND: EO RYBAT. Reason: 1.5C, decl on: X1, drv from: HUM 4-82. Cabletype: GECO STAFF 1.0.2. Relno: E409396. Orig: EUR/GAEXT (HUMPHJA, 45591); auth: EUR/GA (VOLZ); info: EUR/LGL (CRAWFORD), OGC/LD (CIPRIANI-SUB); rel: EUR/GA (VOLZ).
+
+End of message.

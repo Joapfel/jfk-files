@@ -1,0 +1,38 @@
+Lista de pasajeros. Pasajero marcado.
+
+Propiedad y administración: Cooperativa.
+
+Aeronave: XA*MUS DC-8 Mexican.
+
+Vuelo: 401. Medida: 20.05.
+
+Fecha: 26 de diciembre de 1962.
+
+Punto de entrada: New York City, USA.
+
+Punto de salida: Mexico D.F., Mexico.
+
+Para uso del propietario/administrador; para uso oficial bolivariano. Apellido y nombre completo; código cinco y ocho; condición síntesis; uso oficial sin código.
+
+BOLATIN QOBQJE — USA — 16A.
+HELPER FIORENCHE — USA — 15B.
+SCOTT PETER — USA — 22A.
+OLIVEY MARTINEZ — U.S.A. — 11A.
+ZAMOR ZABREA — U.S.A. — 19E.
+ZAMOR MICHAEL — U.S.A. — 19F.
+MASHUKKI CARL — U.S.A. — CHD — 6S.
+MASHUKKI HENRY — U.S.A. — 6F.
+MOLINA ELIA — COLOMBIAN — 20B.
+GÜERRERO DALTA — COLOMBIAN — 20A.
+WINKLER GEORGE (P) — U.S.A. — 5A.
+WINKLER FIORENCHE (P) — U.S.A. — 5B.
+REYNIER PAUL — U.S.A. CHD — 6A.
+REYNIER DAVID — U.S.A. — 6B.
+REYNIER MARGARET — U.S.A. — 6C.
+PONT VICTOR WIS — AROBOTINE — 19A.
+WARNEBAUM FRED — U.S.A. — 12A.
+RIVER MARILYN — U.S.A. — 9P.
+MOORE LENA — U.S.A. — 15F.
+DOWNEY WILLIAM — U.S.A. — 17A.
+VALLNESING O. JUVENAL — MEXICAN — 22F.
+KILLER HOBO - (F) — U.S.A. — 50.

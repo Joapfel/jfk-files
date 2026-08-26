@@ -1,0 +1,31 @@
+Classified message.
+
+Date: 28 January 1961  
+To: Director  
+From: Leopoldville  
+Action: C/AF 3  
+Info: COP, C/C1, S/C 2  
+
+WIKOGUE
+
+Routing.
+
+January 28, 2201Z 1961. Routine.
+
+IN 37414
+
+TO DIR INFO CITE
+
+LEOP 0713
+
+BY CSN 43-43
+
+RE DIR-22428 (OUT 67004).
+
+SEE DIR 12756 (OUT 95037), LEOP 114 (IN 26424) AND LEOP 0344 (IN 44477).
+
+End of message.
+
+C/S comment: Who is MOREN?
+
+PAR CSN 43-43

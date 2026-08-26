@@ -1,0 +1,23 @@
+DOHB 70-1-1, Chapter III, Annex B. 15 November 1974.
+
+Desk blocks on the 201 Personality File Action Request (Form 831). The standard listings available are:
+
+1. Alphabetic by surname, leading to a 201 number.
+2. Alphabetic by given name, leading to a 201 number.
+3. Alphabetic by cryptonym, leading to a 201 number.
+4. Numerical, leading to a surname.
+5. Numerical, leading to a cryptonym.
+
+Name: CHEN, SHOU 1 /7115/1343/90307. Type: A. DOR: 17JUL14. Birthplace: CHIN, KWANGTUNG. Occupation: DIPT. Citizenship: CHIN7. 201: 0165401. Activity: CHIN. Location: HK.
+
+Name: CHEN, SHOU 1 /7115/1343/00017. DOR: 24JAN11. Occupation: BUSP. Citizenship: CCOM7. 201: 0230959. Activity: CHIN. Location: CHIN.
+
+Name: CHEN, SHOU 1 /7115/1343/00018. DOR: 90. Birthplace: CHIN, ANDY. 201: 0179653. Activity: CHIN.
+
+Name: CHEN, SHOU 1 /7115/1343/00019. DOR: 04JAN19. Birthplace: CHIN, FUKIEN, PROV. 201: 0043751. Activity: CHIN. Location: HK.
+
+Name: CHEN, SHOU 1 /7115/1343/00020. DOR: 21OCT08. Birthplace: CHIN, PANGKAPIA, PORT ARTH. 201: 0234629. Activity: CHIN. Location: CUBA.
+
+Name: CHEN, SHOU 1 /7115/1109/001. Type: A. DOR: 12NOV22. Birthplace: CHIN, HUHAN. Occupation: DIPT. Citizenship: CHIN7. 201: 0179620. Activity: CHIN. Location: CHIN.
+
+Name: CHEN, SHOU 1 /7115/1109/002. DOR: 12MAR45. Birthplace: CHIN. Occupation: PROF. Citizenship: CHIN.

@@ -1,0 +1,5 @@
+Position Control Register.
+
+JUN/11/79 R.J. H.
+
+Newly added records. Total x 400 = 12,400. Total MIL CRIMP P/A = 400-412500001. PAKS = 12. LENS TO ATM.

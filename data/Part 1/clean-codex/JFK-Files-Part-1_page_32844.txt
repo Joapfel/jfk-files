@@ -1,0 +1,33 @@
+H/W Attachment #3 to UFGA-20702.
+
+Inventory—Non-Staff Personnel. Subject's 201: 201-307337. Other file number.
+
+C: Country of birth; first name; prior name; other given name/telecode; type of name.
+
+D: Country currently residing; date of birth; citizenship; naturalized U.S. (yes or pending).
+
+E: Civil status; city currently residing/year; marital status (most recent); sex (M or F).
+
+F: Occupation; language; language; language.
+
+G: Military service/country; branch of service; inclusive dates.
+
+H: Country area skills; country; country.
+
+I: Professional performance for agency (limit to 62 spaces); code.
+
+J: Conclusions performed for agency (limit to 62 spaces); code.
+
+K: Contract employee; type A or B; type employee; contract employee wife; full- or part-time or WNE.
+
+L: Manning service/service; consultant; proprietary or subsidy; career agent.
+
+L: Files agent; MOS, FF, or USF; individual contractor; MOC/MOA.
+
+L: Operational approval; POA; status; staff clearance; CSA/PCSA.
+
+M: Additional responsible; field station responsible; project; cover.
+
+O: Officer on duty date; yearly salary; date last pay change.
+
+P: As of a retirement plan—specify (limit to 62 spaces).

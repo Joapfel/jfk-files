@@ -1,0 +1,22 @@
+The following represents SAS in RAS:
+
+1 SA: IS 5  
+1 SA: IS 45, CI 45  
+1 SA: IS 2, CI 2  
+1 SA: IS 50, CI 25  
+1 SA: IS 30, CI 10  
+1 SA: IS 75, CI 20  
+1 SA: IS 5, CI 70  
+1 SA: IS 2, CI 5  
+1 SA: IS 70, CI 30  
+1 SA: CI 10  
+1 SA: IS 5, CI 10  
+1 SA: IS 55, CI 15  
+1 SA: IS 5, CI 1  
+1 SA: IS 1, CI 5  
+1 SA: IS 35, CI 50  
+1 SA: IS 5, CI 3  
+
+In summary, 16 RAS averaged 24 IS, and 19 CI.
+
+KAC FBIHQ CLR

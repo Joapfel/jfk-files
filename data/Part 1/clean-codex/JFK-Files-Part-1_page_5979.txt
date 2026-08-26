@@ -1,0 +1,21 @@
+Personality (201) File Request.
+
+To: RI/Analysis Section. Date. ACRON. Case. From. Room No. Telephone.
+
+Instructions: Form must be typed or printed in block letters.
+
+Section I: List 201 number, name, and identifying data in the spaces provided. All known aliases and variants, including maiden name if applicable, must be listed. If the identifying data varies with the alias used, a separate form must be used. Write UNKNOWN for items you are unable to complete.
+
+Section IIa: List givenonym or pseudonym, if assigned. If true name is sensitive, obtain 201 number from 201 Control Desk and complete Sections I and III. On a separate form, enter the 201 number and complete Sections II and III. Submit each form separately.
+
+Section IIb: To be completed in all cases.
+
+Basic Information: 201 No. Name: last, first, middle. Source Document. No. Type. Name. Status. Reason for Delay. Revision.
+
+Photo. Birth Date. Country of Birth. City or Town of Birth. Other Identification. Occupation/Position. Destruction Protocol. TIF. No. M. V. Please remain as is. Purge Period.
+
+Section II: Cryptology. Country of Residence. 10. Action Desk. 11. Second Country Interest. 12. Third Country Interest. 12a.
+
+Section III: Comments. Permanent Charge. Restricted File. Signature. TIF. V. No.
+
+Punched. 201-191098. Verified.

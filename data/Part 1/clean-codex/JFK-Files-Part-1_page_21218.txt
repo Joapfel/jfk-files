@@ -1,0 +1,9 @@
+DL3: 27 APR 65.
+
+Action code: 13. Employer code: 10. Office coding: numerical code 149760; alphabetic code SAS; code 39599. Station interpreter code: 2. NTE expires: No 1; DA 1N; CSC S PFILE B NONS. Special reference: type C; RE turnover coded as leave or other reason, 11/28/65. Retirement data code: 1.
+
+Veteran preference code: 1. Service compensation date: D - NONE; I - SPT; 2 - DFTY; month 06/26; day 53; TO 03. Long compensation date code: C. Career category code: C.
+
+Previous government service data code: 1. Leave category code: 6. Federal tax data form executed: 1 - YES; 2 - NO. FEGLI / health insurance code: 1. Previous service: 0 NO PREVIOUS SERVICE; 1 - NO BREAK IN SERVICE; 2 BREAK IN SERVICE LESS THAN 1 YEAR; 3. BREAK IN SERVICE GREATER THAN 1 YEAR. No tax exemptions: 0. Code: 1 - YES; 2 - NO.
+
+MZ-1. Title Line example. Weighted by MZ-1.

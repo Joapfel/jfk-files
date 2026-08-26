@@ -1,0 +1,9 @@
+17. Action code: 58. 70. Employer code: 10. 71. Office codes: 51760, 1074. 77. Station code: 51025. 23. Dates/date code: S. 24. Month/day/year: 306, 291, 30.
+
+79. Special reference codes: CS, CRBR, EIA, MSR, WORK. EOD data. 34. SU.
+
+35. Veteran preference coordinator: 6-SCOT, 1-TRT, 2-TRT. 36. Navy comp. date. 37. Long comp date. 38. Carrier category code: CSC REV., FCH/TLN. 39. LEG/health insurance code: D-DELIVERED, 1-BIG/OPT, 2-NEGABLE.
+
+41. Period: civilian government service coordinator: 6-NO. PERSONNEL SERVICE, 1-AGE 1 YEAR OR LESS, 1-STAGE IN SERVICE (NOT LAST YEAR), 3-REMAIN IN SERVICE FURTHER 1 YEAR. 42. Leave category code. 43. General tax data form executed: 1-RHS, 2-RHS. 44. State tax data form executed: 1-RHS, 3-RHS. 45. Social security board form executed: 1-RHS, 2-RHS.
+
+46. O&T approval by: R.S. TIS. Date: 11.19.71. Date approved.

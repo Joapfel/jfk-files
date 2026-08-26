@@ -1,0 +1,16 @@
+Section A. Life status — Single, Married, Widowed, Separated, Divorced, Adopted, Licensed, Registered, Certified, etc.
+
+1. Name of spouse: First name; last name; middle name (if any); nation of birth; state of birth.
+2. Date of birth.
+3. Occupation.
+4. Place of birth (city, state, country).
+5. Present employer.
+7. Civilship.
+8. Former citizenships; countries.
+9. Date U.S. citizenship acquired.
+
+Section B. Dependent children and dependents other than spouse. Relationship; date and place of birth; citizenship; permanent address.
+
+Section C. Professional societies and other organizations. Name and chapter; address (number, street, city, state, ZIP); date of membership from; date of membership to.
+
+Date. Signature of member.

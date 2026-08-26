@@ -1,0 +1,31 @@
+Section 10—Security Informants and Confidential Sources.
+
+K. Informant Files
+
+1. Opening
+
+a. When active investigation is initiated regarding potential informant or confidential source who is not subject of security-type file, open 134 file.
+
+b. If individual is subject of security case and after being interviewed appears to have potential as informant, open separate 134 file to follow informant development. In espionage and foreign nationality matters, existing file may be used if this is practical.
+
+c. Maintain individual files on all active informants as pending active files.
+
+2. Monthly Administrative Report
+
+Include files on potential informants and informants in tabulations and calculations of delinquencies in monthly administrative report.
+
+3. Assignment and Tickler Cards
+
+Maintain assignment and tickler cards, but do not show true name of informant on such cards.
+
+4. Subfiles
+
+a. Subfile is required on each informant who submits statements, written or oral, except in espionage or foreign nationality matters where subfile is necessary only in those instances involving possible prosecution. File in this subfile original of each statement, whether personally written by informant or furnished orally and reduced to writing by contacting Agent. Staple executed form FD-306 or channelizing memorandum containing all applicable items on form FD-306 to original of each such statement.
+
+b. Holes may be punched in original statements of informants for filing, but care must be taken to prevent obliteration of any portion of statements or notations thereon.
+
+5. Channelization
+
+Include excerpts from informant's statement in regular investigative case report when information of value is submitted. Form FD-306 may be used to disseminate this information to case file in lieu of channelizing memorandum if desired. If so, prepare copies of FD-306 as needed for channelization and staple one copy to each copy of informant's statement being channelized. Channelization should be noted on original FD-306 and all copies.
+
+6. Channelizing Memoranda

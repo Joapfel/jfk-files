@@ -1,0 +1,17 @@
+Office title: Circulation Office. OCC code: CL-0136.01-14. Position: 1-3020. SD: D. Class of office: Office use only.
+
+Office title: Journal Filler – 17 Minute. OCC code: JG-0318.01-06. Position: 1-9819. SD: D. In command: S Gellert Frak A. OCC code: G3-0318.01-06. Policy number: 0819. D.
+
+Office title: Circulation Office. OCC code: CL-0136.01-13. Position: 1-3823. SD: D. In command: D Invoice M H. OCC code: G3-0136.01-12. Policy number: 3823. D.
+
+Office title: Circulation Office. OCC code: JG-0301.28-09. Position: 1-3887. SD: D. In command: S Amberge Marie A. OCC code: G3-0301.28-07. Policy number: 3827. D.
+
+Office title: Circulation Office. In command: S Nellinghart M C. OCC code: G3-0301.28-09. Policy number: 3827. D.
+
+Office title: Circulation Office. OCC code: CL-0136.01-14. Position: 1-1911. SD: D. In command: S Wells Dayl O F. OCC code: G3-0136.01-14. Policy number: 1911. D.
+
+Office title: Circulation Office. OCC code: JG-0136.01-13. Position: 2-1934. SD: D. In command: S Nickcorp Edward L. OCC code: G3-0136.01-13. Policy number: 1914. D.
+
+Office title: Circulation Office. In command: S Hologer Irving P. OCC code: G3-0136.01-13. Policy number: 1914. D.
+
+Office title: Circulation Office. OCC code: CL-0134.07-12. Position: 6-3753. SD: D. In command: F Real Alan Gordon. OCC code: G3-0136.01.

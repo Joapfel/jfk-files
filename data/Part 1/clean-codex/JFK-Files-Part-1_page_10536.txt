@@ -1,0 +1,18 @@
+Subject of document. Document identification.
+
+1. BI file no.  
+2. B-SPAT on source doc. SPANL no.  
+3. Source communicant.  
+4. Date of info.  
+5. Analyst.  
+6. Disseminated to.  
+7. Date processed.  
+8. Re-date.  
+Document disposition: 1-3m.  
+19. Cross referenced to this file.  
+18. Transferred to BI file no.  
+Pertinent information is on.
+
+File in 201-4266. File this form in file no.
+
+7 Mar 68.

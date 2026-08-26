@@ -1,0 +1,5 @@
+1. Queried PDDIPPERS 19 and 20, PDLADLE and PDDONOR re WALLENBERG with negative results.
+
+2. File: 201-5925. E2 INPDET.H
+
+Cross-file copy for: 201-099788.

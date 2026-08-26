@@ -1,0 +1,53 @@
+1951. Fees & Salaries.
+
+North Carolina: fees and salaries $4,255.00; expenses $9,250.67; total $13,505.67.
+
+North Dakota: fees and salaries 780.38; expenses 2,881.17; total 3,661.55.
+
+Ohio: fees and salaries 11,800.00; expenses 13,657.86; total 25,157.86.
+
+Oklahoma: fees and salaries 3,250.00; expenses 3,928.49; total 7,178.49.
+
+Oregon: fees and salaries 2,200.00; expenses 8,300.00; total 10,500.00.
+
+Pennsylvania, East and West: fees and salaries 8,375.00; expenses 40,601.49; total 48,976.49.
+
+South Carolina: fees and salaries 4,229.17; expenses 6,368.21; total 10,597.38.
+
+South Dakota: fees and salaries 860.00; expenses 1,123.67; total 1,933.67.
+
+Tennessee: fees and salaries 700.00; expenses 15,808.09; total 16,508.09.
+
+Texas: fees and salaries 14,200.00; expenses 16,470.76; total 32,670.76.
+
+Rode Island: fees and salaries 2,206.54; expenses 7,330.52; total 9,537.06.
+
+Utah: fees and salaries 525.00; expenses 5,499.59; total 6,024.59.
+
+Vermont: fees and salaries 750.00; expenses 1,652.74; total 2,432.74.
+
+Virginia: fees and salaries 3,633.7k; expenses 4,185.4k; total 7,819.15.
+
+Washington: fees and salaries 4,312.52; expenses 5,876.26; total 10,162.77.
+
+West Virginia: fees and salaries 2,000.00; expenses 2,455.73; total 4,455.73.
+
+Wisconsin: fees and salaries 5,000.00; expenses 7,322.53; total 12,322.53.
+
+Iowa: fees and salaries 1,773.6k; expenses 2,729.70; total 4,503.5k.
+
+Washington, D.C. (Federal Employees): fees and salaries 816.51; expenses 5,627.12; total 6,443.63.
+
+Inch: fees and salaries 10,555.52; expenses 1,898.89; total 12,454.4k.
+
+Earned Wage: fees and salaries 6,796.73; expenses 7,062.48; total 13,859.2k.
+
+Virginia: fees and salaries 3,633.7k; expenses 4,185.4k; total 7,819.15.
+
+Washington: fees and salaries 4,312.52; expenses 5,876.26; total 10,162.77.
+
+West Virginia: fees and salaries 2,000.00; expenses 2,455.73; total 4,455.73.
+
+Wisconsin: fees and salaries 5,000.00; expenses 7,322.53; total 12,322.53.
+
+Iowa.

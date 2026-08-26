@@ -1,0 +1,61 @@
+Schedule SE (Form 1040)  
+Department of the Treasury  
+Internal Revenue Service
+
+Computation of Social Security Self-Employment Tax
+
+1972
+
+Each self-employed person must fill a Schedule SE. Attach to Form 1040. If you had wages, including tips, of $9,000 or more that were subject to social security taxes, do not fill in this page. If you had more than one business, combine profits and losses from all your businesses and farms on this Schedule SE.
+
+Important.—The self-employment income reported below will be credited to your social security record and used in figuring social security benefits.
+
+Form 1040 (Schedule C) [EXH (AS SHOWN ON SOCIAL SECURITY CARD)]. Social security number of self-employed person. Standard Ruby. 322-12-7997.
+
+Business conditions subject to self-employment tax (grocery store, restaurant, farm, etc.).
+
+Computation of Net Earnings from Business Self-Employment (other than farming)
+
+Net profit (or loss) shown in Schedule C (Form 1040), line 21. (Enter combined amount if more than one business.) 6,969.40
+
+Not included (a loss) from unrelated services or sources included on line 1. Omitting any services or sources.
+
+Net earnings (or loss) from business self-employment (Subtract line 2 from line 1, and enter here and then (a), below.) 6,969.40
+
+Computation of Net Earnings from Farm Self-Employment (S/E)
+
+A farmer may elect to compute net farm earnings using the OPTIONAL METHOD (line 6, below) INSTEAD OF THE REGULAR METHOD (line 6, below). If his gross profits are: (1) $2,400 or less, or (2) more than $2,400 and net profits are less than $1,600. If your gross profits from farming are not more than $2,400 and you elect to use the optional method, you need not complete lines 4 and 5.
+
+Computation under Regular Method
+
+b) Net farm profit (or loss) from:
+
+(a) Schedule F, line 54 (cash method), or line 74 (accrual method).
+
+(b) Farm partnerships.
+
+(c) Net earnings from self-employment from farming. Add lines 4(a) and (b).
+
+(d) Gross profits from farming are the total of the gross profits from Schedule F, line 28 (cash method), or line 72 (accrual method), plus the distributive share of gross profit from farming (if applicable as explained in Instructions for Schedule SE).
+
+c) Gross profit from farming are:
+
+(a) Net earnings from $2,400, or two-thirds of the gross profits.
+
+(b) More than $2,400 and net farm profit is less than $1,600, enter $1,600.
+
+d) Total of gross profits from farming are the total of the gross profits from Schedule F, line 28 (cash method), or line 72 (accrual method), plus the distributive share of gross profit from farming (if applicable as explained in Instructions for Schedule SE).
+
+7. Enter here and on line 8(b), below, the amount on line 5 (or line 6, if you use the optional method).
+
+Computation of Social Security Self-Employment Tax
+
+e) Net earnings (or loss) from self-employment—
+
+(a) From business (other than farming) from line 3, above.
+
+(b) From farming (from line 7, above).
+
+(c) From partnerships, joint ventures, etc. (other than farming).
+
+(d) From service as a minister

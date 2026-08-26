@@ -1,0 +1,29 @@
+Requesting Office: TSD; Date of Request: 12/14/72; Item: Transmitters, Radio; Quantity: 3; Unit Cost: 313; Receiving U.S. Department or Agency: BNDD.
+
+Requesting Office: TSD; Date of Request: 10/20/72; Item: Actuators, Recorder; Quantity: 25; Unit Cost: 591; Receiving U.S. Department or Agency: FBI.
+
+Requesting Office: TSD; Date of Request: 10/13/72; Item: Tube, Image, Burn-Resistance, Equivalent of W L 30691; Quantity: 1; Unit Cost: 4,639; Receiving U.S. Department or Agency: FBI.
+
+Requesting Office: TSD; Date of Request: 5/26/71; Item: Tube, Image, W L 30691; Quantity: 2; Unit Cost: 4,639; Receiving U.S. Department or Agency: FBI.
+
+Requesting Office: TSD; Date of Request: 4/22/71; Item: Transmitters; Quantity: 3; Unit Cost: 1,372; Receiving U.S. Department or Agency: FBI.
+
+Requesting Office: TSD; Date of Request: 4/22/71; Item: Module, Plug-In; Quantity: 1; Unit Cost: 1,247; Receiving U.S. Department or Agency: FBI.
+
+Requesting Office: TSD; Date of Request: 4/22/71; Item: Power Supply - UWP-39A; Quantity: 1; Unit Cost: 568; Receiving U.S. Department or Agency: FBI.
+
+Requesting Office: OL; Date of Request: 2/25/71; Item: Telephone Analyzers; Quantity: 2; Unit Cost: 1,350; Receiving U.S. Department or Agency: Treasury.
+
+Requesting Office: OS; Date of Request: 1/30/71; Item: Telephone Analyzers; Quantity: 22; Unit Cost: 1,350; Receiving U.S. Department or Agency: Treasury.
+
+Requesting Office: OL; Date of Request: 8/12/70; Item: Cable, Special-Purpose Electrical; Quantity: 5,000 ft.; Unit Cost: .42; Receiving U.S. Department or Agency: White House Communication Agency.
+
+Requesting Office: TSD; Date of Request: 1/10/73; Item: Ink, Special Formula; Quantity: 1 lot; Unit Cost: 1,825; Receiving U.S. Department or Agency: Immigration & Naturalization Service.
+
+Requesting Office: TSD; Date of Request: 6/28/72; Item: Ink, Special Formula; Quantity: 1 lot; Unit Cost: 3,700; Receiving U.S. Department or Agency: Immigration & Naturalization Service.
+
+Requesting Office: TSD; Date of Request: 7/26/71; Item: Transmitter, Radio Beacon; Quantity: 1; Unit Cost: 728; Receiving U.S. Department or Agency: U.S. Forestry.
+
+GUY FLETCHER
+
+CITADEL

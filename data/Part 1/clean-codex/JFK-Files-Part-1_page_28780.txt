@@ -1,0 +1,13 @@
+Employee Personnel Transaction Register.
+
+Shah Robert T.
+
+S 268-28-C199.
+
+Prepared on 07/23/69. Period ending 07/18/69.
+
+Action Data Name Data Elements. Section 01.
+
+Employee number: 5357CO. SSN IC code: S. SCC-SEC number: 268-28-C199. AEN pay plan: FR. AEN grade: C3. AEN salary: 22332. PST pay period: C3C. NAT action code: 902 Public Lab Pay Increase. Effective date: 07/13/69.
+
+Error. Effective date: 07/13/69.

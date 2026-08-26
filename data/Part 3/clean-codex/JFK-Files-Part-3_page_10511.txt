@@ -1,0 +1,17 @@
+VD1 68-304.
+
+Evaluated unit 46 PM 1/16. Interim decision: 117 Guy, J.R. Other: 58.
+
+Variation codes: percentage, relative, multiplicity, coefficient, coinvert, counter.
+
+For the following period (e.g., 1975, 1976, 1977, 1978):
+
+Date: SEP 1975. Interim security percentage: 12. Gamma: 22. Coefficient: 3. Other: 53.
+
+Date: SEP 1976. Interim security percentage: 20. Gamma: 33. Coefficient: 2. Other: 59.
+
+Date: SEP 1977. Interim security percentage: 22. Gamma: 33. Coefficient: 2. Other: 59.
+
+Date: SEP 1978. Interim security percentage: 22. Gamma: 5. Coefficient: 22. Other: 73.
+
+Date: SEP 1979. Interim security percentage: 25. Gamma: 22. Coefficient: 22. Other: 75.

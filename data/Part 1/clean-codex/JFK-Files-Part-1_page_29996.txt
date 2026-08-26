@@ -1,0 +1,11 @@
+Verified Record of Overseas Service.
+
+To: Office of Personnel, Statistical Reporting Branch, Room 5 E 2506, Headquarters.
+
+Employee serial no.: C5670-0. Name of employee: Murphy, David Z. Office component: 48.
+
+Instructions: Use appropriate space below to report data for either PCS or TOY. Insert appropriate code number in the “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS dates of service. Type of data: 1 - PCS (Basic). Code: 27. Arrival month: 26-29. Arrival day: 30-31. Arrival year: 32-33. Departure month: 34-35. Departure day: 36-37. Departure year: 38-39. Country: 40-42. Type of data: 2 - Correction. Type of data: 3 - Cancellation.
+
+TOY dates of service. Type of data: 2 - TOY (Basic). Code: 27. Departure month: 26-29. Departure day: 30-31. Departure year: 3

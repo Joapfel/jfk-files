@@ -1,0 +1,23 @@
+Standard Subfile List for Foreign Countries.
+
+Ivory Coast: 386; Macedonia: 346.  
+Jamaica: 219; Madagascar: 335.  
+Japan: 234; Malagasy Republic: 335.  
+Java: 289; Malawi: 326.  
+Jordan: 332; Malaysia: 405.  
+Kenya: 325; Malaya: 279.  
+Korea: 265; Maldive Islands: 414.  
+Korea: 381; Mali: 384.  
+Kuwait: 367; Malta: 340.  
+Laos: 365; Manchuria: 275.  
+Latvia: 294; Martinique: 230.  
+Lebanon: 287; Mauritania: 398.  
+Leeward Islands: 220; Mauritius Island: 394.  
+Lesotho (formerly Basutoland): 412; Mexico: 221.  
+Liberia: 297; Middle East (also Near East): 350.  
+Libya: 300; Monaco: 363.  
+Lithuania: 262; Mongolia: 271.  
+Luxembourg: 280; Mozambique: 276.  
+Macao: 362; Morocco: 235.
+
+Control-Reference Files. Page 5. Revised April 25, 1969.

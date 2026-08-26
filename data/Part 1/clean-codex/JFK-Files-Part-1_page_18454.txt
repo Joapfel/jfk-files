@@ -1,0 +1,7 @@
+Statement of Earnings and Deductions. Name: Harvey William K. Employee No. 061164. Pay period date: 04/09–05/06. Roll: 01. Cost center: 1361186. STA: 000.
+
+Earnings: code 01, normal 199200, description: REG SAL.
+
+Deductions: code 41, normal 35014, description: F/TAX 1; code 53, normal 1102, description: INS WEAPA; code 54, normal 1000, description: INS FEGLI; code 57, normal 750, description: INS UALIC; code 61, normal 1374, description: 0820 HOSP 2; code 75, normal 12948, description: AGY NET.
+
+Remarks. Additional compensation data. Net pay: code 99, normal 147012. Paid at HOS.: 147012.

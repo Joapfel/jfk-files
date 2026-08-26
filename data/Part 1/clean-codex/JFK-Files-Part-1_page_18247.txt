@@ -1,0 +1,15 @@
+Classified message.
+
+From: JMLWAVE. Action: WHTC 8, RID copy. Info: FILE VR WHB, 2/16/7, CON F.I., F.I./INT2, CH2, CHPR, CH/OY.
+
+141634L.
+
+Dir info: Lima. Quit cite WAVE 0168.
+
+Typic: AMMOP.
+
+Ref: WAVE 0167 (or 96635).
+
+Iden: Julio Moncagatta.
+
+CFN: 0168, 0167, Julio Moncagatta.

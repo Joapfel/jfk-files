@@ -1,0 +1,25 @@
+California Supplemental Schedule of Gains and Losses (Sales or Exchanges Including Involuntary Conversions). Attach to Form 540, 540NR, 541 or 565.
+
+Schedule D-1, Form 540. Taxable year 1973. Name as shown on tax return: Samuel Lhyllis Ruby. Identifying number as shown on return.
+
+Part I. Gain From Disposition of Property Under Sections 18211, 18212-18, 18219, and 18220.
+
+Lines 9 and 10 should be omitted if there are no dispositions of farm property or farm land, or if this form is filed by a partnership.
+
+Property A: Snack bar. Date acquired: 4/70. Date sold: 8/13/73.
+
+Gross sales price: Property A, 28000-.
+Cost or other basis and expense of sale: Property A, 28138-.
+Depreciation allowed or allowable: Property A, 12386-.
+Adjusted basis, line 3 less line 4: Property A, 15752-.
+Total gain, subtract line 5 from line 2: Property A, 12248-.
+
+If Section 18211 property:
+Depreciation allowed or allowable after applicable date (see Instruction D-3): Property A, 12386.
+Line 6 or line 7(a), whichever is smaller: Property A, 12248.
+
+If Section 18212-18 property:
+Enter additional depreciation after 12-31-63 and before 1-1-71: 1/1.
+Enter additional depreciation after 12-31-70.
+Enter line 6 or line 8(b), whichever is smaller.
+Line 8(c) times applicable percentage (Instruction D-4).

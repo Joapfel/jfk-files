@@ -1,0 +1,13 @@
+Persons/entities: William Harvey; McCone; Helms; Matahambre Copper Mines.
+
+Dates: 11/14/62; 11/3/62.
+
+Categories: MONGODB; SG A.
+
+Occurrence: Harvey states, “On 3 November, 1962, a fragmentary report was received, reflecting the arrests by the Cuban authorities in Pinar del Río (Panar del Rio), of the infiltrees. It was impossible to determine, definitely, whether this report referred to the two members of the Matahambre sabotage team.”
+
+Source: 11/14/62, Memorandum of William Harvey.
+
+Staff: PGW.
+
+Date: 6/30/75.

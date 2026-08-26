@@ -1,0 +1,25 @@
+FOIA and Privacy exemptions:
+
+Classification: FOIA (b)(1); Privacy (k)(1).  
+Information from a foreign liaison service: FOIA (b)(3); Privacy (j)(1)(b)(c).  
+Information pertaining to a foreign liaison relationship: FOIA (b)(3); Privacy (j)(1)(b)(c).  
+Information which would or could identify the source: FOIA (b)(3); Privacy (j)(1)(b).  
+Information pertaining to a source: FOIA (b)(3); Privacy (j)(1)(b).  
+Information pertaining to intelligence methods: FOIA (b)(3); Privacy (j)(1)(b).  
+Location of CIA overseas installation: FOIA (b)(3); Privacy (j)(1)(b).  
+Location of unauthorized domestic installation: FOIA (b)(3); Privacy (j)(1)(b).  
+Name of CIA employee: FOIA (b)(3); Privacy (j)(1)(e).  
+File number: FOIA (b)(2); Privacy (j)(1)(b).  
+Pseudonym: FOIA (b)(3); Privacy (j)(1)(b).  
+Cryptonym: FOIA (b)(3); Privacy (j)(1)(b).  
+Internal organizational data: FOIA (b)(3); Privacy (j)(1)(c).  
+Name of an FBI agent: FOIA (b)(7); Privacy (j)(1)(c).  
+FBI file number: FOIA (b)(2); Privacy (j)(1)(b).  
+Privacy of other individual: FOIA (b)(6); Privacy (j)(1)(f).  
+Does not pertain to request: FOIA N/A; Privacy: “Exempted portions are not relevant to the request.”  
+Information from another Government agency: FOIA (b)(1); Privacy (j)(1)(c).  
+Other, specify:
+
+For further guidance regarding exemptions, please see DDA-75-5943, 16 December 1975 (Privacy Act) and HN-70-21, 14 February 1975 (FOIA).
+
+Comments and/or special instructions. Signature of reviewing officer and office: DCB, May 77. Document No. E 2. IMPDET. CL BY. To be completed by ISS/PICC. Unclassified, Confidential, Secret, Top Secret.

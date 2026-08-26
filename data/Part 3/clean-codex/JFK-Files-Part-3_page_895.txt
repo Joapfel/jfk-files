@@ -1,0 +1,15 @@
+Memorandum to Mr. E. S. Miller
+
+Re: U. S. vs. John William Butenko and Igor A. Ivanov, Appellant
+
+Communications and utilized the results from them in the criminal proceedings against Ivanov. (The District Court made an *in camera* review of the second set of surveillances, but never made a written finding that none of the Government's case was based on information from these surveillances; he only found *in camera* that they did not violate the 4th Amendment or Section 605, and therefore could not "...properly be considered on the taint issue" (342 F. Supp. at 931).)
+
+(Note that Alderman ruled only on "illegal" electronic surveillances, and instructed the District Court that if, on remand, it found the defendant's 4th Amendment rights had not been violated it should reimpose judgment of conviction. The Supreme Court did not discuss the effect of Section 605 on the cases before it in Alderman.)
+
+The Court of Appeals states that it is not defining the parameters of the President's national security surveillance powers under Section 605, but that the limited issue before it, with respect to the second surveillance is: assuming a constitutional power of the President to have ordered electronic surveillance of foreign agents in 1963, was it permissible for the Government, under Section 605, to utilize the products of such surveillance in a criminal prosecution.
+
+The Court of Appeals then decides the case on this evidentiary issue and thus avoids the larger 4th Amendment issue of whether or not the President has the power to authorize foreign intelligence warrantless electronic surveillances.
+
+The Court of Appeals recognizes that the President has constitutional powers to defend against foreign intelligence activities and to obtain foreign intelligence, and assumes, solely for the sake of argument, that he had the constitutional power to authorize these surveillances; however, the Court of Appeals draws the distinction, that was drawn by the Government for years, between the President's power to authorize such surveillances and the power of the Congress and Court to make an evidentiary rule excluding evidence obtained from such surveillances in criminal proceedings.
+
+The Court of Appeals holds that the Supreme Court opinion in U. S. vs. Nardone (308 U.S. 338), interpreting Section 605 as being a complete bar to the introduction of electronic surveillance results into evidence in a Federal criminal proceeding, was governing.

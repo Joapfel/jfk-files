@@ -1,0 +1,11 @@
+042230Z. DIR INFO: Lima, QUIT, CITE, WAVE 0032, INGHURST acting.
+
+4 April 1965 (89798).
+
+TYPIC AMMOP.
+
+Reference: WAVE 0031 (IN 89798).
+
+IDEN A: UIJDC. IDEN B: Julio Moneagatta, JUDCA secretary general. IDEN C: Jose M. Illan.
+
+CFN 0032 0031 A UIJDC B Julio Moneagatta, JUDCA secretary general C Jose M. Illan.

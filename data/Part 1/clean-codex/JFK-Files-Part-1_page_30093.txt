@@ -1,0 +1,1 @@
+Reference Data. Name. Title, grade and salary. Office and extension. Date of birth. Estimated completion date. Last held date. Type interviewer. Date of interview. Details of out placement, including cover and security data. Out placement interview record.

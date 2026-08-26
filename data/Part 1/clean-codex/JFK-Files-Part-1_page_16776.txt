@@ -1,0 +1,50 @@
+Classified message.
+
+Origin: C. Bustos  
+Unit: WH/3/Mexico  
+Extension: 5940  
+Date: 11 March 1963
+
+To: Mexico City
+
+From: Director
+
+CONF: C/WH 5
+
+Info: ADDP, C/C1, C/F1 2, S/C
+
+SIG CEN
+
+Deferred
+
+Routine
+
+Cite DIR: 24990
+
+To: Mexi
+
+Info: REYBAT LITENSOR
+
+RSP: MEXI 3575 (IN 75331)*
+
+In addition to priority, requested by subject, suggest COS give subject general CI defensive briefing including use tech devices.
+
+End of message.
+
+WH comment: * LITENSOR has asked for briefing papers on trip.
+
+GI/00/No. F. Hughes (in draft)
+
+WI/COPS
+
+J. C. King  
+C/MID
+
+Releasing officer
+
+Coordinating officers
+
+John M. Witten  
+C/WT/3
+
+Authenticating officer

@@ -1,0 +1,11 @@
+T 375103. EIA916. RF file VR: EUK8 588 a/w.
+
+IN 345816.
+
+TOR 12616282, August 1974.
+
+HAMB 1025462. CITE HAMBURG 25462. To: Director. Info: Bonn, Bonn Base. MHCRUNCH FUOMEN REDLEG. Reference: EGGA-6103, 12 August 1974.
+
+1. The article by Prof. James Theberge, published in Soviet Analyst, Vol. 3, No. 17, 15 August, entitled “Kremlin's Hand in Allende's Chile,” is ideal for purposes outlined in reference. We are attempting to place, will advise. Suggest not include article in press comments.
+
+2. File defer, E2 IMPDET.

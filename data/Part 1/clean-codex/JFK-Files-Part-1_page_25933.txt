@@ -1,0 +1,21 @@
+Outgoing Message. Signal Center Use Only.
+
+Class A1, date 05 May 1976.
+Class C2, date 12 June 1976.
+Class E1, date 13 July 1976.
+Class U1, date 14 August 1976.
+Class S1, date 15 November 1976.
+Class O1, date 19 November 1976.
+Class U2, date 20 March 1977.
+Class S2, date 21 March 1977.
+Class P1, date 22 April 1977.
+Class P2, date 23 April 1977.
+Class D1, date 24 February 1977.
+Class W1, date 25 February 1977.
+Class W2, date 26 February 1977.
+Class W3, date 27 February 1977.
+Class W4, date 28 February 1977.
+Class F1, date 29 February 1977.
+Class P1, date 30 February 1977.
+Class P2, date 31 February 1977.
+Class D2, date 01 March 1977.

@@ -1,0 +1,13 @@
+Position Control Register. 100, 12/9/94.
+
+Columns: Name; Division; Multi PWM Casing; Sub-Unit; Group; Group PWD; Case No.; Auto Swap; Group V; Group PWD.
+
+Division: GTR 1001.28. Multi PWM Casing: 12. Sub-Unit: 1. Group: 2. Group PWD: 3. Case No.: 45.
+
+Name: Radiation Spec A. Division: 05-1910.28. Multi PWM Casing: 13. Sub-Unit: 1. Group: 1173. Group PWD: 12. Case No.: 32.
+
+Division: CS 1816.23. Multi PWM Casing: 13.
+
+Name: Radiation Spec B. Division: C8-1810.23. Multi PWM Casing: 12. Sub-Unit: 3. Group: 1173. Group PWD: 45.
+
+Division: CS 1810.32. Multi PWM Casing: 13.

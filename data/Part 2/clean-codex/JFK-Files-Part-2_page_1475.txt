@@ -1,0 +1,50 @@
+Fitness Report.
+
+Employee Serial Number.
+
+Section A. General.
+
+Name: Wheeler, Robert P.  
+Service designation: D.  
+Career status: Ops Off (DCOS).  
+Not eligible: X.  
+Pending: Member; declined.  
+Date report due in O.P.: 51 May 60.
+
+Name: Wheele (Wheeler), Robert P.  
+Service designation: D.  
+Office/Division/Branch of assignment: FE/Tokyo Station.  
+Career status: Deferred; denied.  
+Type of report: Initial reassignment/supervisor; annual reassignment/employee: X.  
+Special report period.  
+Reporting period: From 27 Jun 59–31 Mar 60; to 51 May 60.
+
+Date of birth: 11 Oct. 1915.  
+Sex: M.  
+Grade: CS-15.  
+Type of report: Supervisor; employee.
+
+Section B.
+
+Evaluation of performance of specific duties.
+
+List up to six of the most important specific duties performed during the rating period. Insert rating number which best describes the manner in which employee performs each specific duty. Consider only effectiveness in performance of that duty. All employees with supervisory responsibilities must be rated on their ability to supervise (indicate number of employees supervised).
+
+1. Unsatisfactory.  
+2. Barely adequate.  
+3. Acceptable.  
+4. Competent.  
+5. Excellent.  
+6. Superior.  
+7. Outstanding.
+
+Specific duty: As Deputy for Operations, supervises Station operational effort and intelligence production. Rating: 6.  
+Specific duty: Makes recommendations to COS on Station operational program, cover and personnel. Rating: 6.  
+Specific duty: Conducts liaison, as required, with ODACTD and ODIBEX. Rating: 6.  
+Specific duty: In the absence of COS, acts as Station Chief. Rating: 6.
+
+1. Performance in many important respects fails to meet requirements. Rating No. 5.  
+2. Performance meets most requirements but is deficient in one or more important respects.  
+3. Performance clearly meets basic requirements.  
+4. Performance clearly exceeds basic requirements.  
+5. Performance in every important respect is superior.

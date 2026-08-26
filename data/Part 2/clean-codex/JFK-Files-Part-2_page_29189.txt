@@ -1,0 +1,7 @@
+Name and Address of Each Shareholder; Social Security Number; Number of Shares.
+
+Income (Schedule K, total of lines 4 and 8, U.S. 1120-S); line 5, or page 2, Schedule 3, line 6; amount to be used by shareholder on line 35 or on page 4, Schedule 2, line 43—difference between column 4 and column 5.
+
+(a) Income: $36,707.35; line 5 or page 2, Schedule 3, line 6: $38,707.35; amount to be used by shareholder: $--.
+
+(b) Income: $36,707.36; line 5 or page 2, Schedule 3, line 6: $38,707.36; amount to be used by shareholder: --.

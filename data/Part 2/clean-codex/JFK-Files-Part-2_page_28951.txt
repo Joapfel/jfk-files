@@ -1,0 +1,19 @@
+Account number: 433 54 3937. 1958 PIA: 71.00. 1965 PIA: 76.00. Family maximum: 114.00 T A. Transcript: 09/65R.
+
+Beneficiary's name: Oswald. PIC: M C1. BIC: C1. LAF: C. Retroactive amount paid: 24.60. New monthly rate: 57.00.
+
+01 37.60; Audrey; 01 37.60; 01 37.60; 01 37.60; 01 37.60; 01 37.60.
+
+PD 2.70; 01 37.60; PD 2.70; PD 2.70; PD 2.70; PD 2.70; PD 3.70.
+
+40.30; 40.30; 40.30; 40.30; 40.30; 40.30; 57.00.
+
+01 53.30; June; 01 53.30; 01 53.30.
+
+PD 3.70; June; PD 3.70; PD 3.70.
+
+57.00; 57.00; 57.00; 57.00.
+
+Beneficiary's name: Oswald. PIC: L C1. BIC: C2. LAF: C. Retroactive amount paid: 24.60. New monthly rate: 57.00.
+
+01 37.60; Marina; 01 37.60; 01 37.60; 01 37.60; 01 37.60; 01 3

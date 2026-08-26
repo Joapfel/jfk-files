@@ -1,0 +1,35 @@
+Month 1232: June 64; Amount: #2,632.50; Cashier's Check: JAN 9-30 PA #367218, Gm, $7,998.75.
+
+Month 1256: July 64; Amount: #2,733.75; Cashier's Check: JAN 9-30 PA #367218, Gm, $7,998.75.
+
+Month 1277: Aug 64; Amount: #2,632.50; Cashier's Check: JAN 9-30 PA #367218, Gm, $7,998.75.
+
+Month 1324: Sept. 64; Amount: #2,632.50; Cashier's Check: JAN 9-30 PA #367218, Gm, $7,998.75.
+
+Month 1344: Oct. 64; Amount: #2,733.75 PA #369794, OK.
+
+Month 1382: 1-15 Nov; Amount: 1-15 Nov.
+
+Month 1389: 16-30-Oct-; Amount: #1,607.50; Cashier's Check: PA #376168, Gm, $1,923.75.
+
+Month 1399: Nov. 64; Amount: #1,316.25; Cashier's Check: PA #376168, Gm, $1,923.75.
+
+Month 1419: Jan. 65; Amount: #1,316.25 PA #382709; Cashier's Check: PA #376168, Gm, $1,923.75.
+
+Month 1450: Sep. 65; Amount: #1,215.00; Cashier's Check: #389049.
+
+Month 1382+1450: (Accrual adjust.), Re: 65; Amount: #3,138.75; Cashier's Check: #389049.
+
+Month 1475: Mar. 65; Amount: #1,417.50; Cashier's Check: #393103.
+
+Month 1500: Apr. 65; Amount: #1,316.25; Cashier's Check: -#L.
+
+Month 1521: May 65; Amount: #1,316.25; Cashier's Check: -# 399858.
+
+Month 1567: Jun. 65; Amount: #1,316.25; Cashier's Check: #400764.
+
+Month 1606: Jul. 65; Amount: #1,316.25; Cashier's Check: #468357.
+
+Month 1619: (Aug. 65; Amount: #1,316.25; Cashier's Check: #412002 (made dec.).
+
+Month 1625: Sept. 65; Amount: #1,316.25; Cashier's Check: #.

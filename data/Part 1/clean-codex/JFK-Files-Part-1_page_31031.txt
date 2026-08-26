@@ -1,0 +1,15 @@
+Life Insurance Application (Contract Life).
+
+Date of employee (P). First name. Last name. Payroll code. Policy No. Executive date. Total premium paid.
+
+Date of death. Monthly premium. Actual salary: 13750. Insurance class: III. Male. Full-time employee. Yes. Name of beneficiary: Kermit K. Bindheim. Relationship: 69008. First and middle only. Date signed: 14 April 1962. Signature of employee: Kermit K. Borden.
+
+To: FD.
+
+Subject: Authority to Make Payroll Deductions.
+
+I hereby authorize you to deduct the sum of $19.00 (19.6%) per pay period from my salary starting with the pay period beginning: 14 Apr 1962 until terminated by me in writing.
+
+Signature.
+
+69008. Industrial Line Account. Borrowing 181. Mortgage Insurance.

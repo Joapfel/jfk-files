@@ -1,0 +1,30 @@
+Request for Personnel Action.
+
+1. Serial No.  
+2. Name (Last, First, Middle): ZEHMUNG, Charlotte L.  
+3. Date of Birth: 1/12/29.  
+4. Yer. Prel.: None-0; 5 Pts-1; 10 Pts-2.  
+5. Sex: Code P.
+
+7. SCD.  
+8. CSC Retired: Yes-1; No-2. Code.  
+11. FEGLI: Yes-1; No-2. Code.  
+13. Military Service Credit LCD: Yes-1; No-2.
+
+Previous Assignment.
+
+14. Organizational Designations: DDP/wH, Branch III, Mexico Section.  
+15. Location of Official Station: Washington, D.C. Station Code.  
+16. Department—Field Department X, valid from. Code.  
+17. Position Title: Reports Officer.
+
+21. Grade and Step: 11-2.  
+22. Salary or Rate: $6605-.  
+23. SD.  
+24. Date of Grade: Month, Day, Year.  
+25. PSI Due: Month, Day, Year.  
+26. Appropriation Number: 8-3500-20.
+
+Action.
+
+27. Nature of Action.

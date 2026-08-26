@@ -1,0 +1,23 @@
+Certification of Language Proficiency.
+
+Type change: A = Add; C = Change; D = Delete. Language data prior to test: code, language code, reading, writing, pronunciation, speaking, understanding, interpreting, total, year. Language data after test: language code, reading, writing, pronunciation, speaking, elementary, high, interpreting, total, year.
+
+Notice to person tested.
+
+10. On the date shown in item 6 above, you were tested in ______ (name of language) and your test scores are as follows: ______.
+
+Reading. Writing. Pronunciation. Speaking. Understanding.
+
+Test ratings: O = Zero; I = Intermediate; S = Slight; M = High; E = Elementary; N = Native.
+
+11. Remarks.
+
+“+” indicates not tested or pronunciation included in speaking grade.
+
+12. Signature.
+
+13. LD number.
+
+Group I. Included from automatic downgrading and declassification.
+
+Employees (through Training Officer).

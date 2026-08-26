@@ -1,0 +1,19 @@
+Action: C/WH 8 (copy to WH (action) and EE (info), 0600, 5 April 63). JA
+
+Info: ADDP, C/CA 2, C/CI, C/FI 2, C/EE 3, S/C 2.
+
+061030Z. OPIM BRLN info OPIM DIR NEXI FRAN. Cite Bonn 4460.
+
+RYBAT
+
+Reference: FRAN 7936 (EN 1264d).
+
+1. Lopez and party now departing Bonn for BRLN at 0740 hours, 7 April.
+
+2. Lapolla, as Wyckoff (Wykoff), talked at Bonn to Romero, not Lopez. Lapolla apologized to Romero for the mix-up at Paris rather than Lopez apologizing to Lapolla.
+
+3. For BRLN: Due to Romero’s press of business, phone calls may not establish contact. May be necessary to camp in hotel lobby and contact Romero entering or leaving, as was done at Bonn.
+
+4. For FRAN: Lapolla and Thompford (Thompf ord) will remain in Bonn until Lopez’s departure.
+
+C/S comment: Action unit determined as through indicator DYVOUR used.

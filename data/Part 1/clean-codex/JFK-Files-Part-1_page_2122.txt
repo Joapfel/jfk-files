@@ -1,0 +1,1 @@
+Position Control Register. Officer position and number; title of officer; name; age (years); class (recruited in); bank (number); number incoming; employee number; teaching hours; studying (months); working (weeks).

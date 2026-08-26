@@ -1,0 +1,25 @@
+Verified Record of Overseas Service.
+
+To: Office of Personnel, Statistical Reporting Branch, Room 192, Curie Hall.
+
+Employee serial no. Name of employee: last, first, middle. Office/document.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert appropriate code number in the “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS—Dates of Service. Type of data. Arrival: code, month, day, year. Departure: month, day, year. Country. Unit.
+
+PCS (Basic): code 27; arrival month 20–29, day 30–31, year 22–23; departure month 34–35, day 36–37, year 30–39; country: Japan; unit 40–42.
+
+Correction: arrival month 609, day 17, year 61; unit 375.
+
+Cancellation.
+
+TDY—Dates of Service. Type of data. Departure: code, month, day, year. Return: month, day, year. Areas. Unit.
+
+TDY (Basic): code 27; departure month 20–29, day 30–31, year 22–23; return month 34–35, day 36–37, year 30–39; unit 40–42.
+
+Correction.
+
+Cancellation.
+
+Source of Record Document. Travel voucher. Dispatch. Cable. Duty status: Cable.

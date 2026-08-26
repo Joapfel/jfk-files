@@ -1,0 +1,11 @@
+19. Action code: 37. Employ code: 10. Office coding: numeric EUR. Station code: alphabetic 78213. Hooters code: 1. Date of birth: No. Da. 14, 10/09/18. Date of LEI: No. Da. Yr.
+
+28. NTE expires: No. Da. 29. Special reference: 1-CSC, 2-ORGR, 3-FICA, 5-BONE. 30. Retirement data: code. 31. Separation data code: type. 32. Connection, cancellation date: Mo. Da. Yr.; EOD data. 34. SLA.
+
+35. PET preference: code; 6-MORE, 1-5 PT, 3-10 PT. 36. Serv comp date: No. Da. Yr.; CAN RESV PROV TEMP. 37. Long. comp date: No. Da. Yr.; code. 38. Career category: CC/CD; 6-WAYLER I-PES. 39. Legit health insurance: health ins code. 40. Social security no.
+
+41. Previous civilian government service: code; 6-No previous service, 1-No due in service, 2-Due in service (less than 3 years), 3-Due in service (more than 3 years). 42. Leave cat code: form executed, 1-PES, 2-ESD. 43. Federal tax data: code, no. tax exemptions, form executed, 1-PES, 2-ESD. 44. State tax data: code, no tax exemp., state code.
+
+43. Position control certification. 46. O.P. approval: W. Fossel. Date approved.
+
+Group 1. Excepted for automatic enter.

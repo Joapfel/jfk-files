@@ -1,0 +1,24 @@
+19. Indique todos los carnets de identidad que tiene, con fechas, números, lugar donde fueron expedidos y fecha hasta que sean válidos.
+
+20. Religión. ¿Es miembro de alguna orden religiosa?
+
+21. Afiliaciones políticas, en la actualidad y anteriormente.
+
+22. Viajes fuera del país en que reside: país que visitó, fechas, propósito del viaje, personas y firmas comerciales que visitó.
+
+23. Educación: escuela a la que asistió, lugar, cursos, diplomas, fechas.
+
+University of Denver, 1942–45, B.A. Political Science.  
+Harvard University Graduate School, 1945–46, Commerce.  
+Harvard Law School, 1946–48, Bachelor of Laws.
+
+24. Idiomas y dialectos (indique si los sabe bien, regular o mediocre).
+
+Idioma: Spanish. Habla: sí. Lee: sí. Entiende: sí.  
+Idioma: English. Habla: sí. Lee: sí. Entiende: sí.
+
+25. Servicio militar: fechas, de qué país, qué unidad, grado, función, dónde prestó sus servicios, decoraciones, cuándo fue licenciado y por qué. Dé detalles si alguna vez fue prisionero de guerra.
+
+U.S. Army, 1942–44, Detachment Medical Corps, Camp Carson, Ltd., discharged normally as Staff Sgt.
+
+26. Indique de qué organizaciones ha sido o es socio (profesionales, sociales, políticas, etc.).

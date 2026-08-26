@@ -1,0 +1,9 @@
+Domestic Tests for Agency Research and Development Efforts
+
+1. As a normal part of ORD's efforts in the research and development of equipment and techniques for Agency applications in foreign intelligence, we conduct experiments and tests in the United States. Clearly, the design and development of our intelligence equipment can be done more economically and more securely in this country. Although most of the tests of our R&D equipment are performed in closed laboratories or in secure areas simulating the foreign environment, some of the tests and experiments, of necessity, reveal domestic information.
+
+2. A review of the surveillance equipment or techniques which have at some time or other been exposed to domestic testing is as follows:
+
+a. Laser Probe — About 1967, the laser probe developed by ORD was tested by TSD in San Francisco under very closely controlled conditions. The ORD Project Officer witnessed portions of the test. Recordings that were made of laser probe output were carefully controlled as classified material and it is believed that the tapes have long since been destroyed. (Wood/TA)
+
+b. Microwave Intercept System — About 1968, this system was tested in a light aircraft near the Naval Ordnance Test Station in Identity 127, California. This system is designed to permit intercept of microwave telephone communication channels of systems such as Identity 130. It works equally well against the Bell Telephone TD-2, as they are generically the same. Recordings of these telephone intercepts were carefully controlled and were destroyed several years ago.

@@ -1,0 +1,11 @@
+DOHB 70-1-1, Chapter III, Annex B. 15 November 1974.
+
+Sequence number: 0002. Name: Croix, William Pendleton. Sex: M. Date of birth: 12 April 1926. Citizenship: German. Reference: AACD-12J45, 20 June 1953. Text: Subject recently attended the Seventeenth Annual Conference of the International Association of Chemists and Pharmacists held in Munich, Germany, from 22 through 29 October. Place of birth: Germany, Berlin. Occupation: Pharmacist. Occupation code: CHEM. Date of latest update of the record: 30 November 1970. STAR Index Record Number: 00833555.
+
+Information About Subject: 1. Sequence Number and Name. 2. Sex and Date of Birth. 3. Citizenship. 4. Place of Birth. 5. Occupation. 6. Occupation Code. 7. Text.
+
+Document Reference Data Group: 8. 201 Number. 9. Name Type Indicator. 10. OI Codes. 11. Record Date (year only). 12. Reference.
+
+ISG Control Information: 13. Date of latest update of the record. 14. STAR Index Record Number.
+
+24

@@ -1,0 +1,37 @@
+Attachment B.
+
+With State Department approval we are developing live sources at the official establishments of the below-listed countries. Actual sources developed and potential sources under investigation are shown in connection with each country.
+
+Argentina: actual 0, potential 1.
+Bolivia: actual 0, potential 0.
+Brazil: actual 2, potential 1.
+Burma: actual 1, potential 1.
+Ceylon: actual 1, potential 0.
+Chile: actual 0, potential 0.
+China (Nationalist): actual 3, potential 1.
+Colombia: actual 0, potential 0.
+Congo: actual 0, potential 0.
+Costa Rica: actual 0, potential 0.
+Cuba: actual 1, potential 0.
+Dominican Republic: actual 1, potential 0.
+Ecuador: actual 0, potential 0.
+El Salvador: actual 0, potential 0.
+Ghana: actual 1, potential 1.
+Guatemala: actual 0, potential 0.
+Guinea: actual 0, potential 0.
+Haiti: actual 0, potential 0.
+Honduras: actual 0, potential 1.
+India: actual 0, potential 0.
+Indonesia: actual 2, potential 2.
+Iran: actual 1, potential 6.
+Iraq: actual 2, potential 2.
+Israel: actual 1, potential 2.
+Jordan: actual 0, potential 0.
+Laos: actual 2, potential 0.
+Lebanon: actual 1, potential 0.
+Malaya: actual 1, potential 0.
+Mali: actual 1, potential 0.
+Morocco: actual 0, potential 3.
+Nicaragua: actual 0, potential 0.
+Pakistan: actual 1, potential 0.
+Panama: actual 0, potential 0.

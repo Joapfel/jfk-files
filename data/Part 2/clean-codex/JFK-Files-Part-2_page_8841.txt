@@ -1,0 +1,18 @@
+Martes.
+
+Sección de Liques Tanques: Petróleo, Mielos y Alcohols.
+
+Cargar.
+
+Description: S. de Cuba Cienfuegos; Date: 18/8/62; Unit: M. DE ICG; Value: 36,000.  
+Description: Nuevitas Habana; Date: 18/8/62; Unit: G.R.II.; Value: 19,300.  
+Description: S. de Cuba Matanzas; Date: 18/8/62; Unit: MIR; Value: 9,606.  
+Description: Habana; Date: 18/8/62; Unit: G.G.RIBALDI; Value: 54,000.  
+Description: Habana; Date: 18/8/62; Unit: TRUD; Value: 267,000.  
+Description: S. de Cuba; Date: 18/8/62; Unit: BAUSKA; Value: 209,000.  
+Description: Habana; Date: 18/8/62; Value: 162,000.  
+Description: S. de Cuba L. SPIRIT; Date: 23/8/62; Value: 110,000.
+
+Mielos. Bens de Gasolina. Aceite de Aviación. Vapor. F. Crude. Aroniaco. F. Crude.
+
+Diferencia entre el valor nominal y el valor de envío. En el caso de las piezas de gasolina se muestran los costos por cuanta a subastar. Para los demás productos se [indica] la misma referencia que para el vapor. El Crude es el precio de un litro de gasolina a subastar, el cual consta de 20 centavos. El Aroniaco es el precio de una tonelada de azufre a subastar, y la mía está a 40 centavos por cisterna. Si se sumara el precio del oro con el de la subastilla, price of the product with its subaddition and subaddition cost, se dará el precio de una bultita de 40 hectolitros de azufre, y si se le pone al cisternero el precio de la subastilla se dará el total de la subastilla y el abono de la subastilla, o sea 40 x 2 = 80, y si se multiplica este value por el precio de la subastilla, se da el importe de la subastilla.

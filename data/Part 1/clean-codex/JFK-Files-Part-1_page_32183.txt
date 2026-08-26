@@ -1,0 +1,46 @@
+Write “YES” or “NO” in the appropriate column. If the answers to any of the following questions are “YES,” you must give full details, using additional sheets if necessary, and numbering answers to correspond with questions.
+
+32. Have you had any serious illnesses or operations in the past 5 years?
+
+a) If so, describe and give dates.  
+b) Were you hospitalized?  
+Dates: Hospital; Location.  
+c) How many days’ work have you lost in the past 5 years due to illness?  
+d) Do you have any service disability?  
+e) Percentage:
+
+33. Do you have any sources of income other than your salary?
+
+a) What are they?  
+b) Total amount of such income: $
+
+34. Has your credit record ever been considered unsatisfactory, or have you ever been refused credit?
+
+a) If so, give dates, places, names of creditors, and circumstances.
+
+35. Are you now indebted to anyone?
+
+a) Name.  
+Address; Amount.
+
+36. Have you ever been arrested (include traffic violations, but not parking tickets)? Yes.
+
+Date: Jan. 8, 1973. Place: Ft. Lauderdale. Charge: speeding. Disposition: fined. Details: $10.00.
+
+37. Has any member of your immediate family or close relative (including in-laws) ever been arrested for other than traffic violations? No.
+
+Name; Relation; Date; Place; Charge; Disposition.
+
+38. Were you ever dismissed from a school, or was any disciplinary action, including scholastic probation, ever taken against you, during your scholastic career?
+
+School; Date; Type of Action.
+
+39. Have you ever been dismissed or asked to resign from any employment or position you have held?
+
+Employer’s name; Date; Reasons.
+
+40. Have you ever been a defendant in a court action?
+
+If so, give date, place, court, names of parties involved, nature of action, and final disposition.
+
+Attached Sheet.

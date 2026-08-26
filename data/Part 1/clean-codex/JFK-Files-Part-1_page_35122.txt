@@ -1,0 +1,25 @@
+Estado “II”
+
+Hoja No. 2.
+
+Fecha: Oct. 28; Check No.: 272; Description: Desk Center; Importe: $453.88.  
+Fecha: Oct. 28; Check No.: 274; Description: Abel de Varona; Importe: 125.00.  
+Fecha: Oct. 28; Check No.: 275; Description: Jesús Valdés Crespo; Importe: 900.00.  
+Fecha: Oct. 28; Check No.: 276; Description: Tacuba Printing; Importe: 300.00.  
+Fecha: Oct. 28; Check No.: 277; Description: Tacuba Printing; Importe: 150.00.  
+Fecha: Oct. 28; Check No.: 278; Description: Tacuba Printing; Importe: 200.00.  
+Fecha: Oct. 28; Check No.: 279; Description: Máximo Sorondo; Importe: 500.00.  
+Fecha: Oct. 29; Check No.: 280; Description: The Flag Center; Importe: 44.00.  
+Fecha: Oct. 29; Check No.: 281; Description: Vicente Romeo; Importe: 105.00.  
+Fecha: Oct. 29; Check No.: 282; Description: Frank Zayas; Importe: 125.00.  
+Fecha: Oct. 29; Check No.: 283; Description: Manuel Cobo; Importe: 117.00.  
+Fecha: Oct. 29; Check No.: 284; Description: Humberto Figueras; Importe: 375.00.  
+Fecha: Oct. 29; Check No.: 285; Description: Nicolás Hernández; Importe: 40.00.  
+Fecha: Oct. 29; Check No.: 286; Description: José Peña; Importe: 105.26.  
+Fecha: Oct. 29; Check No.: 287; Description: Juan Sordo; Importe: 126.33.  
+Fecha: Oct. 29; Check No.: 288; Description: José M. Tarafa Jr.; Importe: 726.40.  
+Fecha: Oct. 29; Check No.: 289; Description: Armando de León S.; Importe: 43.06.
+
+Saldo en nuestros libros conciliado en 10-30-60: $71,172.84.
+
+AMR.

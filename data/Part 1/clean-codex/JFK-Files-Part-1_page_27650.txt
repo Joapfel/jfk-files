@@ -1,0 +1,11 @@
+Action code: 22. Employment code: 10. Office codes—numeric: 51875 W11. Station code: S. Integration code: S. Root code: 3. Date of birth: 06/29/30. Date of graduation: 05/16/7Y. Date of leaving: 05/12/7Y.
+
+BTI codes. Special distribution change. Transferent data. MO DATE. JYY. COD. EOD data. OS 125 76.
+
+WT profession. SEP day MO DATE. Loss comp date. Career category. LEG/health status. Secal shortity 80. Code. O-BOSS 1-SFT, 2-10 P. Waiter T=85, F=80, LMBLE. Mealtms code.
+
+Profession (millions contract service). Clave cat cogs. Lease CAI. Fiscal-tax data. State lei estd. Code. O-DO photographic service 1-DE firm in service 2-believe a service (less than 7 years) 3-30 year in service (more than 2 years). Form executed codes. No tax exemptions. Form executed 1-ISI 2-83. Ccode EO TA comp code.
+
+Position control certification. OP approval. Date approved.
+
+Classified: O-0.

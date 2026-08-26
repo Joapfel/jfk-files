@@ -1,0 +1,23 @@
+13.06 Household.
+
+Is he concerned about the appearance or functioning of the household? Yes/No.
+
+Does he make minor repairs himself? Yes/No. If yes: fairly competently or awkwardly.
+
+14. Children.
+
+14.01 Does he have any children? Yes.
+
+14.01.01 How many? What ages? 10+, 8. Sex of children: male and female.
+
+14.01.02 Are all the children with him? If not, where are they? Girl: Moscow.
+
+14.01.03 Does he pay unusual attention to his children, pay normal attention to his children, or pay little attention to his children? Selected: pay little attention to his children.
+
+14.01.04 Is his wife an unusually attentive mother, an average mother, or an unusually inattentive mother? Selected: an average mother.
+
+14.01.05 Are the children unusually well behaved, normally well behaved, or unusually rowdy or difficult? Selected: unusually well behaved.
+
+14.01.06 Does he never talk about his children, rarely talk about his children, talk about his children as normal and appropriate, frequently talk about his children, or seem quite preoccupied about his children? Selected: talk about his children as normal and appropriate.
+
+14.01.07 Are any of his children unusual in any way, including frequent illness, allergies, mental defects, being crippled or deformed, or being unusually bright? No.

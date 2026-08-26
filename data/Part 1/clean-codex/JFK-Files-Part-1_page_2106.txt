@@ -1,0 +1,17 @@
+Position Control Register. Date: 1.6 0/1/77 1977. A-400010G0. 5 48/0040G0. 6 48/0030G0.
+
+Joseph J. Maryan. Division: Joint Division. 08-0116.01. 00. 3002. 1. Date: 08/07/77. Status: OKN.
+
+Joyce Maryan. Division: Joint Division. 08-0116.01. 17. 3002. 0. 036783. C 13 4 10. Date: 073641. Status: 37987. Number: SM.
+
+Juan de Aguirrez. Division: Joint Division. 08-0116.01. 14. 30085. 16. Date: 08/07/77. Status: SM.
+
+Marlene A. Kimpoo L. Division: Joint Division. 08-0116.01. 12. 3888. 0. 00206 C 15 4 10. 091758. Status: 37987. Number: SM.
+
+Kall Frederik. Division: Joint Division. 08-0116.01. 13. 3885. 0. 01217 C 6 4 10. 090758. Status: 0961. Number: 37987. Division: SM.
+
+Robert G. Anna A. Division: Joint Division. 08-0318.01. 9. 3008. 10. Date: 041767. Status: 37987. Number: SM. 01788 C 24 F 10. 041767. 37987. SM.
+
+Alvares Ejonda. Division: Joint Division. 08-0318.01. 07. 3073. 10. 031626 C 39 F 10. 011703 0760. Number: 37987. 037806.
+
+Joyce Joyce Maryan. Division: Joint Division. 08-0118.36. n9.

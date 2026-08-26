@@ -1,0 +1,27 @@
+J.M.: Headquarters company.
+
+WH. Subject and Project File Request and Field Notification of Action.
+
+To: (Station/Base). From: (Division).
+
+Information for requesters: Complete items 1 through 12. Item 3: All file titles must be sterile since they will appear on the field copies and on machine lists. Item 6: All remarks must be sterile. Items 7 and 8: Use first three letters of dispatch symbols for field stations and list headquarters elements according to established numeric codes. Item 10: Enter old title when amending a title. Cite any files, such as 201 or project files, that are related to the file covered by this request. Item 10 may also be used to give reasons for the action being requested, to identify the type of material to be placed in a file, or to make other explanatory remarks. Item 11: A records officer must sign all file action requests. Consult your RMO on any problems that arise.
+
+Information concerning file. Subject. Project. Type of file. Code (file) number. Specific subject number. Country number. Category number. Code (file) number: 50. Category number: 6. Specific subject number: 74/1.
+
+3. File title (specific subject) (projects limited to 15 spaces): KDFACTOR. Action required.
+
+4. Analysis action. 5. Disposition. Open file. Close file—indicate disposition. Retain. Destruction recommended thru (date). Amend file title. Reopen.
+
+6. Remarks (for field distribution): Formerly LIEMPTY.
+
+8. Interested headquarters desk (list action desk first).
+
+7. Interested stations (projects only): HMM, 50.
+
+9. Files action. Hold in CS files. Restricted. Unrestricted. Prepare folder and send to requester. Charge permanently to (officer and desk).
+
+10. Comments include special headquarters routing instructions: VANEEL.
+
+11. Endorsement. 12. Coordination. 13. RID approval. Louis V. Chromelnyck. Request approved by.
+
+Signature of branch/desk R.O. Signature of branch/desk R.O. (when applicable). Effective date. Code (file) number.

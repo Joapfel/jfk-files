@@ -1,0 +1,9 @@
+Position Control Register.
+
+John Officer, Pastburn Roger D — DIN: GS-0136.01; age: 12; MCOM BMDY: 4; ALO NM: 2793; position No.: *D; exchange grade MUNR: 003215; type of return name: C; date: 27; department: M; account: 10; date of advise: 0610*2; P.O. CHS DLY: 5905; station code: 37587; subject query: 56350054000.
+
+Lind KPN T S — DIN: GS 0136.01; age: 12; ALO NM: 2793; position No.: D; exchange grade MUNR: 027078; type of return name: C; date: 91; department: M; account: 10; date of advise: 111261; P.O. CHS DLY: 6110; station code: 37587.
+
+Fashima Frank K — DIN: GS 0136.91; age: 12; ALO NM: 2793; position No.: D; exchange grade MUNR: 064002; type of return name: C; date: 17; department: M; account: 10; date of advise: 040359; station code: 37587.
+
+Margret Officer, Millikan Robert V — DIN: GS-0132.98; age: 12; ALO NM: 1; position No.: 1923; C.A. No.: *D.

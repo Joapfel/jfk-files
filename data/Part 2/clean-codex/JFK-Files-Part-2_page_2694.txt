@@ -1,0 +1,13 @@
+Request for Medical Evaluation (screened areas will be completed by OMS).
+
+3. Name (last, first, middle). 1. Request date (day-month-year). 2. Applicant has applicant previously been seen by OMS: Yes/No. B. Grade. 8. Affiliation code. 10. Directorate/office/division. 7. Sex.
+
+Complete 13–19 for each dependent to accompany or return with employee only if 2 is checked “Dependent(s).”
+
+13. Dependent name (/-FM). 14. SDC security number. 16. Date of birth (DMY). 17. Sex. 18. Relationship. 19. Dependent previously seen by OMS (yes/no).
+
+20. Requested action (more than one action is acceptable). Applicant: pre-employment; EOD; O/S PCS; station; ETD/ETA (day-month-year); number of dependents to accompany or return. Assignments: O/S TDY; type cover; position; O/S returnee; fitness for duty; other (specify); O/S TDY standby; return to duty; O/S planning; special training; separation; retirement; MDR/CIARS; MDR/CSC; routine; regular annual; executive annual; MPT/PHE.
+
+21. Comments. 22. Requesting directorate/office/division. 23. Room/building. 24. Extension. 25. Signature of requesting officer.
+
+For OMS use only. For applicants: approve processing for EOD; hold pending receipt of additional medical information (form letter attached); request pre-employment medical evaluation; other (see comments). For other actions: requested action, qualified, conditionally qualified, defer, disqualified. Biannual: qualified, XX.

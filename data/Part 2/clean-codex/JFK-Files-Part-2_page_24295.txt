@@ -1,0 +1,11 @@
+Similarly,
+
+... (I) it has been held that an express statutory grant of a right, power or privilege carries with it by implication, in the absence of a limitation, all the means that are usually employed and that are necessary and proper to the exercise or enjoyment of the right, power or privilege granted. In such case, the power necessarily implied is a part of the legislative act. There is even authority in support of the rule that power in a statutory grant may be implied although it is not indispensable to the exercise of the powers granted.... 50 Am. Jur., Statutes § 428.
+
+Cases which speak to the subject of implied statutory powers are abundant. In Schmiedigen v. Celebrezze, Judge Holtzoff held that:
+
+“(I)t is a well established principle of statutory construction that every legislative enactment must receive a sensible and reasonable construction that would effectuate its purposes. If a strict, literal interpretation would frustrate the objective of the legislative body and would lead to an absurd or futile result, it must be avoided.” 245 F. Supp. 825, 827 (1965). In U.S. v. Jones, where a statute gave federal officers the power to enforce compliance with the law but was silent on the power to arrest, the court stated:
+
+So, though the term arrest is not used in the statute, the language employed necessarily implies that such power was included.
+
+HW 50955

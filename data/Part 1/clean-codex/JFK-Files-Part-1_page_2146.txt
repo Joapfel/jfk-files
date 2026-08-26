@@ -1,0 +1,15 @@
+Position Control Register.
+
+Employee: Joe Clark-JYP. Job No.: GS 0301.8009. Grade: 1. Job title start date: 3/4/56. Job title end date: * D. Department code: C. Date of birth: 37.
+
+Employee: Tamara J. Kill. Job No.: GS 0301.3009. Job title end date: D.
+
+Translation Section.
+
+Office Dept. Job No.: MS 0136.0113. Phone number: MS 0136.0113. Grade: 1. Job title start date: 3/6/6. Job title end date: 1 D. Department code: C. Date of birth: 14.
+
+Employee: Milkawa Tama. Job No.: MS 0136.0113. Phone number: MS 0136.0113. Job title end date: D. Position code: 00.
+
+Office of Sakai Akita. Job No.: KS 0136.0418. Phone number: KS 0136.0418. Grade: 1. Job title start date: 3/6/6. Job title end date: * D. Department code: C. Date of birth: 10.
+
+Office Officer, Yamaki Shu. Job No.: SK 0033.0111. Phone number: SK 0033.0111. Grade: 2. Job title start date: 3/16/6. Job title end date: * D. Department code: C. Date of birth: 17.

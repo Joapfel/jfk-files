@@ -1,0 +1,23 @@
+Standard Subfile List for Foreign Countries.
+
+Near East (also Middle East): 350; Peru: 225.
+Nepal: 353; Philippine Islands: 239.
+Netherlands: 258; Poland: 250.
+Netherlands East Indies: 247; Portugal: 236.
+New Caledonia: 269; Portuguese Guinea: 403.
+New Hebrides: 400; Qatar (Quatar): 415.
+New Zealand: 320; Rumania: 244.
+Newfoundland: 338; Russia: 240.
+Nicaragua: 222; Ryukyu Islands: 368.
+Niger: 387; Rwanda: 408.
+Nigeria: 323; Salvador: 226.
+North Korea: 265; Samoa: 358.
+Norway: 260; San Marino: 299.
+Nyasaland; Malawi: 326; Sardinia: 318.
+Pakistan: 342; Saudi Arabia: 245.
+Palestine: 248; Scotland: 285.
+Panama: 223; Senegal: 393.
+Papua; Territory of Papua: 224; Sierra Leone: 355.
+Paraguay: 224; Singapore: 316.
+
+Control-Reference Files. Revised April 25, 1969.

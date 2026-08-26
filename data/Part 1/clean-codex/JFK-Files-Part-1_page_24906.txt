@@ -1,0 +1,24 @@
+Statement of Claim.
+
+Audit Breakdown:
+
+1. Hospital Admission Date — 5-20-65. Due: 5-20-65.
+2. Hospital Adm. Session Date — This Payment — 3. Amounts.
+3. Hospital Room, 6 days at $22.02. Amounts of actual charges.
+4. Hospital Room, 6 days at $22.02. Actual charges: 222.22. Payable under: 220.00.
+5. Indirect Hospital Miscellaneous (include ambulances). Actual charges: 27.00. Payable under: 27.00.
+6. Outpatient Hospital Miscellaneous.
+7. Surgeons. Actual charges: 103.32. Payable under: 103.00.
+8. Anesthetist (other than hospital). Actual charges: (16.05). Payable under: (16.00).
+9. Physician (other than surgeon), 5-26-65, 5-27-65. Actual charges: 70.60. Payable under: X.
+10. Drugs (other than hospital).
+11. Other covered expenses.
+12. Total due plan benefits this worksheet: 177.00.
+13. Total actual charges: 707.05.
+14. Show all excess of line 13 over line 12: 207.00.
+15. Add any accumulation of deductible applicable.
+16. Total line 1 and line 15: 207.00.
+17. If line 16 exceeds deductible ($100, plus any private fee charge exceeding $25 a day), enter amount of excess: 207.00.
+18. Payable 0/00%: 1, 207.00. 265.67.
+19. Payable 0/00%.
+20. Total major medical ben.

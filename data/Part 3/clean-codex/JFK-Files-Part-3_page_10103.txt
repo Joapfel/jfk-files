@@ -1,0 +1,7 @@
+CI: 90 percent – two; 80 percent – two; 70 percent – two.
+
+IS: 90 percent – four; 80 percent – six; 50 percent – two; 40 percent – two; 20 percent – one; 10 percent – four.
+
+Lower percentages attempt to account for time spent by resident agents in covering leads in these fields and to discount time spent on other matters by headquarters agents.
+
+End.

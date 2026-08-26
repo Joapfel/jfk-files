@@ -1,0 +1,19 @@
+Date: 8 November 1962. To: Director. From: San Juan. Action: TFW 10. Info: DOP, DOP/SIT 3, CI, CI/OPS F1, TSO 9, W1, W2, W3, S/C 2.
+
+Classified message. Routing.
+
+NOV 8 23432 62
+
+Route in.
+
+IN 15096
+
+WAVE INFO DIR HAGU CITE SJAN OS36  
+GYROSE  
+REF SJAN OS35 (N 15095)
+
+IDEN A: Collin E. Ostrander, USIA representative, San Juan.
+
+IDEN B: Waldemar F. Lee, Netherlands consul, San Juan.
+
+End of message.

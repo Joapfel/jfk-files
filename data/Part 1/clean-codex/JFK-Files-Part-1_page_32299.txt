@@ -1,0 +1,9 @@
+Space below for exclusive use of the Office of Personnel.
+
+19. Action Code: 22. 20. Employee Code: 10. 21. Office Coding: Numeric 49350. Alphabetic SAS. 23. Interleave Data: Integree 75013. 24. Mails (Code): 24 (Code). 25. Date of Birth: 08 04 35. 26. Date of Grade: 03 15 64. 27. Date of Leave: 03 15 64.
+
+20 WTE Expires. 21 Special Reference. 22 Correction/Cancellation Data. MJD. Date. CSC, E FICA, None. Code. Data Code. Type.
+
+35 WET Preference. 36 Serv. Comp. Date. 37 Long Comp. Date. 38 Career Category. 39 PERLI / Health Insurance. 40 Social Security No. Code. 0 None. 1 O PI. 2 TO PY. MJD. Date. Code. Name. O MAIVERS. 1 Yes. Health Data. State Code.
+
+41 Previous Government Service Data. 42 Leave Data. 43. Federal Tax Data. 44. State Tax Data. Code. 0 No previous service. 1 No break in service. 2 Break in service less than 1 year. 3 Break in service more than 1 year. Code. Form executed. 1 Yes. 2 No. No tax exemptions.

@@ -1,0 +1,7 @@
+Notification of Personnel Action.
+
+Serial number: 026090. Name: Keenan Thomas J. Effective date: OH. Category of employment: Now to be reordered from. Action: For order no.; reorder from (no longer available on order no.). Origin: February 23, 67. Designation: Do not reorder from this order no. Specific changes: Will be processed later. Location of office: Collaborate with others on the problem. Position title: Operations and Technical Operations; Office Administration. Special reference data: Special reference data. General information: Working reference data. Service designation: Office Security Data Sheet; supersedes existing data sheet. Department: D; 1. Last name; 2. First name; 3. Surname; 4. Birthday; 5. Gender; 6. Marital status; 7. Religion; 8. Age; 9. Occupation; 10. Position in company; 11. Contact information for supervisor; 12. Direct reporter; 13. Secretaris; 14. Telephone number; 15. Office location; 16. Telephone number; 17. Date of creation; 18. Reorder from; 19. Current order no. Leave history: 01034; D.O.R.F.; CSG; CIN; PICS; OTHERS.
+
+OPP/ABN. Foreign Field Branch 3, Bogota, Colombia Station.
+
+Action code: 20. Employ code: 10. Office coding: Numeric. Station code: Alphabetic. Integer code: Code. Hours code: COD. Date of birth: DOB. Date of grade: Marshall. Date of LEI: LEO data. NTE expires: No. DA. YR. Special reference: Ref. no. Retirement data: Code. Separation data: Typ. Correction/cancellation data: No. DA. YR. WH. 15005. 3. 06.

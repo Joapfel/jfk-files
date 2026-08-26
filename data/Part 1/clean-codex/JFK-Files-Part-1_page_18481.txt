@@ -1,0 +1,7 @@
+19 Action Code: 57. 20 Employ Code: 10. 21 Office Coding Alphanumeric: Numeric 61100. 22 Station Code: Alphanumeric TFW. 24 Numbers Code: DA 13|16. 28 MTE Expires.
+
+Retirement Data Code: CSC, B - None; FICA. Separation Data Code: Type 37; No. 06|08|62; EOD Data.
+
+33 Vet. Preference: 0 - None; 1 - SPT; 2 - TO PT. 34 Serv. Comp. Date. 35 Long. Comp. Date. 36 Career Category: EOD Data.
+
+41 Previous Government Service Data: 0 - No Previous Service; 1 - No Break in Service; 2 - Break in Service Less Than 3 Yrs. 42 Leave Cat. Code. 43 Federal Tax Data.

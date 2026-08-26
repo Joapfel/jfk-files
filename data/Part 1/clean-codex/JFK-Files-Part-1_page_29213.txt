@@ -1,0 +1,7 @@
+Action Code: 37. Employee Code: 10. Office Coding: Numeric A-1406; Alphabetic BH, C-5076, D-1106, E-12. Station Code. Interstate Code. Dates of Birth. Date of Graduation. Date of Leave. Date Expires. Special Reference. Retired Data. No. Da. To. Retirement Data: I—CSC; II—PCHA. Separation Data Code. EOD Data.
+
+Yes, Preference: Code; D—YES; I—YES; 2—YES. Service Comp. Date: M.—D.—C. Long Comp. Date. Career Category: O—YES; I—NO. Reliance on Health Insurance. Social Security No.
+
+Previous Government Service Data: Code; 0 = no previous service; I = yes if service; 2 = yes in service (less than 3 yrs). Please Cat. Code. Date Approved. Position Control Certification. O.P. Approval. Date Approved.
+
+Personnel Previous History. 4.02 and 4.03 are 1152A. (4)

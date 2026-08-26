@@ -1,0 +1,7 @@
+Position Control Register.
+
+Patrick J. McGinty, Life Sailor V. Position data: 136.0100; department: Virgilian; grade: 1926.0117; income agency: C; position number: 136.0118; class A/SO: 1926.0119; employee number: 13002; B./S.: I.D.
+
+Robert D. Ward, Joseph R. Bordi P. Position data: 136.0110; department: Marshall; grade: 136.0115; income agency: C; position number: 136.0116; employee number: 13003; B./S.: I.D; title: O.S.
+
+William S. Leach, Knoxley C.R.

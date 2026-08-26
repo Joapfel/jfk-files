@@ -1,0 +1,27 @@
+201 Personality File Action Request.
+
+Note: See instructions on reverse side. Type or print.
+
+To: RID/201 Section, Room GA-20, Tube Address DW-6. Date.
+
+From. Name. Office. Room. Phone. Tube address.
+
+Type action: Open. Amend. Close. File restricted. Yes. Permanent charge. True name. 201 No.
+
+Name variants and telecodes. Type: N2.
+
+7. Sex: F1, F2, N2.
+
+9. Country of birth.
+
+10. City/town of birth.
+
+11. Citizenship.
+
+12. Occupation (clear text). Occupation code. SWL.
+
+13. Document symbol and number: N1, N2, N3, J1, J2, N1.
+
+14. Comments (text for index cards).
+
+15. Country of location: Code ’81, ’81.

@@ -1,0 +1,9 @@
+19. Action Code: 22. 20. Employer Code: 10. 21. Office Coding, numeric alphabetic: 64700 WH. 22. Station Code: 45075. 23. Intergranular Code: 1. 24. Months Code: 3. 25. Date of Birth, no. DA FP: 06 29 30. 26. Date of Grade, no. DA FR: 04 14 63. 27. Date of LEI, no. DA FR: 04 14 63.
+
+20. Due Expires. 29. Special Reference. 33. Retirement Data (S, S, P, G, A, N, O). 31. Separation Data Code. Type: EOD data.
+
+35. Vet Preference. Code: 0—None; 1—SP¹; 2—SP². 36. Serv. Comp. Date. 37. Long. Comp. Date. 38. Career Category. Code: CAS; PERS TEMP.
+
+41. Previous Government Service Data. Code: 0—No previous service; 1—No break in service; 2—Break in service less than 1 year; 3—Break in service more than 1 year. 42. Leave Cat. Code: Permitted; N/A. 43. Federal Tax Data: 1—Yes; 2—No. 44. State Tax Data.
+
+Signature or other authentication. Posted.

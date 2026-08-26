@@ -1,0 +1,31 @@
+SECRET
+
+| DATE | CONTACT | REASON FOR CONTACT | SOURCE |
+|---|---|---|---|
+| 4 May 65 | Jovan MIRIC | Dinner of Press Club | LIFEAT |
+| 6 May 65 | Jovan MIRIC | Meeting | LIFEAT |
+| 6 May 65 | Nikolay Sergeyevich LEONOV | Meeting | LIFEAT |
+| 6 May 65 | Jovan MIRIC | Meeting | LIFEAT |
+| 7 May 65 | Nikolay Sergeyevich LEONOV | Meeting | LIFEAT |
+| 7 May 65 | Julian LOPEZ Diaz and Jovan MIRIC | Lunch soon with Subject | LIFEAT |
+| 7 May 65 | Nikolay Sergeyevich LEONOV | Meeting | LIFEAT |
+| 9 May 65 | Reynaldo CEPEDA Hernandez | Meeting | LIENVOY |
+| 9 May 65 | Nikolay Sergeyevich LEONOV | Meeting (in LEONOV's house) | LIFEAT |
+| 9 May 65 | Jovan MIRIC | Meeting | LIFEAT |
+| 10 May 65 | Edmundo JARDON | Discussing Dominican Republic | LIENVOY |
+| 10 May 65 | Antonio CARAMELO (of Preussa Latina) | Discussing Dominican Republic | LIENVOY |
+| 10 May 65 | Nikolay Sergeyevich LEONOV | Invites Subject for coffee | LIENVOY |
+| 11 May 65 | Nikolay Sergeyevich LEONOV | Invites Subject for coffee | LIENVOY |
+| 15 May 65 | Jovan MIRIC | Meeting | LIFEAT |
+| 18 May 65 | Jovan MIRIC | Meeting | LIFEAT |
+| 19 May 65 | Ramon SIMOBA Saccada | Meeting | LIFEAT |
+| 19 May 65 | CHUNG Chia-mao (New China News Agency representative in Mexico) | Chatting | LIENVOY |
+| 20 May 65 | Nikolay Sergeyevich LEONOV | Meeting | LIFEAT |
+| 20 May 65 | Nikolay Sergeyevich LEONOV | Meeting | LIFEAT |
+| 21 May 65 | Nikolay Sergeyevich LEONOV | Meeting | LIFEAT |
+| 21 May 65 | Rogelio RODRIGUEZ Lopez | Meeting | LIFEAT |
+| 21 May 65 | Jovan MIRIC | Meeting | LIFEAT |
+| 21 May 65 | Nikolay Sergeyevich LEONOV | Meeting | LIFEAT |
+| 22 May 65 | Nikolay Sergeyevich LEONOV | Meeting | LIFEAT |
+
+SECRET

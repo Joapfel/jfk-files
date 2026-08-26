@@ -1,0 +1,43 @@
+Estados de producción y ganancias.
+
+A. Ingresos totales:
+
+1er año: Ventas estándar, $40,000.00; ventas valoradas, $105,000.00; ventas históricas, $5,000.00; total ingresos, $165,500.00.
+
+2do año: Ventas estándar, $280,000.00; ventas valoradas, $122,500.00; ventas históricas, $7,000.00; total ingresos, $305,000.00.
+
+3er año: Ventas estándar, $340,000.00; ventas valoradas, $187,500.00; ventas históricas, $12,000.00; total ingresos, $409,500.00.
+
+B. Costo de producción:
+
+1er año: Materias primas, $30,000.00; materiales, $60,000.00; mano de obra directa, $32,000.00; depreciación (IVA, 20%), $10,000.00; reparación y mantenimientos, $2,000.00; cargaderas (electricidad), $2,500.00; subtotal de la planta, $1,000.00; sub-total, $127,500.00.
+
+2do año: Materias primas, $65,000.00; materiales, $90,000.00; mano de obra directa, $43,000.00; depreciación (IVA, 20%), $10,000.00; reparación y mantenimientos, $10,000.00; cargaderas (electricidad), $2,500.00; subtotal de la planta, $1,300.00; sub-total, $238,000.00.
+
+3er año: Materias primas, $90,000.00; materiales, $90,000.00; mano de obra directa, $43,000.00; depreciación (IVA, 20%), $5,000.00; reparación y mantenimientos, $10,000.00; cargaderas (electricidad), $3,000.00; subtotal de la planta, $1,300.00; sub-total, $242,500.00.
+
+C. Gastos de administración:
+
+1er año: Gastos, $6,400.00; gastos de oficina, $2,000.00.
+
+2do año: Gastos, $9,000.00; gastos de oficina, $3,000.00.
+
+3er año: Gastos, $9,000.00; gastos de oficina, $3,000.00. MAY-2020, $6,400.00; gastos de oficina, $2,000.00 y $3,000.00.
+
+D. Total gastos:
+
+1er año: Subtotal, $10,400.00.
+
+2do año: Subtotal, $12,500.00.
+
+3er año: Subtotal, $12,500.00.
+
+E. Gastos financieros:
+
+1er año: Del capital, $18,000.00.
+
+2do año: Del capital, $13,000.00.
+
+3er año: Del capital, $15,000.00.
+
+Del interés.

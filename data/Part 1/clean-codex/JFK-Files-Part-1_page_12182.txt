@@ -1,0 +1,31 @@
+Staff Department Record.
+
+Action Unit: CJG8; VP: Gus; Date: September 18, 1976; Dept: Mech; Dwg: 003. Action Unit: CJG 8; RF File: RECD; VP: JNEC; Date: Preliminary design; Dept: LIMITS; Dwg: 004. Action Unit: CJG 8; RF File: RECD; VP: JNEC; Date: Preliminary design; Dept: LIMITS; Dwg: 005. Action Unit: CJG 8; RF File: RECD; VP: JNEC; Date: Preliminary design; Dept: LIMITS; Dwg: 006. Action Unit: CJG 8; RF File: RECD; VP: JNEC; Date: Preliminary design; Dept: LIMITS; Dwg: 007. Action Unit: CJG 8; RF File: RECD; VP: JNEC; Date: Preliminary design; Dept: LIMITS; Dwg: 008.
+
+T 448463 E14636 IN 126234.
+
+TOR: 101920E December 1976, CARA 31679.
+
+1019252 December 1976, Staff.
+
+Cite CARACAS 31679.
+
+To: Priority Director. Info: London.
+
+WNINTEL RYBAT KMSTONE MHSPIKE.
+
+Ref: CARACAS 31409 (UN 097618).
+
+1. WKDIET-2 (D-2) reported on 10 December that Ricardo Morales Navarrete (201-0285923) is back in Venezuela. D-2, who knows Morales personally, saw and talked to him around 2 December at the Anauco Hilton Hotel where WKTANGO-1 maintains quarters. Morales asked D-2 not to say anything regarding his presence here.
+
+2. Above information will be included in intelligence that follows.
+
+3. File: 201-0285923. E2. IMPDET.
+
+F/M: Signature. Unit No.
+
+P/S/T: X. Approved.
+
+FECNO: 1019252.
+
+F/M: 2004-09-28 11:30.

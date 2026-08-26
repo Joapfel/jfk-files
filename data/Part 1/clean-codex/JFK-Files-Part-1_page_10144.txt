@@ -1,0 +1,15 @@
+Classified message. Routing.
+
+To: Director  
+From: Mexico City  
+Action: WH 8  
+Info: DOP, DOOS/L, DOOS 4, SPOG 2, CI, CI/OPS, CI/IC 2, FI, FI/INT, SAS 8, VR
+
+0617512  
+DIR WAVE CITE MEXI 8037  
+HIBASTE PORUMEN  
+HLP REAL 194U
+
+According LITAMIL-7, Lechuga travel plans changed: he went Canada, will remain until 18 February, proceeding Porumen.
+
+C/S comment: Requested subjs travel plans.

@@ -1,0 +1,13 @@
+Verified Record of Overseas Service.
+
+To: Office of Personnel, Statistical Reporting Branch, Room 192, Curie Hall.
+
+Office/Component. Employee serial no.: 1-0 26090. Name of employee: KEENAN. Middle: J. Last: Print. First: 2-24. Office: 25-28. City: 51.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert appropriate code number in “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS Dates of Service. Type of data: 1 - PCS (Basic). Arrival code: 27; month: 20-29; day: 30-31; year: 32-33. Departure month: 34-35; day: 30-37; year: 30-39; country: 40-42. Type of data: 2 - Correction. Type of data: 3 - Cancellation. Departure month: 07; day: 31; year: 62; country: 450.
+
+TDY—Dates of Service. Type of data: 2 - TDY (Basic). Departure code: 27; month: 20-29; day: 30-31; year: 32-33. Return month: 34-35; day: 30-37; year: 39-39; areas: 40-. Type of data: 3 - Correction. Type of data: 6 - Cancellation.
+
+Source of Record Document. Travel Voucher: X. Dispatch. Cable. Duty Status or Time and Attend.

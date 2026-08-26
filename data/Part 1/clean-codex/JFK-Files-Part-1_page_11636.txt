@@ -1,0 +1,5 @@
+Routing and Record Sheet.
+
+Subject. From. To (officer designation, from number, and building).
+
+Rec'd. Date. Fwd'd. Officer's initials. Comments.

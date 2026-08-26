@@ -1,0 +1,16 @@
+Classified message. Routing. Action: RID copy. Info: File is being transferred by air.
+
+DIR CITE MEXI 4556  
+NYXIS DILET LIFEPAT
+
+REF DIR 37299 1
+
+26 Aug 65 IN 40248
+
+1. All LIFEAT recording done on 6R cycle machines. LIFEUD-7, who transcribes Spanish portions of DMLET, takes reports—no distortion or technical problems of unusual or continuing nature. WILSTED pillar checks of installation revealed both functioning properly.
+
+2. COST LIFEAT techrecording problems corrected within 48 hours. Advise if distortion continues.
+
+CFN-4556 DIR 37299 LIFEPAT 50 CYCLES FEUD 7 SPANISH DMLET NO DISTORTION WILSTED 48 HOURS
+
+BY 4 Aug 85 3:40 PM

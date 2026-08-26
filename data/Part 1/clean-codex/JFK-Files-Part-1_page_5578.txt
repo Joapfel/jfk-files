@@ -1,0 +1,11 @@
+Document Transfer and Cross Reference.
+
+Subject of document. Document identification. RI file No. Dispatch or source document symbol. Date. Source cryptogram. Date of info. Evaluation. Analyst. Date processed. Disseminated in. Date.
+
+Document disposition. Cross referred to this file. Transferred to RI file No.
+
+Pertinent information:
+
+14. Charles. 201-357029. Sex: M. DOB: ?. CIT? OCC? Accused of coup plotting. HTP. 036-0C9-006. PRIN-06803. 15 Apr 70. R 7005080679. File in 201-357029.
+
+15. File this form in file No.

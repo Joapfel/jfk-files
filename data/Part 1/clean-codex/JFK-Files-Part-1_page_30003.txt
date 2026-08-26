@@ -1,0 +1,11 @@
+Verified Record of Overseas Service.
+
+To: Office of Personnel, Statistical Reporting Branch, Room 192, Curie Hall.
+
+Employee serial no.: 26700. Name of employee: Murphy, David E. Office/component: 24.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert appropriate code number in the “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month and last two digits only for year.
+
+PCS Dates of Service. Type of data: 1 - PCS (Basic); 3 - Correction; 9 - Cancellation. Arrival: due, month, day, year. Departure: month, day, year. Country. Omit.
+
+TDY Dates of Service. Type of data: 2 - TDY (Basic). Departure: due, month, day, year. Return: month, day, year. Areas. Omit.

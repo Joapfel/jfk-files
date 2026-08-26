@@ -1,0 +1,20 @@
+Case — concerning time to process visa. Columns: SCOT, CUC, NA, NA.
+
+1. American woman who met and married Soviet citizen in UZB — SCOT: X; NA: NA.
+2. American student — SCOT: ✓; NA: X; NA: ?.
+3. American clergyman — SCOT: ✓; NA: X; NA: ?.
+4. American tourist — CUC: ?; NA: X.
+5. American student or tourist — NA: X.
+6. American correspondent — SCOT: ✓; NA: X; NA: ?.
+7. Italian student — CUC: ?; NA: X.
+8. Italian student — CUC: ?; NA: X.
+9. Italian student — CUC: ?; NA: X.
+10. Iranian returnee — CUC: ?; NA: X.
+11. West German student — SCOT: ✓; NA: X.
+12. Swedish student — SCOT: ✓; NA: X.
+13. Swedish student — SCOT: ✓; NA: X.
+14. Swedish businessman — SCOT: ✓; NA: X.
+15. Swedish student — SCOT: ✓; NA: X.
+16. American teacher — CUC: ?; NA: ?.
+17. American businessman — SCOT: ✓; NA: ?.
+18. Frenchman on trip to UZB; student? — CUC: ?; NA: ?.

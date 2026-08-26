@@ -1,0 +1,3 @@
+Cumulative Distribution of Daily Races and Wages of Drivers, June 1, 1940.
+
+A less than cumulative distribution.

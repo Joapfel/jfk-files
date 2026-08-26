@@ -1,0 +1,9 @@
+Deduction Schedule.
+
+Medical: 2 Medicine/Drugs; 3 Less 1% A.G.I. (Line 18 - 1040); 4 Net Med/Drugs; 5 H & A Ins. (½ + Excess), federal: 504; 6a Dr.; Dr.; Dr.; Dr.; Dr.; Dr.; Dr.; 6b Hospital; Prosthetic Appliances; Hearing Aid; 6c Ambulance; Laboratories; Travel for Med., federal: 70; Medicare Ins.; Glasses; 7 Medical Expenses, federal: 1504; Less Reimbursed by Ins.; 8 Less 3% Adj. Gross Inc., federal: 268.
+
+Contributions: 21 Partnership Share; Girl/Boy Scouts; Heart Fund/Cancer Fund; Red Cross/United Fund; Xmas & Easter Seals, state: 150; Misc. Organized Charities; Political Contributions; Churches; 22 Other Than Cash; 23 Carry Over From Prior Yrs; 24 Total Contributions, state: 150, federal: 150.
+
+Casualty or Theft Loss(es): 25 Loss Before Adjustment; 26 Insurance Reimbursement; 27 Difference (not less than zero); 28 ($100 Limitation Per Cas.); 29 Tot. Cas. or Theft Loss.
+
+Miscellaneous Deductions: 30 Alimony.

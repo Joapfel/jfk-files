@@ -1,0 +1,3 @@
+Distribution: State, Army, Navy, Air, NSRB, FBI.
+
+Type. Act-date. Info-tfr-date. Area.

@@ -1,0 +1,39 @@
+MFRS AND CLUP UNIT.
+
+CTRMAN — title GS-0667.01-17; office 1-3229; position 1; DE.
+
+CTRMAN — title GA-0041.01-07; office 1-3286; position 2; DE.
+
+PERMITMENT SECTION.
+
+SNGD MNEI PRGRP — title AG-0201.01-12; office 1-3195; position 1; SP; incumbent position 3: REDMOND CHARLES JRN, title GS-0201.01-12, position 3196, SP.
+
+HR STROBOCRAPHIER — title GA-0917.01-08; office 1-3098; position *; DE.
+
+FINANCE SECTION - ATSUMI.
+
+BURGERS PECIFCS — title AS-0510.14-17; office 1-3197; position 1; SF; incumbent position 5: MOTHERSON WILLIAM, title GS-0510.01-12, position 3197, SF.
+
+BURGERS PECIFCS — incumbent position 5: MARTIN ELWOOD D, title GS-0510.14-19, position 3197, SF.
+
+BURGERS PECIFCS — title AS-0510.14-11; office 1-3198; position *; SF; incumbent position 5: COOK JOHN D, title GS-0510.14-11, position 3198, SF.
+
+BURGERS PECIFCS — title AS-0501.03-09; office 1-3199; position *; GF; incumbent position 5: MERTOLINI RANGST, title GS-0501.03-08, position 3199, GF.
+
+BURGERS PECIFCS — title GS-0501.03-07; office 1-3200; position *; SF; incumbent position 5: WHEELER JOSEPH F, title GS-0501.03-07, position 3200, GF.
+
+BURGERS PECIFCS — title AS-0511.01-08; office 1-1097; position 9; D.
+
+BURGERS PECIFCS — title AS-0327.01-09; office 1-4960; position *; D.
+
+FINANCE SECTION - YOKOSURA.
+
+CTRMAN ASCT — title GS-0110.03-09; office 1-3057; position *; SF; incumbent position 3: GRASSI ROBERT A, title GS-0501.03-09, position 3857, SF.
+
+ACCOUNTING SECTION.
+
+CTRMAN — title AS-0020.01-15; office 1-3229; position 3; AL; incumbent position 3: CHAPORDER HANS N, title GS-0020.01-14, position 3228, AL 63.
+
+CTRMAN — title AS-0020.01-18; office 1-3229; position 3; AL; incumbent position 3: DOWNEY LYNNE KATHRYN, title GS-0020.01-12, position 3229, AL.
+
+CTRMAN — title AS-0021.01-17; office 1-3200; position *; AL.

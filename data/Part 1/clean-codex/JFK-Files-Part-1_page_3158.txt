@@ -1,0 +1,9 @@
+First Name & Birth Place: Isaac, Moshe; Eliot, Shalom; Dan, Israel; Sarah, Leah; Abraham, Abraham; Susan, Sara; Michael, David; Jessica, Sarah; George, David; Elizabeth, Barbara; Robert, James.
+
+Second Name & Birth Date: Katz, 8/16/97; Samuel, 2/20/98; Michael, 5/30/97; Born: 8/16/97; Died: 2/20/98; Died: 5/30/97; Married: 8/16/97/2/20/98.
+
+Full Name and Date of Birth: Michael Katz, 8/16/97; Isaac Moshe Katz, 2/20/98; Michael Samuel Katz, 5/30/97; David David Katz, 8/16/97/2/20/98; Leah Leib Katz, 5/30/97; Shalom Shalom Katz, 8/16/97; David Israel Katz, 2/20/98; Sarah Yona Katz, 5/30/97.
+
+State of Residence and Date of Birth: New York, New York, 8/16/97; Los Angeles, California, 2/20/98; Tampa, Florida, 5/30/97; Anne Arundel, Maryland, 8/16/97; Boston, Massachusetts, 2/20/98; Seattle, Washington, 5/30/97; Houston, Texas, 8/16/97.
+
+Past Address and Date of Birth: 6646 12th Avenue South, Suite 100, 8/16/97; 1900 K Street, Suite 100, 2/20/98; 1020 West 32nd Street, Suite 100, 5/30/97; 1100 West Oakton Street, Suite 100, 8/16/97; 6651 N. Lake St., Suite 100, 2/20/98.

@@ -1,0 +1,24 @@
+Classified message.
+
+To: Director
+
+From: Santo Domingo
+
+Action: WH 8
+
+Info: DDP, ADDP, SOD 6, CA 2, CA/PEG, CA/PROP, CA/O 4, CI, CI/OPS, CI/IC 2, FI, FI/D, FI/INT, IV, RI/AN, SAS 8, DD/I, AD/CI 2, AD/NE, VR
+
+151645Z
+
+UK HEXI INFO WAVE CITE SDOM 2619  
+1610*
+
+NEWSDOM 2XOP (not sent wave)
+
+HIXI 7738 (not sent wave, in 97485)*
+
+1. Victor Rico Galan, Mexican Marxist journalist, left Santo Domingo for Miami on 15 January 1964 via Pan Am 432. (Sources: Dominican Security Service.) No further information available.
+
+2. Index.
+
+C/S comment: *Apparently wrong reference. Possibly SDOM 2610 (IN 97187) intended. ** Intel rpt re travel of Victor Rico Galan to Dominican Republic.

@@ -1,0 +1,11 @@
+Verified Record of Overseas Service. To: Office of Personnel, Statistical Reporting Branch, Room 192, Curie Hall. Employee serial no.: 1-0 1385. Name of employee: Morles (Morles), Dario S. Office component: 30-30 #-64.
+
+Instructions: Use appropriate space below to report data for either PCS or TDS. Insert appropriate code number in “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS dates of service. Type of data: 1 - PCS (Basic). Code: 27. Arrival month: 20-21. Arrival SAT: 22-23. Arrival year: 34-35. Departure weeks: -39-40. Departure day: -30-39. Departure year: CUBA. Country: 40-47.
+
+Type of data: 3 - Cancellation. Code: 81. Arrival year: (09). Departure weeks: 30. Departure day: 60. Departure year: 190.
+
+TOY dates of service. Type of data: 2 - TOY (Basic). Code: 27. Departure month: 20-21. Departure SAT: 22-23. Departure year: 34-35. Return weeks: -39-40. Return day: -30-39. Omit: 40-42.
+
+Source of record document. 1971 voucher: DISPAYM. Cable: Duty status on time and attendance report. Other (specify).

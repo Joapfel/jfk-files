@@ -1,0 +1,13 @@
+Employee Notice of Resignation.
+
+I resign effective (Date). For the following reason:
+
+My last working day will be. Date signed. Signature of employee.
+
+Forward communications, including salary checks and bonds, to the following address (Number, Street, City, Zone, State).
+
+The initiating office should fill in each of the referenced items. Items 3 thru 7 and 9 thru 18 require information which pertains only to the action requested, and not to the current status of the employee unless specific items remain unchanged.
+
+Item 5 — “Category of Employment” should show one of the following entries: Regular; Summer; WAE; Part Time; Detail Out; Consultant; Temporary; Detail In; Military; Temporary — Part Time.
+
+Item 9 — “Organizational Designations” should show all levels of organization pertinent to identifying the location of the position: Major Component (Director, Deputy Director, etc.); Office, Majority Staff, etc. The OCR text ends here.

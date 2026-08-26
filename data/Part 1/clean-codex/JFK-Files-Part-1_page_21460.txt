@@ -1,0 +1,23 @@
+Classified message.
+
+Date: 349, 30 November 1960. To: Director. From: Paris. Action: TSD 4*. Info: CI, CI/OPS, FI, EE 4, SR 4, WE 4, S/C 2.
+
+30 November, 1750Z 1960. Routine. IN 49970.
+
+DIR CITE PARI 2579.
+
+LCIMPROVE AEDOGMA.
+
+Ref A. EGTA 15927.
+
+B. PARI 2453 (IN 45709).
+
+C. FRAN 7388 (IN 45202).
+
+1. Facsimile passed to DOGMA for delivery addressee.
+
+2. Since Ref A reports SW definitely present Philadelphia letter, request instructions further PARI action if any.
+
+End of message.
+
+C/S comments: *Action unit determined as though indicator AQUATIC used. **Stated no further testing required. Requested pouch all letters PARI.

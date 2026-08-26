@@ -1,0 +1,10 @@
+6 Apr. 87 3:23 PM
+
+RET 060035Z CITE MEXICO CITY 0996
+
+DIRECTOR
+
+REF A DIRECTOR 85210  
+B DIRECTOR 46923
+
+Request authorized amount for MV-2823 be increased from $3200.00 to $3440.91 (new price of Ford Econoline now going into production after 6 months lapse). New price includes mandatory safety equipment including fire extinguisher, seat belts and windshield washer not previously required by Mexican law and radio which necessary to cover transmitting equipment to be installed by WOFACT.

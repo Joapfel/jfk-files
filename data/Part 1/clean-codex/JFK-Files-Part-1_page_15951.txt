@@ -1,0 +1,21 @@
+Classified message. Date: 24 July 1962. DJM.
+
+Action: C/AF 3.
+
+Info: ADDP, C/C1, C/FI 2, CDC, C/EE 3, S/C 2.
+
+24 July 1940Z 1962. Routine.
+
+IN 33838.
+
+DIR INFO LEOP CITE FRAN 1854. RE DIR 2495A. Cout 57642.
+
+Subject requested preference [for an] American country and stated that though [he] will go anywhere, we are facilitating legalization, including citizenship. He prefers Venezuela, Chile, or Colombia (COLURIA).
+
+End of message.
+
+C/S comment: *Action unit determined as though indicator ZIBET used.
+
+**Dissemination applicable to RYBAT cables.
+
+***For WIROGUE resettlement.

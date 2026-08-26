@@ -1,0 +1,7 @@
+Action code: 37. Employee code: 10. Office coding: NUSWIC. Station code: ALPHASWINC. Date of birth: NOS. Date of grade: 10. Date of leave: 104115.
+
+NTC expires. Special reference. Retirement data. Separation data code. Correction/cancellation data. EOD data. Security requirement number. Sex. Veteran preference: code 1–3RL; code 2–15 SL. Service computation date. Long computation date. Career category: PROM, TEMP, TEMP. Permit/health insurance.
+
+Previous government service data: 0—no previous service; 1—no departures in service; 2—departures in service less than 1 year; 3—departures in service more than 1 year. Yes category code: form executed, 1—yes, 2—no. Federal tax data: no tax exemptions; form executed, 1—yes, 2—no. State tax data: no tax exempt; state code.
+
+Signature of other authentication. From: FE-2. Posted.

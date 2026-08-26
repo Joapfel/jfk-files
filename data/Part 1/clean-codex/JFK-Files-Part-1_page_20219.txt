@@ -1,0 +1,11 @@
+Action code: 37. Employee code: 10. Office code: Alphabetic, 61300 TFW. Date of birth: 10 09 19.
+
+Special reference. Retirement data: 1—CSC; 2—FICA; 3—non.
+
+Separation data. EOD data.
+
+Service preference. In-service computation date. Long computation date. Career category: career/provisional temporary. Sequel/health insurance. Number of Social Security.
+
+Previous government service data. Leave category data. Special tax data. State tax data.
+
+Form executed.

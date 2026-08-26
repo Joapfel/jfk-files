@@ -1,0 +1,38 @@
+Operations Familiarization Course #24.
+
+Roster (for staff use only).
+
+Student Name: AFFINITO, Thomas J.; Grade: GS-7; Age: 26; Component: OTR/JOTP.
+Student Name: BANICK, John A.; Grade: GS-11; Age: 41; Component: DDP/TSD/TSL.
+Student Name: BUTENHOFF, Robert L.; Grade: GS-15; Age: 41; Component: DDP/TSD/R&D/CB.
+Student Name: CANTWELL, Robert B.; Grade: GS-13; Age: 33; Component: DDI/OSI/LSD.
+Student Name: CARLSTROM, Tacy A.; Grade: GS-7; Age: 28; Component: OTR/JOTP.
+Student Name: COWEY, Ross E.; Grade: GS-7; Age: 28; Component: OTR/JOTP.
+Student Name: GREENE, Mary S.; Grade: GS-7; Age: 27; Component: OTR/JOTP.
+Student Name: ISENBERG, Don L.; Grade: GS-12; Age: 28; Component: DDP/TSD/BB.
+Student Name: LINSENMAYER, Neil R.; Grade: GS-7; Age: 24; Component: OTR/JOTP.
+Student Name: LUTZ, Thomas M.; Grade: GS-9; Age: 28; Component: DDP/CA Staff.
+Student Name: MASON, Harry E.; Grade: GS-7; Age: 23; Component: OTR/JOTP.
+Student Name: McELFRESH, Elizabeth J.; Grade: GS-7; Age: 32; Component: OTR/JOTP.
+Student Name: NEWELL, Richard D.; Grade: GS-12; Age: 31; Component: OTR/SIC.
+Student Name: WEIMER, Edwin Q.; Grade: GS-10; Age: 32; Component: DDP/TSD/TA/SAB.
+Student Name: ZROWKA, Peter; Grade: GS-9; Age: 43; Component: DDP/FE/VCL.
+
+Student Name: BOSTON, M. David; Grade: GS-13; Age: 38; Component: DDP/TSD/BB.
+Student Name: CHAMBERS, Austin G.; Grade: GS-7; Age: 29; Component: OTR/JOTP.
+Student Name: CHASE, Pamela W.; Grade: GS-7; Age: 26; Component: OTR/JOTP.
+Student Name: DONALDSON, Mary A.; Grade: GS-7; Age: 26; Component: OTR/JOTP.
+Student Name: GEPHART, Cleo L.; Grade: GS-12; Age: 35; Component: DDP/TSD/TSL.
+Student Name: GOERTZ, Margaret G.; Grade: GS-5; Age: 26; Component: OTR/JOTP.
+Student Name: KOLARIK, George T.; Grade: GS-14; Age: 44; Component: DDS/OL/PD.
+Student Name: LAYTON, Bobby E.; Grade: GS-7; Age: 25; Component: OTR/JOTP.
+Student Name: KIDWELL, Donald M.; Grade: GS-7; Age: 27; Component: NE/AA/Jordan.
+Student Name: MARLING, George L.; Grade: GS-11; Age: 31; Component: DDP/IO/B6.
+Student Name: MOORE, Davis W.; Grade: GS-8; Age: 25; Component: OTR/JOTP.
+Student Name: MOW, Richard K.; Grade: Capt.; Age: 32; Component: DDP/FE/Korea.
+Student Name: PLASAN, Charlotte L.; Grade: GS-7; Age: 35; Component: DDS/OD/MS.
+Student Name: ROGERS, Lawrence E.; Grade: GS-12; Age: 37; Component: DDI/OSI/SD.
+Student Name: SHINN, Jerry L.; Grade: GS-10; Age: 29; Component: DDP/TSD/R&D/CB.
+Student Name: WEBB, Daniel D.; Grade: GS-8; Age: 30; Component: DDP/WH/1.
+
+Legend: Scheduled for overseas assignment. Previous overseas assignment.

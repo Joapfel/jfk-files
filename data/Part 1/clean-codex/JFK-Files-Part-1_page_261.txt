@@ -1,0 +1,3 @@
+TUCKER = 1975, 9366
+
+AM HAWK (DIP-1)

@@ -1,0 +1,19 @@
+Position Control Register.
+
+Name: Johnny Kent M; Title: Jack James H; Dept.: 05-0136.01; Employee No. SSN: 13; DDEQ: 1914; Name: *D; Ser#: 036139; Age: C 25; Marital Status: M 10; SSN #: 091756; 1205; 37587.
+
+Dept.: GS 0136.01; Employee No. SSN: 13; DDEQ: 1914; Name: D; Age: C 23; Marital Status: N 10; SSN #: 11K357; 37587.
+
+Dept.: GS 0136.01; Employee No. SSN: 14; DDEQ: 1914; Name: D; Ser#: 060399.
+
+Name: Chandry James E; Title: Farrin McDermid C; Dept.: 05-0136.01; Employee No. SSN: 12; DDEQ: 2733; Name: B; Ser#: 057845; Age: C 30; Marital Status: K 10; SSN #: 032259; 1859; 37587.
+
+Dept.: OS 0136.01; Employee No. SSN: 12; DDEQ: 2733; Name: D; Ser#: 063215; Age: C 27; Marital Status: K 10; SSN #: 061063; 0530; 37587.
+
+Name: Lori M Kent F; Title: Anne Frank K; Dept.: GS 0136.01; Employee No. SSN: 10; DDEQ: 2733; Name: B; Ser#: 027675; Age: C 31; Marital Status: K 10; SSN #: 111261; 1081; 37587.
+
+Dept.: GS 0136.51; Employee No. SSN: 12; DDEQ: 2733; Name: D; Ser#: 064002; Age: C 17; Marital Status: N 10; SSN #: 04K925; 37587.
+
+Name: William Rivera; Title: Allan Ricci A; Dept.: 05-0137.38; Employee No. SSN: 12; DDEQ: 1923; Name: *D.
+
+Dept.: GS 0137.38; Employee No. SSN: 11; DDEQ: 1923; Name: D; Ser#: 009740; Age: C 26; Marital Status: N 10; SSN #: 040757.

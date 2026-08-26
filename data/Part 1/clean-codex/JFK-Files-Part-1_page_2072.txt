@@ -1,0 +1,17 @@
+Intelligence Reports Staff.
+
+Columns: Series; Occupation Series; Grade; Plan Incumbency; Position Number; C.A.; S.D.; Employee Number; F.L.N.D.; Birth; Sex; Type Employee Carte; L.W.O.P.; Date of Grade (month, day, year); PCS O.S. Date (month, year); Station Code.
+
+Record: Series SPR; Occupation Series Officer-CH; Grade G5-0136.01; Plan Incumbency 14; Position Number 1; C.A. 3859; S.D. 10; F.L.N.D. 604737; Birth C; Sex 28; Type Employee Carte M; L.W.O.P. 10; Date of Grade 573143; PCS O.S. Date Q768; Station Code 17587.
+
+Record: Series William P; Grade G5 0136.01; Plan Incumbency 14; C.A. 3856; S.D. 0.
+
+Record: Series Reports Officer; Grade G5-0132.98; Plan Incumbency 13; Position Number 1; C.A. 3046; Employee Number 40; F.L.N.D. 601209; Birth C; Sex 19; Type Employee Carte F; L.W.O.P. 10; Date of Grade 041200; Station Code 17587.
+
+Record: Series Yvonne Amelia Belle; Grade G5 0132.98; Plan Incumbency 12; C.A. 3046; Employee Number 0.
+
+Record: Series Reports Officer; Grade G5-0132.98; Plan Incumbency 12; Position Number 1; C.A. 4489; Employee Number 40; F.L.N.D. 607489; Type Employee Carte 10; Sex F; L.W.O.P. 10; Date of Grade 081200; Station Code 17587.
+
+Record: Series Karland Winifred; Grade G5 0132.98; Plan Incumbency 12; C.A. 4489; Employee Number 0.
+
+Record: Series Translator-STEMO.

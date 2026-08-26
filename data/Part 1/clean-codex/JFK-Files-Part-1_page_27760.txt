@@ -1,0 +1,7 @@
+19. Action Code: 57. Employee Code: 10. Office Coding, numeric/alphabetic: 51700 WH. Station Code: 45075. Month Code: 3. Date of Birth: 06 29 30.
+
+30. Special Reference Code: COC, CICA, NON. 31. Separation Data Code: 56 10 10 64. 33. Security Requirement No./34. Sex: EOD DATA.
+
+Signature of Other Authentication: John D. Camp, 1/26/42, K.
+
+JDA.

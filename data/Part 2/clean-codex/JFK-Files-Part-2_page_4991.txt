@@ -1,0 +1,48 @@
+MHFNO: 96-2899455. SENSIND: INTEL. SOP#103.
+
+96-2899455 ISR.
+
+Total: 190508Z January 1996.
+
+Director 604606.
+
+INTEL 190508Z. Director 604606.
+
+To: HQSDISSEM.
+
+WNINTEL deferred. INTEL MXBLAZE, MXSANCTUARY, SLMERLIN, ZRWAHOO.
+
+Subject: DOCOPY of INTEL cable.
+
+95-2641513 ISR.
+
+192010Z December 1995.
+
+IN 2641513. HOUS 24338.
+
+TD-00-K-323/01241-96. CTO-08768.
+
+CITE HOUSTON 24338 ZNY XXXXX.
+
+To: Director. Info: Miami, Havana, Madrid, London, New York, WDC, Quarry Heights.
+
+WNINTEL deferred. INTEL MXBLAZE, MXSANCTUARY, SLMERLIN, ZRWAHOO.
+
+SUPDATA: ZRWAHOO for HQS review. See also Houston 24339, which does not affect dissem. Liaison: okay for passage to JLLAD. DECL: X1 CL. Reason 1.5(C). DRV from HUM-4.
+
+1. CTO-08768. TD-00-K-323/01241-96.
+2. CUB-04298.
+3. LA.
+4. 0569675.
+5. N/A.
+6. Index: defer.
+7. File: CU04298.
+8. ANTWINE.
+9. Director 446882.
+10. N/A.
+11. 83108.
+12. Houston.
+13. NR/ECC.
+14–17. N/A.
+18. POL.
+19. GOOD.

@@ -1,0 +1,21 @@
+Classified message.
+
+167 FLC/SW. 20 May 1970.
+
+Routing.
+
+May 21, 14:25:58. Received as BAG 1 SEG.
+
+Action: WH 5. Routine. Info: CI, CI/OPS, CI/IC, FI/OPS 2, S/C 2. IN 31104.
+
+To DIR, info cite MEXI 1588.
+
+Re: DIR 1915B (OUT 70224).
+
+1. Considering subject, full BAF 8095. Station needs multilanguage LIFECAT translator and live monitor.
+
+2. Request subject to MEXI for appraisal of suitability for LIFEAT work prior to decision FCS.
+
+End of message.
+
+C/S comment: Concerned assignment as translator for BAF-8095.

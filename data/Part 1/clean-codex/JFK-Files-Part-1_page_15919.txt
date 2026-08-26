@@ -1,0 +1,13 @@
+Classified message.
+
+Date: 10 Jan 63 JM. To: Director. From: Frankfurt. Action: C/EE 3. Info: ADDP, C/C1, CDC, C/TSD 2, C/AF 3, S/C 2.
+
+Jan 10 1423Z 63. Routine. IN 47630.
+
+To DIR, info LEOP, cite FRAN 5867.
+
+RYBAT HARVARD TECHS WIROGUE.
+
+Please reply EGOA-18888.
+
+End of message.

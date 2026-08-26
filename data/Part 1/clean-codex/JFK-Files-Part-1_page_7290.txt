@@ -1,0 +1,23 @@
+4.11 Voice:
+
+4.11.01 Is his voice pitched low, medium, or high?
+
+4.11.02 Does he speak quietly, at an average volume, or loudly?
+
+4.11.03 In his native language, is his tone quality noticeably louder, quieter, or about the same?
+
+4.11.04 Does he have a speech impediment? Yes or no. If yes, please describe.
+
+4.12 Use of Language.
+
+4.12.01 Does his native-language vocabulary seem rich, limited, average, or poor?
+
+4.12.02 In his best language other than his native language, is he fluent, barely fluent, moderately fluent, or poor?
+
+4.12.03 Does he pick up idioms quickly, slowly, on average, or not at all?
+
+4.12.04 Does he learn foreign languages easily? Yes or no. If yes, does he learn primarily by “feel” and by “trial and error,” or primarily from textbooks?
+
+4.12.05 In his best second language, can he switch from his native language smoothly with little hesitation (selected)?
+
+4.12.06 When he misuses language, does he ordinarily appear oblivious of it, aware of but indifferent to it (selected), aware of and anxious about it, or very aware of it and quite embarrassed?

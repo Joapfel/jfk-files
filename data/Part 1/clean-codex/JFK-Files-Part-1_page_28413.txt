@@ -1,0 +1,9 @@
+19 Section Code: 45. 20 Employee Code: 10. 21 Office Coding: Submitting alphabetically. 25 Date of Birth: 05 09135.
+
+78 N'N Capitals. 29 Special Reference: No DA PG. Code: SACCO41. 30 Retirement Data. 31 Separation Data. 32 Correction / Cancellation Data. ECO Data. Security Reg 90. 24 Sex.
+
+31 Net Prepayment: Code. 36 Sav' Comp Date: None. 37 Long Comp Date: DA. 38 Coffee Category: SAV. 39 Permit/Delta Insurance: Code. O Waters I RSYS Insur Ins Code. 1 (E) (E). Pay. DA. TRI.
+
+41 Previous Government Service Data. 42 Leave Cat Code. 43 Federal Tax Data. 44 State Tax Data.
+
+[Signature] This is the second line of the second document with an additional note below it.

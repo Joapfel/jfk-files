@@ -1,0 +1,48 @@
+Section IX: Marital Status.
+
+1. Check one: Single; Married; number of children; Separated; Annulments.
+
+2. State date, place, and reason for all separations, divorces, or annulments.
+
+Wife or husband: If you have been married more than once, use a sheet for former wife or husband, giving data required below for all previous marriages.
+
+3. Name of spouse (first, middle, last).
+4. Date of marriage.
+5. Place of marriage.
+6. Date of birth.
+7. Place of birth.
+8. Nationality at birth.
+9. Subsequent citizenships.
+10. Present residence (last residence, if deceased).
+
+Section X: Children.
+
+Full name. Sex. Year of birth. Place of birth. Nationality at birth.
+
+Subsequent citizenships held by any child (identify child and give his or her present address).
+
+Section XI: Father.
+
+1. Full name.
+2. Year of birth.
+3. Place of birth.
+4. Nationality at birth.
+
+Parents:
+3. Subsequent citizenships.
+6. Occupation.
+7. Present residence.
+
+Mother.
+
+1. Full name.
+4. Year of birth.
+3. Place of birth.
+4. Nationality at birth.
+
+Parents:
+3. Subsequent citizenships.
+6. Occupation.
+7. Present residence.
+
+Secrecy.

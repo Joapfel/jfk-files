@@ -1,0 +1,15 @@
+Position Control Register, by number at end of period.
+
+Employee No.; Naming Line; C/C/RS; Grade (M/M, F/F); Class Grade C.A. SD (U/M); Employee Number; Job No.; Date of Birth; Date of December 31, 19XX; Station; Company; Bill No.; Date; Signature; Number at End of Period. Division; Name; Class; Multinum.
+
+Please insert here.
+
+Division: WAS. Naming line: JOHNSON. Name: DANIEL W. JONES. Grade: SA. Class grade: 1008. Employee number: SA. Job No.: 0. Date of birth: 15. Station: Lynn M. Company: MI GRADE. Bill No.: Appr't No. Date: App't Date.
+
+Division: WAS. Naming line: KNOX. Name: JOSEPH L. Grade: SA. Class grade: 2087. Employee number: SA. Job No.: 0. Date of birth: 10. Station: Hill M. Company: Hill M. Date of birth: Mar 1, 19XX. Date: Mar 1, 19XX.
+
+Division: BOB. Naming line: BOBBY BOBBITT. Name: JOE JOHNSON. Grade: SA. Class grade: 2008. Employee number: SA. Job No.: 1. Date of birth: 10. Station: Tom D. Company: Tom D. Date of birth: Mar 1, 19XX. Date: Mar 1, 19XX.
+
+Employee No.: 1012. Naming line: BOB BOBBITT. Name: JOE JOHNSON. Grade: SA. Class grade: 2007. Employee number: SA. Job No.: 0. Date of birth: 10. Station: Bill D. Company: Bill D. Date of birth: Mar 1, 19XX. Date: Mar 1, 19XX.
+
+Division: JOE. Naming line: JOE JOHNSON. Name: DANIEL M. Grade: SA. Class grade: 200.

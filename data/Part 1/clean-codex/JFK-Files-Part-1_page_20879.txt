@@ -1,0 +1,9 @@
+Request for Medical Evaluation. Date of request. Name (last, first, M/M/O). Position title. Grade: C-16. Office, division, branch.
+
+Purpose of evaluation: pre-employment; entrance on duty; overseas return; TOY standby; special training; annual; return to duty; fitness for duty; medical retirement; overseas assignment.
+
+Overseas assignment: EID; station; TOY or PCS; type of cover; number of dependents to accompany; number of dependents’ reports of medical history (SF 89) attached.
+
+Overseas planning evaluation (one block must be checked): yes; no. Requesting officer: ROD H. CARPET. Signature. Room number and building. Extension.
+
+Report of evaluation. PAT'S APPEARS AS A DOCTOR. Date. Signature for Chief of Medical Staff.

@@ -1,0 +1,21 @@
+”, called “DWIM”; this was a “front end” or preprocessor to an interactive program for operating with LISP expressions. The front end was tolerant of the programmer’s mistakes in typing, in low-
+
+mistake occurred, it would inquire of the human programmer what he meant, suggesting the correctly spelled alternative, and so on. In this way the human programmer was relieved of much of the burden of expressing himself exactly and correctly the first time, and his efficiency in using the LISP interactive program greatly increased.
+
+The three articles “Computer Programming Using Natural Language” by Edmund C. Berkeley, Andy Langer, and Casper Otten, in the June, July, and August 1973 issues, demonstrated the understanding by a computer program called GENIE of at least some sets of instructions in ordinary natural language. The vocabulary, though small, was free; and there was unlimited freedom in putting the words together, with about a 90% chance of complete understanding. The computer program that did this could be called 15% GENIE, because, as the authors emphasized, it was still in an early stage of development.
+
+The article “Latest Computers See, Hear, Speak, and Sing—and May Outthink Man” by David Brand, in the October 1973 issue, enumerated many instances of computers (and robots equipped with computers) which could deal with concepts expressed in natural language. One of the programs mentioned could, for example, decipher natural language commands dealing with the stacking of blocks of various shapes, sizes, and colors.
+
+The main tasks for understanding natural language appear to be the following:
+
+Recognition of the framework of a sentence.
+
+Recognition of the common meaning of groups of synonyms, the collection of words that “say the same thing.”
+
+Knowledge of context: the context is regularly specified to the computer, so that it does not have to deduce the context from “what is being said.”
+
+Knowledge of a limited vocabulary consisting of perhaps 300 to 500 words—knowledge in the sense that the computer program can attach meaning to the words either by themselves or in phrases, as, for example, it may attach the meaning of doing something three times to the numeral 3.
+
+Capacity to accept variation in the way something is stated by a human programmer.
+
+The three articles referred to above show instances of the achievement of all of these tasks separately. Combining all the achievements should not be too hard, especially since children as young as four years old show complete capacities to listen to many kinds of natural language, understand, and respond.

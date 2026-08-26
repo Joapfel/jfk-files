@@ -1,0 +1,3 @@
+Notification of Personnel Action. Serial number. Name (last, first, middle). Nature of personnel action. Effective date. Category of employment. Pension type. Financial Analysis No. chargeable. CSC or other legal authority. Specialty. Location of official station. Position title. Position number. Service designation. Classification schedule. Occupational series. Grade and step. Salary or rate. Remarks.
+
+Space below for exclusive use of the Office of Personnel. Action code. Employ code. Office coding. Station code. Integrity code. Months. Date of birth. Date of decease. Date of leave. Numeric. Alphabetic. Retired data. Separation data. Special reference data. Casual reference data. Period of service data. Effective date. Leave category. Code. May be no recycled.

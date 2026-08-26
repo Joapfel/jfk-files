@@ -1,0 +1,15 @@
+Report of Service Abroad. To: Office of Personnel, Control Division, Statistical Reporting Branch.
+
+Serial No.; Name; Last; First; Middle. Instruction: Use appropriate space below to report data for PCS or TOY. Insert appropriate code number in the “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month and last two digits only for year. Refer to Off. SS. revised.
+
+Arrival O/S: month, day, year. Departure O/S: month, day, year. Type of data. O-P use only. Country. Codes: 1—PCS (Basic); 3—Correction; 5—Cancellation.
+
+TOY Dates of Service. Arrival O/S: month, day, year. Departure O/S: month, day, year. Type of data. O-P use only. Area(s). Codes: 2—TOY (Basic); 4—Correction; 6—Cancellation.
+
+Arrival O/S: 030377. Departure O/S: 030577. Area: Western Hemisphere (HEOSPHERE). Code: 811.
+
+Office of Personnel Use Only—Punch Area.
+
+Source Document and Certification. X—Travel Voucher. Dispatch. Cable. Duty Status on Time and Attendance Report. Other (Specify).
+
+Document Identification No.: LH-10-77. Document Date/Period: 3/3–3/5/77.

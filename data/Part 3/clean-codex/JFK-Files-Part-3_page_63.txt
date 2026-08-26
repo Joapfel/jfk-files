@@ -1,0 +1,26 @@
+Standard Subfile List for Foreign Countries
+
+Aden: 395; British West Indies: 324.  
+Afghanistan: 321; Bulgaria: 261.  
+Albania: 273; Burma: 264.  
+Algeria: 278; Burundi: 407.  
+Andorra: 281; Byelorussian: 329.  
+Angola: 380; Cambodia: 364.  
+Anguilla: 418; Cameroon: 369.  
+Argentina: 201; Canada: 243.  
+Armenia: 308; Canary Islands: 291.  
+Australia: 303; Cape Verde Islands: 292.  
+Austria: 252; Centafrican Republic: 390.  
+Azores: 310; Ceylon: 266.  
+Bahama Islands (Nassau): 202; Chad: 388.  
+Bahrain (or Bahrein) Islands: 410; Chile: 207.  
+Barbados: 417; China (Communist): 246.  
+Belgium: 254; China (Nationalist): 274.  
+Bermuda Islands: 203; Colombia: 208.  
+Bhutan: 371; Republic of the Congo (Kinshasa): 336.  
+Bolivia: 204; Republic of the Congo (Brazzaville): 391.  
+Borneo: 293; Costa Rica: 209.  
+Botswana: 404; Cuba: 210.  
+Brazil: 205; Curacao: 298.
+
+Control-Reference Files. Page 3. Revised April 25, 1969.

@@ -1,0 +1,17 @@
+Other: Explanation of charges or credits.
+
+Item: Service previously billed. Rate: 11,651.2300113. Charge: 4.66. Due to taxes: 0.41. Total charge or credit: 5.07 CR.
+
+Item: Deposit. Charge: 30.00. Total charge or credit: 30.00 CR.
+
+Item: Interest on deposit. Charge: 0.38. Total charge or credit: 0.35 CR.
+
+Item: US tax. Total charge or credit: 0.51 CR.
+
+Note: Units, terminal, job order, customer's purchase order or service order number or name of directory.
+
+Total: 35.96 CR.
+
+January. City and state: Final account, 23 Tukahbrxvl, NY 914 237 0700. Amount: 250. Minimum amount: 78. Deposit number: 243 2017. Telephone number: 0853. Telephone number: 2.
+
+Amount subscribed to add late charge. Total: 150.

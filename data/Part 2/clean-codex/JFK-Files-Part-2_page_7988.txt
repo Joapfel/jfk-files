@@ -1,0 +1,39 @@
+Reporting device to alert four pre-selected phone numbers for help.
+
+Software
+
+Protection of data files, whether in the form of punch cards, magnetic tapes, or discs, is the key element in any computer facility.
+
+Some specific examples of software security control measures are audit trails, access regulations, strong supervision of computer operators, the use and control of programs utilizing program documentation methods, the use of a log for all significant events (such as user identification, file use and attempts of unauthorized use), regulations to prevent unauthorized personnel from browsing through the files, and the use of a semi-automatic data inventory control system.
+
+Personnel
+
+Physical control as to who is allowed near the computer and the files is advisable. Note that this does not mean “employees only”; it implies a careful screening of employees, repairmen, and visitors to determine which of them should be allowed this proximity to the system. Intimately involved with time-sharing installations are three types of personnel: operators, programmers, and maintenance engineers.
+
+According to Dennis Van Tassel, mathematician and head programmer at San Jose State College, all operators must understand that there exists a protection philosophy. If personnel are expected to help enforce and to comply with this protection philosophy, it must be clearly defined and specified.
+
+It is advisable to use the following provisions for personnel control: control of logs and monitor, division of responsibilities, rotation of duties, adequate supervision to reduce the risk of losses caused by accident or error, careful handling of data files, cleanliness regulations, control access to private files, and appropriate instruction in case of disasters.
+
+Terminals
+
+Some of the most common pitfalls encountered when using terminals are frequent communication interruptions, risk of communication interception, difficult access control, and noisy lines.
+
+Among the greatest disadvantages of time-sharing services are those in connection with the communication lines which link the terminals to the central processing unit. Telephone lines are designed for voice communication rather than data communication, and the results have been that such lines are too noisy and have too many interruptions for appropriate handling of data communication.
+
+There have been some recent developments in the improvement of data transmissions. Bell System has developed its Digital Data Service (DDS), a data transmission system which has been introduced early this year in five cities (New York, Boston, Philadelphia, Washington, and Chicago); and, by the end of 1974, twenty-four cities are expected to have it. Bell further plans to provide continuous monitoring of their DDS channels. When errors of transmission are detected, DDS will notify the customer. Decision on retransmission will be the customer's responsibility. Another development in data communication is DUV (data under voice). By late 1973 this technique will be in service between New York and Chicago; consequently, communication problems should become virtually nonexistent within the near future, and this system will become even more popular.
+
+Telephone lines are vulnerable to three types of security problems: wire tapping, piggyback, and user's sign-off signal cancellation. These common threats may be avoided by the use of a privacy transformation method (also called scramblers or cryptographic techniques). This is a non-singular (reversible) operation which conceals the original message either by the substitution of new characters, rearrangement of the characters, or by the adding of strings of digits to the original message.
+
+Some new techniques for encrypting data have evolved, such as high speed transmission and signal scrambling. In spite of all of these new techniques, it is still possible to intercept and tap the information. According to Tuckerman, unauthorized users (intruders) who possess only limited material and information with which to work can readily extract the original text of enciphered messages by making use of the speed, capacity, and computational abilities of the computer.
+
+The greater the efficiency of the privacy transformation, the more difficult it becomes for unauthorized copying of files.
+
+Access Control
+
+Access to the system throughout the communication lines should be controlled by the central processing unit and by the user's own procedures. This is possible by cryptographic and scramble techniques, personnel regulations, user identification, appropriate terminal location, or by ciphering and deciphering hardware.
+
+Computer software packages have been written to cipher data transmissions. Ciphering software is an attractive technique because it can be done automatically by the program which creates the data and at a very low cost. Only programs using the matching deciphering technique are able to use this data. These special hardware cipher devices can be located at the terminal and at the computer to protect transmitted data.
+
+Scramblers or voice privacy devices are currently being used by people who readily acknowledge the insecurity of transmitted information. Scramblers are used by large corporations such as the oil industry as well as by union representatives during contract negotiation time. (Scramble phones are currently a 20 to 30 million-dollar business, excluding law enforcement and military purchases). Scramble devices are now being built for time-sharing operations. These devices offer protection similar to encryption. Scramblers convert data into something resembling channel noise or a malfunctioning circuit.
+
+Other features for terminals include print inhibit, security key

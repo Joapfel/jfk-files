@@ -1,0 +1,11 @@
+10 Action Code: 31; 20 Employee Code: 40; 21 Office Coding: 45997 EA.; 39 Station Code: 75013; 23 Income Code: 1; 24 Hours Code: 10.09.78.
+
+28 NTE Codes: 05; 29 Special Reference: 14 75 SL; 3D Employee Data: C-10 C-11 C-12 C-13; 31 Separation Data Code: TOM.
+
+3X Vet Reference: Code; 3A Very Good Date: M3 D3 T9; 37 Loved Comp Date: (M3) D3 T9; 38 Carried Category: C-12 C-13 C-14; High Health Insurance: CO-1, 1 2 3; EOD Data: C-11; C-11 CO-2.
+
+1 No Personal Data. 1 No Name Service. 2 No Date of Death (This Is a Test Case). 3 Yes in Service, Please Check. No Tax Data. Yes.
+
+Signature or Other Authentication.
+
+Posted: 8/4 9/26/74.

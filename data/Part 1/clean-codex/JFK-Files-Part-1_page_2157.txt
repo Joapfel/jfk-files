@@ -1,0 +1,15 @@
+Position Control Register.
+
+Name: Officer. Group: JOB. Title: 0136.0114.
+
+Name: Parker Glenn W. Group: SS. Title: 0136.0114. Employee number: 23832. Film: *. Yr: D. Birth: C. Age: 21. DIN: 10.
+
+Name: Officer. Group: JOB. Title: 0136.0113.
+
+Name: Parker M.I. Johnson. Group: JOB. Title: 0136.0112. Employee number: 23111. Film: *. Yr: D. Birth: C. Age: 19. DIN: 10.
+
+Name: Parker D. James A. Group: JOB. Title: 0136.0112. Employee number: 23111. Film: *. Yr: D. Birth: C. Age: 19. DIN: 10.
+
+Name: Officer. Group: JOB. Title: 0136.0112.
+
+Name: Kakahura Richard. Group: JOB. Title: 0136.0112. Employee number: 23113. Film: *. Yr: D. Birth: C. Age: 19. DIN: 10.

@@ -1,0 +1,27 @@
+Country: International/USSR.
+
+Subject: Second Congress of the International Radiation Protection Association, Brighton, UK, 3–8 May 1970; Biology and Ecology of Polonium and Radiolead Conference, Sutton, UK, 30 April–1 May 1970; Current Research and Findings.
+
+Report No. OO-B-321/17309-70.
+
+Date distributed: 1 July 1970.
+
+References: DCS Case 54,123; NAVINTCOM NIP-10-70.
+
+Date of info: May 1970.
+
+Place and date acquired by source: Sutton/Brighton, May 1970.
+
+Source: U.S. citizen; a professor and researcher in radiation biology at a U.S. university.
+
+This report was prepared for submission to the U.S. Atomic Energy Commission and is disseminated in accordance with DCID 2/3.
+
+1. A U.S. radiation biology researcher attended both the Biology and Ecology of Polonium and Radiolead Conference, Sutton, UK, 30 April–1 May 1970, and the Second Congress of the International Radiation Protection Association, Brighton, UK, 3–8 May 1970.
+
+2. The nature of the Sutton meeting was such that few significant scientific positions were taken; however, in general, the quality of the papers was very high. The scheduled Soviet participants, P. V. Ramzayev and FNU Moskalev, were presumably not permitted by the USSR to attend; D. Panov (Yugoslavia) was in the U.S., and D. Djuric (Yugoslavia) did not attend for unknown reasons. The countries represented were UK (26), Italy (5), France (1), Sweden (2), Poland (1), South Africa (1), and the U.S. (7).
+
+3. To the extent that the proper “half-life for lead in man” was discussed, the consensus appeared to be that (a) the loss rate cannot be represented as a single exponential; (b) the presently available data on baboons and beagle dogs does not extend for a sufficient period of time to provide a measure of the “last slow rate loss constant”; (c) it is likely that lead and radium loss rates will differ because of the selective reutilization of Pb in bone. D. Barltrop (UK) and U.S. researchers have been performing experiments which indicate that lead is not bound by red cell membranes, but at sites in the cell interior.
+
+4. C. R. Hill (UK) provided a useful summary of the contribution of polonium to human radiation dose. He stipulated that the distribution of polonium will depend on whether it is administered as polonium per se or is allowed to grow in an animal as the daughter of an ingested parent. This is a significant consideration to biological researchers engaged in dose calculation work.
+
+5. Twenty-nine countries and five international bodies were represented at the Second Congress of the International Radiation Protection Association. W. G. Harley (UK) was the congress president and H. J. Dunster (UK) was the secretary of the scientific program committee. The congress shared the common problems and advantages of similar large meetings. Concurrent sessions inevitably brought about some conflicts in important papers, discussion was generally absent or quite limited, and there was the usual number of papers given in “broken” English by foreign scientists.

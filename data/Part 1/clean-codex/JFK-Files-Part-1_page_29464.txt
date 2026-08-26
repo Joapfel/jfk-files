@@ -1,0 +1,28 @@
+Payroll change data. Pay categories: base pay, overtime, gross pay, retirement, federal tax, bond, P.I.C.A., state tax, group life insurance, health benefits, net pay.
+
+1. Previous normal.  
+2. New normal.  
+3. Pay this period.
+
+Date, time, to be paid on, description, amount.
+
+1. Previous normal; description: tax.  
+2. New normal.  
+3. Pay this period.  
+4. Appropriation(s).  
+5. Prepared by: Jlv; 6 July 1966.  
+6. Audited by.
+
+I certify that the work of the above named employee is of an acceptable level of quality.
+
+Periodic step-increase. Pay adjustment. Other step-increase. Signature or other authentication.
+
+14. Effective date: Oct '66; 11 Oct '66.  
+15. Date last equivalent increase.  
+16. Old salary rate.  
+17. New salary rate.  
+18. Performance rating is satisfactory or better.
+
+Signature or other authentication. Check applicable box in case of excess LWOP. In pay status at end of waiting period. In LWOP status at end of waiting period. No excess LWOP, total excess LWOP. Initials of clerk.
+
+Payroll (Patroll) change slip—personnel copy.

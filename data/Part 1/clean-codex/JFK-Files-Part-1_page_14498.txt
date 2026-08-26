@@ -1,0 +1,5 @@
+Processing action: Marked for indexing. OSMA-26061: no document required; SAL-qualified disk can be used in CORNING. COS file number: 201-735296.
+
+Dispatch symbol and number: OSMA-26061. Date: 18 March 1970. HCS file number: 201-735296.
+
+Attachment. Copy. C/C reference to dispatch symbol and number: OSMA-26061. Date: 18 March 1970. HCS file number (HOS file number): 201-735296.

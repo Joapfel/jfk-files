@@ -1,0 +1,40 @@
+Gains on Installment Sales.
+
+Description of property. Date acquired. Date sold. Type of asset: Capital; Section 1245; Section 1250.
+
+1. Selling price: cash — Section 1245: $20,148.
+2. Notes — Section 1245: $48,152.
+3. Mortgage transferred.
+4. Other.
+5. Gross sales price (1 + 2 + 3 + 4).
+6. Cost or basis — Section 1245: $68,300.
+7. Less accumulated depreciation.
+8. Prior to 1-1-62.
+9. Prior to 1-1-64.
+10. After 12-31-61.
+11. Straight line after 12-31-63.
+12. Excess over S/L 1-64/12-69.
+13. Excess over S/L after 12-31-69.
+14. Adjusted basis (6-7 through 13).
+15. Expenses of sale.
+16. Total adjusted basis (14 + 15).
+17. Total gross profit (5 - 16) — Section 1245: $42,915.
+18. Total gross profit — ordinary.
+19. Total gross profit — other.
+20. Contract price (1 + 2 + 4) — Section 1245: $22,834.
+21. Gross profit % — Section 1245: 36.82%.
+
+Payments received year of sale.
+
+23. Cash (1).
+24. Principal collections.
+25. Excess mortgage over basis.
+26. Other (4).
+27. Total payments (23 through 26).
+28. Recognized gain.
+29. Recognized gain — ordinary.
+30. Recognized gain — other.
+
+Ordinary Income.
+
+Taxable year: 1975. Less interest (to Part 2, Section 3): None. Section 1245 reported: 7,418. Section 1245 balance: 15,416.

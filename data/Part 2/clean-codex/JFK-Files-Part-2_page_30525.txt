@@ -1,0 +1,23 @@
+Info: In PRQI is information shifted from others. “II” is information from a person if he is recruited; they want it separated to be viewed only on a need-to-know basis.
+
+Standard form for opening a 201 file would not contain season; it would contain reference to a document which would be the reason.
+
+201 numbers are assigned by a particular office; they are opened in sequential numerical order as agreed for purposes of calculations.
+
+A 201 would contain a photo if the agency has one, if it has been sent in from the field. If a photo is sent in from the field or another agency after the 201 has been opened, it would be added to the 201.
+
+Document: “Review of 201 File on U.S. Person.” The person is categorized by a review of the file using specific criteria.
+
+PRQI does not apply a PRQII.
+
+Normally PRQI and PRQII would exist in the same file. If PRQII contains primarily operational information, then it would be maintained in a separate file, to which a reference would be made.
+
+If operational information is sensitive, the entire 201 would have limited access.
+
+The first name and cryptonym are not maintained in the same file. On the 201 request form, there is room for a cryptonym, but it is not filed in a true-name file.
+
+There is a table of contents listing what is available in the 201 file. This is compiled from the abstract record list in the complete system.
+
+Green list check: Information gathered as a result of SIGINT or COMINT.
+
+K list check: Also a separate check, but Clifford does not know what it checks.

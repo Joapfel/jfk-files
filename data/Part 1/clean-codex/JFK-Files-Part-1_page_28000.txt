@@ -1,0 +1,1 @@
+Name; Other; Dept.; Point: Other Other, CD:71. Sex; Race; Approval; Date of appointment (admission only).

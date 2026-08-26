@@ -1,0 +1,9 @@
+Action Code: 45. Office Coding, numeric: 10. Date of birth: 10/05/19.
+
+Special reference: FICA. Separation data code: OEH0000. EOD data. Security requirement number. Sex.
+
+Veteran preference: code options—0 none; 1, 5-point; 2, 10-point. Career category: 43.
+
+Previous civilian government service. Leave category code: 0 no previous service; 1, no break in service; 2, break in service (less than 3 years); 3, break in service (more than 3 years). Form executed: 1 yes; 2 no.
+
+Federal tax data. State tax data. Tax exemptions. State code.

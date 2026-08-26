@@ -1,0 +1,24 @@
+Request for Personnel Action. Date: 12 September 1960.
+
+1. Serial No.: 107894.  
+2. Name (Last-First-Middle): Smith Joseph B.  
+4. Vet. Pref.: None—Pt-1; 5 Pt-1; 10 Pt-9.  
+5. Sex: 1 M 1.  
+6. CS-EOD: Month 09; day 17; year 51.
+
+7. SCD: Month; day; year.  
+8. CSC Point: Yes 1; No 2; code.  
+9. CSC or Other Legal Authority: Yes 1; No 2; code.  
+10. Appointment Affidavit: Month; day; year; Yes 1; No 2; code.  
+11. EGLI: Month; day; year; Yes 1; No 2; code.  
+12. LCD: Month; day; year; Yes 1; No 2; code.  
+13. Ill. Srs. Lto: Month; day; year; Yes 1; No 2; code.
+
+Previous Assignment.
+
+14. Organizational Designations: DDP Covert Action Staff; Propaganda Group; Media Branch.  
+15. Location of Official Station: Wash., D.C. Station code: 75013. Media Branch location code: 4230.
+
+16. Dept. Field. Dept. Code.  
+17. Position Title.  
+18. Position No.

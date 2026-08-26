@@ -1,0 +1,29 @@
+Date 126, city and state: Berkeley, California, area/type: 415, telephone no.: 48 6705, amount: 65, min: 22.
+
+Date 126, city and state: Berkeley, California, area/type: 415, telephone no.: 5 1945, amount: 155, min: 2K.
+
+Date 126, city and state: Berkeley (Berkly), California, area/type: COLL848, telephone no.: 6705, amount: 155, min: 2K, total: VB3034816.
+
+Date 126, city and state: Berkeley, California, area/type: 415, telephone no.: 848 6705, amount: 85, min: 38.
+
+Date 128, city and state: Indianapolis, Indiana, area/type: COLL633, telephone no.: 2972, amount: 70, min: 3K4 K93512, total: 12021.
+
+Date 201, city and state: Santa Barbara, California, area/type: 805 965, telephone no.: 6024, amount: 65, min: 12.
+
+Date 204, city and state: Berkeley, California, area/type: 415, telephone no.: 848 6705, amount: 85, min: 42.
+
+Calls from: 243 2018.
+
+Date 115, city and state: Carbondale, Illinois, area/type: 618, telephone no.: 549 6985, amount: 50, min: 1B, total: 1147.
+
+Date 117, city and state: Lake Zurich, Illinois, area/type: 438, telephone no.: 2720, amount: 35, min: 1K, total: 2225.
+
+Date 118, city and state: Regina, Saskatchewan, area/type: 306 543, telephone no.: 0240, amount: 140, min: 18, total: 2128.
+
+Date 126, city and state: Berkeley, California, area/type: 415, telephone no.: 845 0103, amount: 65, min: 32, total: 0000.
+
+Date 126, city and state: Berkeley, California, area/type: 415, telephone no.: 845 0103, amount: 65, min: 12, total: 0035.
+
+Date 126, city and state: Berkeley, California, area/type: 415, telephone no.: 848 6705, amount: 155, min: 1K, total: 0952.
+
+Amount subd.: 4.25. Total: 8700.

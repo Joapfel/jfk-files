@@ -1,0 +1,33 @@
+Part IV. Computation of Alternative Tax (See Instruction S to See if the Alternative Tax Will Benefit You)
+
+17. Enter amount from Form 1040, line 47.
+
+18. Enter amount from line 15a (or Form 4798, Part IV, line 8(a)).
+
+19. Subtract line 18 from line 17 (if line 18 exceeds line 17, do not complete the rest of this part. The Alternative Tax will not benefit you).
+
+Note: If line 18 does not exceed $25,000 ($12,500 if married filing separately), omit lines 20 through 23 and enter zero on line 24.
+
+20. Enter $25,000 ($12,500 if married filing separately).
+
+21. Add lines 19 and 20.
+
+22. Tax on amount on line 17*.
+
+23. Tax on amount on line 21*.
+
+24. Subtract line 23 from line 22.
+
+25. Tax on amount on line 19*.
+
+26. Enter 50% of line 18 but not more than $12,500 ($6,250 if married filing separately).
+
+27. Alternative Tax—add lines 24, 25, and 26. If smaller than the tax figured on the amount on Form 1040, line 47, enter this alternative tax on Form 1040, line 16. Also check the Schedule D box on Form 1040, line 16.
+
+*If the amount on which the tax is to be computed is $20,000 or less use the Tax Table; if more than $20,000 use Tax Rate Schedule X, Y, or Z.
+
+Note: Enter your capital loss carryovers from 1976 to 1977:
+
+Short-term (from Form 4798, Part II or Part V), pre-1970: 7958.
+
+Long-term (from Form 4798, Part II or Part V), post-1969: 484.

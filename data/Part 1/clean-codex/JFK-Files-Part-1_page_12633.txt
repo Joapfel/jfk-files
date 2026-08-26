@@ -1,0 +1,15 @@
+Outgoing message.
+
+Info: file. Date-time group. GTE. Message reference number.
+
+BIF you foresee no security problems. WKSCARLET-3 is not watch-listed by INS.
+
+File: 8201-300985.
+
+Comment: WKSCARLET-3 desires visit US for evacuation. Alien re-entry permit has expired, but he has valid Venezuelan passport. Station asked if could assist locally in obtaining visa. When recruited agent, HOS would handle his re-entry permits, but after termination it was sole responsibility of WKSCARLET-3.
+
+Coordinator: DEF/AA — Fred Bucci (draft).
+
+Date: 24 June 76. Originator: Robert W. Andreus. Unit: C/LA/PNC/V. Extension: 1715.
+
+C/LA/PNC. Authentication office.

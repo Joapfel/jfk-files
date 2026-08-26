@@ -1,0 +1,14 @@
+Memorandum to Mr. E. S. Miller  
+Re: U. S. vs. John William Butenko and Igor A. Ivanov, I. D. N. Ivanov, Appellant
+
+Section 605 states that "... no person not being authorized by the sender shall intercept any communication and divulge...the existence, contents, substance, purport, effect, or meaning of such intercepted communication to any person." The Supreme Court in Nardone held that "no person" encompassed federal agents, and "divulge...to any person" barred testimony in court.
+
+This Court accepts the interpretation that what Section 605 prohibits is the interception and divulging, i.e., that both elements must be present to incur the prohibition of Section 605. Thus, the President is not violating Section 605 if he only intercepts the conversation, but he is prohibited from also divulging the contents of the interception in court.
+
+Since this Court assumed that intercepted electronic surveillance information was used in the trial and therefore was divulged in violation of Section 605, Ivanov's conviction was reversed and the case remanded for further proceedings, viz., to conduct an evidentiary hearing to determine if in fact any of the Government's case was built on electronic surveillance information.
+
+In further defining "divulging" the Court of Appeals accepts the argument that, the President himself will not conduct the interceptions, but that agents of the Executive Branch, acting as his representatives will, and that many others within the Executive Branch can also be his representatives to receive the results of such a surveillance, and that therefore it is not inconsistent with Section 605 to consider the Executive Branch (or at least all persons within the Executive Branch with a right to such information) as "a person", so that disclosure within the Executive Branch does not violate the Section's prohibition against divulging the contents of such interceptions.)
+
+Minority Opinion, Third Circuit Court of Appeals, June 27, 1973
+
+Judge Adams disagrees that Section 605 on its own, or as interpreted by Nardone, requires the exclusion of evidence obtained from a Presidentially approved warrantless foreign intelligence electronic surveillance in a Federal criminal proceeding.

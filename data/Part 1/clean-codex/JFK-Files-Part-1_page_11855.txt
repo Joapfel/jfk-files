@@ -1,0 +1,7 @@
+Inventory – Non Staff Personnel.
+
+Arbitrary No. Subject to: 201-334081. Other file no. Type of name. Signature. First name. Personal ID. Other given name telecode. Type of name. Amount-2. Country of birth. Date of birth. Citizenship. Nationalized—U.S. (yes or pending). Country currently resides. City currently resides—year. Vital status (most recent). Sex (Y or F). Occupation. Language. Military service—country. Branch of service. Inclusive dates. Country area knowledge. Country. Functions performed for agency. Code.
+
+Contract employee. Type employee: Type A or B. Contract employee file. Full, part time or WAE. Maintenance/service. Consultant. Proprietary or subsidy. Career agent. Field agent. MOS, FF or USF. Independent contractor. MOC/MOA. Operational approval. POA. Status. Staff clearance. Product component responsible. Field station responsible. Project. Cover. Entry on city gate. Yearly salary. Date last pay change. Part of a retirement plan—specify.
+
+Date terminated: 31 December 1966. Reemployable. Staff ceiling space.

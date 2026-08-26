@@ -1,0 +1,23 @@
+Personality File Action Request.
+
+Note: Consult the 201 Control System Reference Manual before completing this form. Form must be typed or printed in block letters.
+
+To: RID/201 Section. Date. Action. From. Room No. Phone.
+
+Check 2–4 for 201 request. Do not check for IDN. 2. Exclude true name from machine list. 3. Restricted. 4. Permanent charge. Variations in biographical data. Yes. No.
+
+5. 201 No. IDN No.
+
+7. Name (last), (first), (middle). Name variant.
+
+10. Type name (last), (first).
+
+11. Date of birth: day, month, year. 12. Country of birth. 13. City/town of birth. 14. Country of location. Code. 15. Citizenship.
+
+Additional codes—P B pattern only.
+
+16. Affiliation code, P B pattern only. 17. 19. Organization/group code.
+
+18. Organizational or group affiliation (clear text).
+
+20. Occupation/position (clear text).

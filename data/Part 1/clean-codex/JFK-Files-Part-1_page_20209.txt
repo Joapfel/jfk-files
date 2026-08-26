@@ -1,0 +1,9 @@
+Group 1. Excludes from automation, derived from and unclassified by.
+
+18 Action Code: S&N; 29 Employee Code: L/100; 21 Office Coding: Numeric, Alphabetic; 22 Station Code: S&N; 23 Interleaved Code: C/C; 24 Months Code: M; 25 Date of Birth: D; 26 Date of Grade: T; 27 Date of Leave: M.
+
+28 Due Expires: M.O., D.A.; 29 Special Reference: V.B.; 30 Retirement Data: Code; 31 Separation Date Code: Date; 32 Connection Cancellation Date: MO, DA, TB; 33 Security Requirement: Lod Data. Retirement Data codes: 1-CS, 3-FICA, 5-MOES.
+
+35 Wet Preference: Code, B-MORE; 36 Service Completion Date: M; 37 Long Completion Date: D.A.; 38 Career Path: TB.; 39 Period: NO; 40 Insurable: SA., TL.; 41 Social Security No.: E-3000. Wet preference codes: 1-SAT, 2-10 PM. Period: CAR BEST, PROF TEMP. Was this code approved?
+
+41 Previous Government Service Data. Cumulative Cat Code. 43.

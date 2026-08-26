@@ -1,0 +1,33 @@
+MHFNO: 96-5816647
+
+SENSIND: RYBAT
+
+Action: CE/W/MB (282). Info: CEDORECORD, MDSX, ODPD, RYBAT, FILE (2/W).
+
+96 5816647 ASR
+
+TOR: 251416Z OCT 96 MNSK 16006
+
+Cite MINSK 16006.
+
+To: Director.
+
+For: LIMIT C/CE/W/MB.
+
+Slugs: WNINTEL RYBAT GTDANCER.
+
+Subject: Records Review Board Meeting with JYVAPOROUS.
+
+References: A. Director 994616 96 5808231. B. Director 993882 96 5803438. C. MINSK 15996 96 5793319.
+
+Text:
+
+1. Action required: None. FYI.
+
+2. Following receipt of Ref A, COS telephoned JYVAPOROUS/3 (V/3) regarding JFK assassination review board access. He said JYVAPOROUS already responded to the embassy dip note they received from the MFA. V/3 said the note had been answered positively. Now that the issue was being handled officially via MFA, V/3 stated the issue should continue in dip channels. COS concurred, relayed same to embassy poloff on the account, and extracted station from the question.
+
+3. Station appreciated HQS immediate footwork to support embassy's problem. Thanks and regards.
+
+4. File: 227-002-001. CL by: 0593899. CL reason: 1.5(C). Decl on: X1 DRV HUM 4-82.
+
+End of message.

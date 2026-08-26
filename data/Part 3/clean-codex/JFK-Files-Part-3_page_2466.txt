@@ -1,0 +1,23 @@
+File—Serial Charge Out.
+
+File. Date. Classification. Case No. Last Serial.
+
+Pending. Closed.
+
+Serial No. Description of Serial. Date Charged.
+
+All bereals not found in this file destroyed per M.R.R.
+
+Permanent Charge Out.
+
+Employee.
+
+Recharge. Date.
+
+To. From.
+
+Date charged.
+
+Employee.
+
+Location.

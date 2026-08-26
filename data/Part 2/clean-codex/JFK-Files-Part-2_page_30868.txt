@@ -1,0 +1,11 @@
+A form is a request to put a document into the central file.
+
+Very sensitive operations have very limited access; a person paralleling would make the decisioner unable to put documents into the system.
+
+There can be operations for which files do not exist.
+
+It is possible that a 201 file would not reflect a particular operation.
+
+A cryptonym may exist for a project when no 201 would exist.
+
+Operation files are separately maintained by the desk in charge.

@@ -1,0 +1,47 @@
+Schedule D (Form 1040)
+
+Department of the Treasury. Internal Revenue Service.
+
+Capital Gains and Losses (Examples of property to be reported on this Schedule are gains and losses on stocks, bonds, and similar investments, and gains but not losses on personal assets such as a home or jewelry.)
+
+Attach to Form 1040. See Instructions for Schedule D (Form 1040).
+
+1974.
+
+Name(s) as shown on Form 1040.
+
+Part I. Short-term Capital Gains and Losses—Assets Held Not More Than 6 Months.
+
+Line 1: Loan to Summit Agle Corporation. Gain or loss: 1000.
+
+Line 2: Enter your share of net short-term gain or (loss) from partnerships and fiduciaries.
+
+Line 3: Enter net gain or (loss), combine lines 1 and 2.
+
+Line 4(a): Short-term capital loss component carryover from years beginning before 1970 (see Instruction G).
+
+Line 4(b): Short-term capital loss carryover attributable to years beginning after 1969 (see Instruction G).
+
+Line 5: Net short-term gain or (loss), combine lines 3, 4(a) and (b).
+
+Part II. Long-term Capital Gains and Losses—Assets Held More Than 6 Months.
+
+Line 6: Chieftain Deoxel, acquired 11/21/73, sold 6/10/74. Gross sales price: 653. Cost or other basis: 1382. Gain or loss: 729.
+
+Line 6: Chieftain Deoxel, acquired 11/21/73, sold 6/19/74. Gross sales price: 678. Cost or other basis: 1382. Gain or loss: 720.
+
+Line 6: Tesoro Pet, acquired 5/22/72, sold 7/16/74. Gross sales price: 1622. Cost or other basis: 2847-. Gain or loss: 1225.
+
+Line 6: Unit Rode, acquired 5/15/72, sold 9/19/72. Gross sales price: 358. Cost or other basis: 1532. Gain or loss: 1174.
+
+Line 6: RCA, acquired 2/28/73, sold 9/23/74. Gross sales price: 1055-. Cost or other basis: 3062. Gain or loss: 2007.
+
+Line 7: Capital gain distributions.
+
+Line 8: Enter gain, if applicable, from Form 4797, line 4(a)(1) (see Instruction A).
+
+Line 9: Enter your share of net long-term gain or (loss) from partnerships and fiduciaries.
+
+Line 10: Enter your share of net long-term gain from small business corporations (Subchapter S).
+
+Line 11: Net gain or (loss), combine lines 6 through

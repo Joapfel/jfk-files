@@ -1,0 +1,9 @@
+Report of Service Abroad. To: Office of Personnel, Control Division, Statistical Reporting Branch. File punched by. Serial No. 036130. Name: Daniel Flores. Last: Flores. First: Daniel.
+
+Instructions: Use appropriate space below to report data for either PCS or TAY. Insert appropriate code number in “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year. Refer to API No. 58, revised.
+
+PCS Dates of Service. Arrival: month 29-20, day 27-28, year 29-30. Departure: month 31-32, day 33-34, year 35-36. Type of data: 1: PCS (Basic); 2: Connection; 3: Cancellation. O/P use only: Wednesday 37; Tuesday 18, 29. Country code: 40-42.
+
+TDY Dates of Service. Arrival: month 06-15, day 26, year 06-20. Departure: month 76, day 06-20, year 76. Type of data: 2. Area(s): Western Homisphere.
+
+Office of Personnel use only—punch area. Source document and certification: Travel Voucher; Dispatch; Cable; Duty Status or Time and Attendance Report.

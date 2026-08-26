@@ -1,0 +1,21 @@
+Sovietics Index. Fields: M.D.NJ; surname, given name, middle name; POR; DOB; CITZ; 201 number; wife name.
+
+M.D.NJ 295237. Leonov, Vladimir Aleksandrovich (T). Citizenship: USSR. 201 number: +201-0732596. Wife: Zinaida Vasiliyев.
+
+M.D.NJ 017021*. Leonov, Vladimir Alekseyevich. Citizenship: USSR. 201 number: +201-0732596. Wife: Zinaida Vasiliyев.
+
+M.D.NJ 017021*. Leonov, Vladimir Alekseyevich (T). Citizenship: USSR. 201 number: +201-0732596. Wife: Zinaida Vasiliyев.
+
+M.D.NJ 024731*. Leonov, Vladimir Andreyevich (T). Citizenship: USSR. 201 number: +201-0148594. Wife: Valentina Mikhayl.
+
+M.D.NJ 053991. Leonov, Vladimir F. Citizenship: USSR. 201 number: +201-0788619. Wife: Olga Petrovna B 1.
+
+M.D.NJ 053991. Leonov, Vladimir Fedorovich (T). Citizenship: USSR. 201 number: +201-0788619. Wife: Olga Petrovna B 1.
+
+M.D.NJ 284882. Leonov, Vladimir Porfiryevich (T). Citizenship: USSR.
+
+M.D.NJ 294423. Leonov, Vladimir Stepanovich (T). Citizenship: USSR.
+
+M.D.NJ 226295*. Leonov, Vyacheslav Stepanovich (T). Citizenship: USSR. 201 number: +201-0916881. Wife: Valentina Yegorov.
+
+M.D.NJ 224483. Leonov, Yuriy. Citizenship: USSR. 201 number: +201-

@@ -1,0 +1,15 @@
+Type of data: PCS (Beale). Arrival code 26, month 27–29, day 29.30, year 31.32; departure month 33.34, day 30.30, year 37.38. Correction. Cancellation.
+
+TOY dates of service. Type of data: TOY (Beale). Departure code 2, month 16, day 09, year 6.3; return month 12, day 15, year 37; area(s) 10 T; OMT 811. Correction. Cancellation.
+
+Source of record document: Travel voucher. Dispatch. Duty status on time and attendance reported. Cable.
+
+Document identification no. Document date/period.
+
+Remarks.
+
+Prepared by: Signature. Report associated with source present: Source document.
+
+Approval verified correct, based upon source document credits.
+
+Fiscal Division: Signature. Financial Division: Signature.

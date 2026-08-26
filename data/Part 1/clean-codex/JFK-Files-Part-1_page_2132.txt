@@ -1,0 +1,17 @@
+Position Control Register. Columns: Rank or Grade; Level; Grade; Plan—Injury; Plan—Disability; Position Number C A; SD; Employee Number; D; Title (if different); Date of Rank Change; Station (COM); Maj. Order; No. Enlisted; No. Officers.
+
+Martin F. Davis, Sgt.; Level: Sgt; Grade: 176, J. W.; Plan—Injury: Willis, Richard; Plan—Disability: J. E.; Position Number C A: 1911; SD: D; Employee Number: C; D: 24; Title (if different): 10.
+
+Dewitt Officer; Level: Sgt; Grade: GS 0136, J. E.; Plan—Injury: Kelly, James H; Plan—Disability: G; Position Number C A: 1914; SD: * D; Employee Number: C; D: 25; Title (if different): 10.
+
+Wickcox Edward L; Level: Sgt; Grade: GS 0136, J. E.; Plan—Injury: Farrar, John G; Plan—Disability: G; Position Number C A: 1914; SD: D; Employee Number: C; D: 25; Title (if different): 10.
+
+Golomer Irving P; Level: Sgt; Grade: GS 0136, J. E.; Plan—Injury: Farras, Frank K; Plan—Disability: G; Position Number C A: 1914; SD: D; Employee Number: C; D: 26; Title (if different): 10.
+
+Office Officer; Level: Sgt; Grade: GS 0136, J. E.; Plan—Injury: Long, Kent W; Plan—Disability: G; Position Number C A: 2758; SD: * D; Employee Number: C; D: 31; Title (if different): 10.
+
+Fastmurk Roger G; Level: Sgt; Grade: GS 0136, J. E.; Plan—Injury: Parks, Dip.P.; Plan—Disability: G; Position Number C A: 2758; SD: D; Employee Number: C; D: 27; Title (if different): 10.
+
+Dickard John G; Level: Sgt; Grade: GS 0136, J. E.; Plan—Injury: Rayman, N.D.; Plan—Disability: G; Position Number C A: 2758; SD: D; Employee Number: C; D: 26; Title (if different): 10.
+
+Tashima Frank M; Level: Sgt; Grade: GS 0136, J. E.; Plan—Injury: Green, Robert T; Plan—Disability: G; Position Number C A: 2758; SD: D; Employee Number: C; D: 17; Title (if different): 10.

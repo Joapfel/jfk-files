@@ -1,0 +1,7 @@
+Position Control Register.
+
+Date of last obtained. Gate date carry. CINK copy carry. Total in, out, and balance. MTR. Amount obtained, carry, and balance. Totals.
+
+Acquisition order to current S/C. Services requested: 04/01/90–11/30/90. Jun 0F.
+
+Attention: Joe L. Smith; Tom M. Yohn; Ron W. Gilmore; Burton L. Harris; Eugenio Velasco; James H. Kane; Luci N. F. Marinano; Cindy L. Farris; Raymond S. Rosso; Richard S. Leach; Dorothy H. Williamson; Efrigeri; Edward W. Stedman; Douglas W. Moore; Nicolo M. Di Fredore; Patricia M. De Silva; Francis C. Jones; Rita M. Bernabuello; Charles C. Foster; Adolph O'Brien; E. B. Hart; S. M. Brown; J. G. Cox; A. J. Dean; J. M. Eagle; R. P. Elms; C. E. Farris; M. F. Gladstone; E. J. Grant; G. A. Hall; S. H. Hawkes; P. I. Hoffman; M. J. Huang; R. K. Huang; S. J. Huang; C. J. Huang; C. Huang; D. Huang; T. J. Hughes; J. M. Hussing; C. J. Hull; S. J. Hulme; E. J. Humphries; J. P. Hyndale; C. P. Hyndale; H. R. Hyndale; S. J. Hyndale; R. J. Hyndale; J. R. Hyndale; G. J. Hyndale; D. J. Hyndale.

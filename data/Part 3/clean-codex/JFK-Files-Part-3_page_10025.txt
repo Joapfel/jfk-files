@@ -1,0 +1,12 @@
+IS CIM.
+
+One agent: 30 percent, 50 percent.
+One agent: 40 percent, 20 percent.
+One agent: 25 percent, 25 percent.
+Three agents: 10 percent, 0 percent.
+One agent: 10 percent, 25 percent.
+Six agents: 5 percent, 5 percent.
+Two agents: 2 percent, 8 percent.
+Four agents: 5 percent, 0 percent.
+
+END.

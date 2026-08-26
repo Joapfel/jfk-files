@@ -1,0 +1,15 @@
+Personal Data. Employer status. Employee date. Citizenship. Date of birth. Current PCS post. Future PCS post, if any. Department information (name not required); attach SOAM here or W-1.
+
+Relationship. Date of birth. Citizenship. Reside with subject; if not, where.
+
+Spouse under contract or employed by PCSACT: Yes. No. Notes: if yes, provide pseudonym.
+
+Cover data. Effective date of cover. Social Security taxes to be withheld by cover: Yes. No. Official cover. Nonofficial cover. LNREAD. Bonafide. Proprietary. Devised. Other (specify). Cover facility cryptography.
+
+Cover, salary and allowances (per annum). Service. Allowance. Pay period used by cover. Weekly. Weekly. Monthly. Semi-monthly.
+
+Type of tax documentation to be issued by cover. Remarks (please refer to personal or cover data).
+
+Working data. Payment of compensation. Headquarters. Field. Effective date. Amount.
+
+Working data report. LNREAD. LNGOLD. Devised facility. Account No. 1099. LNREAD. LNGOLD. Devised facility. Account No. 1099. W-2. W-2. Devised facility. Account No.

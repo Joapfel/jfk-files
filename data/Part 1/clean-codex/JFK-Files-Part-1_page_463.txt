@@ -1,0 +1,1 @@
+Date, document type, status. 10/06/83, Beta, 1. 10/29/83, Proof, 2. 11/07/83, Proof, 3. 11/14/83, Proof, 4. 11/21/83, Proof, 5. 11/28/83, Proof, 6. 12/05/83, Proof, 7. 12/12/83, Proof, 8. 12/19/83, Proof, 9. 12/26/83, Proof, 10. 12/33/83, Proof, 11. 12/40/83, Proof, 12. 12/47/83, Proof, 13. 12/54/83, Proof, 14. 12/61/83, Proof, 15.

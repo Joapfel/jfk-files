@@ -1,0 +1,21 @@
+T 333576 EIA022
+
+IN 695650  
+MONT 21403
+
+TO R1242029Z SEP 75
+
+241945Z SEP 75 STAFF
+
+CITE MONTEVIDEO 21403, SECTION 1 OF 2.
+
+TO: IMMEDIATE BUENOS AIRES. INFO: DIRECTOR.
+
+NACT BUENOS AIRES  
+ARMAT PLVWCADET
+
+1. COS had two-hour session with Truehart and Aaron late morning 24 September. General impression is that both were business-like; questions were incisive and designed to ascertain how a station functions in an embassy, particularly vis-à-vis the ambassador, rather than how Montevideo station is functioning in Uruguay. Hence many questions were highly hypothetical. Most important impression was that former Ambassador Truehart (whom COS had met in Nigeria years ago) feels that an ambassador should be far more knowledgeable about all, repeat all, station operations in order to judge possible “flap potential.”
+
+2. COS did not show OD to visitors since they did not ask to read it but instead read portions of it to them and discussed it with them.
+
+3. They asked initially what the ambassador’s injunctions were with respect to prohibited operations. COS said secret.

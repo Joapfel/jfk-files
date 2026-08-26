@@ -1,0 +1,33 @@
+To: Director
+
+From: JIMWAVE
+
+Action: SAS 8
+
+Info: POP, ADDP, SOD 5, CA 2, CA/PEG, CA/PROP, CI/CPS, CIIC 2, FI, FI/D, FI/INT, IN, RI/AN, WH 7, DD/I, AD/LI 2, AD/NE, AD/RR 3, VR.
+
+TDCS
+
+DIY CNTL WAVE 8924
+
+Intel-typic
+
+SUPDATA: AMLISP-1 in SW message 315 dated 7 November 1963, received from Translation 30 November 1963. Subsource is REBECA (ALBERT), whose fiancé is Uncle JUAN (FRANCISCO HERNANDEZ) (per SW 328 dated 28 November), is a notary who resides near Torrens and who reported observations of traffic. Field comment SHOE. RID: INDEX. Filed 12028Z.
+
+Report class: Secret. Cuba.
+
+Subject: Truck traffic and tube-like objects seen entering Torrens base.
+
+Date of information: 9 October–7 November 1963. Place and date acquired: United States, Miami (30 November 1963).
+
+UFG-4246
+
+Source: A former Cuban government employee who has the
+
+IV comment:
+
+Attachment B. Section of this cable has been excluded by the action unit. The attached section of this cable has been excluded by the agency permits.
+
+Tech precedence: Routine; Priority.
+
+Based on: Liaison.

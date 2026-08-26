@@ -1,0 +1,15 @@
+Statement of Earnings and Deductions.
+
+Name: CRPHONE 1. Employee No.: 802799. Pay Period Date: 12/01–12/31/20. Roll: 1242930. STA: 000.
+
+Earnings: CD C9, normal =000, description: REG SAL. Note: This form is issued only when an employee enters on duty or there is any change in the pay account.
+
+Deductions: CD 73, normal 8000-, description: LIQ PAYMT; CD 80, normal 89000, description: CPA EX CR; CD 96, normal 8000, description: FED TAX F.
+
+Remarks: Changing tax code for the quarter and reducing tax to $80.00 per memo, dated July 1968.
+
+Employer Number: 802799 CRPHONE.
+
+Additional Compensation Data. Refund Due from Employee. Net Pay.
+
+Remarks: Paid at HOS.

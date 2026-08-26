@@ -1,0 +1,23 @@
+Application for Federal Employment.
+
+Announcement:
+1. Kind of position applied for or name of examination.
+2. Option(s), if mentioned in examination announcement.
+3. Place of employment applied for, city and State.
+
+Name: William Johnson. Number: 1234.
+
+4. Street and number or R. D. number. City or post office, including postal zone, and State.
+5. Sex and number or R. D. number.
+6. Place of birth: City; State or foreign country.
+7. Date of birth, month, day, year.
+8. Height without shoes: feet; inches. Weight: pounds.
+11. Home phone. Office phone.
+12. Legal or voting residence, State: New York.
+
+If you have ever been employed by the Federal Government, indicate last grade. Approved. Initials and Date. Application Review. Approved.
+
+Option. Grade. Earned Rating. Preference. Augmented Rating. Preference options: 5 Points (Tentative); 10-Point Compensable Disability; Other 10 Point; Dial.; Being Invigilated.
+
+14. Availability Information.
+A. Indicate the lowest salary you will accept. PET

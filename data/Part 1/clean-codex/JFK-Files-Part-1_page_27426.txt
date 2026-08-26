@@ -1,0 +1,35 @@
+Section IX.
+
+1. Present status (single, married or widowed, divorced, annulled, remarried, specified).
+
+2. Name of spouse. Surname, first name, middle: last name, first initial: spouse's name. Specify if any. No change.
+
+3. Date of birth.
+
+4. Place of birth (city, state, country).
+
+5. Occupation.
+
+6. Present employer.
+
+7. Citizenship.
+
+8. Former citizenship(s), countries (if any).
+
+9. Date of U.S. citizenship acquired.
+
+Dependent children and dependents other than spouse.
+
+Bonnie J.: relationship—daughter; date and place of birth—17 Sept 45; citizenship—USA; permanent address—4317 Saul Rd, Kensington, Md.
+
+Susan C.: relationship—daughter; date and place of birth—28 Dec 47; citizenship—USA; permanent address—4317 Saul Rd, Kensington, Md.
+
+Kristine: relationship—daughter; date and place of birth—11 Apr 50; citizenship—USA; permanent address—4317 Saul Rd, Kensington, Md.
+
+Barbara: relationship—daughter; date and place of birth—31 Oct 55; citizenship—USA; permanent address—4317 Saul Rd, Kensington, Md.
+
+Professional societies and other associations.
+
+N.A. Land Charter.
+
+Additional street, city, state, country. Date of death—died from/to.

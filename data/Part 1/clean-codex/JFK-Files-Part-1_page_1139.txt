@@ -1,0 +1,27 @@
+DOHB 70-1-1, Chapter III, Annex B.
+
+15 November 1974.
+
+Desk blocks on the 201 Personality File Action Request (Form 831). The standard listings available are:
+
+1. Alphabetical by surname, leading to a 201 number.
+2. Alphabetical by given name, leading to a 201 number.
+3. Alphabetical by cryptonym, leading to a 201 number.
+4. Numerical, leading to a surname.
+5. Numerical, leading to a cryptonym.
+
+FOL A China. 201 Surname Alpha List. 03 October 1973.
+
+Name: Chen, Shou 1 /7115/1343/50307. Type name: A. Date: 24JAN11. Birthplace: Chin, Kwangtung. Occupation: DIPT. Citizenship: CHIM. 201: 0165401. Active city: CHIN. Location city: HK.
+
+Name: Chen, Shou 1 /7115/1343/00017. 201: 0238859. Active city: CHIN. Location city: HK.
+
+Name: Chen, Shou 1 /7115/1343/00017. Type name: A. Date: 90. Birthplace: Chin, Andy. Occupation: DUSP. Citizenship: CONM. 201: 0178655. Active city: CHIN. Location city: HK.
+
+Name: Chen, Shou-Jen /6774/1108/0038. 201: 004JAN19. Birthplace: Chin, Fukiém, Prov. Citizenship: CHIN. Active city: HK.
+
+Name: Chen, Shou-Pet. Date: 04JAN19. Birthplace: Chin, Fukei Em, Prov. Occupation: CHIM. Citizenship: 0234629. Active city: CHIN. 01-1: COJA. 01-2: CHIN. Active city: HALT.
+
+Name: Chen, Shou-Ming /7105/1343/690. Type name: A. Date: 21OCT08. Birthplace: Chin, Manchupia, Fort. Arth. Occupation: CHIM. Citizenship: 0179620. 01-1: CHIN. 01-2: CHIN. Active city: TAIW.
+
+Name: Chen, Shou-Shin /7115/1109/001. Date: 12NOV22. Birthplace: Chin, Huhan. Citizenship: CHIN. Active city: TAIW.

@@ -1,0 +1,9 @@
+Index: Yes. Classify to file No.: H-1 Mho. PMBID. RST to branch. Destroy SIG. From: J.G. WAVE. Action: WH/SA 8. Info: DDP, ADDP, CA 2, CA/PEG, CA/PROP, CA/O 4, CI, CI/OPS, CI/IC 2, FI, FI/D, FI/INT, IW, RI/AN, VR, FILE. AD/CI 2, AD/NE.
+
+R 122311Z. MIL HTP HDC NOV 13 0305Z 64 IN 22194.
+
+C DIR INFO LANT PACY BARR PRIN SDOM CITZ WAVE 4726.
+
+INTEL DYVOUR JMPALM PBRUMEN. SUPDATA: AMCARACKLE-1 from Eliseo Gomez Fernandez. RID: Index. Filed 122311Z.
+
+Country: Haiti/Cuba.

@@ -1,0 +1,15 @@
+MHFNO: 97-7895762. SENSIND: RYBAT.
+
+Mode of transportation. Comments.
+
+(2) SDR returning. Return time. Return location. Return map grid. Mode of transportation. Comments.
+
+(A) Return cover stop number 1. Map grid. Time of stop. Time of departure. Mode of transportation. Comments.
+
+(B) Return cover stop number 2. Map grid. Time of stop. Time of departure. Mode of transportation. Comments.
+
+CL BY-07-21-195. CL reason 1.5C. Declare on X1.
+
+4. File: BRACERB/17. Declare OADR DRV HUM 4-82.
+
+End of message.

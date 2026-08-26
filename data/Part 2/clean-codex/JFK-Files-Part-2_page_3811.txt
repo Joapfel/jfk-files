@@ -1,0 +1,27 @@
+CTL No. 9064. Requestor: Hall. Office: CD5. 21 August 1975.
+
+N9064 Campbell, E. R.
+
+Campbell, Eugene. /D TRE 20SEP54 Wagley, Charles, Dr. /T Dr. /Z 0190990. CR 54 R0254911.
+
+Campbell, Eugene. /D ST 16MAY55 P5 Wagley, Charles W. /T Dr. /Z 0190991. CR 55 R0254911.
+
+Campbell, Eva. /A Zawadowska, Eva /Y F /X POL /B 17DEC34 Essen, GER /L LEB, Beirut /E Macmillan and Co. Ltd. /C USA /Z 9018051. CS 65 R0763357.
+
+Campbell, Everette. /D CHR Seacrist, John Paul /L WV, Springdale /Q 28 /Z 0190999. OR R0071331.
+
+N9064 Heil, J. B.
+
+Heil, Johan. /A Szymonczyk, Stanislav /B 15MAR92 Cechovice, CSR /Z 2009540. OS 66 M0489574.
+
+Heil, Joseph. /D Serial 34 /T Jr. /Z 0541879. CR R0119193-2.
+
+Heil, Julius. /D CHR Haas, Dale Raymond /L ND, Cleveland /T Jr. /Q 28 /Z 0541883. OR R0134823.
+
+N9064 Larkin, G. A.
+
+Larkin, G. A. /A Forster, Gertrude Ann /Y F /S 014205666 /B 27DEC26 Lowell, MAS /C USA /W 72-0256002 /Z 0736898. CS R0047606.
+
+Larkin, George. /D WFO 23SEP57 P4 Morfit, Richard /Z 0736925. CR 57 R0161888.
+
+Larkin, George. /A Larin, George /Y M /B 05OCT34 Shanghai, CHN /L 65NY, Jordanville /C AUL /Z 9043287. OS 65 A0468471.

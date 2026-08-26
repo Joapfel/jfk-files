@@ -1,0 +1,19 @@
+15 November 1974
+
+Information About Subject
+
+1. Sequence Number and Name: 0902 Croix, William Pendleton  
+2. Sex and Date of Birth: Male, 12 April 1926  
+3. Citizenship: German  
+4. Place of Birth: CERN, Berlin  
+5. Occupation: Pharmacist  
+6. Occupation Code: CHEF  
+7. Text: Subject recently attended the seventeenth annual conference of the International Association of Chemists and Pharmacists held in Munich, Germany, from 22 through 29 October.
+
+8. 201 Number: 201-0032671  
+9. Name Type Indicator: T  
+10. OI Codes: AA XX-  
+11. Record Date: 1953  
+12. Reference: AACD-12345, 20 June 1953  
+13. Date of latest update of the record: 30 November 1970  
+14. STAR Index Record Number: 00833555

@@ -1,0 +1,27 @@
+Examples of Designations.
+
+How to designate one beneficiary.
+
+Beneficiary: Catherine M. Jackson*. Address: 2308 Southern Avenue, Williams, Ind. Relationship: Sister. Share: All.
+
+How to designate more than one beneficiary.
+
+Beneficiary: Susan L. Brown**. Address: 110 Prince Street, Anniston, N. Y. Relationship: Aunt. Share: One-fourth.
+
+Beneficiary: Mary Joe Carson. Address: 230 Duke Street, Anniston, N. Y. Relationship: Niece (Diece). Share: One-fourth.
+
+Beneficiary: Elizabeth H. Howard. Address: 2301 State Street, Weaver, Ohio. Relationship: Mother. Share: One-half.
+
+How to designate a contingent beneficiary.
+
+Beneficiary: William J. Johnson, Jr., living. Address: 244 South Ann Street, Plain, Co. Relationship: Father. Share: All.
+
+Otherwise to: Sarah E. Johnson. Address: 244 South Ann Street, Plain, Co. Relationship: Sister. Share: All.
+
+How to cancel a designation of beneficiary so that amount due will be payable as proposed in the law.
+
+Cancel prior designations.
+
+*Is this an after will or trust? Yes (X), No (L), or No (J). Determine if all the assets will be paid to the decedent's estate.
+
+**Do you want the shares to be sold for cash to the estate of the decedent's estate? Yes (Y), No (N), or No (I).

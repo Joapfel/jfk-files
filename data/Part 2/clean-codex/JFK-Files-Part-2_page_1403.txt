@@ -1,0 +1,9 @@
+19. Action Code: 37. Employee Code: 18. Office Code: 54957. Station Code: NOCAN. Reference Code: 75013. N号: 1. Date of Birth: 10.04.15.
+
+29. NTC Codes: MD; DA; 19. Special Reference Data: MCC; MCM; MCN; MOS; MSA. EOD Data. J1 Security No. 24 S/A.
+
+35. Vet Preference. Code: 1-1967; 1 197; 2 198. No. 05. 19. MSD. MSA; MSM. D Wars; LGL. Health Service.
+
+41. Previous Military Co-Home/Military Service. Code: C O Military Service; 1 Military Service; 2 Military Service; 3 Military Service; 4 Military Service (Military Service 1-7 is instead of 1-23 in the service data); 5 Military Service.
+
+Signature or Other Authentication. From MPS. [REDACTED]. Who is signed in.

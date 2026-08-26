@@ -1,0 +1,12 @@
+DIR INFO ATHE MADR CITE WAVE 7853  
+TYPIC NHSPAWN THUNIFORM
+
+Ref: WAVE 7852 (N/12973).
+
+IDEN A. Dr. Mario Seiglie Montoro, UR Secretary General.
+
+IDEN B. Dr. Fernando Fernandez Cavada, UR Secretary for Foreign Affairs.
+
+IDEN C. Dr. Jose R. Alvarez Diaz, recognized economist, former Cuban Cabinet Minister of Hacienda.
+
+CFN 7853 7852 A Dr. Mario Seiglie Montoro UR B Dr. Fernando Fernandez Cavada UR Dr. Jose R. Alvarez Diaz Hacienda

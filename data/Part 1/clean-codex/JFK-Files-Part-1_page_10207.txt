@@ -1,0 +1,3 @@
+Type Name: Last, First, Middle. Name Variant. Date of Birth. Country of Birth. City/Town of Birth. Country of Location. Code. Citizenship. Affiliation Code: B Pattern Only. Additional Codes: P B Pattern Only. Organizational or Group Affiliation (Clear Text). Code. Occupation/Position (Clear Text). Code. Color. Code.
+
+Action Desk. Cryptonym. Comments. Signature. IDN- 201-.

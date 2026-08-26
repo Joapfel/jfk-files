@@ -1,0 +1,7 @@
+File, VR. C/F1/04, C/R1/5D. Madrid 3303 (station and number). IN 06970 A (IN number).
+
+C/S comment: The action responsibility for this cable has been transferred.
+
+From: F10 (division), D Chris N. To: WA/COG (division). By: T. Robertson/F10/X-6974 (name, division, and extension). In coordination with: B. Murry/WA/COG/X-5061 (name, division, and extension).
+
+PB transfer to CICS Group.

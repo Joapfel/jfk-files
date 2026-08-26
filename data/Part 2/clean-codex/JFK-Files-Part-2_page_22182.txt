@@ -1,0 +1,11 @@
+Persons/Entities: President Kennedy, Bundy, Robert Kennedy, Helms, Rusk, McNamara. Date: November 12, 1963. Categories: MONGODB; Presidential Approval.
+
+Occurrence:
+
+On November 12, 1963, a meeting on “Cuban Operations” was held with “Higher Authority” (President Kennedy). Present were Mr. Rusk, Mr. McNamara, Mr. Robert Kennedy, Mr. Bundy, Mr. McCone, Mr. Johnson, Mr. Gilpatric (KILPAGRICK), Mr. Vance (VA NCE), Mr. Helms, Mr. Fitzgerald, [REDACTED], and Mr. Steakley (STEAKLEY). Mr. McCone gave a brief summary of recent developments inside Cuba, and Mr. Fitzgerald reported on Cuban operations under six main headings. Mr. Fitzgerald’s discussions of these headings are contained in separate cards.
+
+Source: Memorandum for the record dated November 12, 1963.
+
+File: “Cuban Operations.”
+
+Staff: Kelley. Date: 6/28/75.

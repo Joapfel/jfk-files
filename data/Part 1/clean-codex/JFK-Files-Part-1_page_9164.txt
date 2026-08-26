@@ -1,0 +1,35 @@
+To; Room No.; Date Rec'd.; Date Fwd'd.; Officer's Initials; Comments.
+
+Date received: 5/3. Date forwarded: 5/4. Officer's initials: D. Comment: 1. R. J. Sibley.
+
+Date received: 5/4. Date forwarded: 5/5. Officer's initials: J.P.
+
+Date received: 5/6. Date forwarded: 5/7. Officer's initials: A.
+
+Date received: 5/8. Date forwarded: 5/9. Officer's initials: R.E.P. Comment: Jm.
+
+Date received: 5/10. Date forwarded: 5/11.
+
+Date received: 5/12. Date forwarded: 5/13.
+
+Date received: 5/14. Date forwarded: 5/15.
+
+Date received: 5/16. Date forwarded: 5/17.
+
+Date received: 5/18. Date forwarded: 5/19.
+
+Date received: 5/20. Date forwarded: 5/21. Officer's initials: P.S.
+
+Each comment should be numbered to correspond with number in To column.
+
+A line should be drawn across sheet under each comment.
+
+Officer designations should be used in To column.
+
+Each officer should initial (check mark insufficient) before further routing.
+
+Action desired or action taken should be indicated in Comments column.
+
+Routing sheet should always be returned to Registry.
+
+For officer designations see separate sheet.

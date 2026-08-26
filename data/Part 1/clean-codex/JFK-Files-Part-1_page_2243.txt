@@ -1,0 +1,29 @@
+DOHB 70-1-1, Chapter III, Annex B. 15 November 1974.
+
+Desk blocks on the 201 Personality File Action Request (Form 831). The standard listings available are:
+
+1. Alphabetical by surname, leading to a 201 number.
+2. Alphabetical by given name, leading to a 201 number.
+3. Alphabetical by cryptonym, leading to a 201 number.
+4. Numerical, leading to a surname.
+5. Numerical, leading to a cryptonym.
+
+FOL A CHINA. 201 Surname Alpha List. 03 October 1973.
+
+Name; type; date; birthplace/city; occupation; citizenship; 201; activity; location.
+
+Chin, Shou 1. /7115/1343/50307; date 17JUL14; birthplace/city CHIN, XWANGTUNG; citizenship CHIN?; 201 0165401; activity CHIN; location HK.
+
+Chin, Shou 1. /7115/1343/00017; type A; date 24JAN11; occupation DIPT; 201 0230859; activity CHIN; location CHIN.
+
+Chin, Shou 1. /7115/1343/00018; date 90; birthplace/city CHIN, AHDY; citizenship BUSP; 201 0063751; activity CHIN; location MK.
+
+Chin, Shou Jen 7/6774/1108/0038; date 04JAN19; birthplace/city CHIN, FUKIEN, PROV.; citizenship CHIN?; 201 0234829; activity CHIN; location CUBA.
+
+Chin, Shou MET; date 21OCT08; birthplace/city CHIN, MANCIMPIA, FCRT ARTH; citizenship CHAT; 201 0179620; activity CHIN; location CHIN.
+
+Chin, Shou-Ming /7109/1343/690; type A; date 12NOV22; birthplace/city CHIN, HUAN; citizenship CHAT; 201 0059786; activity CHIN; location CHM.
+
+Chin, Shou-Shin /7115/1109/001; date 12MAR45; birthplace/city CHIN; citizenship DIPT; 201 0905390; activity CHIN; location RALT.
+
+Chin, SHCU-TAD; date C41; birthplace/city CH.

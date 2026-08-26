@@ -1,0 +1,7 @@
+Document Transfer and Cross Reference.
+
+Subject of document. RI file no. Dispatch or source log symbol no. S. date. F. source ciphertext. D. date of info. G. evaluation. B. analyst. B. date periods. C. disseminated in. I. date. Document disposition. Copy referred to this file. Transferred to RI file no. Picture information.
+
+LICDOOKY /1/. 201-778841. Sex: M. DDB? CIT? OCC?
+
+050-126-036/01. HIMAA-27923. 20 Dec 65. R 6512300052. File in 201-278841. File this form in file no.

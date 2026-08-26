@@ -1,0 +1,9 @@
+Position Control Register. Officers.
+
+Name: ROBERT ROBERT G; Title: Officer; Sex: M; Unit: A; Number: 0136.01; Date of Birth: 12; SSN: B; Rank: 2793; Date of Birth: D; 56180012000.
+
+Name: GREG KOWIT V; Title: Officer; Sex: M; Unit: L; Number: 0136.01; Date of Birth: 11; Number: 2792; Rank: A; SSN: 003215; Photo ID: C; DOB: 27; Last Name: K; First Name: 10; Company: 030758; 56180013000.
+
+Name: JOE RICCARDO J; Title: Officer; Sex: M; Unit: O; Number: 0136.01; Date of Birth: 10; Number: 2793; Rank: D; SSN: 027075; Photo ID: C; DOB: 31; Last Name: K; First Name: 10; Company: 111361; 56180014000.
+
+Name: JOBBER JOHN G; Title: Officer.

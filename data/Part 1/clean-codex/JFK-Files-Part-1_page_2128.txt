@@ -1,0 +1,9 @@
+Position Control Register. Fields: Department No.; Name; Title; Rank or Grade; Department Code; Section Code; Case File #; Start date; Department Code; Department Name; Supervisor's Name; Supervisor's Phone No.; Department Start Date; Department End Date; Department Contact Person; Department Contact Phone Number.
+
+Stock Control Unit. Department Contact Phone Number: 563801-2000.
+
+Agricultural Supply Dep, title GS-2040,01; rank or grade 11; department code 1; section code 3209; case file #: ISL; department contact phone number: 563801-3000.
+
+Agricultural Use Asst, title GS-2040,06; rank or grade 09; department code 1; section code 8047; case file #: *SL; department contact phone number: 563801-4000.
+
+Dept Head Office.

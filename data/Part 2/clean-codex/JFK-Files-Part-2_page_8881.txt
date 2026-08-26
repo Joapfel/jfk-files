@@ -1,0 +1,9 @@
+104-10529-10277
+
+If PCI does not give DEVISTA-1 contacts in SALV, station should pass to DEVISTA-1 only the first four names of the above reference.
+
+End of message.
+
+WH/Comment: Suggested Communists as possible contacts DEVISTA-1.
+
+SALV 4039 (IN 63096).

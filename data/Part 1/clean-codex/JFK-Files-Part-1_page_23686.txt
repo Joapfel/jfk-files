@@ -1,0 +1,15 @@
+Underloaded ammunition, open sight hood, dusk:
+
+Range: 200 yds.; number of rounds: 10; number of hits: 6; horizontal spread: 15"; vertical spread: 85". Remarks: Could see target more clearly through peep sight but no rounds were fired.
+
+Range: 25 yds.; number of rounds: 10; number of hits: 6; horizontal spread: 8"; vertical spread: 6". Remarks: Could see target very clearly with 1.3X scope.
+
+Underloaded ammunition, almost full dark, open sight hood:
+
+Range: 75 yds.; number of rounds: 10; number of hits: 9; horizontal spread: 9"; vertical spread: 9". Remarks: Peep sight useless.
+
+Range: 25 yds.; number of rounds: 10; number of hits: 10; horizontal spread: 14"; vertical spread: 25". Remarks: Could see targets out to 200 yds. with filtered scope at start of firing, could not see at all w/scope at finish.
+
+Overloaded ammunition, open sight hood, pull dark:
+
+Range: 25 yds.; number of rounds: 10; number of hits: 8 (scattered). Remarks: Target in total darkness, rain cloud overhead, intermittent lightning flashes gave a vague awareness of target location.

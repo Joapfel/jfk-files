@@ -1,0 +1,17 @@
+Continuation of Dispatch Indexing Information. Document symbol and number: UFGA-27514.
+
+Instructions: Insert “ASSIGN” after 201 if number needed.
+
+1. Surname: ALNLEE. Given name: Carmelina. 201-. Sex: F. Country of birth: 23 September 1989. City/town of birth: Havana.
+
+2. Additional information: Grandmother of MOELJON Hernandez, Ramon (201-29311).
+
+3. Surname: GARCIA. Given name: Juliu. 201-. Sex: F. Country of birth: 1 October 1901. City/town of birth: Puerto Padre, Oriente.
+
+4. Additional information: Mother of AUIZA Garcia, Carlos (201-292725).
+
+4. Surname: DELGADO. Given name: Rosa. Middle name: Maria. Sex: F.
+
+5. Additional information: Remarried widow of CERVANTES Lago, Alfredo (201-292730).
+
+Surname: RODON Alvarez, Felipe. Middle name: General. 201-NO 201. Sex: M. Date of birth: 14 September 1912. Country of birth: Cuba. City/town of birth: Santiago de Cuba.

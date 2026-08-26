@@ -1,0 +1,13 @@
+Outgoing Message.
+
+Message handling indicator. Date-time group. C/E. Deferred telepouch.
+
+C/SE/CI/X (Jonsson, 1911), coordinating office: SE/X/EU (C. Hacnamara). E/B (S. Brown), C/SE/CI/X (Noyes), releasing office: C/E/BC (A. Stimson).
+
+File: 201-779495. E2, IMPDET.N.
+
+Originating office: SE/CI/X (Jonsson, 1911), coordinating office: SE/X/EU (C. Wacnamara). E/B (S. Brown), C/SE/CI/X (Noyes), releasing office: C/E/BC (A. Stimson).
+
+Date: 9 March 1977. Origin: Jonsson/DTH. Unit: SE/CI/X. Extension: 19811.
+
+C/E/BC. Teleassist office. Authorizing office. E2 IMPOST. CL BY: 035018.

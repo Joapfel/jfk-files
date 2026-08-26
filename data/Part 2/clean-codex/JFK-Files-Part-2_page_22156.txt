@@ -1,0 +1,9 @@
+Persons/Entities: Johnson; Kilpatrick; McCone. Date: September 16, 1963. Categories: MONGODB; Special Group.
+
+Occurrence:
+
+On September 16, 1963 a memorandum reported that “all members of the special group have approved project OARAGE (having to do with certain FLING activities in the area of Cuba.)”
+
+Source: Memorandum dated 16 September 1963 for members of the Special Group from Mr. Parrott.
+
+Staff: Kelley. Date: 6/28/75.

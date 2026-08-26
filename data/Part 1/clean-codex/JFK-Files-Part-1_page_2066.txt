@@ -1,0 +1,15 @@
+Position Control Register. Columns: Name; Grade; Inclim. Number; C.A.; A.; Distribution Number; V.; N.; O.; A.; R.; SF.; AF.
+
+Gallup, G.E., 39: grade 89; Inclim. Number 1; C.A. 4669; A. 10; SF. 11,160; AF 37987.
+
+Staples, J.H., 35: grade 89; Inclim. Number 1; C.A. 4466; A. 3; Distribution Number 93933; V. C; N. 28; O. M; A. 10.
+
+Wingate, J.W., 43: grade 83; Inclim. Number 1, 332, 35; C.A. 89; A. 3; Distribution Number 94983; SF. 982968; AF 9864 37987.
+
+Control, C.U., 93-1333, 1387/80: grade 83; Inclim. Number 1; C.A. 4497; A. 89; Distribution Number 88493; V. C; N. 32; O. M; A. 10.
+
+Bowles, D.B., 87: grade 83; Inclim. Number 1; C.A. 4497; A. 3; Distribution Number 89995; SF. 992963; AF 9864 37987.
+
+Wright, E.S., 35: grade 83; Inclim. Number 1; C.A. 4468; A. 49; Distribution Number 38338; V. C; N. 39; O. M; A. 30; R. 610191; SF. 37987.
+
+Bain, E.L., 35: grade 83; Inclim. Number 1; C.A. 4468; A. 20.

@@ -1,0 +1,59 @@
+Category 3: I. Can see another's point of view.
+
+Category 5: 11. Has high standards of accomplishment.
+
+Category 4: 21. Is effective in discussions with associates.
+
+Category 3: 2. Can make decisions on his own when need assessed.
+
+Category 4: 12. Shows originality.
+
+Category 4: 22. Implements decisions based on lessons from feelings.
+
+Category 5: 3. Has initiative.
+
+Category 5: 13. Accepts responsibilities.
+
+Category 5: 23. Is thoughtful of others.
+
+Category 4: 4. Is analytic in his thinking.
+
+Category 3: 14. Admits his errors.
+
+Category 4: 24. Works well under pressure.
+
+Category 5: 5. Strives constantly for new knowledge and ideas.
+
+Category 4: 15. Responds well to supervision.
+
+Category 4: 25. Displays judgment.
+
+Category 4: 6. Knows when to seek assistance.
+
+Category 5: 16. Does his job without strong support.
+
+Category 3: 26. Is security conscious.
+
+Category 5: 7. Can get along with people.
+
+Category 5: 17. Comes up with solutions to problems.
+
+Category 3: 27. Is operative.
+
+Category 4: 8. Has memory for facts.
+
+Category 3: 10. Is observant.
+
+Category 3: 28. Has criticism as structural.
+
+Category 4: 9. Sets things goal.
+
+Category 3: 15. Thinks carefully.
+
+Category 4: 29. Facilitates smooth operation of my office.
+
+Category X: 10. Can cope with emergencies.
+
+Category 4: 20. Completes assignments within relevant time limits.
+
+Category 5: 30. Does not require special and continuous supervision.

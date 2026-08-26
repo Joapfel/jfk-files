@@ -1,0 +1,17 @@
+Position Control Register. Fields: Name, age, officer instruction number, location C.A., ID No., employee number, fund, SNBH, date of birth (month), age (month), rank (G) year, title (W), date of PCG O/S, station CDM, office (title) month, department (title).
+
+Joe Harris — age 49; officer instruction number C-0136-0109; location C.A. 2; ID No. 3096; employee number D; fund C; date of birth (month) 31; age (month) 10.
+
+Karl Härter MRA — age 56; officer instruction number 0136-0111J; location C.A. J; ID No. 3047; employee number D; fund C; date of birth (month) 33; age (month) 10.
+
+Moriko Shio Yatoh — age M1; officer instruction number 0136-0104; ID No. 3098; employee number D; fund C; date of birth (month) 17; age (month) 30; office (title) month 87.
+
+Luce Villard GCT — age G5; officer instruction number 0301-2809; location C.A. J; ID No. 3103; employee number * D.
+
+Steve Hayen — age S5; officer instruction number 0301-0209; location C.A. I; ID No. 3105; employee number * D.
+
+Steve Start-Steno — age G5; officer instruction number 0316-0107; location C.A. L; ID No. 3106; employee number * D.
+
+Mark Roth Mahabilit? — age M6; officer instruction number 0318-0107; ID No. 3106; employee number D; fund C; date of birth (month) 25; age (month) 10.
+
+Science Tech N.H — age N5; officer instruction number 0318-0107; ID No. 3106; employee number D.

@@ -1,0 +1,11 @@
+Common Stock. Date of purchase, stocks, number of shares, purchased at per share and amount, December 29, 1972 per share and amount, P/E ratio.
+
+Automotive Supplies: 2/23/72, Irvin Industries, 5,000 shares, purchased at 13-5/8 per share for 67,929.63; December 29, 1972, 9-1/8 per share, 45,625, P/E ratio 15. 8/20/72, Javelin Corporation, 6,000 shares, purchased at 22-5/16 per share for 133,875.00; December 29, 1972, 10-1/2 per share, 63,000, P/E ratio 13.
+
+Broadcasting: 8/21/72, Metromedia Incorporated, 5,500 shares, purchased at 38-1/4 per share for 210,218.00; December 29, 1972, 32-1/2 per share, 178,750, P/E ratio 19.
+
+Conglomerates: 1/28/72, W.R. Grace, 5,000 shares, purchased at 29-15/16 per share for 149,663.16; December 29, 1972, 26-1/2 per share, 132,500. 3/6/72, W.R. Grace, 2,000 shares, purchased at 29-1/16 per share for 58,121.08; December 29, 1972, 26-1/2 per share, 53,000. 3/8/72, W.R. Grace, 1,000 shares, purchased at 28-1/16 per share for 28,093.80; December 29, 1972, 26-1/2 per share, 26,500. Total and Average Price: 8,000 shares, 29-1/2 per share, 235,898.04; December 29, 1972, 26-1/2 per share, 212,000, P/E ratio 13.
+
+Electrical Equipment: 6/9/72, McGraw Edison, 5,000 shares, purchased at 43-1/4 per share for 216,670.70; December 29, 1972, 40-3/8 per share, 201,875, P/E ratio 16.
+
+Food and Beverage: 1/1/72, Quaker Oats, 3,000 shares, purchased at 40-1/2 per share for 121,389.50; December 29, 1972, 45 per share, 135,000. 11/2/72, Quaker Oats, 1,000 shares.

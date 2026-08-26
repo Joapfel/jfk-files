@@ -1,0 +1,7 @@
+Section A. Marriage Status: None. Present status (single, married, widowed, separated, divorced, annulled, formerly SPECTER). Name of spouse (last). Place of birth (city, state, country). Date of birth. Occupation. Present employer. Citizenship. Former citizenship(s), current(s). Date U.S. citizenship acquired.
+
+Section X. Dependent Children and Dependents Other Than Spouse.
+
+William Maksymiec. Relationship: son. Date and place of birth: 1/30/60. Citizenship: yes. Permanent address: 4718 Asbury Place, Washington, D.C.
+
+Sharon Ann Maksymiec. Relationship: daughter. Date and place of birth: 2/6/61. Citizenship: no. Permanent address: 4718 Asbury Place (Asbury Plane), Washington, D.C.

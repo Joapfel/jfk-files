@@ -1,0 +1,7 @@
+Action code: 56. Employment code: 10. Office coding: 50660 WE. Station code: 67033. Integ ree code: 3. Headquarters code: 03. Date of birth: 19 November. Date of grade: 11.
+
+NTE expires: No; day. Special reference: 1. CEC; 2. PICA; 3. None. Retirement data: Code. Separation data code: Type; No. day year. Correction/cancellation data: EOD data. Security requirement No.
+
+Veteran preference: Code; 0. None; 1. SPT.; 2. 10-Pt. Service computation date: month, day, year; no day year. Longevity computation date: TAR RESV; code. Career category: Code. FEGLI/health insurance: Code; 0. Waiver; 1. Yes; health insurance code.
+
+Previous government service data: Code; 0. No previous service; 1. No break in service. Leave category: Code; form executed. Federal tax data: form executed. State tax data: form executed.

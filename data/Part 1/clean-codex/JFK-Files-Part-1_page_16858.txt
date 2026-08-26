@@ -1,0 +1,5 @@
+Continuation of dispatch. Dispatch symbol and number: HMNA-40227.
+
+Processing backlog will be narrowed to a week at the longest.
+
+Howard T. Bagaus.

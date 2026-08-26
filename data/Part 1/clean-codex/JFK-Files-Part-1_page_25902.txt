@@ -1,0 +1,13 @@
+Message handling indicator. Info: File, Daily Group, CME.
+
+“B code” following: 201-0292411 (Soto-Hayet), 201-0284805 (Caballero), 201-0294335 (Alonso-Pujol), 201-0834598 (Franco), 201-0653347 (Teira), 201-0332287 (Aguila), 201-0298626 (Blanco), 201-0355380 (Nazario), 201-0297617 (Mas), 201-0285794 (Perez), 201-0355001 (Folch), 201-0678309 (Cabral), 201-0842677 (Pou, Joaquin).
+
+Index: Major Dario L. Diaz Gil; Winfred E. Hodgen; and Ana Margarita de Windt, wife of Castro Paz (201-0742365).
+
+Originating: LA/AN/CH (Bashaw X1034). Coordinating: C/LA/AN (Beardsley); C/LA/CAR (Palmer); C/LA/COG (Latrash); AGC/DDO (Goldin); C/LA/OPS (DiStefano); SA/C/LA (Sturbittts). Authenticating: C/LAD (Warren). Releasing: C/PCS/LSN/ID (Kuhn).
+
+C/LA/AN: Bearden. C/LA/CBAR: V.M.P. DC/LA/COG: A. Winter. AGC/DDB: Saldin. C/LA/OPS. SA/C/LA: A.B. King.
+
+Date: 20 October 1977. Originating: Alice Bashaw. Unit: LA/AN/CH. Extension: 1034.
+
+C/PACS/LSN/ID.

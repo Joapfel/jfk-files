@@ -1,0 +1,15 @@
+Position Control Register.
+
+Title: Lt. Col. Ewing S. Fife; Rank: Col./Lt.; Previous Position Level: C-0134.01; Number in Level: Sr.; Status: 1956; Department Number: D.
+
+Title: Lt. Col. J. P. Williams; Rank: Col./Lt.; Previous Position Level: C-0134.01; Number in Level: Sr.; Status: 1956; Department Number: G.
+
+Title: Maj. D. R. Anderson; Rank: Maj./Sr.; Previous Position Level: C-0132.58; Number in Level: Sr.; Status: 1956; Department Number: *D.
+
+Title: Pfc. B. K. McVey; Rank: Pfc.; Previous Position Level: C-0318.01; Number in Level: Jg.; Status: 1945; Department Number: 10.
+
+Title: Drs. E. W. Meehan; Rank: Dr.; Previous Position Level: C-0118.01; Number in Level: Jg.; Status: 1945; Department Number: D.
+
+Title: Sgt. H. C. Lee; Rank: Sgt.; Previous Position Level: C-0136.01; Number in Level: Jg.; Status: 1933; Department Number: I.
+
+Title: Sgt. L. P. Henson; Rank: Sgt.; Previous Position Level: C-01.

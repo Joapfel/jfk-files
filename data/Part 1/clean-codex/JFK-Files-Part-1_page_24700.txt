@@ -1,0 +1,23 @@
+Outgoing message.
+
+Signal center use only.
+
+Message handling indicator. Info: file.
+
+Date-time group: CIVC. Message reference number. Dissem by. No date. Return to PER: 939725.
+
+Based on: HMM 1524, 9 April 1966; HMMA 18303, 15 December 1961; MEXI 9740, 84 June 1964; MEXI 1218, 14 October 1964; HMMA 24698, 6 Nov 64; HMMA 29141, 8 June 66; HMMA 29934, 31 Aug 66.
+
+File in: 201-132139.
+
+Date: 2 Nov 76. Originating office: D HAMMER. Unit: IP/EBIS:JE/DM. Extension: 89245.
+
+Ralph Hatrosh. C/PCS/SLN. Reasons officer.
+
+Coordinating in draft: SE/X/FR: B WILHEMITE.
+
+C/IP/EIS.
+
+Authenticated office.
+
+Reproduction of this secret information is prohibited.

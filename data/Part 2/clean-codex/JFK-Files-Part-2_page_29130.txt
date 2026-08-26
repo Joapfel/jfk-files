@@ -1,0 +1,55 @@
+California Profit (or Loss) From Business or Profession (Sole Proprietorships)
+
+Schedule C, Form 540. Taxable year 1976.
+
+Attach this schedule to your income tax return, Form 540 or 540NR. Partnerships, joint ventures, etc., must file on Form 565.
+
+Name as shown on Form 540 or 540NR. Name and address of business. Social Security number. Federal Employer I.D. No.
+
+Principal business activity: services—S.N.A.P. = B.A.C.
+
+Method of accounting: accrual. Forms 591, 592, 596 and 599 for the calendar year: Yes. Method of inventory valuation: cost.
+
+Was there any substantial change in the manner of determining quantities, costs, or valuations between the opening and closing inventories? Yes. No. If yes, attach explanation.
+
+Balance:
+
+1. Gross receipts, sales, or fees; less returns and allowances.
+2. Inventory at beginning of year. If different from last year's closing inventory, attach explanation.
+3. Purchases; less cost of items withdrawn for personal use.
+4. Cost of labor. Do not include salary paid to yourself.
+5. Materials and supplies.
+6. Other costs. Explain in Schedule C-2 or attach schedule.
+7. Total of lines 2 through 6.
+8. Inventory at end of this year.
+9. Cost of goods sold. Subtract line 8 from line 7.
+D. Gross profit. Subtract line 9 from line 1.
+10. Other income. Attach schedule.
+11. Total income. Add lines 10 and 11.
+
+Other Business Deductions:
+
+13. Depreciation. Explain in Schedule C-1 or attach schedule.
+14. Taxes on business and business property. Explain in Schedule C-2 or attach schedule.
+15. Rent on business property.
+16. Repairs. Explain in Schedule C-2 or attach schedule.
+17. Salaries and wages not included on line 4. Exclude any paid to yourself.
+18. Insurance.
+19. Legal and professional fees.
+20. Commissions.
+21. Amortization. Attach statement.
+22. Retirement plans, etc., other than your share; see instructions.
+23. Interest on business indebtedness.
+24. Bad debts arising from sales or services. Not applicable if reporting on cash basis.
+25. Depletion. Attach schedule.
+26. Other business expenses. Explain in Schedule C-2 or attach schedule.
+27. Total of lines 13 through 26.
+28. Net profit (or loss). Subtract line 27 from line 12. Enter here and on Page 2, Form 540 or 540NR.
+
+Schedule C-1. Depreciation. Claimed on line 13.
+
+Group and guideline class or description of property. Date acquired. Cost or other basis. Depreciation allowed (or allowable) in prior years. Method of computing depreciation. Life or rate. Depreciation for this year.
+
+Schedule C-2. Explanation of Lines 6, 14, 16, and 26.
+
+Line no. Explanation Amount.

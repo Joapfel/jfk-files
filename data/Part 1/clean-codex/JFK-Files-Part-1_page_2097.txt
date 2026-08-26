@@ -1,0 +1,9 @@
+Position Control Register.
+
+Department: GAMET, RAY; Q.C. Unit: 05-036-01; Grade No.: 12; Rank: SMITH, H.G.; Position Number: 3123; Age: 0; ID: 881888; Employee Number: C; U.S.A.: 18; Yr.: M; Sex: 10; Type: SMITH; W.C.: J.H.; F.: 04-0181.
+
+Department: FARRILLINGS & ASSET MANAGEMENT; Q.C. Unit: 06-038-02; Grade No.: 09; Rank: HARRIS, C.R.; Position Number: 5126; Age: 4D; ID: 060379; Employee Number: C; U.S.A.: 19; Yr.: F; Sex: 10; Type: HARRIS; W.C.: S.M.; F.: 04-1760; Additional value: 0685.
+
+Department: VOKAHA, BETTE; Q.C. Unit: 06-038-03; Grade No.: 08; Rank: SMITH, M.J.; Position Number: 3124; Age: 05; ID: 060379; Employee Number: C; U.S.A.: 19; Yr.: F; Sex: 10; Type: SMITH; W.C.: S.M.; F.: 04-1760; Additional value: 0685.
+
+Department: REPRETARY-STEAGIE; Q.C. Unit: 06-0318-04; Grade No.: 07; Rank: SMITH, J.E.; Position Number: 3333; Age: 08; ID: 060379; Employee Number: C; U.S.A.: 19; Yr.: F; Sex: 10; Type: SMITH; W.C.: S.M.; F.: 04-1760; Additional value: 0685.

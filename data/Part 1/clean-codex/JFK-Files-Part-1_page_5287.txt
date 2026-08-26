@@ -1,0 +1,3 @@
+Group 1. Included from automatic contracting and authorization.
+
+State/INT'L, DIA, Army/ACH, Navy, Air, JCS, SEC(EIP), NSA, NIC, AID, USNA, OCI, ONE, OCR, ORR, OO, Treasury, FBI, INS.

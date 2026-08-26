@@ -1,0 +1,7 @@
+Applicant Coding Data. ID: 6 digits. Applicant No.: must contain 20 digits. Name. Date of birth: month, day, year. Date coded: month, day, year. The data above (items 2 through 5) will be filled in when coding an applicant for the first time. This form is then attached to Form 1962, Master Qualifications Coding Record.
+
+Language Coding Data — Form 444C. ID. Employee No.: 3 letters. Name. Language data code: base code. Language data before test: base code. Date submitted: month, day, year. Date of birth: month, day, year. When Form 444C denotes no language competence, enter the following in item 4: “NO LANGUAGE” (12 digits).
+
+Language Proficiency Test Data. ID. Employee No.: 3 letters. Name. Code. Language data before test: base code. Language data after test: base code. Date of test: month, day, year. Data for items 2 through 7 is extracted from Form 1273, PLW Language Proficiency and Awards Data.
+
+Qualifications Record Change. ID. Employee/Applicant No.: 3 letters. Enter under “Type”: A — addition to record; C — change to existing record; D — deletion of data from existing record. Code No. 1: base, 1, 2, 3, year. Type. Code No. 2: base, 1, 2, 3, year.

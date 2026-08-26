@@ -1,0 +1,9 @@
+As stated by the United States Court of Appeals for the Second Circuit in United States v. Griswold, 247 F.2d 850, 864 (1957):
+
+Wiretap evidence is excluded by the federal courts in order to discourage persons from undertaking the proscribed activities in an effort to obtain evidence for use in those courts. Where exclusion would not serve this purpose, the evidence is admitted.
+
+If the Government was acting lawfully in conducting the surveillance, there is no illegal conduct to deter and hence no reason for applying the remedy of suppression in this case. If there is no reason for suppressing, there is no reason for either disclosure or for an evidentiary hearing.
+
+It is clear beyond cavil, that, in construing § 605 to bar either testimony as to the contents of an accepted conversation or the derivative use of an intercepted conversation to obtain evidence, the Supreme Court did so, solely to deter law enforcement personnel from utilizing wiretapping as a means of obtaining evidence. Nardone v. United States, 302 U.S. 389 (1937); Nardone v. United States, 308 U.S. 338 (1959) (Nardone II).
+
+In Nardone I, the Supreme Court held that the Communications Act of 1934 barred testimony by federal agents as to the content of messages intercepted by wiretaps by application of the principle of statutory construction “that the sovereign is embraced by general words of a statute intended to prevent injury and wrong.” 302 U.S. at 384. The “injury and wrong” which the Court perceived:

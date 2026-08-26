@@ -1,0 +1,11 @@
+Editorial signs:
+
+(( )) Query or comment by interviewer
+
+( ) Editorial insert
+
+------- or -- - Omission
+
+. . . Incomplete statement
+
+-- Dash

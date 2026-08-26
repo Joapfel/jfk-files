@@ -1,0 +1,5 @@
+Notification of Personnel Action.
+
+1. Serial number: 008102. 2. Name (last, first, middle). 3. Effective date: 17 February 1974. 5. Category of employment: Regular. 6. Nature of personnel action: Resignation. 7. Financial Analysis No. Chargeable: 3138 1231 0000. 8. CSC or other legal authority. 9. Organizational designations: DOP/European Division; Foreign Field; French Area; Paris Station; Paris Annex. 11. Position title: Ops Officer. 12. Position number: 0568. 13. Service designation: J. 14. Classification schedule: CS. 15. Occupational series: 0136.01. 16. Grade and step: 15 a. 17. Salary or rate: 31554. 14. Recommendation for use: For discussion only.
+
+Space below for exclusive use of the Office of Personnel. 19. Action code: 45. 20. Employee code: 10. 21. Office coding: Numeric Alphabetic. 25. Date of birth: 01 30 24. 26. Date of grade: 19. 27. Date of LEI: 15. No special reference: CSC LIA IICA none. Code: GAINFOS. Type: EOD data. 28. NTE expires: No date year. 29. Special reference. 30. Retirement data.

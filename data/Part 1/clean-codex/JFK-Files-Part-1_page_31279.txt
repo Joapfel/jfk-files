@@ -1,0 +1,9 @@
+Applicant Coding Data. ID. Employee No. Name. Must contain 20 digits.
+
+Date of Birth: No., day, year, month. Date Entered: calendar, year.
+
+Language Coding Data. ID. Employee No. Name. Code. Language Data Before Test. Base Code. R. W. P. S. U. T. Year. 3-LETTERS; code C-A-D; language data before test BF45; base code 3; R 3; W 4; P 1; S 3; U 4; T 57.
+
+Employee No. 466198; name WI&°; code C.
+
+When language competence is not denoted, enter the following in item 4: “NO++

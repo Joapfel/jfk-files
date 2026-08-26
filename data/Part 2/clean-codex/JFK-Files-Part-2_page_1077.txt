@@ -1,0 +1,19 @@
+Military Status Questionnaire.
+
+Name (print): Smith, Markholder, Joseph; Dickinson, White. Birth date: 16 June 1921.
+
+Ser male. Marital status: single; separated.
+
+Present draft status. Have you registered for draft? Yes; no. If yes, check your present draft classification below:
+
+1A Available for military service. Ages 18–26.  
+4B Official deferred by labor.  
+1AO Conscientious objector, but available for non-combatant duty.  
+4C Alien.  
+1C Member of any active branch of military service. Must be on full duty.  
+4D Minister of religion or divinity student.  
+1D Member of any reserve component of military service. Cannot be called by draft boards. Called only by military service concerned.  
+4E Conscientious objector—opposed to both combatant and non-combatant service.  
+2A Deferred on account of occupation.  
+4F Physically or otherwise unfit for service.  
+2C Deferred for agricultural occupation.

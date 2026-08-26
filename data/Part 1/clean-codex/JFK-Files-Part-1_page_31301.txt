@@ -1,0 +1,25 @@
+A. Raw Test Data.
+
+Type of test: Directions; Type of test: Directions, raw score A 16, percentile 52; Type of test: Area Info (Affairs).
+
+Type of test: DAT: Clerical; Type of test: Otis-Higher, raw score A 66, percentile 87; Type of test: Area Info (People).
+
+Type of test: Spelling; Type of test: Gen. Test I, raw score 68, percentile 90; Type of test: Bennett Library Info.
+
+Type of test: Sentences; Type of test: LA-5; Type of test: CIA Classif. I.
+
+Type of test: Numerical Ab.; Type of test: French LL; Type of test: CIA Classif. II.
+
+Type of test: Abstr. Reas.; Type of test: French UL; Type of test: Corr. and Eff. of Exp.
+
+Type of test: Space Rel.; Type of test: German LL; Type of test: OSU Test: Form.
+
+Type of test: Verb. Reas.; Type of test: Italian LL; Type of test: Technical Reading.
+
+Type of test: Mech. Reas.; Type of test: Spanish LL; Type of test: Watson-Glaser.
+
+Type of test: Supv. Test: Form; Type of test: Generalizations.
+
+Type of test: Oral Directions Test; Type of test: Inferences.
+
+Date. Typing. Shorthand. Total Time. Gross, Net, Errors. 1. 2. 3. 9 Nov. 50.

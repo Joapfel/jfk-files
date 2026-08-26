@@ -1,0 +1,11 @@
+18A Signature of requesting official: Millford C. Taylor, C/E/Pers. Date signed: 4/22/70. 18B Signature of career service approving officer: C.T. Brown 5. Date signed: 4-27.
+
+Space below for exclusive use of the Office of Personnel.
+
+19 Action Code: 45. 20 Employee Code: 10. 21 Office Coding: Numeric. 22 Station Code: Alphabetic. 24 Hours Code: 1. 25 Date of Birth: NO DA YB. 26 Date of Grade: MO DA YB.
+
+20 BTE Expires. 29 Special Reference. 30 Retirement Data. 31 Separation Data Code. 32 Correction Cancellation Data. EOD Data. 33 Security No BO.
+
+35 Vet Preference. 36 Serv Comp Date. 37 (ONG) Comp Date. 38 Career Category. 39 Legit. Health Insurance. 40 Social Security No.
+
+Code. O-BOME. MC. DA VB. O-BOME. MC. DA VB. LCAR. DEC PROCT TEMP. Code. Code. O-BANKS, 1-YES. Health Ins Code. 1-5 PT, 2-10 PT.

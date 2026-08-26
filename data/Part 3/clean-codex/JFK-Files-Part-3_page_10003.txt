@@ -1,0 +1,21 @@
+Position. Percent of time.
+
+IS: CI.
+
+Headquarters city agent working: 80, .0  
+Headquarters city agent working: 20, .40  
+Headquarters city agent working: 0, .40  
+Headquarters city agent working: 5, .15  
+Headquarters city agent working: 20, .0  
+Headquarters city agent working: 10, .0  
+Headquarters city agent working: 5, .5  
+Headquarters city agent working: 5, .5  
+Resident agent: 10, x.0  
+Resident agent: 10, .0  
+Resident agent: 10, x.0  
+Resident agent: 3, .3  
+Resident agent: 6, x.0  
+Resident agent: 0, .6  
+Resident agent: 6, x.0  
+Resident agent: 3, x.0  
+Resident agent: 0, x.2

@@ -1,0 +1,15 @@
+Personnel serial no. (1-8). Language proficiency and awards data. LDNO.
+
+Name (7-24). Component. Grade. Date of birth. Anniversary date (20-33): A.M., May 10, 1920; June 2, 1921.
+
+Language. Code (25-27). Date of test.
+
+Test purpose. Test scores: Reading (34), Writing (35), Pronunciation (36), Speaking (37), Understanding (38). Eligibility (30): awardable; not awardable.
+
+Award: Drill. Reading: N. Writing: F. Speaking: I. Awardable: A. Not awardable: M.
+
+I certify this employee for award. Digitature. Date.
+
+Type of award: A-M; E-I-N; C; R-W-B; D-V.
+
+Amount of award: $100.00. Federal tax deduction: $. State/DC tax deduction: $. Net amount of award: $. Charge allotment no. Date. Employee payroll no. Forward check to N.Y.P.S. in P.O. no. Check no. Date. Allotment of assignment. Forward check to A.M. M.J.A.

@@ -1,0 +1,5 @@
+Position Control Register.
+
+William H. Smith; S3 0186-0110; DR; 2; 87; C 21; 19; Smith, William S.
+
+Linda L. Miles; S3 0186-0110; DR.

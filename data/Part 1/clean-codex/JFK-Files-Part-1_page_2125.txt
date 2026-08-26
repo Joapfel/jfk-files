@@ -1,0 +1,13 @@
+Position Control Register.
+
+Position: Dept. Officer. Title: Gilliam R. Employee No.: GS-0136.01. Rank: 14. Full Name/NICLAUM: 3856. State SSN: D. SSN: 004717. Hire Date: C. Date of Birth: 21. Photo No.: M. Marital Status: 10. Phone Number: 110692. Office Phone Number: 37587. Supervisor Change: 56380072000.
+
+Position: Accounting Staff Member. Title: Jobber S. Employee No.: GS-0136.01. Rank: 13. Full Name/NICLAUM: 3856. State SSN: D.
+
+Position: Operations Officer. Title: Joseph F. Employee No.: GS-0318.01. Rank: 07. Full Name/NICLAUM: 3043. State SSN: D. SSN: 013849. Hire Date: C. Date of Birth: 31. Photo No.: F. Marital Status: 10. Phone Number: 082498. Office Phone Number: 37587. Supervisor Change: 56380073000.
+
+Position: Reports and Requirements Section Officer. Title: Joseph M. Employee No.: GS-0318.01. Rank: 13. Full Name/NICLAUM: 3046. State SSN: D. Supervisor Change: 56180074000.
+
+Position: Accounts Officer. Title: Gordon M. Employee No.: GS-0132.08. Rank: 12. Full Name/NICLAUM: 3047. State SSN: *D. SSN: 000411. Hire Date: C. Date of Birth: 21. Photo No.: M. Marital Status: 10. Phone Number: 050852. Office Phone Number: 37587. Supervisor Change: 56380075000.
+
+Position: Finance Officer.

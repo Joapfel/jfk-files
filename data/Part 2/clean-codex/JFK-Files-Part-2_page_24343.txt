@@ -1,0 +1,21 @@
+Portfolio Sales of Stocks to Date.
+
+Date of purchase; Stocks; No. of shares; Total purchase price; Date of sale; Net sale price; Gain or (loss) on sales.
+
+4/22/64; Burlington Industries, Inc.; 300 shares; $13,812.93; sold 6/8/65; net sale price $20,466.70; gain $6,653.77.
+
+4/22/64; National Steel Corporation; 300 shares; $16,559.22; sold 11/4/66; net sale price $11,997.11; loss (4,557.11).
+
+7/23/64; Scott Paper Company; 1,100 shares; $37,556.77; sold 11/4/66; net sale price $28,913.79; loss (8,012.63).
+
+4/22/64; J. C. Penney (Penny) Company; 250 shares; $16,278.21; sold 11/4/66; net sale price $13,112.15; loss (3,165.65).
+
+10/7/64; Columbia Broadcasting System; 408 shares; $16,660.52; sold 11/4/66; net sale price $21,938.98; gain $5,275.66.
+
+12/7/64; Scott-Foreman & Company; 600 shares; $20,976.80; sold 11/15/66; net sale price $23,849.15; gain $2,822.55.
+
+7/19/65; North American Aviation; 300 shares; $16,332.75; sold 1/16/67; net sale price $15,652.48; loss (1,730.27).
+
+5/20/65; Corn Products Company; 500 shares; $26,691.90; sold 9/21/67; net sale price $22,279.43; loss (6,412.33).
+
+1/2/66; General Public Utilities; 1,500 shares; $45,253.63; sold 9/21/67.

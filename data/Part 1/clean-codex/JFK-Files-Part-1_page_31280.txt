@@ -1,0 +1,9 @@
+Qualifications System Record Change.
+
+Applicant Coding Data. ID. Applicant No. Name. 6-digits must contain 20-digits. Date of birth: month, day, year. Date coded: month, day, year. The data above (items 2 thru 5) will be filled when coding an applicant for the first time. This form is then attached to Form 1968, Master Qualifications Coding Record.
+
+Language Coding Data — Form Public. ID. Employee No. Name: 3 letters. Language data code: BK5P. Base code: C-A-O, B, K, 5, P, 6. When Form Public denotes no language competence, enter the following in item 4: “NO++LANGUAGE” (12-digits). Date submitted. Date of birth.
+
+Language Proficiency Test Data. ID. Employee No. Name: 3 letters, ~~W~~I G. Language data before test: BK5P. Base code: C, B, K, 5, P, 6. Data for items 2 thru 7 is extracted from Form 1273, Language Proficiency and Awards Data, 19 Apr 1967, BTJT. BJT.
+
+The authorization to process this employee's disclaim of proficiency in the language factors indicated on this form is contained in a memorandum on file and designated “Language Proficiency Disclaim File,” located in the Qualifications Analysis Branch, Office of Personnel.

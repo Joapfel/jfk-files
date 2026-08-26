@@ -1,0 +1,19 @@
+M: Headquarters component. WH/1. Subject and Project File Request and Field Notification of Action. To: IP/AN. To (Station/Base): Mexico City. From (Division): WH.
+
+Information for requesters. Complete items 1 through 12. Item 3: All file titles must be sterile since they will appear on the field copies and on machine lists. Item 6: All remarks must be sterile. Items 7 and 8: Use first three letters of dispatch symbols for field stations and list headquarters elements according to established numeric codes. Item 10: Enter old title when amending a title. Cite any files, such as 201 or project files, that are related to the file covered by this request. Item 10 may also be used to give reasons for the action being requested, to identify the type of material to be placed in a file, or to make other explanatory remarks. Item 11: A records officer must sign all file action requests. Consult your RMO on any problems that arise.
+
+Information concerning file. Type of file: Subject. Code file number: Country number 050, category number 006, specific subject number 074/1. File title (specific subject): KDEACTOR.
+
+Action required. Analysis action: Open file; amend file title; reopen. Disposition: Close file, indicate disposition; retain; destruction recommended through date.
+
+6. Remarks (for field distribution).
+
+7. Interested stations (projects only): HMM.
+
+8. Interested headquarters desk (list action desk first): 050.
+
+9. Files action: Hold in CS files; restricted; unrestricted; prepare folder and send to requester; charge permanently to officer and desk.
+
+10. Comments (include special headquarters routing instructions).
+
+11. Endorsement

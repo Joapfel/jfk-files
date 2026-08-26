@@ -1,0 +1,13 @@
+Position Control Register.
+
+Intelligence Staff. Officer: Mill William A. Grade: GS-0136.91; 05 0136.91. Since arrived in C.A.: 14; 14. Cation number: 1; 3856. Age of C.A.: 10; 9. Employee number: 004717. Age male: C. Dept. code: 21. Date of graduation: M; 10. Location of first assignment: 072163; 07260. Station coding: 37987.
+
+Office Officer: Kingman Winnifred. Grade: GS-0132.92; GS 0132.92; GS 0132.92. Since arrived in C.A.: 13; 12; 12. Cation number: 1; 3040; 3040. Age of C.A.: 60; 0; 0. Employee numbers: 007149; 001899. Age male: C; C. Dept. codes: 14; 19. Date of graduation: F; F. Location of first assignment: 10; 10; 031385; 041760. Station coding: 37987; 37987.
+
+Gordan Anne L Melle. Grade: GS-0132.92. Since arrived in C.A.: 12. Cation number: 3040. Age of C.A.: 0. Employee number: 001899. Age male: C. Dept. code: 19. Date of graduation: F. Location of first assignment: 10; 041760. Station coding: 37987.
+
+Office-task-steno: Brown Eleanor K. Grade: GS-0318.91; GS 0318.91. Since arrived in C.A.: 07; 07. Cation number: 1; 3049. Age of C.A.: 10; 0. Employee number: 033931. Age male: C. Dept. code: 21. Date of graduation: F. Location of first assignment: 10; 0311964. Station coding: 37987.
+
+Research Translation Section. Officer: Imharada Tarao. Grade: GS-0136.91; GS 0136.91. Since arrived in C.A.: 13; 13. Cation number: 1; 3630. Age of C.A.: 10; 0. Employee number: 000344. Age male: C. Dept. code: 14. Date of graduation: R. Location of first assignment: 10; 113630; 19399. Station coding: 37987.
+
+Officer: Tamaeda Shi Engo. Grade: GS-0134.93; GS 0134.91. Since arrived in C.A.: 12; 13. Cation number: 1; 8098. Age of C.A.: 60; 0. Employee number: 000447. Age male: C. Dept. code: 11. Date of graduation: M. Location of first assignment: 101; 0011959. Station coding: 37987.

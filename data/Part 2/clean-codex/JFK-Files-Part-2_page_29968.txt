@@ -1,0 +1,19 @@
+Soc Sec Num; Employee Name, Position No. and Job Title; Annual Salary; Gross Pay Earned; Period From-To.
+
+302-46-7079 — Adrine, Ronald, Staff Counsel; annual salary $27,000.00; gross pay earned $2,250.00; period 09-01-78 to 09-30-78.
+
+416-54-2948 — Akers, Jeremy Ray, Senior Counsel; annual salary $28,000.00; gross pay earned $2,333.33; period 09-01-78 to 09-30-78.
+
+390-44-4227 — Baetz, Conrad E, Staff Investigator; annual salary $24,000.00; gross pay earned $2,000.00; period 09-01-78 to 09-30-78.
+
+046-36-4592 — Beeson, Peter G, Staff Counsel; annual salary $30,000.00; gross pay earned $2,500.00; period 09-01-78 to 09-30-78.
+
+290-50-4529 — Berk, Charles M, Senior Researcher; annual salary $18,000.00; gross pay earned $1,500.00; period 09-01-78 to 09-30-78.
+
+327-46-4790 — Berlow, Lisa M, Researcher; annual salary $16,100.00; gross pay earned $1,341.67; period 09-01-78 to 09-30-78.
+
+579-46-4548 — Berning, Elizabeth L, Chief Clerk; annual salary $23,600.00; gross pay earned $1,966.67; period 09-01-78 to 09-30-78.
+
+139-24-4355 — Billings, Richard N, Editorial Chief; annual salary $30,000.00; gross pay earned $2,500.00; period 09-01-78 to 09-30-78.
+
+243-74-5787 — Blackmer, S Jonathan, Staff Counsel; annual salary $25,700.00.

@@ -1,0 +1,16 @@
+Note for: Edward P. Mitten @ DCI  
+From: John N. Greer  
+Date: 02/27/95 06:02:46 PM  
+Subject: JFK Records
+
+This is in response to your request that I review ASAP the proposed regulations by the JFK Assassination Records Review Board.
+
+I see Sheryl Walters has very much in evidence here. I see from the attachment that she is the Board's GC.
+
+Like you, I am very concerned about the breadth of the reg's definitions. The key to keep in mind is the statutory authority for the Board. I would argue that the definition of "assassination record" in the statute (44 U.S.C. section 2107 note, section 3(2) of the Act) is more limited than the reg. The statute defines an assassination record as one "related" to the assassination of JFK. Thus, when section 1400.2 (d) and (e)(i) of the reg authorize Board access to organizational charts of governmental agencies and records necessary and sufficient to describe the agency's records policies and schedules, filing systems and organization, and storage facilities and locations, I would argue that such information is way too far afield. There is no way we can allow the Board to have access to this information, which in any event is prohibited by section 403g from disclosure notwithstanding any other law.
+
+The same issue arises with respect to section 1400.7(d) of the reg that proposes to include in the definition of record any records for a person by another name or personal identifier. This would appear to authorize Board access to all information about an agent who may have only been tangentially involved in the assassination but whose crypt is given in many other unrelated documents about unrelated operations. Talk about your carrier's nose under the tent!
+
+Finally, section 1400.5 of the reg raises an old dog of an issue. The National Security Archive (Sheryl's old employer) has been fighting for a long time in FOIA litigation that the FOIA refers to records and that therefore all information in a responsive record must be released unless otherwise exempt. There is no FOIA exemption, they argue, for non-responsive material in a record. This is a big problem for multi-topic documents, such as the NID. We, of course, argue that agencies are only required to process that which is asked for and delete non-responsive material as unrequested. The proposed reg would mean that the Board would have access to all information in a document about several unrelated operations or events if that document even mentioned the assassination or anything related to it. Again, the carrier's nose:
+
+CC: Thomas J. Benjamin @ DCI

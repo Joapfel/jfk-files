@@ -1,0 +1,11 @@
+Applicant Coding Data.
+
+1. ID. 2. Employee No. 3. Name. Must contain 20 digits. 6 digits. 4. Date of Birth. 5. Date Coded. Month, day, year. The data above (items 2 through 5) will be filled in when coding an applicant for the first time. This form is then attached to Form 1962, Master Qualifications Coding Record.
+
+1. ID. 2. Employee No. 3. Name: 3 letters. 4. Language Data Code: C-A-D. Base Code: BLS. R: I. W: 3. P: I. S: I. U: I. T: 4. Year: 69.
+
+6. Language Data After Test. 7. Date of Test: month, day, year. Data for forms 2 through 7 is extracted from Form 1273.
+
+Base Code: BL18. R: I. W: 3. P: I. S: E. U: I. T: 4. Year: 76. Language Proficiency and Awards Data: *d2, 11, 176.
+
+Qualifications Record Change. Type.

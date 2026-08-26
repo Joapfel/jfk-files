@@ -1,0 +1,37 @@
+Date: 6-24-1975. Time: 11:04. Station: S/N 2508, R/S 2508, E/M 7122, 7123, 7124. Dialing Code: 211-243. System: G. Modem Type: 300bps.
+
+Teletype Unit.
+
+May 26, 1975, 3:44 PM.
+
+Unit with two digits. The unit must be 2-digit. This is what was required in May 26, 1975.
+
+S/10 unit with a dash in the 2nd digit to be left blank. This is what was required in July 1975.
+
+Instead of the numbering diagram using the typewriter, use the following sequence of characters to identify the numbering system as a unit:
+
+The letter “S” in the first digit is significant when it is present. If “S” is present, then the number is S/10. If “S” is not present, then the number is not S/10.
+
+Note the dash in the 2nd digit of the unit above. This is what was required in August 1975.
+
+For the number “S/10,” use the following sequence: (S) (P) (T) (H) (E), where:
+
+(S) = second digit  
+(P) = third digit  
+(T) = fourth digit  
+(H) = fifth digit  
+(E) = sixth digit
+
+Use the following segment for the unit above:
+
+(S) = second digit  
+(P) = third digit  
+(T) = fourth digit  
+(H) = fifth digit  
+(E) = sixth digit
+
+This is what was required in September 1975.
+
+S/10 unit with a dash in the 2nd digit to be left blank. This is what was required in October 1975.
+
+62-116395-56

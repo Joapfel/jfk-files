@@ -1,0 +1,30 @@
+Si se adoptan valores de referencia tales que permitan gravar el importe en la forma siguiente:
+
+Talla: 5, 8s./qt.  
+Industrial: 1, 8s./qt.  
+Sort: 0,25, 8s./qt.
+
+Obtenemos el cuadro de liquidación siguiente:
+
+Talla: 131.106,42 × 5 = 8s. 655.532,10.  
+Industrial: 172.650,77 × 1 = 8s. 172.650,77.  
+Sort: 204.983,80 × 0,25 = As. 51.246,00.  
+Total impuesto liquidado: 8s. 879.428,87.
+
+Licencias de Compradores
+
+En vista de que las 2/3 partes de los compradores con licencia no cumplen con la Ley, sería conveniente reconsiderar el modo de otorgarles dichas licencias.
+
+Ministerio de Hacienda
+
+De acuerdo a la Ley, Artículo 144, las Administraciones de Aduana deben enviar copia de los Manifiestos de Exportación de Diamantes al MMH. Esto no se cumple. El 5 de junio de 1954, mediante oficio No. 5903, MMH pidió al Ministerio de Hacienda el cumplimiento de dicho artículo. Sería conveniente reiterar la solicitud.
+
+Control de Lotes de Diamantes en las Aduanas
+
+Parece irrisorio que en las Aduanas de la República no se controle el contenido de las cajitas con diamantes en bruto que se exportan, y, cuando se hace, como es el caso en Ciudad Bolívar, se coloque el paquete que puede pesar 100 gramos o menos sobre una balanza TOLEDO, que sirve para pesar bultos de hasta 250 kilos.
+
+Se recomienda utilizar una balanza adecuada, y colocar los paquetes. PRIMARIR EL CAMBIO DE SU COMPOSICIÓN.
+
+Discusiones Arancelarias
+
+Las cifras de importación relativas a piedras preciosas o semipreciosas, recopiladas por la Dirección General de Estadísticas del Ministerio...

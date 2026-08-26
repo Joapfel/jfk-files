@@ -1,0 +1,30 @@
+DOHB 70-1-1  
+Chapter III, Annex B
+
+15 November 1974
+
+(2) The dossier may be restricted by holding it on permanent charge from Central Files. (Note: To maintain the restriction of a dossier being returned to Central Files for retention, a File Restriction Notice must accompany the dossier).
+
+(3) The dossier may be restricted and held in Central Files by submitting a File Restriction Notice.
+
+To: File. Initials.
+
+IP/FI: GC-52 Tube DT-6.  
+IP/DCU: GC-40 Tube HT-4.
+
+Action Desk:
+
+1. To restrict a file, complete Section A (signature of R.O. not necessary).
+2. To remove a restriction, complete Section B (R.O. signature necessary).
+
+File Number.
+
+Section A. Restrict to: (Use country or non-country code number. See CSI 70-28). Restricted by: (Name). Component. Date.
+
+Section B. Remove restriction (authorized by). R.O. No. Component. Date.
+
+b. Access to a restricted dossier located in Central Files is limited to the personnel of the restricting desk or persons authorized by that desk. Any request for the charge of a restricted dossier or any document within a restricted dossier held in Central Files will be forwarded with the entire dossier and a multiproto-routed cover sheet to the restricting desk. This desk may then forward the file to the requester or deny the request and return the dossier to Central Files. The desk will notify the requester of a denial.
+
+c. Anyone requesting a restricted dossier, or a document within a restricted dossier, permanently or temporarily charged to a desk, will be referred to that desk by Central Files.
+
+26.6

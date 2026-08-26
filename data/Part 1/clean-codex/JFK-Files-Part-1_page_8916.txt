@@ -1,0 +1,25 @@
+Routing.
+
+To: Director
+
+From: Mexico City
+
+Action: CA/O 4* (CA/O copy slotted at 2045 15 Apr BP)
+
+Info: CA 2, CA/PEG, CA/PROP, CI/OPS, CI/OA, WH 7, VR
+
+152225Z
+
+Priority DLR GUAT CITE NEXI 9020 (Easby acting)
+
+Ref A GUAT 3836 (IN 62001)
+
+B. DIR. 14135 (not sent GUAT)
+
+15APR5THN62286
+
+1. Tichborn presently out of town, but returns 17 Apr. He trying get Ref B off ground, so this not best time for absence. However, assume trip would be for week or less and if this general timing satisfactory with all concerned, can release soon as travel can be arranged. Advise.
+
+2. No index.
+
+C/S comment: *Action unit determined as through indicator DTDORIC used. **Requested time schedule for Tichborn.

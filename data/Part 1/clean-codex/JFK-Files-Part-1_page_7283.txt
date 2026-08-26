@@ -1,0 +1,27 @@
+4.03.03 Eyeglass lens: Thick, Average, Bifocal.
+
+4.03.04 Eyeglass style: Heavy frame, Rimless, Average frame, Contact lens.
+
+4.03.05 Is there anything unusual about his eyes that requires special mention? If so, please describe.
+
+4.03.06 Does he take off glasses when he speaks? Yes, No.
+
+4.03.07 Does he use glasses to gesture? Yes, No.
+
+4.03.08 Does he ever wear sunglasses indoors? Yes. No: X.
+
+4.04 Complexion.
+
+4.04.01 Coloring: Ruddy, Dark, Tan, Light: X, Pale.
+
+4.04.02 Face: (a) Scarred, Lined, Smooth. (b) Beard, Clean-shaven: X, Mustache, Unshaved.
+
+4.04.03 Describe type of mustache or beard.
+
+4.04.04 Body hair (arms, legs, chest): Heavy, Medium, Light: X.
+
+4.04.05 Hair visible on nose?
+
+4.04.06 Hair visible on ears?
+
+4.04.07 Is there anything unusual or striking about his skin or skin coloring? If so, please describe.

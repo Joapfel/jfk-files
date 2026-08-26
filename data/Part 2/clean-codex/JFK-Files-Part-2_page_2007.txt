@@ -1,0 +1,3 @@
+Employee serial no.: 555292. Name: Noel James A. Assigned organization: 3 DDP/WH UV.
+
+Old salary rate: grade, step, salary, last effective date (day, month, year). New salary rate: grade, step, salary, effective date (day, month, year).

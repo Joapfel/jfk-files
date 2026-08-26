@@ -1,0 +1,19 @@
+Customer Name; Date Acquired; Application Dated; Revenue Booked 3/10; Paid; Comments and Expense Notes.
+
+Description; Acquired; Dated; 3/10; Paid; Gained or Loss.
+
+Transform Corp.; 12-15-76; 1-8-71; 3,107-; 29.33-; 174-.
+
+Kodak Co.; 12-31-78; 1-6-71; 3,218-; 3,100-; 218-.
+
+Tyler Corp.; 1-6-71; 1-19-71; 3,139-; 2,857-; 275-.
+
+Tyler Corp.; 501-6-71; 1-19-71; 779-; 718-; 61-.
+
+I.S. AM. Fletch; 7/01-19-71; 1-227; 4,078; 3,591-; 479-.
+
+Equit Financial; 22-71; 2-3-71; 4,301; 2781-; 522-.
+
+Chrysler Corp.; 2-3-71; 2-16-71; 2,772; 2,771; 125-.
+
+Wayzata Inc.

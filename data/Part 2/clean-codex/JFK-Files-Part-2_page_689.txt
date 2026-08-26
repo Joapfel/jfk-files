@@ -1,0 +1,23 @@
+201 Personality File Action Request. Note: See instructions on reverse side of print.
+
+To: KID/201 Section, Room GA-20, Tube Address D4-6. Date.
+
+From: Name. Phone. Office. Tube Address.
+
+Type Action: A, Open, Amend, Close.
+
+True Name: Last, First, Middle.
+
+5. 201 No.: E2.
+
+Name Variants and Telecodes. Type: Last, First, Middle.
+
+7. Sex: M, F. 8. Date of Birth: F2. 9. Country of Birth. 10. City/Town of Birth.
+
+11. Citizenship: N1. 12. Occupation (clear text): J1, J2. ECC. Code: I3. SML: K1.
+
+15. Document Symbol & Number: R1. Date. I6 Residence.
+
+17. Comments (text for Index cards).
+
+18. Country of Location: Code R1. 19. Action Desk: Code R1.

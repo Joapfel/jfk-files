@@ -1,0 +1,11 @@
+Personality File Action Request.
+
+Note: Consult the 201 Control System Reference manual before completing this form. Form must be typed as printed in block letters.
+
+To: RID/201 Section. Date: 4-26-71. Action: Open, Amend, Clear. From: Signature. Room No.: 801. Phone: (201) 655-7100.
+
+Check 2-4 for 201 request. Do not check for IDN. Exclude true name from machine list: Yes/No. Restricted: Yes/No. 201 No.: Signature. IDN No.: Signature. Source document: Signature.
+
+Name (last): Signature. First: Signature. Middle: Signature. Name variant: Signature. O type name (last). First: Signature. Middle.
+
+Nation. Year of birth. Place of birth. Mode of death. Age at death. Gross weight. Heican number. Type of location. Office or disease. Other information.

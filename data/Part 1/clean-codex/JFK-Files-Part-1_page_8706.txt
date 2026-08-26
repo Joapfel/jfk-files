@@ -1,0 +1,17 @@
+10.04.05. ¿Juega ajedrez? Si su respuesta es afirmativa, ¿sabe usted si juega bien? ¿Cree usted que probablemente juega bien? ¿Sabe usted que juega medianamente? ¿Cree usted que probablemente juega medianamente? ¿Sabe usted que juega mal? ¿Cree usted que probablemente juega mal?
+
+10.04.06. Si usted sabe jugar póker, diga la clase de jugador de póker que cree que él sería.
+
+10.04.07. ¿Es la clase de persona con quien le gustaría a usted jugar póker? Si su respuesta es negativa, explique por qué.
+
+10.04.08. ¿Le ha oído usted cantar? En caso afirmativo, ¿es su voz buena, promedio o mala?
+
+10.04.09. ¿Parece saber muchas canciones?
+
+10.04.10. Cantando en grupo.
+
+10.04.11. ¿Toca algún instrumento musical? En caso afirmativo, ¿qué instrumento?
+
+10.04.12. ¿Ha mencionado alguna vez haber tocado algún instrumento? En caso afirmativo, sírvase dar detalles.
+
+10.04.13. ¿Practica algún deporte activo?

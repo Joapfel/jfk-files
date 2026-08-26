@@ -1,0 +1,23 @@
+Position Control Register. Fields: Name, SSN, age, gender, employee number, date of birth, date of arrival, hire date, terms of payment, supersedes.
+
+William James & Jr.; SSN GS 0501.03; age 06; gender 3167; employee number SF 025798; date of birth C 31 A 10; date of arrival 111241; hire date 197987.
+
+Joseph Officek; SSN GS-0301.02; age 07; gender 13894; employee number 00.
+
+May 04 IN; SSN GS 1810.01; age 13; gender 13183; employee number 184.
+
+CSA 1915-17; SSN GS 1810.01; age 13; gender 3183; employee number 53; date of birth 050137; date of arrival C 18 N 10; hire date 192057; terms of payment 37987.
+
+James Harris; SSN CS-0322.01; age 08; gender 13893; employee number -C.
+
+Daniel OF; SSN CS-111/0.01; age 13; gender 13003; employee number 1SL.
+
+Mary and Slater Adams; SSN CS-2040.00; age 09; gender 14049; employee number CL.
+
+George Anne Eagle; SSN CS 2060.08; age 07; gender 4049; employee number SL; date of birth 022388; date of arrival C 38 X 10; hire date 121160; terms of payment 0760 37987.
+
+Fanny Carmine; SSN CS 1681.08; age 58.
+
+Linda Kennedy (since deceived); SSN CS 1611.01; age 12; gender 1184; employee number SS 037907; date of birth G 19 E 10; date of arrival 040539; hire date 0360; terms of payment 37987; supersedes 19780067100.
+
+Karen P D; SSN CS 0301.04.

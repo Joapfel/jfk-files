@@ -1,0 +1,15 @@
+Dispatch. From: Chief, WU Division. To: COS, Mexico City. Processing action: marked for independent; no informing required; only qualified delegation can be made; microfilm. Subject: PERPETUAL LIFECODE, confusion in use of cryptonyms. Action required—references.
+
+1. The Station's use of certain cryptonyms identifying technical operations against PERPETUAL TPELIDE in Mexico has caused confusion in Headquarters elements responsible for sourcing and dissemination of information produced, and for supporting the entire complex of operations itself. The cryptonyms in question are (a) LIFECODE, (b) LIERODE, (c) MKTRAP, (d) LICOOL/11, and (e) PBIMPULSE. The original meaning of these cryptonyms is being forwarded under separate cover.
+
+2. The purpose of this dispatch is to submit for Station comment a review of the technical operational effort against PERPETUAL TPELIDE since its inception. The objectives are (1) to complete Headquarters records which lack considerable detail concerning the intricacies of the operation, (2) to urge a more precise use of cryptonyms in reporting this activity which would benefit Headquarters personnel responsible for monitoring and supporting those operations, and (3) to suggest a few administrative adjustments which would dispel the present confusion mentioned in this dispatch.
+
+3. The initial effort against the target was PBIMPULSE. It was introduced into the target using LIFECODE assets and was actuated from the LIFECODE VI basehouse. This is mentioned only to complete the record and does not pertain to the intent of this discussion. Properly speaking, the initial effort begins with the activation of LIFECODE/LIERODE in February 1959, as indicated in MDA 12358. Subsequently, eight (8) LICOOL attempts were made during 1960–1961 against the same target. The LICOOLS were monitored from a mobile LP (not LIFIRE), Basehouse ABLE, and Basehouse BAKER, and the latter came to be referred to as the LIERODE base. The most productive operation of this sort seems to have been LICOOL/11, activated on 9 May 1959, according to HEXI 3884, dated 15 May 1959. According to our records, the last LICOOL ceased functioning during late 1961. Please confirm.
+
+Attachment: u/s/c.
+
+Distribution: 0 & 1—COS, Mexico City w/att.
+
+Cross reference to dispatch symbol and number: HMMW V 12454. Date: 1 April 1964. NCO file number: 50-6-32/6.
+
+Co-operating office symbol: WH/MI. Office type: RG. EAT: 5940. Co-operating office symbol: WH/FI. Date: 21 Jun 64. Officer's name: Alexandria Jn.

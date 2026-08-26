@@ -1,0 +1,9 @@
+Notification of Personnel Action. CSJ: 1 March 1970.
+
+Action Code: 45. Employee Code: 10. Office Coding: Numeric. Station Code: Alphabetic. Integration Code: Code. MREQS Code: MQ. Date of Birth: Month, Day, Year. Date of Grade: Month, Day, Year. Date of LEI: Month, Day, Year.
+
+NTE Expires: Month, Day, Year. Special Reference: CSC. Retirement Data: Code. Separation Data Code: Type. Correction/Cancellation Data. EOD Data. Security Res No.
+
+Veteran Preference: Code, none. Service/Completion Date: Month, Day, Year. Long Completion Date: Month, Day, Year. Career Category: CAR, BEST. Permit Health Insurance: Code, continued maintenance, yes; Health Insurance Company. Social Security No.
+
+Previous Civilian Government Service: Code. Leave Category: Code. Federal Tax Data. State Tax Data. Form Executed: Code. No Tax. Tax Data.

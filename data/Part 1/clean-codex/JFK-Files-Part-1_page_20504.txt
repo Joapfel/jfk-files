@@ -1,0 +1,11 @@
+Request for Personnel Action. Date prepared: 5 April 1965.
+
+19 Action Code. 20 Employment Code. 21 Office Coding: numeric, alphabetic. 22 Station Code. 23 Intercode: code. 24 MOQ/MS Code: 1010918. 25 Date of Birth: month, day, year. 26 Date of Grade: month, day, year. 27 Date of LEI: month, day, year.
+
+28 NTE Express: month, day, year, 022767. 29 Special Reference: 83. 30 Retirement Data: code. 31 Separation Data Code: type. 32 Correction Cancellation Data: number, day, year. EOD Data: number, day, year. 33 Security Requirement BD. 34 SER: number, day, year.
+
+35 Veteran Preference: codes 6-BCEM, 1-5 PT, 2-10 PT. 36 Service Completion Date: month, day, year. 37 Long Completion Date: month, day, year. 38 Career Category: career, ESY, prov, temp. 39 Legitimate Health Insurance: code; B-WATER, 1-75. 40 Social Security Number: health insurance code.
+
+41 Previous Government Service Data: code; 3—no previous service; 1—not drawn in service; 2—drawn in service, less than 3 years; 3—drawn in service, more than 3 years. 42 Leave Category Code: form executed, 1—yes, 2—no. 43 Federal Tax Data: form executed, 1—yes, 2—no. 44 State Tax Data.
+
+43 Position Control Certification. 44 OP Approval. 46 OP Approved: date approved.

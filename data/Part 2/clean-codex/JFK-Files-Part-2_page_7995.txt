@@ -1,0 +1,61 @@
+The computer artist is manipulating patterns, because this is an inherent potential of the computer medium. The manual artist (or scholar), by contrast, is bound to laborious manual processing of data and pattern, and thus generally discovers to a lesser degree further sources of innovative and perceptual changes, i.e., manipulation as practiced in the computer arts is not feasible manually. When perceptual change is accomplished manually (many of the works in Graphis afford excellent examples), such change is not only excessively time-consuming, but represents a manual tour de force. It could be more readily accomplished via the computer.
+
+The manual artist is generally not concerned with perceptual change or alteration of the original image. On the other hand, since the computer readily affords such changes, the cybernetic artist may literally exploit component designs, taking them through what may appear to be unlimited design changes. The more abstract the component design, the more readily it lends itself to mathematical variation and processing, termed design state variation.
+
+Design State Variation
+
+This is a term devised by the writer, adapted from given “state” variations used in printmaking, in which one may revise a plate or stone, and alter it by additions and/or changes of pattern, resulting in a series of new works. The term denotes known variations of pattern that are possible, which may be used as sub-routines or stored on the computer library and merely called by the user, who defines the values of the given parameters of the specific algorithms being utilized. One of the most provocative concepts emerging in computer art is that of being able to literally predict innumerable design state variations, in which a basal component will be visually or auditorially pleasing. The artist may use only those design states that reflect personal expression of design. (One might compare design state variations to the many kinds of chisels the sculptor may use in execution of a work of art, each giving unique effects.) Further, this library of manipulative design state variations is constantly being enlarged by experimenters in the computer arts. A brief listing follows:
+
+Offsets of pattern on the X, Y, X/Y (progressions in music).
+
+Mirror images or reversals on the X, Y, X/Y.
+
+Scalar variations or duration of pattern in superposition of form.
+
+Rotation, in open or closed forms.
+
+Irregular radiation of images and forms with growing scalar values.
+
+Redundant serial imagery in closed form.
+
+Polygon serial imagery, with circular, square, or varied final form.
+
+Positive and negative variations of repeated or design-related patterns.
+
+Disintegrating variants of images and sounds in redundant or transform pattern.
+
+Metamorphic variations of images or sounds in predetermined sequences.
+
+Transformations of pattern, in which one design becomes another.
+
+Alterations of design by mathematical algorithms.
+
+Pseudo-randomizations of patterns with artist-imposed parameters.
+
+Overlays of images and sounds in dimensional forms.
+
+Combinations of related patterns, using any of the above design states.
+
+Multi-media combinations, using any of the aforementioned.
+
+Prior to design state variation, the artistic idea is stated in coherent, sequential steps. It may be flow charted before translation into a computer program. Thus the art idea is transformed into analyzed data, using synthetic machine languages, and is then subject to processing and manipulation via the computer using design state variations, revealing innumerable new, final works. Examples include:
+
+The warp and weft patterns in weaving.
+
+Classical ballet positions, with designations of the head, arms, and feet.
+
+Structural modules in sculpture and architecture.
+
+Derivations of design from art or musical history, including the archaic, the classical, or the contemporary.
+
+Formulae and transformations from science or mathematics.
+
+Stylistic analysis of a given artist’s style, with designation and statement of a specific set of definitions describing the style.
+
+Artistic composition of a given musical era, with parameters of such rules.
+
+Thus the art idea is initially expressed in the manner of science, but it does not end there. The choice of the art idea or problem should express the personal philosophy of the originator, whether it is mathematical formulae, natural derivations from the environment, or analyses of prior styles of artists. The personal focus of the original idea, ensuing variation and execution cannot be too strongly stressed! The design state variations allow the artist to choose the given direction of psychic expression. Further, selection of specific computer systems and art materials affords a highly individual element within cybernetic creation. And lastly, the varying techniques of execution, which may be preplanned or participant, add a unique and personal opportunity to spontaneously participate within the formation of the work of art, or to maximize the capacities of the computer in artistic execution, using preplanned or heuristic modes.
+
+Diverse Philosophies of Computer Art
+
+Stylistic analysis and resultant design derivation are highly visible in the computer arts and possess decided benefits: these techniques allow one to analyze more thoroughly the subject under study, and in addition, they allow…

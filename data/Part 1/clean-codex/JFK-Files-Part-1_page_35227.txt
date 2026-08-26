@@ -1,0 +1,20 @@
+Frente Revolucionario Democrático. Misceláneos. Mes de Julio de 1960. Anexo 8.
+
+Partida 900, fecha Jul 12, mCheck 29, detalle: Aumento Fondo Fijo a $100.00, importe: $50.00.
+Partida 901, fecha Jul 26, mCheck 49, detalle: Pago Préstamo Dr. Carrillo, importe: 1,500.00.
+Partida 902, fecha Jul 27, detalle: Cargo Bancario, importe: 2.70.
+Partida 903, fecha Jul 27, mCheck 66, detalle: Atención Personal, importe: 3.00.
+Partida 904, fecha Jul 27, mCheck 66, detalle: Alquiler Taxi, importe: 4.00.
+Partida 905, fecha Jul 27, mCheck 66, detalle: Alquiler Taxi, importe: 6.50.
+Partida 906, fecha Jul 27, mCheck 66, detalle: Atención Personal, importe: 1.22.
+Partida 907, fecha Jul 12, mCheck 28, detalle: Gastos en Periódicos (F.Fijo), importe: 1.50.
+Partida 908, fecha Jul 12, mCheck 28, detalle: Periódicos (Fdo. Fijo), importe: 2.00.
+Partida 909, fecha Jul 12, mCheck 28, detalle: Periódicos (Fdo. Fijo), importe: 2.30.
+Partida 910, fecha Jul 12, mCheck 28, detalle: Periódicos (Fdo. Fijo), importe: 0.40.
+Partida 911, fecha Jul 15, mCheck 34, detalle: Periódicos (Fdo. Fijo), importe: 1.11.
+Partida 912, fecha Jul 19, mCheck 42, detalle: Periódicos (Fdo. Fijo), importe: 1.00.
+Partida 913, fecha Jul 19, mCheck 42, detalle: Periódicos (Fdo. Fijo), importe: 0.70.
+Partida 914, fecha Jul 19, mCheck 42, detalle: Periódicos (Fdo. Fijo), importe: 0.35.
+Partida 915, fecha Jul 27, mCheck 66, detalle: Periódicos (Fdo. Fijo), importe: 0.60.
+
+Total Misceláneos: $1,577.38.

@@ -1,0 +1,27 @@
+Shares: 2.00; Description: Mercantile Industries; Date acquired: 10-68; Date sold: 1-69; Sale price: 3,303; Purchase price: 2,994; Gain (loss): 309.
+
+Shares: 200; Description: Botany Industries; Date acquired: 11-68; Date sold: 2-69; Sale price: 4,010; Purchase price: 3,726; Gain (loss): 284.
+
+Shares: 200; Description: Midwestern Financial; Date acquired: 10-68; Date sold: 2-69; Sale price: 1,466; Purchase price: 1,832; Gain (loss): (366).
+
+Shares: 200; Description: Midwestern Financial; Date acquired: 10-68; Date sold: 2-69; Sale price: 1,416; Purchase price: 1,832; Gain (loss): (416).
+
+Shares: 200; Description: VTR, Inc.; Date acquired: 3-69; Date sold: 5-69; Sale price: 5,325; Purchase price: 4,458; Gain (loss): 867.
+
+Shares: 100; Description: McDonnell & Co.; Date acquired: 8-68; Date sold: 2-69; Sale price: 943; Purchase price: 853; Gain (loss): 90.
+
+Shares: 100; Description: West Bury Fashions; Date acquired: 8-68; Date sold: 6-69; Sale price: 1,672; Purchase price: 1,749; Gain (loss): (772).
+
+Shares: 100; Description: Imperial Corp. & Amer. Goodbodx & Co.; Date acquired: 11-68; Date sold: 1-69; Sale price: 2,563; Purchase price: 2,645; Gain (loss): 82.
+
+Shares: 300; Description: Volume Merchandise; Date acquired: 12-68; Date sold: 1-69; Sale price: 4,646; Purchase price: 3,809; Gain (loss): 837.
+
+Shares: 200; Description: Pennsylvania Eng. Corp.; Date acquired: 11-68; Date sold: 2-69; Sale price: 4,010; Purchase price: 3,726; Gain (loss): 284.
+
+Shares: 200; Description: Botany Industries; Date acquired: 1-69; Date sold: 2-69; Sale price: 2,627; Purchase price: 2,438; Gain (loss): 189.
+
+Shares: 200; Description: Cinerama, Inc.; Date acquired: 2-69; Date sold: 10-69; Sale price: 2,463; Purchase price: 828; Gain (loss): (1,635).
+
+Shares: 200; Description: Henry's Drive-In; Date acquired: 10-69; Date sold: 10-69; Sale price: 875; Purchase price: 873; Gain (loss): 2.
+
+Shares: 200; Description: Pentron Electronics Co.; Date acquired: 3-69; Date sold: 10-69; Sale price: 1,672.

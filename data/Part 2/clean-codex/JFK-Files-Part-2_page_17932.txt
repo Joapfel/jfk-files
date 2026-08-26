@@ -1,0 +1,22 @@
+The following represents SAs in RAs:
+
+SA: 1; IS: 5.
+SA: 1; IS: 45; CI: 45.
+SA: 1; IS: 2; CI: 2.
+SA: 1; IS: 50; CI: 25.
+SA: 1; IS: 30; CI: 10.
+SA: 1; IS: 75; CI: 20.
+SA: 1; IS: 5; CI: 70.
+SA: 1; IS: 2; CI: 5.
+SA: 1; IS: 70; CI: 30.
+SA: 1; CI: 10.
+SA: 1; IS: 5; CI: 10.
+SA: 1; IS: 55; CI: 15.
+SA: 1; IS: 5; CI: 1.
+SA: 1; IS: 1; CI: 5.
+SA: 1; IS: 35; CI: 50.
+SA: 1; IS: 5; CI: 3.
+
+In summary, 16 RAs averaged 24 IS and 19 CI.
+
+End.

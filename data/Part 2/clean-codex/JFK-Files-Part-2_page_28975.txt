@@ -1,0 +1,25 @@
+REIDENT 540
+
+Individual California Income Tax.
+
+Check Calendar Year. One: Fiscal Year Ending 1977.
+
+Name: SAMUEL + PHYLUS. Last name: Ruth. Your Social Security Number: 322-12-7997. Spouse's Social Security Number: 349-18-1470. State: CA.
+
+Filing Status. 1. Single. 2. Married filing joint return (even if only one had income). 3. Separate return of married person—enter spouse's social security number and full name here. 4. Head of Household—enter name of qualifying individual. 5. Widow(er) with dependent child (year spouse died 197___).
+
+Exemption Credits. 6. Personal: $50. 7. Dependents: ELISA; THOMAS. Total number: 2 × $8. 8. Blind exemptions. 9. Total exemption credits (add lines 6, 7 and 8). Enter here and on line 20.
+
+10. Wages, salaries, tips and other employee compensation. Attach copy 2 of Form(s) W-2 to face of this return. If unavailable, see instructions, page 10.
+
+11. Dividends—before federal exclusion. Enter total (if over $400, complete and attach Schedule B(540)).
+
+12. Interest. Enter total (if over $400, complete and attach Schedule B(540)).
+
+13. Income other than wages, dividends and interest (from line 48).
+
+14. Total (add lines 10, 11, 12 and 13).
+
+15. Adjustments to income (from line 55).
+
+16. Adjusted gross income (subtract line 15 from line 14).

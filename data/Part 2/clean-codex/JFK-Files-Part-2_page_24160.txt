@@ -1,0 +1,63 @@
+Project/Entity: LPCAPTAIN. Highest net equity balance on agency records, 1952–1974: $20,000. Net worth balance, 31 December 1974: $2,000(a).
+
+LPCANAL: highest net equity balance $34,800.
+
+LPDICTUM (was ZRSALTY, same as WUBRINY, ZRSALTY): highest net equity balance $500,000.
+
+LPDICTUM/F: highest net equity balance $931,900.
+
+LPESTATE: highest net equity balance $87,000; net worth balance, 31 December 1974: $84,400.
+
+LPSPICE (*): highest net equity balance $206,000; net worth balance, 31 December 1974: $10,500(a).
+
+LPDICTUM/P: highest net equity balance $75,000.
+
+LPSALINE (*): highest net equity balance $1,597,000.
+
+LPETHNIC (same as WUAMICE).
+
+LPCYHAMMER: highest net equity balance $800.
+
+LPHALTER: highest net equity balance $67,000.
+
+MODAISY: highest net equity balance $5,400.
+
+LPTOTEM: highest net equity balance $242,000; net worth balance, 31 December 1974: $81,200(a).
+
+LPFUNNEL: highest net equity balance $1,500.
+
+LPGAMP: highest net equity balance $27,000.
+
+LPGLOBE: highest net equity balance $29,000.
+
+LPHOCUS (same as WUHOCUS): highest net equity balance $88,000; net worth balance, 31 December 1974: $35,700.
+
+LPJACK (*): highest net equity balance $49,000; net worth balance, 31 December 1974: $54,400(a).
+
+LPMINERAL.
+
+TAIL: highest net equity balance $52,000.
+
+LCHICKEN: highest net equity balance $13,000.
+
+LPMINOR.
+
+LPMINOR/I: highest net equity balance $523,000.
+
+LPMINOR/G: highest net equity balance $91,000.
+
+LPMETAL: highest net equity balance $166,000; net worth balance, 31 December 1974: $47,800(a).
+
+PULSE: highest net equity balance $9,000.
+
+WUHALIBUT: highest net equity balance $311,100.
+
+LPPANDA (same as ZRBADGE).
+
+CHAIR A (same as WUPSYCHE/): highest net equity balance $77,500; net worth balance, 31 December 1974: $1,900.
+
+CHAIR B WUCHAIR/A & WUCHAIR/3: highest net equity balance $7,000.
+
+LPCLOUD (same as WUCLOUD): highest net equity balance $5,900.
+
+LPMET (*).

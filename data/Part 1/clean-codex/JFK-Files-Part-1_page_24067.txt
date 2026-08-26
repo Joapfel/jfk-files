@@ -1,0 +1,17 @@
+Statement of Earnings and Deductions.
+
+Name: QRPHONE 1. Employee No.: 802799. Pay period date: 04/01–04/30. Roll: 20. Cost center: 124062. STA: 000.
+
+Earnings: normal 09; other 74600; description: REG SAL.
+
+Note: This form is issued only when an employee enters on duty or there is any change in the pay account.
+
+Deductions: normal 80; other 74600; description: CPA EX CR. Normal 96; other 4600; description: FED TAX F.
+
+Remarks: T/A 270 from London transferred taxes for the month of Dec., Jan., and Feb. in the amount of $210.00, $70.00 for each. Payrolled was $46.00 each month; adjustment made herewith. Sub-object code changes for Accounting Only.
+
+Employee number: QRPHONE/1.
+
+Additional compensation data. Refund due from employee: code 86; normal -4600-; other 7200-00.
+
+Remarks: Paid at NOS.

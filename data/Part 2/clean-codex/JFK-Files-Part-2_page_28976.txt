@@ -1,0 +1,62 @@
+PART I - Renter's Credit - All questions must be answered
+
+35. Did you, on March 1, 1976, live in rented property which was your principal residence? Yes: No. If no, you may not claim this credit.
+
+36. Was the property you rented exempt from property tax? Yes: No. If yes, you may not claim this credit.
+
+37. Did you live with any other person who claimed you as a dependent for income tax purposes? Yes: No. If yes, you may not claim this credit.
+
+38. Did you or your spouse claim the homeowners' property tax exemption or receive public assistance? Yes: No. If yes, see page 3 of instructions.
+
+PART II - Other Income
+
+39. Business income (or loss) (attach Schedule C(540)).
+
+40. Net gain (or loss) from sale or exchange of capital assets (attach Schedule D(540)): 1000.
+
+41. Net gain (or loss) from supplemental schedule of gains and losses (attach Schedule D-1 (540)).
+
+42. Pensions and annuities.
+
+43. Rents and royalties.
+
+44. Partnerships.
+
+45. Estates and trusts.
+
+46. Farm income (or loss) (attach Schedule F(540)).
+
+47. Miscellaneous income:
+(a) Fully taxable pensions and annuities (not reported on Schedule E(540)).
+(b) Alimony.
+(c) Other (state nature and source).
+
+Enter total of lines 47(a), 47(b), and 47(c): 48.
+
+48. Total (add lines 39 thru 47). Enter here and on line 13: 2546.
+
+PART III - Adjustments to Income
+
+49. “Sick pay,” if included in line 10 (see instructions - attach Form FTB 3805T).
+
+50. Moving expenses (see instructions - attach Form FTB 3805U).
+
+51. Employee business expenses (see instructions - attach Form FTB 3805N).
+
+52. Military exclusion (see instructions).
+
+53(a). Payments to an individual retirement arrangement (attach FTB 3805P).
+(b) Payments to a Keogh (H.R. 10) retirement plan.
+(c) Payments to a self-employed “Defined Benefit Plan.”
+
+Enter total of lines 53(a), 53(b), and 53(c): 54.
+
+54. Forfeited interest penalty (see instructions).
+
+55. Total adjustments (add lines 49 thru 54). Enter here and on line 15.
+
+PART IV - Itemized Deductions
+
+Attach Schedule A(540) and enter sub-totals on lines 56 thru 62, below.
+
+56. Total deductible medical and dental expenses (from Schedule A(540), line 10).

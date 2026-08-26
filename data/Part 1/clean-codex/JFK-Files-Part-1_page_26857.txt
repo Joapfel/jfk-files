@@ -1,0 +1,11 @@
+Distribution to be included in Helicopter Master Training Pre-Solo Checklist.
+
+1. Pre-Licitation: Contract; Exterior.
+
+2. Customer Procedures: Starting & warming up; Shutdown procedures; Electrical system, cncr., oper.
+
+3. Maneuvers: Helicopter controls (air demon); Straight and level flight; Normal climb; Normal descent; Level turns; Circling turns; Descending turns; Hovering over a fixed spot; Hovering turns: right; Hovering turns: left; Hovering flight: forward; Hovering flight: sideward; Takeoff to hover; Landing from hover; Quick stops; Normal takeoff; Sideward and rearward flight; Traffic patterns; Normal approach; Maximum performance takeoff; Steep approach; Ramping takeoff and landings; Shallow approach; Approach to confined area; Confined area takeoff; S turns on road; Piapcable operation; Steepe operation; High-altitude takeoffs/landings; High recurrence; Low recurrence; Ocularion over barriers; Crosswind considerations; Settling with power.
+
+4. Emergency Procedures: Autorotations, general information; Stow/demol in autorotation (dual); Isl' autorotation (dual); Tell rotor failure in flight; Fine line during starting; Electrical system emergency oncr.; Autorotation from hover (dual); Hydraulic failure.
+
+5. Supplemental Operations: Use of litters/cargo racks; C. G. limitations.

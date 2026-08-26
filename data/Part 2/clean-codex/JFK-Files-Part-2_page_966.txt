@@ -1,0 +1,11 @@
+Verified Record of Overseas Service. To: Office of Personnel, Statistical Reporting Branch, R.O.M. 5 F. 2506 Headquarters.
+
+Employee serial no.: 1-8, 1974. Name of employee: Fox, Jerome. Office/component: 7-84. Middle: 29-28. Last: 45.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert appropriate code number in “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS dates of service. Type of data: 1 – PCS (Basic); 3 – Correction; 5 – Cancellation. Code: 27. Arrival: month 20-29, day 30-31, year 32-33. Departure: month 34-35, day 36-37, years 38-39. Country: Vietnam. Omit: 40-42. Recorded values: code 1, month 12, day 29, year 61, omit 772.
+
+TDY dates of service. Type of data: 2 – TDY (Basic); 4 – Correction; 5 – Cancellation. Code: 27. Departure: month 20-29, day 30-31, year 32-33. Return: month 34-35, day 36-37, years 38-39. Omit: 40-42.
+
+Source of record document: Travel voucher; V; Dispatch. Cable. Duty status or time and attendance report. Other (specify). Document identification.

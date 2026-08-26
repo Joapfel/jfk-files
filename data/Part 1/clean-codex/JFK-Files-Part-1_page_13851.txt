@@ -1,0 +1,11 @@
+Entrada: El profesor de parte del doctor pregunta a ROGELIO si ya recibió esas medicinas, y éste dice que todavía no ha llegado nada, pero le hace falta que el doctor mañana lo pudiera enviar si tiene algo para ROGELIO. HF acepta.
+
+ROGELIO pregunta cómo está “nuestro amigo el chino” y HF dice que está buscando que lo inviten a comer, porque éste solo vino a arreglar un negocio de unos casimires que tienen, ya que viene acá para surtirse, pero le dijo a HF que se va pasado mañana o un día más. HF llamó a ROGELIO el sábado y el viernes, pero se aburrió de estarlo llamando, sobre todo por las medicinas del doctor, ya que eso es un tedio para HF.
+
+ROGELIO pregunta si sería buen día el miércoles. HF: “De todas maneras. Usted dice que tiene que entregarle a él un muestrario médico a este hombre, ¿no?”. ROGELIO: “Ajá, entonces me lo manda mañana por aquí”. HF: “Entonces yo le voy a decir a este hombre, a ver qué, ¿verdad?”. ROGELIO: “Sí, entonces yo lo espero mañana por acá”. HF pregunta a qué horas estará y ROGELIO dice que toda la mañana. HF pregunta: “¿Que entonces él llegará pasadas las 10:30 h?”. ROGELIO: “Correcto”. 10:27.
+
+Entrada: ESPEJEL pregunta por ROGELIO y JORRIN dice que no ha llegado. ESPEJEL: “Entonces irá para la embajada porque quedó de estar con él a las 10:30 h”. JORRIN: “Está bien”.
+
+10:00 h.
+
+Entrada: HF pregunta por RODRÍGUEZ y JORRIN dice que no ha llegado y es posible que no se vea porque hoy llega avión. HF pregunta por el embajador y JORRIN informa que no está.

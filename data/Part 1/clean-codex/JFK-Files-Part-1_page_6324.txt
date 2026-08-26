@@ -1,0 +1,58 @@
+Pre-interval codes.
+
+First code they will use in the following:
+
+Band of 40 meters.  
+7,500 kilocycles.
+
+Clave Leon.
+
+Agent 13, identified only as “Elidio,” radio technician.
+
+Broadcast time: 8:30 a.m. or 8:30 p.m., Las Villas.
+
+The code name to be used when transmitting will be CUEVARRILLERO.
+
+A: Pez 185; B: ARADO 000-70; C: DIA; D: LIBRE; E: LOVA 90; F: 000-23; G: LUZ 00-14; H: CALMAN.
+
+M: 140-2; N: LUNA; Ñ: 0023; O: SAPO; P: CARRO; Q: 122-9; R: 8-180; S: 00-78; T: GATO; U: SULLON 51-3; V: 614.
+
+X: 33-1; Y: COTORRA 109-18; Z: 802-3.
+
+Code for numbers:
+
+1. 345-20.  
+2. 893-104.  
+3. CANON-00.  
+4. 657-6.  
+5. 00-2150.  
+6. ALCATRAZ.  
+7. SICLON.  
+8. 2000-17.  
+9. 56-00.  
+0. 34-18.
+
+Punto entre palabra y palabra.
+
+Second code to be used—they will use one code one day and the other the next:
+
+Some band.  
+Same frequency.  
+Some time.
+
+Code’s name “PURCO” to indicate which code is being used.
+
+Agent 13.  
+Las Villas.
+
+The same code name CUEVARRILLERO will be used when transmitting.
+
+A: 124; M: PALOMA; S: CIELO; U: 419.  
+B: PEZ; J: 654; O: 810; V: 000-4.  
+C: LUNA-LLENA; J: 35; P: 93.2; V: 00-61.  
+D: CAID; K: 17-23; Q: 51-33; X: 6790.  
+E: 172; L: 43-4; R: 125; Y: PLANO.  
+F: BURRO; M: 180-9; S: CAMPO; Z: CADIAN.  
+C: 840; F: 14-63; T: 340-5.
+
+Punto entre palabra y palabra.

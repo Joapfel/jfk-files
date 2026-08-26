@@ -1,0 +1,10 @@
+Country: Sudan; Actual: 0; Potential: 1.  
+Country: Syria; Actual: 2; Potential: 1.  
+Country: Thailand; Actual: 1; Potential: 0.  
+Country: Tunisia; Actual: 0; Potential: 0.  
+Country: United Arab Republic; Actual: 5; Potential: 4.  
+Country: Uruguay; Actual: 1; Potential: 0.  
+Country: Venezuela; Actual: 3; Potential: 1.  
+Country: Vietnam; Actual: 0; Potential: 1.  
+Country: Yemen; Actual: 1; Potential: 0.  
+Totals: Actual: 42; Potential: 58.

@@ -1,0 +1,17 @@
+Occupation. Last employer. Employer’s or own business address: street and number, city, state, country. Military service: from, to, branch of service. Country. Details of other government service, U.S. or foreign.
+
+Section 7. Brothers and sisters, including half-, step-, and adopted brothers and sisters.
+
+1. Full name: not applicable. Age. Present address: first, middle, last; street and number, city, state, country. Citizenship.
+
+2. Full name. Age. Present address: first, middle, last; street and number, city, state, country. Citizenship.
+
+3. Full name. Age. Present address: first, middle, last; street and number, city, state, country. Citizenship.
+
+4. Full name. Age. Present address: first, middle, last; street and number, city, state, country. Citizenship.
+
+5. Full name. Age. Present address: first, middle, last; street and number, city, state, country. Citizenship.
+
+Section 8. Father-in-law.
+
+Full name: not applicable. First, middle, last. Living or deceased. Date of decease. Cause. Present or last address: street and number, city, state, country. Date of birth. Place of birth. If born outside U.S., indicate date and place of entry. Citizenship. When acquired? Where? City, state, country. Occupation. Last employer.

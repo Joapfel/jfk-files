@@ -1,0 +1,17 @@
+041401Z SEP 69 CITE BUENOS AIRES 3515
+
+Director info Panama City.
+
+RYBAT AQUATIC REDTOP BIOGENESIS AELANYARD.
+
+4 Sep 69 IN37021.
+
+Refs: A. Buenos Aires 3467 (2/9230); B. Buenos Aires 2887; C. Buenos Aires 2483; D. Buenos Aires 3442 (4/65-79); E. Director 90984.
+
+1. Ref A work completed. Installation report follows via pouch.
+
+2. During routine LP inspection morning 3 September, found line six SWA-3A dead again. Same problem reported three times previously via refs B, C and D. Per ref E, first two failures determined by headquarters to be probably result of electrical storm.
+
+3. Since this occurs always on line six, with one additional failure on line seven, perhaps some other influence present, such as possible line short, etc. Change of UWTP-9 did not alter situation.
+
+4. Request WOACRE comments.

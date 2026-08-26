@@ -1,0 +1,5 @@
+Position Control Register.
+
+KART Division. Position Field. Folio–TAKRO Station.
+
+Aim; Grade Series; Occupation Series; Grade; Planned Increment; Position Number; C.A.S.D.; Employee Number; Year of Birth; Date of Grade; PCS O/S Date; Station Code; Development Complement; Organization–Position Code; Comments.

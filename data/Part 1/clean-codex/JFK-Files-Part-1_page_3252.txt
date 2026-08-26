@@ -1,0 +1,7 @@
+Personality File Action Request. Note: See instructions on reverse side of card. Type or print. Guide for use of 201 system is contained in CSRB 70-1-1, Chapter III, Annex B.
+
+To: RD/201 Section. Off Station: The Date. 1. Action: Open, Authorize, Cancel. From Name. Branch. Room No. Phone. Check 7-4 for 201. Request, do not check for 100. 2. Exclude the name from machine list if: Restricted. Yes. Yes. No.
+
+S. 201 No. SIN No. 6. Source Document. Date. 7. Name (Last), (First), (Middle). 8. Ser W F Yes No. 9. Photo. Name Variations. Type Name: (Last), (First), (Middle).
+
+D D T. Y. 4. Country of Location. Code. 16. Organization or Intelligence Affiliation. Code. 17. Occupation (Clear text). Code. 18. Action Desk. Code. 19. Secondary Desk. Code. 20. Cryptography. Hand carry if true name appears above. 21. Comments. 22.

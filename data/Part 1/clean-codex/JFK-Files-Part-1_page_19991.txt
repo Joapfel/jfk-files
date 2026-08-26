@@ -1,0 +1,7 @@
+Section A: Marital Status. Present status (single, married, widowed, separated, divorced, remarried): specify. Name of spouse (last, first): Made; Mode. Date of birth. Place of birth (city, state, country). Occupation. Present employer. Citizenship. Former citizenship(s), country(ies). Date U.S. citizenship acquired.
+
+Section X: Dependent Children and Dependents Other Than Spouse. Name, relationship, date and place of birth, citizenship, permanent address.
+
+Section XI: Professional Societies and Other Organizations. Name and chapter. Address (number, street, city, state, country). Date of membership: from; to.
+
+Date: 5 June ’67. Signature of employee.

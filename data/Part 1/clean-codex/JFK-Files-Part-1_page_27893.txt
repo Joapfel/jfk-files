@@ -1,0 +1,7 @@
+Applicant Coding Data. Fields: ID, applicant number, name (G-digits must contain 20 digits), date of birth, date coded, three-letter name, employee number, date submitted, month, day, year.
+
+Language Coding Data. Form 444C. Fields: ID, employee number, three-letter name, code (C-A-D), language data before test, date code, reading, writing, pronunciation, speaking, understanding, translation, year.
+
+Language Proficiency Test Data. Name: KEE. Date code: BL18. Reading: I. Writing: E. Speaking: E. Understanding: I. Translation: 4. Year: 62.
+
+Language Data After Test. Base code: BL18. Writing: I. Pronunciation: E. Speaking: E. Understanding: I. Translation: 4. Year: 65. Date for test: 8/4/5. Extracted from: Language AW.

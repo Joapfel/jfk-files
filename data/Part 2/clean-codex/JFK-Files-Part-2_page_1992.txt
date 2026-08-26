@@ -1,0 +1,9 @@
+Space below for exclusive use of the Office of Personnel.
+
+19. Action Code: 37. 20. Employ Code: 10. 21. Office Coding Numeric: 43620 DOD. 22. Station Code: 75007. 23. Integ ree Code: 2. 25. Date of Birth: 03/19/11.
+
+28. NTE Expires. 29. Special Reference. 30. Retirement Data Code: 1—CSC; 2—PICA; 3—NONE. 31. Separation Data Code. 32. Correction/Cancellation Data: EOD Data.
+
+35. Vet. Preference: 0—NONE; 1—S.P.T.; 2—T.O.T. 36. Serv. Comp. Date. 37. Long. Comp. Date. 38. Career Category: 0—WAIVER; 1—YES. 39. FEGLI / Health Insurance: Health/Ins Code.
+
+41. Previous Government Service Data.

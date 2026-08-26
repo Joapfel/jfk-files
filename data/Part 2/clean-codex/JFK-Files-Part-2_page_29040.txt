@@ -1,0 +1,25 @@
+Weekly Work Plan/Time Report.
+
+Salesman Bache and Co. 1972, number 4503.
+
+Customer name; present customer date of order; contract planned date; pre-NTL; TEL; PRO; sold price; pre-remittance action price noted; approval date; revenue booked amount; Cali. hours time; commercial expense notes.
+
+M. F. R. Mfg. Co.; date of order: 12-1-71; sold price: .367; approval date: 1-12-71; revenue booked amount: 3.82.
+
+C. S. Smith Mfg. Co.; date of order: 12-21-71; sold price: .367; approval date: 1-12-71; revenue booked amount: .982.
+
+D. P. D. Cdn.; date of order: 12-20-71; planned date: 5/24; pre-NTL: Bru.; sold price: 123 1/2; approval date: 1-6-72; revenue booked amount: 122 1/2%; Cali. hours time: (67.50).
+
+J. H. R. Mfg. Co.; date of order: 1-19-72; sold price: 24.05; approval date: 1-18-72; revenue booked amount: 25.00; commercial expense notes: 225.
+
+I. O. Mfg. Co.; date of order: 1-6-72; sold price: 101.20; approval date: 1-24-72; revenue booked amount: 102.76; commercial expense notes: 73.
+
+R. L. Kirtley; date of order: 1-20-72; sold price: 24.65; approval date: 2-2-72; revenue booked amount: 25.15; commercial expense notes: 96.
+
+E. W. Kirtley; date of order: 2-3-72; sold price: 24.90; approval date: 4-7-72; revenue booked amount: 25.60; commercial expense notes: 150.
+
+A. M. Kirtley; date of order: 2-8-72; sold price: 24.93; approval date: 2-8-72; revenue booked amount: 25.10; Cali. hours time: {139.00}.
+
+L. A. Kirtley; date of order: 1-26-72; sold price: 123.00; approval date: 2-8-72; revenue booked amount: 121.90.
+
+M. F. Kirtley; date of order: 3-8-72.

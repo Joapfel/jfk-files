@@ -1,0 +1,7 @@
+Standard Subfile List for Foreign Countries.
+
+Countries: Voltaic Republic, subfile 390; Wales, subfile 328; West Irian, subfile 357; Yemen, subfile 334; Yugoslavia, subfile 272; Zambia, subfile 351; Stateless, subfile 361.
+
+Areas: Asia, subfile 301; Africa, subfile 302; Central America, subfile 354; Europe, subfile 304; Latin America, subfile 307; Middle East, subfile 350; North America, subfile 305; South America, subfile 306; Western Hemisphere, subfile 307.
+
+Revised April 25, 1969.

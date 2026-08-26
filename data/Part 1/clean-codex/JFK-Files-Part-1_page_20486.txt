@@ -1,0 +1,9 @@
+Name: Dorothy I.; relationship: wife; year of birth: 1920; sex: F; citizenship: USA.
+
+Name: Lisa Tiffany; relationship: daughter; year of birth: 1951; sex: F; citizenship: USA.
+
+Name: Heaven Tetterdole; relationship: ditto; year of birth: 1953; sex: F; citizenship: ditto.
+
+Name: Howard St. John; relationship: son; year of birth: 1954; sex: M; citizenship: ditto.
+
+Additional comment and/or continuation of preceding items.

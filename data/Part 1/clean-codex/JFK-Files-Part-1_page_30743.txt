@@ -1,0 +1,7 @@
+To: Office of Personnel, Transactions and Records Branch, Status Section. Serial No. E/2773. Last: Miller. First: W. N. Scott.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert appropriate code number in “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year. Refer to Off. No. 59, revised.
+
+PCS dates of service. Arrival O/S: month, day, year. Departure O/S: month, day, year. Type of data: 1—PCS (Basic); 3—Correction; 8—Cancellation. S/P use only. Country code.
+
+TOY dates of service. Arrival O/S: week, day, year. Departure O/S: month, day, year. Type of data: 2—TOY (Basic); 4—Correction; 8—Cancellation. S/P use only. Area(s).

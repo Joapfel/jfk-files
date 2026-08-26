@@ -1,0 +1,39 @@
+Samuel and Phyllis Ruby.
+
+Supplement to Schedule D.
+
+Shares: 200; Description: Trans America Inc.; Sale price: $1,738.00; Purchase price: $1,681.00; Gain (Loss): $58.00.
+
+Shares: 200; Description: Tool Research and Eng.; Sale price: $3,147.00; Purchase price: $4,534.00; Gain (Loss): ($1,387.00).
+
+Shares: 100; Description: Nat'l Health Ent.; Sale price: $615.00; Purchase price: $1,724.00; Gain (Loss): ($1,109.00).
+
+Shares: 100; Description: Botany Ind.; Sale price: $541.00; Purchase price: $1,105.00; Gain (Loss): ($564.00).
+
+Shares: 100; Description: Datatron Processing; Sale price: $336.00; Purchase price: $529.00; Gain (Loss): ($193.00).
+
+Shares: 200; Description: Castleton Ind.; Sale price: $814.00; Purchase price: $1,479.00; Gain (Loss): ($665.00).
+
+Shares: 100; Description: Computer Equipment; Sale price: $492.00; Purchase price: $1,219.00; Gain (Loss): ($727.00).
+
+Shares: 100; Description: Computer Equipment; Sale price: $984.00; Purchase price: $2,463.00; Gain (Loss): ($1,479.00).
+
+Shares: 100; Description: Computer Inv.; Sale price: $857.00; Purchase price: $1,648.00; Gain (Loss): ($791.00).
+
+Shares: 100; Description: Computer Inv.; Sale price: $830.00; Purchase price: $1,661.00; Gain (Loss): ($831.00).
+
+Shares: 100; Description: Adams Russell; Sale price: $492.00; Purchase price: $1,194.00; Gain (Loss): ($702.00).
+
+Shares: 100; Description: Cinerama Inc.; Sale price: $432.00; Purchase price: $967.00; Gain (Loss): ($535.00).
+
+Shares: 100; Description: Summit Org.; Sale price: $358.00; Purchase price: $840.00; Gain (Loss): ($482.00).
+
+Shares: 100; Description: Summit Org.; Sale price: $480.00; Purchase price: $840.00; Gain (Loss): ($361.00).
+
+Shares: 100; Description: Itel Corp.; Sale price: $1,685.00; Purchase price: $1,660.00; Gain (Loss): $25.00.
+
+Shares: 100; Description: Asamere Oil Co., Ltd.; Sale price: $1,512.00; Purchase price: $1,507.00; Gain (Loss): $5.00.
+
+Shares: 100; Description: Saxon Ind.; Sale price: $2,078.00; Purchase price: $2,041.00; Gain (Loss): $38.00.
+
+Shares: 100.

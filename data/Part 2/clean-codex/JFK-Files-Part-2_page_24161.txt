@@ -1,0 +1,35 @@
+Project/Entity: LPTACITC (continued). Highest net equity balance on Agency records, 1952–1974; net worth balance, 31 December 1974.
+
+LPABOUT: highest net equity balance $1,000.
+LPACTION: highest net equity balance $4,300.
+LPADVANCE: highest net equity balance $20,000; net worth balance $3,600.
+LPALONE: highest net equity balance $6,000; net worth balance $400.
+LPASSIST: highest net equity balance $2,500.
+LPBAIL: highest net equity balance $11,400.
+LPBANJO: highest net equity balance $1,900; net worth balance $1,200.
+LPBEAVER: highest net equity balance $2,200.
+LPBRAID: highest net equity balance $2,200; net worth balance $1,800.
+LPBRICK: highest net equity balance $4,200.
+LPCAMEO: highest net equity balance $2,000.
+LPCAREFREE: highest net equity balance $16,000.
+LPCEMENT: highest net equity balance $64,000; net worth balance $86,200.
+LPCHANNEL: highest net equity balance $500.
+LPCHAOS: highest net equity balance $2,500.
+LPDAIS: highest net equity balance $31,000; net worth balance $20,500.
+LPDARE: highest net equity balance $21,000.
+LPDECOR: highest net equity balance $98,700.
+I DOLLOP: highest net equity balance $3,000.
+DOUBLE: highest net equity balance $4,700; net worth balance $2,800.
+LPDRAGUN: highest net equity balance $7,000.
+LPOSUPE: highest net equity balance $19,000; net worth balance $3,600.
+LPELECT: highest net equity balance $1,300.
+LPEPIC: highest net equity balance $49,000; net worth balance $6,600.
+LPFINAL: highest net equity balance $1,100.
+LPFLASH: highest net equity balance $101,900.
+LPGAMP: highest net equity balance $15,400.
+LPGRASS: highest net equity balance $2,000; net worth balance $2,400.
+LPGLITTER (*): highest net equity balance $1,418,500; net worth balance $132,000.
+LPIIMPORT: highest net equity balance $1,100.
+LPKAYO: highest net equity balance $700.
+LPKILT: highest net equity balance $10,600; net worth balance $7,800.
+LPKITTY.

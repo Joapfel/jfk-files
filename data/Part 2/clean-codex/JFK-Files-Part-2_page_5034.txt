@@ -1,0 +1,29 @@
+SENSIND: RYBAT
+
+MHFNO: 95-0517690
+
+Action: NR/CEDEF (387). Info: C/ORMS, CE/R/IO, CE/TNI, CIC/CEG, CIC/NR, CIC/OG, CP/NRCBW, LIMITO, MDSX, NRDORECORD, ODPD, FILE, CED/CIC (2/W).
+
+95 0517690 ASR, page 001, IN 0517690. TOR: 241217Z May 95. BOSTON 28688.
+
+Staff, 241210Z May 95.
+
+Cite Boston 28688.
+
+To: Director.
+
+For: LIMIT NR/CEDEF. Info: CP/NRCBW, CE/R/IO, CIC/NR, CED/CIC.
+
+Slugs: WNINTEL, MXBLAZE, GTRUFF, MXWINDFALL.
+
+Subject: A. Briefing of MXWINDFALL/1 for TDY to Russia. B. Turnover of MXWINDFALL/1 from NOC JAGGER to NOC CORDLE.
+
+Reference: Director 278086 95 0418438.
+
+Text:
+
+1. Background: Evening 18 May 1995 Boston Station NOC officers JAGGER and CORDLE met with MXWINDFALL/1 (W/1) at his residence in Rhode Island. Purpose of the meeting was to brief W/1 on his upcoming TDY to Russia for attendance at the 3rd International Meeting—Nuclear Physics for Protection of the Environment (NPPE-95) at Dubna, Russia, and to introduce NOC CORDLE as his future C/O. Meeting lasted five hours and included a strong defensive briefing for high-risk travel and a general discussion of intelligence requirements. Evening also included a cordial dinner at a local Chinese restaurant and a home movie. W/1 insisted NOCs watch on his new high-tech TV and sound system, of which he is extremely proud.
+
+3. CI Briefing: W/1 was given an overview of CI and security concerns for U.S. travelers to Russia involved in defense-related and scientific areas. W/1 listened attentively and asked the appropriate questions, but without appearing threatened or frightened. Purpose was to heighten his awareness of potential approaches and to instruct him in the proper deportment while attending conferences and visiting scientific facilities. W/1 was told to avoid any appearance of impropriety, which was defined as acting in a manner inconsistent with his professional interests. He was encouraged to make professional contacts and accept invitations to facilities consistent with his professional interests.
+
+4. Plans: W/1 departed U.S. on 21 May and plans to return.

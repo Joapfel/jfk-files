@@ -1,0 +1,7 @@
+CI 105-7038.
+
+IS: One agent, 30 percent; one agent, 40 percent; one agent, 25 percent; three agents, 10 percent; one agent, 10 percent; six agents, 5 percent; two agents, 2 percent; four agents, 5 percent.
+
+CIM: One agent, 50 percent; one agent, 20 percent; one agent, 25 percent; three agents, 0 percent; one agent, 25 percent; six agents, 5 percent; two agents, 8 percent; four agents, 0 percent.
+
+End.

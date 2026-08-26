@@ -1,0 +1,3 @@
+Approved for payment. Corr. No. 30214789. ACN: 000-000-000. Microcode: 0000-0000-0000. Date: 06/05/2021. Time: 10:00 AM.
+
+Account No. 123456789. Payee: Bank A, Branch B. Description: ACH Transfer - Card to Card. Status: Checked.

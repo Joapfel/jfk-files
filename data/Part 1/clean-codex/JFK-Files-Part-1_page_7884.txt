@@ -1,0 +1,15 @@
+PRECEDENT. HMM-11.179. TDCS-314/08252-67.
+
+Info: VR file, ADDP. CA 2, CA/PEG, CA/PROP, CI/OPS, CI/IC 2, FI, FI/D CS/DD FI/INT 6, SOD 4, CA/O 4, CI, CI/PS, CI/SP, FI/SPG, RI/AN, CS/SGO, NE 12, WH 8, SB/MC 6, SB/S/RR 3, DO 5, SB/C 5.
+
+081940Z, cite Mexico City 1707. Priority Director info Priority Panama City, Monterrey (pouch).
+
+Intel.
+
+8 June 67. W1 85325.
+
+SUPDATA: Source Raymond A. Fradyer from subjects during consular officers meeting 7 June. No liaison. RI index. Ref Director 07730.
+
+Filed: 081940Z.
+
+201-285412

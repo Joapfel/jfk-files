@@ -1,0 +1,9 @@
+Arrival O/S. Departure O/S. Type of data code: 1 – PCS (Basic); 3 – Correction; 0 – Cancellation. O/P use only code: 37. Country code: 38, 39. DHILLINGS: 575.
+
+TOY dates of service. Arrival O/S. Departure O/S. Type of data code: 3 – TOY (Basic); 4 – Correction; 0 – Cancellation. O/P use only code: 37. Areas code: 38, 39; 40–42.
+
+Office of Personnel use only – punch area. Source document and certification. Travel voucher. Dispatch. Cable. Duty status or time and attendance report. Other (specify). Document identification by. Document date/period: 4 May 1971.
+
+Remarks. Prepared by. Report annotated on control document. Above data certified correct, based upon source document cited. DCD. Date. Signature. C O L L E G E. B T U S H I A N D R.
+
+This report will be filed in the Office of Personnel in the individual's official personnel folder.

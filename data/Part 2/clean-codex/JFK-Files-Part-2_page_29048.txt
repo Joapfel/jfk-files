@@ -1,0 +1,33 @@
+Schedules A&B—Itemized Deductions and Dividend and Interest Income, 1971. Department of the Treasury, Internal Revenue Service. Attach to Form 1040.
+
+Name as shown on Form 1040: Samuel and Phyllis Ruby. Social security number: 322-12-7997.
+
+Schedule A—Itemized Deductions (Schedule B on back).
+
+Medical and dental expenses not compensated by insurance or otherwise, including medicine and drugs, doctors, dentists, nurses, hospital care, and insurance premiums for medical care.
+
+Contributions—cash, including checks and money orders. Itemize according to instructions.
+
+1. One half, but not more than $150, of insurance premiums for medical care. Include in line 10 below.
+2. Medicine and drugs.
+3. Enter 1% of line 18, Form 1040.
+4. Subtract line 3 from line 2. Enter difference; if less than zero, enter zero.
+5. Balance of insurance premiums for medical care not entered on line 1.
+6. Other medical and dental expenses, including hearing aids, dentures, eyeglasses, and transportation.
+7. Total; add lines 4, 5, and 6.
+8. Enter 3% of line 18, Form 1040.
+9. Subtract line 8 from line 7. Enter difference; if less than zero, enter zero.
+10. Total deductible medical and dental expenses; add lines 1 and 9. $150.00.
+
+Taxes: 11. Real estate. 12. State and local gasoline. 13. General sales. 14. State and local income. 15. Personal property. 16. Other. 17. Total taxes; add lines 11 through 16. $743.31.
+
+18. Total cash contributions.
+19. Other than cash; enter total for such items.
+20. Carryover from prior years.
+21. Total contributions; add lines 18, 19, and 20.
+
+Interest expense: 22. Home mortgage. 23. Installment purchases. 24. Other. 25. Total interest expense; add lines 22, 23, and 24. $2,617.68.
+
+Miscellaneous deductions for child care, alimony, union dues, casualty losses, and other items. 26. Total miscellaneous deductions. $500.00.
+
+Summary of Itemized Deductions: 27. Total deductible medical and dental expenses: $150.00. 28. Total taxes: $743.31. 29. Total contributions. 30. Total interest expense: $2,617.68. 31. Total miscellaneous deductions: $500.00. 32. Total itemized deductions; add lines 27 through 31 and enter on Form 1040, line 47: $4,010.99.

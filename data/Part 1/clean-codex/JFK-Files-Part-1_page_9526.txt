@@ -1,0 +1,17 @@
+Application for Federal Employment.
+
+Select the correct response for each question. Applicant's information.
+
+Q1. What is your current position in the Federal government or civil service commissioning organization? 1. President of United States; 3. General Counsel; 4. Director of the Uniform Probation Office; 5. Assistant Attorney General.
+
+Q2. Which of the following statements about you is most accurate? (Select all that apply.) 2. Assistant Secretary of State; 4. Female; 7. No.
+
+Q3. What is your present grade and rank? 3. Male; 6. I am 18 years of age or older; 7. Not married; 10. Height in inches: 5 feet.
+
+Q4. How old are you? 5. 3 years (at least); 4. Married; 8. Single; Weight in pounds: 270 pounds; 6. Under 18; 9. Yes, but under 18; 7. I am a minor.
+
+Q5. Have you ever been employed by the Federal Government? No; Yes. If so, indicate your position and length of employment. Last job title.
+
+Q4. Are you currently employed by the Federal Government? No; Yes.
+
+Q6. Is this application for employment with the Federal Government in good order? Yes; No.

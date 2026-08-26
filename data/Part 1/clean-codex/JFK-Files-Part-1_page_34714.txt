@@ -1,0 +1,13 @@
+Continuation of Dispatch Indexing Information. Document symbol and number: UFGA-27514.
+
+Instructions: Insert “ASSIGN” after 201 if number needed.
+
+Surname: DIAZ Gonzalez. Given: Jose. Middle: L. Sex: F. Country of birth: Cuba. Citizenship: U.S. Other named: Efraely Sanchez, Maria de las Mercedes. Additional information: Mother-in-law’s name: Mónica (in Spanish: María). U.S. citizen: No (in Spanish: Sana). Middle name: 201-. City/town of birth: Los Pinos. Residence: 3145 SW 2nd St., Miami, Florida.
+
+Surname: ELREA Sanchez. Given: Maria de las Mercedes. Middle: Efraely. Sex: F. Country of birth: Cuba. Citizenship: U.S. Other named: FRANCISCO. Additional information: Mother-in-law’s name: Manlio (in Spanish: Matilde). U.S. citizen: No (in Spanish: Sana).
+
+Surname: PALMER Palmer. Given: Francisco. Middle: 201-. Sex: F. Country of birth: Cuba. Citizenship: U.S. Other named: ELLEN. Additional information: Widow of ROJAS Elrea, Anastasio (201-282302). Receives monthly supplemental payment for this name. Middle name: No 201. City/town of birth: Havana (Havanna).
+
+Surname: FERNANDEZ Villarino. Given: Lilia. Sex: F. Country of birth: Cuba. Citizenship: U.S. Other named: ALBERTO. Additional information: Widow of TAMARGO Gutierrez, Rolando (201-264309). Receives a monthly supplemental payment for this name.
+
+Surname: HEREDIA Gonzalez. Given: Silvia. Sex: F. Country of birth: Cuba. Citizenship: U.S. Other named: Occupation (OCECUPATION). Additional information: Widow of HUNDRA, Jorge (in Spanish: Juan), (in Spanish: María).

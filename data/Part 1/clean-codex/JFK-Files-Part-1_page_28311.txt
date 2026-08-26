@@ -1,0 +1,7 @@
+Action code: 45. Employer code: 10. Date of birth: 08/26/25.
+
+Separation data, BTA code: 1800091. Correction/cancellation data, type: AA AA AY. POD data, security requirement number: 24 SFK.
+
+Veterans preference code: 1 2371; 2 1278. Military service credit/LCO: 12 76S WZ; 2 NC. Migration code: P-77; E-ME. FEGLI/health insurance code: E-BARD; E-VRS.
+
+Previous government service data: 1 No previous service; 2 Took out in service; 3 Obtained service less than 12 months; 4 Left service more than 12 months. Leave data: G065. Flight charted code: E-PD9; E-ME. Federal tax data: No tax extensions; E-PD9; E-ME. State tax data: No tax extensions; E-PD9; E-ME.

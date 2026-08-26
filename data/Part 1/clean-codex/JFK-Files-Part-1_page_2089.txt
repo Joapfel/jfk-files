@@ -1,0 +1,11 @@
+Position Control Register. Department: BLA, JOHN C. STAFF.
+
+AN OFFICER; Rank: JW-3194.08; Grade: 14; Personnel Code: 1; Date of Birth: 8/8/82; Personnel Number: D; Work Group: 004737; Unit of Employment—Made By: C, Name: 21, Date: M, Code No.: 10; Allotment: 130600; Accounting Section: 0760; Total Account: 37987.
+
+HILL DILLARS D; Rank: C-9184.01; Grade: 13; Date of Birth: 3/5/82; Personnel Number: D; Total Account: 37864.
+
+SPORTS OFFICER; Rank: S-6288.08; Grade: 13; Personnel Code: 3; Date of Birth: 8/4/82; Personnel Number: A; Work Group: 007169; Unit of Employment—Made By: C, Name: 16, Date: F, Code No.: 10; Allotment: 030355; Accounting Section: 0499; Total Account: 37987.
+
+LAVENDER WINNIE B; Rank: B-0122.88; Grade: 12; Date of Birth: 3/8/82; Personnel Number: D; Work Group: 000421; Unit of Employment—Made By: C, Name: 21, Date: M, Code No.: 10; Allotment: 060852; Accounting Section: 0584; Total Account: 37987.
+
+KAGA GEORGE K; Rank: G-0183.88.

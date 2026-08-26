@@ -1,0 +1,17 @@
+Process Sheet for Domestic Contact Service Collections.
+
+For field use only. For headquarters use only.
+
+Field office: X. Report number: M. Request codes: I, K. Received: 0, 1, 2, 5, 8. Released: 0, 1, 7, 6, 3, 6, 8.
+
+F. Subject and area: Opinions of Noises Lopez Maldonado on possible presidential candidates (Honduras).
+
+G. Contact name, title, organization, address: Rogelio Cisneros, 549 de Leon Drive, Miami Springs, Florida. Individual No.: Type OO-E. Spatial publications, other reports: 45, 46. Released.
+
+H. Source (name, title, organization, address). Area: 1, 2, 3, 4, 5, 6, 7, 8, 9.
+
+Name. Subject.
+
+I. Sub-source (name, title, organization, address). Area: 1, 2, 3, 4.
+
+J. Method of collection: Interview. Trip report. Evaluation requested from. User-only exchanges: No. Responsive to specific requirements.

@@ -1,0 +1,9 @@
+T 180863. IN 695416. 19 April 1973. MEXI 23439.
+
+Staff message from Mexico City 23439 to Director, information DIRTECH, PANTECH, REDLEG, KOALCOVE TECHS. Reference: Mexico City 22902 (IN 850.665), 50-6-74/3.
+
+1. KDALCOVE photo experiments now concluded. Test photos and installation details are being forwarded by dispatch along with request for approval to install closed-circuit TV to minimize operator fatigue and maximize operator efficiency, although still troubled at times by traffic air pollution. Overall product is good quality and fulfills our requirements.
+
+2. Per discussions with TDY MKSPICE techs, TV system installation appears feasible. Also good possibility they may have needed equipment which could be made available on extended loan basis. If approved, MKSPICE photo tech would be requested to assist in installation.
+
+3. File: 50-6-74/2, E2: IMPDET.

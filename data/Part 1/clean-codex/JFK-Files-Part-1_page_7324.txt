@@ -1,0 +1,29 @@
+V. Family Set
+
+13. Marital Status
+
+13.01 Is he married? Yes / No.
+
+13.01.01 Is his wife with him? Yes / No.
+
+13.01.02 Does his wife go out socially with him? Never / Seldom / Average / Often. Average.
+
+13.01.03 Is his wife older than he, about his age, younger than he, or can't tell? Older than he.
+
+13.01.04 Is his wife unusually attractive, attractive to an average degree, or unusually unattractive? Attractive to an average degree.
+
+13.01.05 Generally speaking, is his wife socially poised, socially adequate, or socially gauche? Socially adequate.
+
+13.01.06 What languages other than her native language does his wife speak? Spanish.
+
+13.01.07 Is his wife better educated than he, less educated, or educated about the same? Better educated than he.
+
+13.01.08 Has he been married before? Yes / No / Can't tell. Can't tell.
+
+13.02 Does his wife seem to have many friends, a few friends, or almost no friends? Almost no friends.
+
+13.02.01 In public, is he very attentive to his wife, appropriately attentive to his wife, or indifferent towards his wife? Indifferent towards his wife.
+
+13.02.02 In public, is his wife very attentive to him, appropriately attentive to him, or indifferent to him? Indifferent to him.
+
+13.02.03 Would you characterize his wife as aggressive, domineering, independent, complacent, submissive, or dependent? Submissive.

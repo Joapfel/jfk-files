@@ -1,0 +1,5 @@
+Pouch Security Violation. Date: 7 April 72. Paragraph number: 2. Security regulation(s) violated: FR 10-315, 1 July 53, Para 2 b. (1) (a).
+
+Substance of violation: Ref: UFAA 4018. UFAA 4019: Use of crypt + true identity in same UFAA 4020 pouch. Specifically, this is the use of “Cuban defectors” in dispatch and sending the dispatch in pouch which has other dispatches of same format and basic subject, but using the crypt for Cuba.
+
+RID analyst.

@@ -1,0 +1,33 @@
+Name: Life Laboratory Officer; Position: Dept. C.A. Officer; Office: 10/3/78; Date of departure: 56180001C0J.
+
+Name: Office of the Chief; Position: CC. Joe Harris; Office: 10/24/78; Date of departure: 56180002C0J.
+
+Name: Office of the Chief; Office: 10/24/78; Date of departure: 56180003C0J.
+
+Name: Chief of Station; Position: OS 0136.0100; Office: 1 3002 1 D; Date of departure: 56180004C0J.
+
+Name: Chief of Station; Position: ABG-Willis Knoedl; Office: 0136.0116***; Date of departure: C 13 10.
+
+Name: Officer-DCS; Position: CS 0136.0115; Office: 1 3003 1 D.
+
+Name: Officer-DCS; Position: MILELF Robert (RODERT) P; Office: 03136.0115; Date of departure: C 19 10.
+
+Name: Station Officer; Position: OS 0136.0115; Office: 1 3036 1 D.
+
+Name: Station Officer; Position: John Samuel; Office: 0136.0115; Date of departure: C 22 10.
+
+Name: Officer; Position: CS 0136.0114; Office: 2 3005 2 D.
+
+Name: Officer; Position: Richard L; Office: 03136.0112; Date of departure: C 25 10.
+
+Name: Station Officer; Position: CS 0136.0114; Office: 3005 0; Date of departure: C 19 10.
+
+Name: Station Officer; Position: John Smith; Office: 03136.0114; Date of departure: C 17 10.
+
+Name: Assistant; Position: CS 0301.0209; Office: 1 3004 1 D.
+
+Name: Assistant; Position: Stan Watkin; Office: 0301.0209; Date of departure: C 10 10.
+
+Name: Station Officer; Position: CS 0318.0109; Office: 1 3005 1 D.
+
+Name: Station Officer; Position: John Smith.

@@ -1,0 +1,9 @@
+13. Father — full name, occupation, present residence, year and place of birth, nationality at birth and subsequent nationalities.
+
+14. Mother — same information as 13.
+
+15. Wife (or husband) — full name, maiden name, date and place of birth, date and place of marriage, nationality at birth and any subsequent nationalities, present residence, divorce, annulment. Give data for all previous marriages.
+
+16. Children — full names, sex, year and place of birth, nationality at birth and any subsequent nationalities, present residence.
+
+17. Brothers and sisters — same information as 16. None.

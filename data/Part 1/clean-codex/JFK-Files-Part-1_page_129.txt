@@ -1,0 +1,13 @@
+DOHB 70-1-1, Chapter III, Annex B. 15 November 1974.
+
+Sequence number: 0002. Name: Croix, William Pendleton. Sex: M. Date of birth: 12 April 1926. Place of birth: Germany, Berlin. Occupation: Pharmacist. Occupation code: CHEM. 201 number: 201-0032671*. Name type: T. Citizenship: Germany. OI codes: AA XX-. Reference: AACD-12345, 20 June 1953. Record date: 1953.
+
+Subject recently attended the seventeenth annual conference of the International Association of Chemists and Pharmacists held in Munich, Germany, from 22 through 29 October.
+
+Date of latest update of the record: 30 November 1970. STAR Index Record Number: 00833555.
+
+Information About Subject: Sequence Number and Name; Sex and Date of Birth; Citizenship; Place of Birth; Occupation; Occupation Code; Text.
+
+Document Reference Data Group: 201 Number; Name Type Indicator; OI Codes; Record Date (year only); Reference.
+
+ISC Control Information: Date of latest update of the record; STAR Index Record Number.

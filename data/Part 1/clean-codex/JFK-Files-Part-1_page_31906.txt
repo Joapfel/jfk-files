@@ -1,0 +1,5 @@
+Notification of Personnel Action.
+
+Name: Jesse Winter. Nature of personnel action: relocation. Category of employment: funds. Effective date: ME DA SER T E. Financial analysis: DSC C&A TACA T NONE. CSC or other legal authority: N/A. Position title: NSA. Classification schedule: GCS RS T NONE. Location of official station: relocation data code. Special care coding: Type. Service designation: MO DA SR. Grade and step: MGR SA. Salary or rate: JESSE WINTER.
+
+Action code. Employment code. Reference coding, numeric and alphabetic. Station code. Integer code. Height code. Date of birth. Date of grade. Date of LEI. SSN No. SSA No. SSD No. MSA No. NTE expires. Special reference code. Retirement data code. Separation data code. Correction/separation data type. EOD data. Security requirement No. SER. Vet preference code: 0 NONE, 1 SPT, 2-10 PT. SER comp date. Long comp date. Career category code. Premium health insurance code: SANITAR IN, TEMP, SAS. 3.45 SAS. Previous civilian government service. Leave category code.

@@ -1,0 +1,85 @@
+Form 1040 (1976)
+
+Part I: Income other than Wages, Dividends and Interest
+
+29. Business income or loss (attach Schedule C).
+
+30a. Net gain or loss from sale or exchange of capital assets (attach Schedule D).
+30b. 50% of capital gain distributions (not reported on Schedule D—see page 10 of Instructions).
+
+31. Net gain or loss from Supplemental Schedule of Gains and Losses (attach Form 4797).
+
+32a. Pensions, annuities, rents, royalties, partnerships, estates or trusts, etc. (attach Schedule E).
+32b. Fully taxable pensions and annuities (not reported on Schedule E—see page 10 of Instructions).
+
+33. Farm income or loss (attach Schedule F). (Does not apply if refund is for year in which you took the standard deduction—others see page 10 of instructions.)
+
+34. State income tax refunds.
+
+35. Alimony received.
+
+36. Other (state nature and source—see page 11 of Instructions).
+
+37. Total (add lines 29 through 36). Enter here and on line 12.
+
+Part II: Adjustments to Income
+
+38. Moving expense (attach Form 3903).
+
+39. Employee business expense (attach Form 2106).
+
+40a. Payments to an individual retirement arrangement from attached Form 5329, Part III.
+40b. Payments to a Keogh (H.R. 10) retirement plan.
+
+41. Forfeited interest penalty for premature withdrawal (see page 12 of Instructions).
+
+42. Total (add lines 38 through 41). Enter here and on line 14.
+
+Part III: Tax Computation
+
+43. Adjusted gross income (from line 15c). If you have unearned income and can be claimed as a dependent on your parent's return, check here and see page 9 of Instructions.
+
+44a. If you itemize deductions, check here, and enter total from Schedule A, line 40, and attach Schedule A.
+44b. Standard deduction—If you do not itemize deductions, check here, and:
+
+If you checked the box on line 2 or 5, enter the greater of $2,100 or 16% of line 43—but not more than $2,800.
+
+If you checked the box on line 1 or 4, enter the greater of $1,700 or 16% of line 43—but not more than $2,400.
+
+If you checked the box on line 3, enter the greater of $1,050 or 16% of line 43—but not more than $1,400.
+
+45. Subtract line 44 from line 43 and enter difference (but not less than zero).
+
+46. Multiply total number of exemptions claimed on line 6f by $750.
+
+47. Taxable income. Subtract line 46 from line 45 and enter difference (but not less than zero).
+
+If line 47 is $20,000 or less and you did not average your income on Schedule G, or figure your tax on Form 2555, Exemption of Income Earned Abroad, find your tax in Tax Table. Enter tax on line 16 and check appropriate box.
+
+If line 47 is more than $20,000, figure your tax on the amount on line 47 by using Tax Rate Schedule X, Y, Z, or if applicable, the alternative tax from Schedule D, income averaging from Schedule G, tax from Form 2555 or maximum tax from Form 4726. Enter tax on line 16 and check appropriate box.
+
+Part IV: Credits
+
+48. Credit for the elderly (attach Schedules R & RP).
+
+49. Credit for child care expenses (attach Form 2441).
+
+50. Investment credit (attach Form 3468).
+
+51. Foreign tax credit (attach Form 1116).
+
+52. Contributions to candidates for public office credit (see page 12 of Instructions).
+
+53. Work Incentive (WIN) Credit (attach Form 4874).
+
+54. Total (add lines 48 through 53). Enter here and on line 19.
+
+Part V: Other Taxes
+
+55. Tax from recomputing prior-year investment credit (attach Form 4255).
+
+56. Minimum tax. Check here and attach Form 4625.
+
+57. Tax on premature distributions from attached Form 5329, Part V.
+
+58. Self-employment tax (attach Schedule SE).

@@ -1,0 +1,11 @@
+Verified Record of Overseas Service.
+
+To: Office of Personnel, Statistical Reporting Branch, Room 192, Curie Hall.
+
+Employee serial no.: N032. Name of employee: Woods, James S. Office/component: S.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert the appropriate code number in the “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month and last two digits only for year.
+
+PCS dates of service. Type of data: PCS (Basic), code 27, arrival month 29.79, day 29.21, year 32.33, departure month 34.35, day 30.37, year 38.39, omit 40-42. Type of data: Correction, code 2. Type of data: Cancellation, code 1, arrival month 04, day 15, year 61, country: Japan, omit 375.
+
+TOY dates of service. Type of data, departure, return, areas, omit.

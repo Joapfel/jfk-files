@@ -1,0 +1,11 @@
+Verified Record of Overseas Service.
+
+To: Office of Personnel, Statistical Reporting Branch, Room 192, Curie Hall.
+
+Employee serial no.: 1-3 56735. Name of employee: Last: Broe; First: W. H. Am; Middle: V. Office/component: 44-29 51.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert appropriate code number in “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS dates of service. Type of data: 1 - PCS (Basic). Arrival: code 26; month 27-28; day 29-30; year 31-32. Departure: code 33-34; month 35-36; day 37-38; year 39-41. Country. Omit. Type of data: 2 - Correction. Type of data: 3 - Cancellation.
+
+TDY dates of service. Type of data: 2 - TDY (Basic). Departure: code 26; month 27-28; day 29-30; year 31-32. Return: code 33-34; month 35-36; day 37-38; year 39-41. Area (M). Omit. Type of data: 3 - Correction. Type of data: 4 - Cancellation. 26.

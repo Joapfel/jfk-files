@@ -1,0 +1,11 @@
+Organizational Element AC/WH/I: Ernest J. Tskerdanos; date in 16/6/69; date out 11/14/69; memo attached: yes.
+
+Organizational Element C/WH/B&F: Elliotte C. Want; date in 4/17, 18 JUN; date out: s/n.
+
+Organizational Element C/WH/SS: George R. Thompson.
+
+Organizational Element AC/WH/FI: David L. Smock; date in 21 June 69; memo attached: -.
+
+Organizational Element WH/EXO: Donald C. Marelius; date in 23 JUN 1969; date out 20 Jun.
+
+EPO: Encapsulated Program Operating System.

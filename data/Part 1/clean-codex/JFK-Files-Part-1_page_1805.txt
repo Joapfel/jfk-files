@@ -1,0 +1,7 @@
+DPD Support
+
+We recommend that the DD/S be given the responsibility for support to all projects under the control of DD/R, providing of course the necessary security safeguards, and that in the future no parallel support mechanism be developed in the Agency.
+
+Automatic Data Processing
+
+We believe the Automatic Data Processing Staff can properly remain under the DD/S inasmuch as this is a support mechanism, although we strongly recommend that the DD/S in consultation with other deputies concerned direct this staff to aggressively pursue the objective of automation in the Agency in such a way as to insure the ultimate compatibility of automatic data processing systems throughout the intelligence community.

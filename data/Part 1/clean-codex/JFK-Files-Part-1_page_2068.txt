@@ -1,0 +1,15 @@
+Position Control Register. Position Title and Incumbent Name; Schedule Level; Occupational Series; Grade; Plan Incumbency; Position Number; CA No.; Employee No.; Full Name.
+
+Far East (PAR EAST) Division. Foreign Field. FEJJKO – Tokyo Station. Office of the Chief.
+
+Chief of Station — Greg William V. Schedule level GS-0136-01; 09-0136-02. Occupational series CO; 17. Grade L; 15. Plan incumbency PINKSTER; 30002. Position number D. Employee number GREG; 30001. CA No. C; 18. Full name A; 17; GEORGE; 26001. 37987.
+
+RAS Officer-DODS — Ralph Morris J; Wheeler Robert P. Schedule level GS-0136-01; 08-0136-01; 08-0136-01. Occupational series KS; 18; 16. Grade L; 15; 16. Plan incumbency 30003; 30002; 30003. Position number 10; 0. Employee number 00009; 00007; 00007. CA No. C; 10; 10. Full name M; 18; 16; A; 10; 10; ROBERT; 30001; 30001; 30001. 37987; 37987; 37987.
+
+Secretary-Steno — Dodgell Sarah E. Schedule level GS-0316-01; 05-0516-02. Occupational series OS; 16. Grade L; 18. Plan incumbency 30008; 34000. Position number LS; D. Employee number 00006; 00007; 00007. CA No. C; 17; 17. Full name F; 18; 18; JOSEPH; 30004; 30004; 30004. 37987.
+
+Secretary Steno — Hancock Bette Janne. Schedule level GS-0314-01; 00-0316-01. Occupational series US; 57. Grade S; 49. Plan incumbency 44000; 44000. Position number SD; D. Employee number 00008; 00009; 00009. CA No. C; 30; 30. Full name F; 21; 21; JAMES; 30001; 30001; 30001. 37987.
+
+Internal Operations Branch (BRANC-). AFS Officer. Thompson Robert F.
+
+Officer. Greg Robert A. Charles W. Frank Lill.

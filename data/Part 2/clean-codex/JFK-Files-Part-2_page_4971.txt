@@ -1,0 +1,27 @@
+MHFNO: 96-3123036. SENSTIND: RYBAT.
+
+Action: C/EUR/NOR (729). Information: EUDORECORD, EUR/LGL, MDSX, ODPD, RYBAT, FILE, DC/EURN, CIC/EUR (3/W).
+
+96 3123036 ASO. IN 3123036. COPE 94608. TOR: 081248Z FEB 96.
+
+081247Z FEB 96 staff. Cite Copenhagen 94608. To: Immediate Director.
+
+For: Limit EUR/NOR. Information: DC/EURN, CIC/EUR, EUR/LGL.
+
+Slugs: WNINTEL_RYBAT.
+
+Subject: Release of classified document.
+
+Reference: Director 633349 96 3117723.
+
+Text:
+
+1. Action required: See paragraph 2.
+
+2. The fax station received appears to be incomplete. It contained a cover sheet, a one-page Copenhagen cable stating “no traces,” and the first page of a Director cable requesting traces on Lee Harvey Oswald. (Unless the missing portions of the Director cable have some bearing on Denmark, station cannot make a case against release of this material.) We would insist, however, that crypts be deleted—as reference indicated would be the case.
+
+3. Please keep us apprised of the date these documents will be released so that station may inform ambassador and our liaison service chiefs.
+
+4. CL by: 0716497. CL reason: 1.5(C). Decl on: X1.
+
+End of message.

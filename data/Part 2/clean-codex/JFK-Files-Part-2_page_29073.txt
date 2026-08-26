@@ -1,0 +1,21 @@
+Part II
+
+Ordinary Gains and Losses.
+
+5. Amount, if any, from line 2(a)(2).
+
+6. Amount, if any, from line 4(a)(2).
+
+7. Gain, if any, from line 21: 12248.
+
+8.
+
+9. Combine lines 5 through 8, enter here and also on the appropriate line as follows: 12248.
+
+(a) For all returns, except individual returns: Enter the gain or (loss) shown on line 9, on the line provided for on the return (Form 1120, etc.) being filed—see instruction E, for specific line reference.
+
+(b) For individual returns:
+
+(1) If the gain or (loss) on line 9 includes losses which are to be treated as an itemized deduction on Schedule A (Form 1040) (see instruction E), enter the total of such loss(es) here and include on line 29, Schedule A (Form 1040)—identify as loss from line 9(b)(1), Form 4797.
+
+(2) Redetermine the gain or (loss) on line 9, excluding the loss (if any) entered on line 9(b)(1). Enter here and on line 30, Form 1040.

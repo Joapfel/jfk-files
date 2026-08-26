@@ -1,0 +1,19 @@
+Customer Name; Present Customer Data; Type Business; Planned; Contract (Prem., Intl, Tel, Pro); Application Date; Revenue Booked (One Time, Monthly); Cali. Hrs +; Comments and Expense Notes.
+
+Prescription: 5% Acquired; Data; Sold; application date 3/18; one-time revenue Rice; monthly revenue (Date); comments Gainor(loss).
+
+Interim Research: 6% Acquired; Dat- A; application date 1-9-77; one-time revenue KOZAK; monthly revenue -; comments (Cost -).
+
+Comments: (Cost -).
+
+Vleis, Voisin & Co., Inc.: Present customer data Samuel D. Ruby (Only); application date 10-4-71; one-time revenue 30-23-71; monthly revenue 3-9-77-71; comments 36-.
+
+At'Gen'l Corp 5000 9-15-71; NY Sub 93-40%.
+
+N'tlGen'l Corp 5000 9-14-71; NY Sub 93-40%; application date 10-8-71; one-time revenue 30-51-71; monthly revenue 3-9-77-71; comments 34-.
+
+Pan-Amer. Airways 5000 10-8-71; 1 86-4.50%; application date 10-31-71; one-time revenue 26-57-71; monthly revenue 24-46; comments 212-.
+
+Amer. Airways 5000 9/14-71; 186 4.50%; application date 11-4-71; comments (38-).
+
+Bendec Corp 5000 10-13-71; V-93-50%; application date 11-18-7.

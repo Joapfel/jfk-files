@@ -1,0 +1,34 @@
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+28: No coverage. 29: No coverage. 30: No coverage.
+
+October.
+
+1: 900–1900; channel 1251; value 1251.
+2: 900–1900; channel 1159; value 1259.
+3: 900–1900; channel 1200; value 1222.
+4: 900–1900; channel 1103; value 1251.
+5: No coverage.
+6: No coverage.
+7: 900–1900; channel 1158; value 1235.
+8: 900–1900; channel 1219; value 1232.
+9: 900–1900; channel 1108; value 1210.
+10: 900–1900; channel 1031; value 1719.
+11: 900–1900; channel 1522; value 1733.
+12: 1000–1400; channel 1002; value 1015; 2 (Saturday).
+13: No coverage.
+14: 800–1900; channel 831; value 944.
+15: No coverage.
+16: No coverage.
+17: 900–1900; channel 1624; value 1649.
+18: 1200–1900; channel 1404; value 1437.
+19: No coverage.
+20: No coverage.
+21: No coverage.
+22: 1200–1900; channel 1305; value 1307.
+23: 1200–1900; channel N.A.+; value N.A.
+24: 1200–1900; channel N.A.; value N.A.
+25: 1200–1900; channel N.A.; value N.A.
+26: 1000–1600; channel N.A.; value N.A.
+
+*Not available.

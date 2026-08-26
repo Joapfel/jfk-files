@@ -1,0 +1,23 @@
+Name: MUNIZ, DONALD W.; SSN: 03108; SFN: 485105490; TE: 055849; Organization: CE AF; Termination date: 27 May 1977.
+
+Name: Vagnina, Daniele S.; SSN: 231640291; SFN: 641680; Organization: CE OTR; Termination date: 30 June 1977.
+
+Name: Weaver, Carol M.; SSN: 380361880; SFN: 586457; Organization: CE AF; Termination date: 10 May 1977.
+
+Name: West, Bill C.; SSN: 113332128; SFN: 015790; Organization: IC OSR; Termination date: 13 May 1977.
+
+Name: Williams, James H.; SSN: 578701385; SFN: 662217; Organization: CE LOG; Termination date: 30 June 1977.
+
+Name: Wolfe, Elizabeth L.; SSN: 412667301; SFN: 663774; Organization: CE OSIG; Termination date: 18 June 1977.
+
+Name: Woodyear, Frances A.; SSN: 579501526; SFN: 133351; Organization: CE EA; Termination date: 6 May 1977.
+
+Name: Meybaum, Heino W.; SSN: 565464787; SFN: 051918; Organization: CA EUR; Termination date: 10 June 1977.
+
+Name: Edger, Ruth C.; SSN: 447461282; SFN: 679606; Organization: CE LA; Termination date: 10 June 1977.
+
+Name: Kelley, Joseph B.; SSN: 579388251; SFN: 016617; Organization: Conslt: OGC; Termination date: 31 May 1977.
+
+Type Employee Codes. CE: Contract Employee. CA: Career Associate. IC: Independent Contractor. Conslt: Consultant. FN: FBIS Foreign National.
+
+Sara Tarchie. OP/CPD.

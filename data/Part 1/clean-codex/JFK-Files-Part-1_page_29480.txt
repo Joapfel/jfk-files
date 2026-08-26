@@ -1,0 +1,16 @@
+Life Insurance Application (Contract Life).
+
+Name of employee (P). Date of birth. Male [x]. Female [ ]. First name. Last name. Policy No. Attachment. Date. Total premium paid. Insurance for index use. Component. Room No. Bldg. Ext.
+
+Check appropriate block. Male [x]. Full-time employee. Female [ ]. Yes [x]. No [ ].
+
+Name of beneficiary (s). Relationship. Date signed. Signature of employer. Date.
+
+To:  
+Subject: Authority to Make Payroll Deductions.
+
+I hereby authorize you to deduct the sum of ______ per pay period from my salary starting with the pay period beginning ______. These deductions are to continue until terminated by me in writing.
+
+Signature.
+
+Pay to this order by ______ dollars. Perrine-Citizen Rideon Bank, Perrine, Florida.

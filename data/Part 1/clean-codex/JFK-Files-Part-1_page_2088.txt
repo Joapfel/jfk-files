@@ -1,0 +1,15 @@
+Position Control Register.
+
+Employee No. 94-05-06; date of hire: 1-17-89; age: 19; grade: A-17-89; position: SAE, MIRI Group Office; transferring employee: Mary Dee, 1/7/89; transferring employer: Kathy; transfer: Dan Jackson; status carrying: Station Manager; date of achievement: September 27, 1989.
+
+Employee No. 963-08-02; date of hire: 2-17-89; age: 20; grade: B-17-89; position: Harold; transferring employee: Joseph Brown; transferring employer: Joseph Brown; transfer: James Brown; status carrying: Station Manager; date of achievement: September 27, 1989.
+
+Employee No. 868-07-09; date of hire: 1-18-89; age: 16; grade: C-18-89; position: Linda Miller; transferring employee: John Roberts; transferring employer: John Roberts; transfer: Kimberly Wilkinson; status carrying: Station Assistant; date of achievement: September 27, 1989.
+
+Employee No. 948-09-03; date of hire: 1-28-89; age: 16; grade: D-18-89; position: Margie Farris; transferring employee: Thomas Lawrence; transferring employer: Thomas Lawrence; transfer: Albert Gardner; status carrying: Station Officer; date of achievement: September 27, 1989.
+
+Employee No. 963-09-07; date of hire: 2-18-89; age: 17; grade: E-18-89; position: Gregory Dickinson; transferring employee: Richard Cooper; transferring employer: Richard Cooper; transfer: Joe Kohler; status carrying: Station Officer; date of achievement: September 27, 1989.
+
+Employee No. 948-09-11; date of hire: 2-18-89; age: 17; grade: F-18-89; position: Bob Gordon; transferring employee: Steve Curry; transferring employer: Steve Curry; transfer: Kenneth Porter; status carrying: Station Officer; date of achievement: September 27, 1989.
+
+Employee No. 963-09-14; date of hire: 2-18-89; age: 17; grade: G-18-89; position: David Hobbs; transferring employee: Marsha Porter; transferring employer: Marsha Porter; transfer: Martha Porter; status carrying: Station Officer; date of achievement: September 27,

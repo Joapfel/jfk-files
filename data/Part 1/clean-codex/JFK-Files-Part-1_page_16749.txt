@@ -1,0 +1,7 @@
+Date: 034. To: Director. From: Bonn. Action: S/W 8. Info: ADCP, C/CA 2, C/C1, C/EE 3, S/C 2.
+
+6 April 1921Z 1963. Service. Operational immediate. Bonn 4460, IN 12661 A.
+
+C/S comment:
+
+Complete address line to read: “OPIM BRLN INFO OPIM DIR MEXI FRAN PAR1 CITE BONN 4460.”

@@ -1,0 +1,9 @@
+Verified Record of Overseas Service. To: Office of Personnel, Statistical Reporting Branch, Room 5 E-2506, Headquarters.
+
+Employee serial no.: 024345. Name of employee: Phillips, David A. Office/component: WH Division.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert appropriate code number in “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS dates of service. Type of data: 1 - PCS (Basic), code 27; arrival month 28-29, day 30-31, year 32-33; departure month 34-35, day 36-37, year 38-39; country 40-42. Type of data: 3 - Correction. Type of data: 5 - Cancellation.
+
+TDY dates of service. Type of data: 2 - TDY (Basic), code 27; departure month 28-29, day 30-31, year 32-33; return month 34-35. Area(s). Omit.

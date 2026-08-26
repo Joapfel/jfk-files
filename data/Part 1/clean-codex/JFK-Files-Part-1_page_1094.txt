@@ -1,0 +1,31 @@
+DOHB 70-1-1, Chapter III, Annex B
+
+15 November 1974
+
+Desk blocks on the 201 Personality File Action Request (Form 831). The standard listings available are:
+
+1. Alphabetical by surname, leading to a 201 number.
+2. Alphabetical by given name, leading to a 201 number.
+3. Alphabetical by cryptonym, leading to a 201 number.
+4. Numerical, leading to a surname.
+5. Numerical, leading to a cryptonym.
+
+Prohibited.
+
+FOL A China. 201 Surname Alpha List. 03 October 1973.
+
+Name; type name; date of birth; birthplace; occupation; citizenship; 201; active city; location.
+
+CHEN, SHOU I /7115/1343/5030/; CHEN, SHOU I /7115/1343/0001/; type A; date of birth 17JUL14; birthplace CHIN, KWANGTUNG; occupation DIPT; citizenship CHIN7; 201 0165401; active city CHIN; location HK.
+
+CHEN, SHOU I /7115/1343/0001/; CHEN, SHOU-JFN /6774/1108/0098; type A; date of birth 24JAN11; birthplace CHIN, ANDY; occupation DUSP; citizenship CCOM?; 201 0238859; active city CHIN; location CHIN.
+
+CHEN, SHOU JI; CHEN, SHOU-TAN; type A; date of birth 90; birthplace CHIN, FUKIEN, PROV.; occupation CHIN; 201 0178653; active city CHIN; location HK.
+
+CHEN, SHOU-KING /7109/1343/690; type A; date of birth 04JAN19; birthplace CHIN, MANCHUPIA, FCRT ARTH; occupation CHAT; citizenship CHIN?; 201 0234629; active city CHIN; location CUBA.
+
+CHEN, SHOU-SIH /7115/1109/001; type A; date of birth 21OCT08; birthplace CHIN, MUNCAN; occupation CHAT; citizenship CHIN7; 201 0179620; active city CHIN; location CHIN.
+
+CHEN, SHOU-YAI; type A; date of birth 12NOV22; birthplace CHIN, HUNAN; occupation CHAT; citizenship CHIN7; 201 0069796; active city CHIN; location HAK.
+
+CHEN, SHOU-SEI; type A; date of birth 19MAR45; birthplace CH.

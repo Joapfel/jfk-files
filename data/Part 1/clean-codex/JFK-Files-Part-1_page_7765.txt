@@ -1,0 +1,15 @@
+VII. Medical
+
+16. State of Health:
+
+16.01 To your knowledge, does he have any sort of health problem? No.
+
+16.02 Does his wife or children have any sort of health problem? Yes. Please explain: write?
+
+16.03 Has he ever indicated that he had health problems in the past? No.
+
+16.04 To your knowledge, does he regularly take pills or medication of any kind? No.
+
+16.05 Is he the kind of person who talks about his health and feelings to an average degree?
+
+16.06 When he feels bad, most people would never know it.

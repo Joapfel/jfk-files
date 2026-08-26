@@ -1,0 +1,19 @@
+Date: 065, 20 February 1962. Classified message. To: Director. From: Mexico City. Action: C/TSD 2. Info: COP, C/CI, C/FI 2, C/FI/D 4, C/WH 5, S/C 2*. Routing. 20 February 0709Z 62. Routine. IN 30585.
+
+DIR CITE MEXI 0144 (WARE ACTING)
+
+AQUATIC/LIERODE/MKTRAP
+
+1. Failure of audio in one SRT-9 at LIERODE makes immediate MKTRAP installation highly desirable.
+
+2. Latest investigation reveals target telephone is Ericsson model DBJ 510-512 with dial in base.
+
+3. Initial tests with MP-4 and 4-layer diodes indicate definite superiority in audio quality to basic MKTRAP circuitry and feasibility of concealment in instrument handle.
+
+4. Line to target reported by good authority as 2.7 miles, number 20 cable pair with series connection at central. Plan initial phase of instrument installation and LP equipment tests using LIFEAT.
+
+5. In view of possible requirement for shorter line length and question of security of series connection over extended period at central office, station considering use of LIENVOY engineer after initial phase for cable splice to shorten line to 1000 feet. This would reveal location of present LIERODE base to LIENVOY but would not necessarily reveal technique. Station, not LIENVOY, would control base and production.
+
+6. Request HQS comment.
+
+Reproduction by other than the issuing office is prohibited.

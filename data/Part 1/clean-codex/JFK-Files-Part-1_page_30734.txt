@@ -1,0 +1,13 @@
+Cover Control of Retirement Processing. File date: 8.30.75. To: Retirement Operations Branch, Office of Personnel. Retiree: John Smith, Jr. Category of employment.
+
+On the basis of a review of the records of the Cover & Commercial Staff, the following action is to be taken on processing retirement documentation for the person named above.
+
+Type retirement: Cover; Overt routine; Civil service; CIAROS; Cover (official cover) lock-up; Covert (NOC) special; Retention of awards; Correspondence; Overt; Covert; Yes; No; Thru CCS.
+
+Finances. Annuity payments should be: U.S. Gov't. check; Other (payment in attention follow). Tax documentation should be: CIA; CSC; Other (memo follows). Request transfer of funds from Civil Service Commission: Yes; No; Internal transfer.
+
+Insurance. FEGLI; Overt; Covert; Maintain records internally only. Type of hospitalization card: IDA. Authorization to convert insurance: Yes. Conversion must be approved by CCS.
+
+Reserve. Member of civilian reserve: Yes; No; Overt; Covert.
+
+Remarks. This section to be completed by Office of Security. No security obligations to above. Other instructions as follows.

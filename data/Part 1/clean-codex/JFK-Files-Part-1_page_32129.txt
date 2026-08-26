@@ -1,0 +1,31 @@
+Request for Medical Evaluation.
+
+Piccolo, Joseph S.  
+GS-13 All.  
+DOD/CI/OG/SO.  
+65441914.  
+012424.  
+Date of birth: 8 Dec 35.  
+Sex: M.
+
+Complete 13–19 for each dependent to accompany or return with employee only if “Dependent” is checked.
+
+Dependent name (F/M); Social Security number; chart number; date of birth (DMY); sex; relationship.
+
+20. Requested action (more than one action is acceptable).
+
+Applicant assignees: pre-employment; LOD; station; LTD ETA / R[e]m OTR; number of dependents to accompany on return; O/S PCS; for order; position; O/S TDY.
+
+Separation: O/S returnee; fitness for duty; O/S to[?] standby; return to duty; O/S planning; special training; retirement; MORI CIAROS. Other, if any.
+
+Routine: regular annual; executive annual; MDR CSC; MPT/PHE.
+
+21. Comments.
+
+22. Requesting directorate/office/division: DOD/PCS/CSS/Pers.
+
+23. Room/building: 2C43. Extension: 4013.
+
+25. Signature of requiring officer: Virginia L. Rogers.
+
+For OMS use only. For applicants. Approve processing for LOD.

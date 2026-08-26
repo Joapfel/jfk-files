@@ -1,0 +1,23 @@
+Name of manufacturer, name of computer, date of first installation, average or range of monthly rental ($000), number of installations in U.S.A., outside U.S.A., and in world, number of unfilled orders.
+
+Microdata Corp., Irvine, Calif. (A) (Sept. 1973): Micro 400/10; date of first installation: 12/70; monthly rental: 0.1–0.5; installations: U.S.A. 139, outside U.S.A. 0, world 139; unfilled orders: -.
+
+Microdata Corp., Irvine, Calif. (A) (Sept. 1973): Micro 800; date of first installation: 12/68; monthly rental: 0.2–3.0; installations: U.S.A. 2927, outside U.S.A. 810, world 3737; unfilled orders: -.
+
+Microdata Corp., Irvine, Calif. (A) (Sept. 1973): Micro 1600; date of first installation: 12/71; monthly rental: 0.2–3.0; installations: U.S.A. 914, outside U.S.A. 95, world 1009; unfilled orders: -.
+
+NCR, Dayton, Ohio (N) (R) (Oct. 1973): 304; date of first installation: 1/60; monthly rental: X; installations: U.S.A. 5, outside U.S.A. 2, world 7; unfilled orders: X.
+
+NCR, Dayton, Ohio (N) (R) (Oct. 1973): 310; date of first installation: 5/61; monthly rental: X; installations: U.S.A. 8, outside U.S.A. 0, world 8; unfilled orders: X.
+
+NCR, Dayton, Ohio (N) (R) (Oct. 1973): 315; date of first installation: 5/62; monthly rental: 7.0; installations: U.S.A. 255, outside U.S.A. 200, world 455; unfilled orders: -.
+
+NCR, Dayton, Ohio (N) (R) (Oct. 1973): 315 RMC; date of first installation: 9/65; monthly rental: 9.0; installations: U.S.A. 55, outside U.S.A. 35, world 90; unfilled orders: -.
+
+NCR, Dayton, Ohio (N) (R) (Oct. 1973): 390; date of first installation: 5/61; monthly rental: 0.7; installations: U.S.A. 160, outside U.S.A. 325, world 485; unfilled orders: -.
+
+NCR, Dayton, Ohio (N) (R) (Oct. 1973): 500; date of first installation: 10/65; monthly rental: 1.0; installations: U.S.A. 1100, outside U.S.A. 1750, world 2850; unfilled orders: -.
+
+NCR, Dayton, Ohio (N) (R) (Oct. 1973): 251; date of first installation: -; monthly rental: -; installations: U.S.A. 1; outside U.S.A.: -; in world: -; unfilled orders: -.
+
+NCR, Dayton, Ohio (N) (R) (Oct. 1973): Century 50; date of first installation: 2/71.

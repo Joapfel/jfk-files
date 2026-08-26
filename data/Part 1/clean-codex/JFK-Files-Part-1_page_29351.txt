@@ -1,0 +1,23 @@
+Notification of Personnel Action.
+
+1. Copy number.
+2. Name (if applicable).
+3. Assignee.
+4. Relocation date.
+5. Copy number.
+6. Action.
+7. Designation.
+8. Fund status.
+9. Organizational designations.
+10. Position title.
+11. Employee number.
+12. Effective date (full time) GS.
+13. Occupational levels.
+14. Grade and step (full time) leisure vacancy.
+15. Salary or rate.
+16. Employee number.
+17. Career service designation.
+18. Position number.
+19. Employee service number.
+20. Career path to be followed.
+21. Hospitalization: F. Plan.

@@ -1,0 +1,11 @@
+Position Control Register. Fields: Name, position, department number, employee number, date of start date, status code, start date, end date, station, committee members.
+
+Intelligence Staff. Officer; position GS-0136.01; department no. 14; employee no. 3856; date of start date 1D; status code 004717; start date C; end date 21; station 10; committee members 110655 0760 3757. Poll Williams; position GS 0136.01; department no. 13; employee no. 3856; date of start date D.
+
+Reports Officer; position GS-0132.58; department no. 13; employee no. 3046; date of start date +D; status code 000411; start date C; end date 21; station 10; committee members 060852 0958 37987. Kawa George M; position GS 0132.58; department no. 12; employee no. 3046; date of start date DU.
+
+Directary; position GS-0318.01; department no. 07; employee no. 3045; date of start date 1D; status code 033921; start date C; end date 21; station F; committee members 072262 37597. Brown Elfred K; position GS 0318.01; department no. 06; employee no. 3045; date of start date D.
+
+Research Translation Section. Officer; position GS-0136.01; department no. 13; employee no. 3830; date of start date 1D; status code 000344; start date C; end date 14; station 10; committee members 113058 1059 37587. Katizuka Takao; position GS 0136.01; department no. 13; employee no. 3830; date of start date DU.
+
+Officer; position GS-0136.01; department no. 12; employee no. 3055; date of start date *D; status code 000365; start date C; end date 16; station 10; committee members 021752 0357 3797. Mitsu Akira; position GS 0136.01; department no. 09; employee no. 3055; date of start date DU; status code 000447; start date C.

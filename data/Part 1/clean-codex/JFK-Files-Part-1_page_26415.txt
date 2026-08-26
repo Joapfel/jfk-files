@@ -1,0 +1,19 @@
+Classified message.
+
+From: Kingston. Action: C/SAS 5. Information: DOP, APOP, C/CI, C/FI/D 4, C/M, VR.
+
+T 221830Z.
+
+DIR INFO MEXI SDOM WAVE PASN CITE KNCS 1967.
+
+By: AMPIC ZRKNICK.
+
+WAVE 0374 (IN 03059).
+
+Victor Rico Calan arrived KNCS from SDOM 15 January 1964 on PAA flight 432. He continued the same date to MEXI on Mexicana flight 334. When checking in for the latter flight, airline personnel noticed he was accompanied by the following, who took the same flight and with whom he appeared to be traveling, as in a group:
+
+A. B. Nobuyuki Nikaido (Nkaido), see position 0371, not sent SDOM MEXI.
+B. Adalbert Cortesi, Mexican national.
+C. Emilio Paulon, Italian national, who also arrived KNCS from SDOM on PAA 432 with Rico.
+
+22 January 1964. 14 03663.

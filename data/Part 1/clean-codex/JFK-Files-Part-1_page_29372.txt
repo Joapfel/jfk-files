@@ -1,0 +1,9 @@
+Certification of Language Proficiency.
+
+Employee No. Name (last-first-middle). Type change: A = add, C = change, D = delete. Language data prior to test: code, language code, reading, writing, pronunciation, speaking, understanding, I/T, year. Language data after test: language code, reading, writing, pronunciation, speaking, understanding, I/T, year. Date tested. Date of birth.
+
+Notice to person tested: On the date shown in item 6 above, you were tested in [name of language] and your test scores are as follows: reading, writing, pronunciation, speaking, understanding. Test ratings: 0 = zero, I = intermediate, S = slight, H = high, E = elementary, M = native.
+
+Remarks. Signature. LD number.
+
+2 - Employee (through Training Officer).

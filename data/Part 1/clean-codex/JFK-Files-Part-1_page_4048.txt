@@ -1,0 +1,7 @@
+Production Potential - Shipyard
+
+Number of shrimpboats. Planned production. Demand in Nicaragua. Plant capacity. Years.
+
+Production Potential - Repair Yard
+
+Number of drydockings per annum. Planned production. Demand in North Carolina. Plant capacity. Years.

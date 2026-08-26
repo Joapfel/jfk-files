@@ -1,0 +1,9 @@
+Space below for exclusive use of the Office of Personnel.
+
+19. Action Code: US. 22. Employ (Code): 10. 25. Date of Birth: 10/22/00.
+
+19. Action Code: CS. 22. Employ (Code): 10. 25. Date of Birth: 10/22/00.
+
+28. NTE Expires. 29. Special Reference. 30. Retirement Data: Code 03H0000. 31. Separation Data Code. 32. Correction/Cancellation Data: EOD Data.
+
+35. Vet. Preference: ODE; 0—None, 1—SPT, 2—TO PT. 36. Serv. Comp. Date. 37. Long Comp. Date. 38. Career Category. 39. FEGLI / Health Insurance: Code; Q—Waiver, 1—Yes; Health Ins. Code.

@@ -1,0 +1,27 @@
+is a part of the evolution leading up to computers and that the basic cause of his failure was the inability to organize a complex society. In the very enjoyable Funco File (Cole), when the question is raised, "Has it become your ruler, your god ...?", the response is, "Well, no. Not exactly. It's more like where our technology triumphs have finally got us to. I guess you might say our real ruler was always an idea of what's normal or not. Conformity. I guess you'd call it ... I suppose the Machine — plus the F.D.I. — working together — have sort of externalized it once and for all." In the stories where there is a struggle between man and the computer, it is not a struggle to retain control but to get it back once it has knowingly been given away or unwillingly allowed to slip away.
+
+Consequences of Bigness
+
+The persistent theme in these stories is that of bigness — big states and big computer systems — and its consequences. This bigness is well described in an article by Weizenbaum. This article is important because it is one of the few expository statements of this serious theme.
+
+These often gigantic systems are put together by teams of programmers, often working over a time span of many years. By the time the systems come into use, most of the original programmers have left or turned their attention to other pursuits. It is precisely when gigantic systems begin to be used that their inner workings can no longer be understood by any single person or by a small team of individuals. ... This situation, which is now upon us, has two consequences: first that decisions are made on the basis of rules and criteria no one knows explicitly, and second that the system of rules and criteria becomes immune to change. ("On the Impact of the Computer on Society," pp. 612-613).
+
+What is the effect of this situation on individuals and on society? Two side effects are discussed by Weizenbaum.
+
+First of course, there is the psychological impact on individuals living in a society in which anonymous, hence irresponsible, forces formulate the large questions of the day and circumscribe the range of possible answers. ... But even worse, since computer-based knowledge systems become essentially unmodifiable except in that they can grow, and since they induce dependence and cannot, after a certain threshold is crossed, be abandoned, there is an enormous risk that they will be passed from one generation to another, always growing. (Ibid., p. 613)
+
+Computers Are Not Gadgets
+
+The reader may argue the degree to which these side effects are already present in our society, but, if he reads science-fiction, he cannot ignore them. While the first theme of the differences of man and machines may be the most repeated, this second theme is probably the most important. The science-fiction writers maintain their importance as poets of the "computer revolution" by redirecting our attention from the computer as "gadgets" to the computer as an integral part of the modern configuration of government-academe-industry-management which shares skills, resources, techniques, personnel, and goals. Just as our image of the scientist has changed from the man standing lonely vigil over a bubbling retort to prove his scorned hypothesis, the isolated computer with a programmed quirk, asked the wrong question or fed the wrong data, is no longer hero. Frankenstein's monster, or the more recent, Karl, Emmy, and Siema, for example, are very limited creations with identifiable creators, circumscribed environments, and restricted effects. We now have instead Shalmaneser, Project 79, Vulcan 3, Allied Mastercomputer, or simply, The Machine. The new computer-hero has remote access, varied input and output devices, processes large amounts of data supplied by different agencies, works in real-time, makes policy decisions based on quasi-mathematics, commands vast resources, and affects large numbers of people.
+
+Bibliography
+
+Fiction
+
+1. Anderson, Poul. "Sam Hall". Astounding Science Fiction, September 1953, as reprinted in (10).
+2. Asimov, Isaac. "Franchise". If, Vol. 5, No. 5, August 1955.
+3. "Someday". 1956, as reprinted in (23).
+4. Boulle, Pierre. "The Perfect Robot". Time Out of Mind, Vanguard Press, 1966 (quote p. 75, Signet edition, 1969).
+5. Brunner, John. Stand on Zanzibar. Ballantine Books, 1968, (quotes pp. 101, 645, 649).
+6. Burdick, Eugene. The 480. Dell Publishing Co., 1964.
+7. Caidin,

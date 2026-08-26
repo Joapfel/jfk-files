@@ -1,0 +1,5 @@
+19. Action Code: 37. 20. Employment Code: 10. 21. Office Coding—Numeric: 51400; Alphabetic: WH. 22. Station Code: 75013. 23. Interpretation Code: 1. 24. Maintenance Code. 25. Date of Birth: 11, 08.24.
+
+20. NTE Expires. 29. Special Reference. 30. Retirement Data—Code: CSC; 3. FICA; 8. NONE. 31. Separation Data Code. 32. Correction/Cancellation Data. 33. Security Req. No. 34. Sex: EOD Data.
+
+35. Vet. Preference. 36. Serv. Comp. Date—No. NONE; I–S PT; 2–10 PT. 37. Long. Comp. Date—PROV; TEMP. 38. Career Category. 39. FEGLI/Health Insurance. 40. Social Security No.—O. Waiver; 1–YES. Health IAS Code.

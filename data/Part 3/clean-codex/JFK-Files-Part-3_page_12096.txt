@@ -1,0 +1,13 @@
+Research Section.
+
+Front Office: Cases 0; Men 2; Average 0.  
+Central Research Unit: Cases 0; Men 5; Average 0.  
+Racial and New Left Reporting Unit: Cases 0; Men 4; Average 0.  
+Special Records Unit: Cases 0; Men 2; Average 0.  
+Total: Cases 0; Men 13; Average 0.
+
+* Combining two units frees one SIC to handle informants in Internal Security Section.
+
+** Will assume record keeping function for Security Informants.
+
+*** This low complement of Agent personnel should stand up when super clerks (4) are taken into account.

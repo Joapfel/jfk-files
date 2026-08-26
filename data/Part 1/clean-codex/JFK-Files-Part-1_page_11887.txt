@@ -1,0 +1,11 @@
+Action: Wtlc 8. Info: File, YR, Cilm.
+
+DIR CITE WAVE 7470  
+TYPIC AMTRUNK MHAPRON  
+Refs: A. UFGA-23252; B. UFGA-23254.
+
+Request status POA request for AMLUNT-2.
+
+CFN 7470 UFGA-23252 UFGA-23254 POA AMLUNT-2.
+
+IN 01451. 24 Nov 65. 201-334081. 24 Jan. 1965.

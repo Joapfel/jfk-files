@@ -1,0 +1,9 @@
+Schedule of Depreciation / Amortization.
+
+Equipment: date acquired 6/77; cost or other basis 2112; depreciable basis 2112; depreciation allowed prior years 0; remaining cost 2112; method S.L.; rate or life 10 years; depreciation for this year 106.
+
+Goodwill: cost or other basis 13200.
+
+Add 20% additional depreciation on items purchased this year.
+
+Total depreciation this year: 106.

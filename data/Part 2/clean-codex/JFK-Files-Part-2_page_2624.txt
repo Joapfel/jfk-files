@@ -1,0 +1,9 @@
+Action code: 37. Employment code: 10. Office coding numerics alphabetic: 51075 WH. Station code: 75013. Heading code: 1. Date of birth: 05 09 29.
+
+MTE expires. Special reference: CSC; FIGA; NONE. Retirement data code. Separation data code. EOD data.
+
+WET preference. Code: D - NONE; I - SPT.; 2 - TO PT. Service component date. Long component date. Career category: CCAN RES. ENVOY; DSN TEF. FEGLI/health insurance: D - WAIVER; 1. YES. Health insurance code. Social security number.
+
+Previous government service data: D - NO PREVIOUS SERVICE; 1 - NO BREAK IN SERVICE; 2 - BREAK IN SERVICE LESS THAN 3 YRS; 3 - BREAK IN SERVICE (MORE THAN 3 YRS.). Leave category code. Federal tax data: no tax exemptions; form executed: 1. YES; 2. NO. State tax data. Signature or other authentication.
+
+Group I: Record from automatic transcribing and transcription. Posted. 1165 HH.

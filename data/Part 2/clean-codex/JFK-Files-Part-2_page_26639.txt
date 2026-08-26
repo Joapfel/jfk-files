@@ -1,0 +1,39 @@
+The Soviet Submarine Force
+
+Nuclear-powered:
+Ballistic missile: 9
+Cruise missile: 16
+Attack: 14
+
+Diesel-powered:
+Ballistic missile: 18
+Cruise missile: 11
+Attack: 91
+
+Nuclear-powered:
+Ballistic missile — Northern Fleet: 0; Baltic Fleet: 0; Black Sea Fleet: 0; Pacific Fleet: 1.
+Cruise missile — Northern Fleet: 0; Baltic Fleet: 0; Black Sea Fleet: 0; Pacific Fleet: 17.
+Attack — Northern Fleet: 0; Baltic Fleet: 0; Black Sea Fleet: 0; Pacific Fleet: 4.
+
+Diesel-powered:
+Ballistic missile — Northern Fleet: 1; Baltic Fleet: 3; Black Sea Fleet: 5; Pacific Fleet: 8.
+Cruise missile — Northern Fleet: 3; Baltic Fleet: 6; Black Sea Fleet: 32; Pacific Fleet: 6.
+Attack — Northern Fleet: 64; Pacific Fleet: 65.
+
+Ballistic Missile Submarines
+
+Y-Class
+
+Nuclear powered. Carries 16 SS-N-6 missiles in hull. 425 feet long. Now being deployed.
+
+H-Class
+
+Nuclear powered. Carries three SS-N-4 or SS-N-5 missiles in sail. 380 feet long. 9 in service.
+
+G-Class
+
+Diesel powered. Carries three SS-N-4 or SS-N-5 missiles in sail. 320 feet long. 22 in service.
+
+Z-Conversion Class
+
+Diesel powered. Carries two SS-N-4 missiles in sail. 295 feet long. 6 in service.

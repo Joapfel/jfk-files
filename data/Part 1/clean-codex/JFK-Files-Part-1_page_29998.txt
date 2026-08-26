@@ -1,0 +1,9 @@
+Verified Record of Overseas Service. To: Office of Personnel Statistical Reporting Branch, Room 5 E 2506, Headquarters. Employee serial no.: 56700. Name of employee: Murphy, David E. Office/component: SER 48.
+
+Instructions: Use appropriate space below to report data for either PCS or TOY. Insert the appropriate code number in the “Code” column to designate whether submission is of basic data, correction, or cancellation. Report dates using the number for the month and the last two digits for the year.
+
+PCS dates of service. Type of data: PCS (Basic); Correction; Cancellation.
+
+TOY dates of service. Type of data: TOY (Basic); Correction; Cancellation. TOY cancellation: code 2; departure month 10, day 01, year 04; return month 10, day 12, year 04; area: NE; omit: 801.
+
+Source of record document: Travel voucher; dispatch; cable; duty status on time and attendance report.

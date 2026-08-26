@@ -1,0 +1,11 @@
+PJV: 9 MAR 67. Notification of Personnel Action.
+
+1. Serial number. 2. Name (last-first-middle). 3. Nature of personnel action. 4. Effective date. 5. Category of employment. 6. Office code. 7. Position title. 8. Special reference data. 9. Classification schedule (GS, LD, etc.). 10. Location of official station. 11. Service designation. 12. Grade and step. 13. Salary or rate. 14. Classification. 15. Occupational series. 16. Position number. 17. Service designation. 18. Remarks.
+
+Employee will receive notification from the Director of Personnel of this designation. Space below for exclusive use of the Office of Personnel.
+
+19. Action code. 20. Impact code. 21. Office coding: Alphabetic. 22. Station code. 23. Interpretation code. 24. Qualifying code. 25. Date of birth. 26. Date of graduation. 27. Date of leave. 29. Due expires: No. 30. Special reference: US. 31. Retirement data. 32. Separation data code: e. Type: 2. NQDA YN: No. EOD data: USA. 32. Security requirement number. 33. Veteran preference. 34. Service computation date. 35. LCM computation date. 36. Career category. 37. Legit/health insurance. Social Security number.
+
+Code: C-NAME, DCD, TR, CS, CA, TR. General description of service. 1. Yes. Yes. TR. Specific description of service. 2. No. No. TR. Specific description of service when more than 1 year. Yes. TR.
+
+Posted.

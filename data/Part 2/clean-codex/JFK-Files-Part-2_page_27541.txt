@@ -1,0 +1,27 @@
+Resume Routing Form
+
+Sackson. Secretary.
+
+Received: 4/22/77. Logged by.
+
+Congressional Referral. Self. Other.
+
+Comments on Referral.
+
+Abstracted by Ilm. Date: 4/22/77.
+
+Acknowledged by Ilm. Date: 4/22/77.
+
+Staff Component Review by. Date.
+
+Recommended Action: File. Interview. Hold. Refer.
+
+Request for Appointment. Interviewer. Suggested date. Suggested time. Confirmed date. By. Confirmed time.
+
+Request for References. Hold for. Date Notified.
+
+Instructions: Done but not quite right. OK #10,000 / please get it.
+
+Sprague Interview Request. By. Suggested date. Suggested time. Confirmed date. Confirmed time. By.
+
+Letter of Notification. By. Acceptance/Date of employment. Rejection.

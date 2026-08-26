@@ -1,0 +1,15 @@
+Personality File Action Request.
+
+To: RID/201 Section. Date. Action: open, amend, close. From. Room No. Phone.
+
+Check 2–4 for 201 request. Do not check for IDN. Yes/no. Exclude true name from machine list. Restricted. 201 No. IDN No. Source document.
+
+Name (last). First. Middle. Sex: M, F, yes, no. Name variant. Variations in biographical data. Type name: last, first, middle.
+
+Date of birth: day, month, year. Country of birth. City/town of birth. Country of location. Code. Affiliation code: P, B pattern only. Additional codes: P, B pattern only. Citizenship.
+
+Organizational or group affiliation (clear text). Organization/group code. Occupation/position (clear text). Occupation/position abbreviation.
+
+Form completed, copy, forward, reprint, delete, recopy, etc., as needed.
+
+Action desk. Code. Secondary desk. Code. Cryptonym. Pseudonym. Comments. Signature. IDN. 201.

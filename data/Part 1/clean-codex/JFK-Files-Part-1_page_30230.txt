@@ -1,0 +1,29 @@
+Notification of Personnel Action.
+
+1. Official number: GCS-124.  
+2. Name: McCord, James W. Jr.  
+3. Nature of personnel action: Retirement—involuntary—under CIA Retirement and Disability Systems, corrected.  
+4. Effective date: January 28, 1970–July 25, 1970.  
+5. Category of employment: Regular.  
+6. Job code: FUND1. V to V (CF to V). V to CF (CF to CF).  
+7. Phone number of analysis, no chargeable: 1271 (6/81), CTRD.  
+8. Case of other personal authority: PL 32-512, Section 10A.  
+9. Organizational designations: DCS/Office of Security; DSP/Physical, Technical and Overseas Physical Security Division; Office of the Chief.  
+10. Location of officer station: Security, non-D.C.  
+11. Position title: Physical Sec of.  
+12. Mobile number: 0070.  
+13. Service description: SJ.  
+14. Classification schedule: GS.  
+15. Occupational series: 1810.07.  
+16. Grade and step: 15 B.  
+17. Salary or rate: 20283.
+
+This action corrects Form 1150 effective date 05/31/70 as follows: Item 16, grade and step, which reads 15 B, to read 15 B; and Item 17, salary or rate, which read 20226, to read 2000.
+
+Space below for exclusive use of the Office of Personnel.
+
+Office coding: 19 Action Code: 55. 20 Employer Code: 10. 21 Office Coding Number: Alphabetic. 22 Station Code: Code.
+
+Special reference data: MCS, LIA, AIA, NOM. 30 Retirement Data: COM. 31 Separation Data Code: DGUC. 32 Commutation or Separation Data: COR, MSU, JCS, STP. 33 Service Data Code: Code for service number, name, position, and date of departure to be added.
+
+RECO data: 23 Date of birth: 01/25/70.

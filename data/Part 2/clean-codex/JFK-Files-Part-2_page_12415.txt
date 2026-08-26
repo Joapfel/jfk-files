@@ -1,0 +1,45 @@
+H. Symbols
+
+1. Assigning numbers
+
+a. All informants should be designated by permanent symbol number, of which the Bureau must be advised. Once a number is assigned, it must not be subsequently reassigned to any other informant or source.
+
+b. A symbol number designation should be afforded to all individuals from the time any step (generally the opening of an informant or source file) is taken to develop them as sources or informants.
+
+Upon assigning a symbol number, the Bureau should be immediately advised by secure teletype of the symbol number, informant's true name, available background information, and cover name, if assigned, for indexing purposes.
+
+c. Individuals to whom permanent symbols are assigned are not to be advised of such symbols.
+
+d. A cover name should be used by the informant in signing his statements and in communications between the informant and field office. Advise the Bureau of the cover name.
+
+e. The prefix of the symbol number consists of the appropriate field office teletype abbreviation. The suffix of the symbol number will consist of the letter “S” for security informant; the letters “PSI” for potential security informant; or the letters “CS” for confidential source.
+
+f. Although a source may subsequently furnish information requiring a change in designation (e.g., from security to criminal or to extremist, etc.), the number previously assigned will remain the same; however, the suffix is to be changed to the appropriate letter or letters indicating this change (NY 000-S to NY 000-C or to NY 000-E).
+
+g. An asterisk should not be used to designate certain highly sensitive informants or investigative techniques. Do not include an asterisk in reporting information from such sources.
+
+2. Communications—Use of symbols
+
+a. After the Bureau is advised of a permanent symbol, in subsequent communications the true name of the informant should not be set forth; use the symbol number.
+
+b. In all communications after the initial one, Bureau and field office file numbers for the informant must be set forth.
+
+c. In communications between offices, follow the same procedure.
+
+d. Informants and sources entering another division
+
+(1) Active informants and sources entering another division on a temporary basis should be referred to in the initial secure teletype to the interested office by true name and symbol number if necessary for the other division to know the identity. Such a teletype should not be routed to a Resident Agency. The office receiving such teletype should make appropriate index cards for the “Informants and Sources in Other Divisions” index. Subsequent letters between interested offices may then identify the individual by symbol number only.
+
+(2) Individuals who leave the division where they have been furnishing information and do not plan to return should be immediately discontinued, their symbol number, if any, should be cancelled, and their true name used in all administrative correspondence.
+
+(3) If an informant is transferred to another office and remains active, his identity must still be protected.
+
+e. In communications concerning a potential security informant when a symbol number is not used, the name of the potential security informant and the abbreviation “PSI” shall be used; e.g., “John Doe, PSI.”
+
+f. Captions of communications concerning informants and sources should contain a precise character designation to identify the organization with which they are most closely associated or on which they are most capable of furnishing information (i.e., Security Matter—Students for a Democratic Society or SM—SDS, Security Matter—Young Socialist Alliance or SM—YSA, Security Matter—Communist or SM—C, etc.). In espionage and foreign nationality matters, the caption of the communication should also show character and country designation (i.e., IS—R for Russia or IS—PO for Poland, etc.).
+
+This facilitates routing at the Bureau.
+
+I. Indexing
+
+True names and aliases of all informants, as well as the cover name assigned, shall be indexed in general office indices as any other name. Index cards should show the file number of the informant, but such terms as “Informant” or “Potential”

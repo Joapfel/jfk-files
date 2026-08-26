@@ -1,0 +1,7 @@
+FILE-1. Travel Briefing Data.
+
+Route; phone; file number. City; rank or grade. Nationality; status; cover: yes. Area; dependents briefed. Approval; previous travel. A: cover, years: no. B: cover. C: cover, years. D. Special briefing problem.
+
+Security approval for travel verified in subject file: yes/no. Security approval for travel based on file review by briefing officer: yes/no. Security file available for review before briefing: yes/no.
+
+Emergency contacts (met on arrival, phone no., alternate action to make contact). Security regulations (operational talk, documents, indigenous employee hazards). Travel precautions (recognition overseas, camera, black market, currency exchange). Personal affairs (charge accounts, traffic tickets, litigation, neighbors). Personal correspondence (limitations, home address, shop talk). Personal conduct (morals, drinking, representative Americans). Association with foreigners (overseas briefing, phase out on return). Hostile audio surveillance (microphones, shop talk at home hotels, report to security).

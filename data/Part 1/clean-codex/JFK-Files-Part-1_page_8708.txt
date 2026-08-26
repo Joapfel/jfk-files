@@ -1,0 +1,13 @@
+10.04.20 ¿Ha oído usted a alguien describirlo como atleta? En caso afirmativo, sírvase dar detalles: Sí / No.
+
+10.04.21 Diga si es persona que se ocupa mucho de mantenerse en buenas condiciones físicas: trata bastante de mantenerse en buenas condiciones; se interesa poco en mantenerse en buenas condiciones.
+
+10.04.22 ¿Ha indicado o alguna vez tenido interés en levantar pesas? En caso afirmativo, sírvase explicar: Sí / No.
+
+10.04.23 Diga si es tipo más bien musculoso y atlético; fuerte, de buena constitución; algo fofo; fofo y nada atlético; afeminado. Seleccionado: fuerte, de buena constitución.
+
+10.04.24 ¿Tiene inclinación a la mecánica? Sí / No. En caso afirmativo, diga si prefiere seguir instrucciones de los libros; no se ocupa de las instrucciones y trata de arreglarlas por sí mismo. Seleccionado: prefiere seguir instrucciones de los libros.
+
+10.04.25 Si fuera posible suministrarle revistas y publicaciones de EE.UU., ¿cuáles de las siguientes cree que le gustarían realmente? El New York Times Saturday Review; Newsweek; Playboy; Sports Illustrated; Life; Atlantic; Field and Stream; Popular Mechanics; New Republic; Better Homes and Gardens; Reader’s Digest (Selecciones); Kenyon Review; Reports; Scientific American; Christian Science Monitor. Seleccionadas: Playboy, Sports Illustrated, Reader’s Digest (Selecciones).
+
+No puedo imaginarlo leyendo una revista de EE.UU.

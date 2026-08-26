@@ -1,0 +1,15 @@
+7. Required indicators:
+
+A. For presence of S/N on letters to the agent: All letters to the agent will contain S/N.
+
+B. To indicate loss of writing materials: Carbon sheets: Agent writes to Madrid, letter with no S/N. Developer: Agent writes in S/N and so indicates.
+
+C. Indicate carbon resupply by mail: Upon indication of loss of carbon sheets (see above), preferably the next letter sent to the agent will be a carbon sheet. In any case, the agent understands that any cover letter containing the word “finca” (Spanish for farm) has been written on a carbon sheet, which he is then to use for S/N correspondence as needed.
+
+D. Optional indicators: Any letter received by the agent containing the word “hacienda” in the cover letter is understood to indicate that the S/N message contained therein is to be developed by the “scorch” system.
+
+Danger or control indicators:
+
+Letters from agent: Any word, mark, phrase, etc., after the Spanish word “FIM” at the end of the S/N message indicates the agent is under control.
+
+Letters to the agent: Acknowledgement of the agent’s control indicator is to be made by duplicating his “control indicator” in the next S/N message to him.

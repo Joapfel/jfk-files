@@ -1,0 +1,39 @@
+Date: 05/31/70. Data as of: 04/25/70.
+
+Name: Sharp May D.; Employee No. 535027; SCC No. 127185162; Series: GS; Rate: 11; Next PSL: 052; Old salary: 12103; New salary: 12840.
+
+Name: Sharp Donna M.; Employee No. 535048; SCC No. 479507701; Series: FS; Rate: 09; Next PSL: 190; Old salary: 7094; New salary: 7519.
+
+Name: Sharp Charles G.; Employee No. 530175; SCC No. 185249774; Series: FS; Rate: 05; Next PSL: 051; Old salary: 10749; New salary: 11412.
+
+Name: Sharp Thomas J.; Employee No. 533132; SCC No. 053224442; Series: FS; Rate: 08; Next PSL: 252; Old salary: 8739; New salary: 8724.
+
+Name: Shaughnessy Thomas H.; Employee No. 539200; SCC No. 157032254; Series: GS; Rate: 11; Next PSL: 131; Old salary: 13103; New salary: 13890.
+
+Name: Shaw Charles W.; Employee No. 539200; SCC No. 547465540; Series: FS; Rate: 05; Next PSL: 051; Old salary: 10785; New salary: 11432.
+
+Name: Shaw C Grant; Employee No. 529310; SCC No. 387244074; Series: FS; Rate: 02; Next PSL: 000; Old salary: 27354; New salary: 28995.
+
+Name: Shaw David G.; Employee No. 539375; SCC No. 115244171; Series: FN; Rate: 05; Next PSL: 000; Old salary: 14132; New salary: 14980.
+
+Name: Shaw Ellen J.; Employee No. 529400; SCC No. 362093700; Series: GS; Rate: 09; Next PSL: 161; Old salary: 11186; New salary: 11955.
+
+Name: Shaw Jean Ann; Employee No. 529438; SCC No. 045204145; Series: FS; Rate: 09; Next PSL: 120; Old salary: 6568; New salary: 6961.
+
+Name: Shaw John R.; Employee No. 529445; SCC No. 267467472; Series: FS; Rate: 06; Next PSL: 170; Old salary: 9388; New salary: 9951.
+
+Name: Shaw John F.; Employee No. 529500; SCC No. 577165946; Series: FN; Rate: 02; Next PSL: CCC; Old salary: 29841; New salary: 31632.
+
+Name: Shaw John P.; Employee No. 529525; SCC No. 576207044; Series: FC; Rate: 01; Next PSL: 001; Old salary: 31705; New salary: 33609.
+
+Name: Shaw Laurence N.; Employee No. 529535; SCC No. 577301849; Series: GS; Rate: 04; Next PSL: CCC; Old salary: 5522; New salary: 5853.
+
+Name: Shaw Oliver E.; Employee No. 529615; SCC No. 489349479; Series: FS; Rate: 06; Next PSL: 170; Old salary: 9104; New salary: 9649.
+
+Name: Shaw Robert T.; Employee No. 539700; SCC No. 268280157; Series: FS; Rate: 03; Next PSL: 000; Old salary: 22332; New salary: 23672.
+
+Name: Shaw Gertrude E.; Employee No. 539800; SCC No. 313249828; Series: FS; Rate: 05; Next PSL: 163; Old salary: 11419; New salary: 12104.
+
+Name: Shaw Sharon K.; Employee No. 539806; SCC No. 146365232; Series: FS; Rate: 09; Next PSL: 029; Old salary: 5865; New salary: 7276.
+
+Name: Shea Dianne F.; Employee No. 539848; SCC No. 2185

@@ -1,0 +1,15 @@
+Section 9. Mother-in-law.
+
+Full name: first, middle, last. Living or deceased. Date of decease. Cause. Present or last address: street and number, city, state, country. Date of birth. Place of birth. If born outside the United States, indicate date and place of entry. Citizenship. When acquired? Where: city, state, country. Occupation. Last employer.
+
+Section 10. Relatives by blood, marriage or adoption who either live abroad or are not citizens of the United States.
+
+1. Name: not applicable. Relationship. Age. Citizenship. Address: street and number, city, state, country.
+2. Name. Relationship. Age. Citizenship. Address: street and number, city, state, country.
+3. Name. Relationship. Age. Citizenship. Address: street and number, city, state, country.
+
+Section 11. Relatives by blood or marriage in the military or civil service of the United States or of a foreign government.
+
+1. Name: not applicable. Relationship. Age. Citizenship. Address: street and number, city, state. Type and location of service, if known.
+2. Name. Relationship. Age. Citizenship. Address: street and number, city, state. Type and location of service, if known.
+3. Name. Relationship. Age. Citizenship. Address: street and number, city, state. Type and location of service, if known.

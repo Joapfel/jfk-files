@@ -1,0 +1,21 @@
+9.01.03 Diga si usa su propio encendedor: paquete de fósforos.
+
+9.01.04 Diga si es el tipo de persona que siempre pide lumbre; a menudo pide lumbre; generalmente tiene su propia lumbre; siempre tiene su propia lumbre.
+
+9.01.05 Diga si usa boquilla con cigarrillos o con pipa: siempre; a veces; nunca.
+
+9.01.06 Despunta los tabacos: siempre; a veces; con los dientes.
+
+9.01.07 Diga si cuida la pipa: minuciosamente; como todos; no la cuida.
+
+9.01.08 Al encender un cigarrillo: baja visiblemente la cabeza y ahueca las manos; lo hace sin ceremonia mientras habla.
+
+9.01.09 ¿Lo ha visto usted retener un cigarrillo sin encender y aguardar una pausa en la conversación para encenderlo? Sí. No.
+
+9.01.11 ¿Lo ha visto usted retener en la boca un tabaco, una pipa o un cigarrillo sin encender? Sí. No.
+
+9.01.12 Es fumador constante: enciende un cigarrillo con otro; fuma hasta la colilla y enseguida enciende otro; siempre tiene encendido un cigarrillo aunque no lo fume mucho.
+
+9.01.13 Fuma: solamente después de las comidas; solamente cuando alguien le ofrece cigarrillo; entre el plato principal y el postre cuando otros fuman.
+
+9.01.14 Manchas de tabaco en los dedos: muy notables; visibles; apenas visibles; no tiene.

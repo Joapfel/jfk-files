@@ -1,0 +1,23 @@
+Standard Subfile List for Foreign Countries.
+
+Solomon Islands (British): 409; Tonga Islands: 374.  
+Somali Republic: 349; Transylvania: 312.  
+South Africa: 317; Transjordan: 332.  
+South Korea: 265; Trieste: 337.  
+South West Africa: 382; Trinidad: 229.  
+Southeast Asia: 413; Trucial States: 406.  
+Southern Rhodesia: 327; Tibet: 344.  
+Spain: 237; Tunisia: 296.  
+Sudan: 339; Turkey: 238.  
+Sumatra: 284; Uganda: 322.  
+Surinam: 215; Ukraine: 329.  
+Swaziland: 416; United Arab Republic: 376.  
+Sweden: 267; Upper Volta: 390.  
+Switzerland: 268; Uruguay: 227.  
+Syria: 286; Vatican City: 359.  
+Tahiti: 375; Venezuela: 228.  
+Tanzania: 373; Viet Minh—Democratic Republic of Vietnam: 370.  
+Thailand: 288; Vietnam: 330.  
+Togo: 372; Virgin Islands: 315.
+
+Control-Reference Files. Revised April 25, 1969.

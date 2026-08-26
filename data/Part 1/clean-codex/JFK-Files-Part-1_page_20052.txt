@@ -1,0 +1,7 @@
+Action code: 13. Employment code: 10. Office coding: 60600 SR. Station code: 24065. Headquarters code: 3. Date of birth: 01/20/24. Date of grade: 01/16/55. Date of leave: 01/08/61.
+
+Special reference: 1 — CSC; 2 — FICA; 3 — NON-D. Retirement data code: 1. Separation data code: M1. Security requirement number: 06102 M1.
+
+Veteran preference code: 1. Service computation date: 03/07/44. Longevity computation date: 11/20/43. FEGLI/health insurance code: 042205339.
+
+Previous government service data code: 1. Leave category code: 8.

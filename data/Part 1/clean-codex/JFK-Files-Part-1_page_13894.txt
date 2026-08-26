@@ -1,0 +1,35 @@
+Passport record.
+
+Nationality: Cuba.
+
+Passports:
+
+Villaseca Gonzalez Mireya. 20 años. Cuba. DIP. No. 5/64/142.
+
+Gonzalez Manuel Rosalina. 51 años. Cuba. DIP. No. 5/64/141.
+
+Arrequeta (Alezqueta) Rodriguez Jorge. 21 años. Cuba. ESP. E/64/82.
+
+Gonzalez Barcia Marco (Go Zaleh Barcia Hacco Joacim). 14 años. Cuba. ESP. E/64/85.
+
+Gavilan Rosales Esther. 27 años. Cuba. DIP. No. D/63/455.
+
+Arrival.
+
+Airline: CURVA.
+
+Flight: 465.
+
+Point of disembarkation: Havana, Cuba.
+
+Mexican visas issued in:
+
+Villaseca Gonzalez Mireya. Diplomatic visa No. 225, issued by the Embassy of Mexico in Havana, Cuba, on 23 March 1964.
+
+Gonzalez Grande Josefina. Diplomatic visa No. 224, issued by the Embassy of Mexico in Havana, Cuba, on 23 March 1964.
+
+Alezqueta (Arrequeta) Rodriguez Jorge. Official visa No. 236, issued by the Embassy of Mexico in Havana, Cuba, on 25 March 1964.
+
+Gonzalez Barcia Marco (Gonzalez Barcia Harco). Official visa No. 235, issued by the Embassy of Mexico in Havana, Cuba, on 25 March 1964.
+
+Gavilan Rosales Esther. Diplomatic visa No. 1015, issued by the Embassy of Mexico in Havana, Cuba, on 18 October 1963.

@@ -1,0 +1,11 @@
+Hornbeck, John.
+
+Name of employee. Address. Phone number. Position title.
+
+Office of the Clerk, U.S. House of Representatives. Personal Leave Record, 1978.
+
+Date of appointment: 9-19-77. Annual leave category: 1.0; 1.5; 2.0.
+
+Monthly leave record. Year 1: accrued this month—annual leave 1; balance at close of month—annual leave 0, sick leave 4. Year 2: accrued this month—annual leave 1; balance at close of month—annual leave 1, sick leave 5. Year 3: accrued this month—annual leave 2, sick leave 1; balance at close of month—annual leave 2, sick leave 6. Year 4: accrued this month—annual leave 1, sick leave 1; balance at close of month—annual leave 3, sick leave 7. Year 5: accrued this month—annual leave 1, sick leave 1; balance at close of month—annual leave 4, sick leave 8. Year 6: accrued this month—annual leave 1, sick leave 1; balance at close of month—annual leave 5, sick leave 9. Year 7: accrued this month—annual leave 1, sick leave 1; available this month—annual leave 5, sick leave 9; used this month—annual leave 5; balance at close of month—annual leave 0, sick leave 9.
+
+Day of month. Month. Position number. Level. Step. Annual leave. Sick leave.

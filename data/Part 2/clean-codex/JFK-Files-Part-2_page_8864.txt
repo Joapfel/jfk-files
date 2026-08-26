@@ -1,0 +1,27 @@
+104-10527-10212
+
+Cable. 27 March 1971.
+
+To: Multi-addressee cable.
+
+From: Director.
+
+COMP: SAS 6.
+
+Info: DCI, DCI, DDP, ADOP, CI, CI/OPS, CI/DA, FI, EE, WE, NE, FE, WH, CH.
+
+PERMEN ZPRIMA.
+
+Route.
+
+Cable security: XPLS pouch cable to following (wrench pouch).
+
+Coordinating office.
+
+Releasing office.
+
+Authenticating office.
+
+Copy No.
+
+Reproduction by other than the issuing office is prohibited.

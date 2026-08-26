@@ -1,0 +1,23 @@
+Serial No. 007547; date 590320; CUR 1; L/S VV; category 450; area 630608; name Anderson Edward I; return date 040219; country Mexico.
+
+Serial No. CC7143; date 590510; CUR 1; L/S VV; category 450; area 641202; name Offenacher Rose R; return date 050623; country Mexico.
+
+Serial No. C22592; date 590630; CUR 1; L/S 41; category 450; area 640405; name Zambernardi Robert; return date 040906; country Mexico.
+
+Serial No. C62565; date 590713; CUR 1; L/S VV; category 450; area 620610; name Spathar Richard Z; return date 021028; country Mexico.
+
+Serial No. C574C8; date 590915; CUR 1; L/S CC; category 450; area 620705; name Carlsсn William T; return date 020921; country Mexico.
+
+Serial No. C63028; date 590916; CUR 1; L/S 53; category 450; area 600217; name Nonnemacker Harold; return date 000502; country Mexico.
+
+Serial No. C194C8; date 591029; CUR 1; L/S CC; category 450; area 620927; name Strube Muriel D; return date 021029; country Mexico.
+
+Serial No. C27643; date 591117; CUR 1; L/S 64; category 450; area 611215; name Mooney Mary P; return date 020029; country Mexico.
+
+Serial No. C55544; date 600204; CUR 1; L/S CC; category 450; area 620401; name Stewart Jack; return date 020128; country Mexico.
+
+Serial No. C546C3; date 600206; CUR 1; L/S 51; category 450; area 611031; name Brady John B; return date 010826; country Mexico.
+
+Serial No. C21735; date 600308; CUR 1; L/S 50; category 450; area 621114; name Ostrom Gail A; return date 020807; country Mexico.
+
+Serial No. C29622; date 600

@@ -1,0 +1,13 @@
+Classified message.
+
+To: Director  
+From: Mexico City  
+Action: CHU 8  
+Info: CCS 3, CA 2, VR
+
+12228Z  
+SAGO INFO DIR CITE MEXI 0553
+
+FUASPEN
+
+Edward G. Tichborn ETA Lima 9700 17 Aug and ETA Santiago 1130 17 Aug via Canadian Pacific. Checked flight schedules from Antopagasta and fears stopover there can tie him up three days. If stopover desired anyway, please inform MEXI by COB 13 Aug.

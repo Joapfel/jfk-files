@@ -1,0 +1,25 @@
+Date: 08/03/77. Report ID: D01.00.00.
+
+U.S. House of Representatives. Financial Management System. Payroll Certification.
+
+Accounting period: 07/01/77 to 07/31/77. Office: 83000, Select Committee on Assassinations.
+
+Employee: Ross, Ida Jane. Social Security number: 227-18-5345. Annual salary: $20,000.00. Gross pay: $1,666.67. Period: 07/01/77 to 07/31/77. Position: Adm Secty/Receptionist.
+
+Employee: Rudder, Miriam. Social Security number: 578-80-2773. Annual salary: $7,500.00. Gross pay: $625.00. Period: 07/01/77 to 07/31/77. Position: Clerk.
+
+Employee: Schultz, Nancy P. Social Security number: 209-46-4088. Annual salary: $12,000.00. Gross pay: $1,000.00. Period: 07/01/77 to 07/31/77. Position: Secretary.
+
+Employee: Selleck, Elizabeth K. Social Security number: 531-50-7701. Annual salary: $16,000.00. Gross pay: $888.89. Period: 07/11/77 to 07/31/77. Remarks: Appointment 07-11-77. Position: Staff Investigator.
+
+Employee: Smith, Johanna Lynn. Social Security number: 528-64-5299. Annual salary: $10,000.00. Gross pay: $833.33. Period: 07/01/77 to 07/31/77. Position: Document Clerk.
+
+Employee: Strickland, Ann Lyon. Social Security number: 227-76-3525. Annual salary: $14,000.00. Gross pay: $1,166.67. Period: 07/01/77 to 07/31/77. Position: Secretary.
+
+Employee: Tanenbaum, Robert K. Social Security number: 127-32-4970. Annual salary: $36,000.00. Gross pay: $3,511.11. Period: 07/01/77 to 07/31/77. Remarks: P/R change—07-17-77. Position: Deputy Chief Counsel.
+
+Employee: Taylor, Ann Furnald. Social Security number: 036-34-9187. Annual salary: $17,000.00. Gross pay: $1,416.67. Period: 07/01/77 to 07/31/77. Position: Researcher.
+
+Employee: Triplett, William K. Social Security number: 550-50-7581. Annual salary: $30,000.00. Gross pay: $1,166.67. Period: 07/17/77 to 07/31/77. Remarks: Appointment 07-17-77. Position: Staff Counsel.
+
+Employee: Walsh, Kevin. Social Security number: 020-36-4147. Annual salary: $15,000.00. Gross pay: $1,250.00. Period: 07/01/77 to 07/31/77.

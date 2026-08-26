@@ -1,0 +1,26 @@
+Document Transfer and Cross Reference.
+
+Subject of Document. Document Identification.
+
+1. RI file No.  
+2. Dispatch or source document symbol No.  
+3. Source cryptonym.  
+B. Date of info.  
+D. Evaluation.  
+4. Date.  
+5. Analyst.  
+6. Date processed.  
+10. Disseminated in.  
+11. Date.
+
+Document Disposition.  
+12. Cross referred to this file.  
+13. Transferred to RI file No.
+
+Pertinent Information.
+
+14. Rodriguez Lopez, Rogelio. 201-332665. Sex M. CDB 7. CIT ?. OCC ?. Member of Cuban UN Mission as of 10 Apr 70. UFA. 019-005-042. UNDA-04862A01. 14 Apr 70. +19-500. P3. File in 201-32065.
+
+15. File this form in file No.
+
+R 7004230770. File in 201-32065.

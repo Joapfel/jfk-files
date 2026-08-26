@@ -1,0 +1,15 @@
+Position Control Register. 106/30/62. 1184 F5.
+
+Far East Division (YEAR EAST DIVISION): 56380001000. Foreign Field: 56380002000. Beijing–Tokyo Station: 56380003000. Office of the Chief: 56380004000.
+
+Department Officer, William S.: SBS-0136.01; 00; 1; 3007; 10; 056733; C; 13; M; 10; 72361; 37587.
+
+Officer-OCOS, Wheeler Robert P.: CS-0136.01; 19; 1; 3003; 10; 060947; C; 19; M; 10; 121397; 37587.
+
+Officer, Chileman Richard L.: GS-0136.01; 14; 1; 3063; 10; 060968; C; 39; M; 10; 99708; 37387.
+
+Vanbulls, John C.: GK-0136.01; 12; 2; 3002; 0; 012149; C; 18; M; 10; 90778; 61119; 37587.
+
+Strength-Steve, Norfolk Virginia A.: HS-03114.01; 09; 1; 3005; 10; 104686; C; 39; P; 10; 10742; 6007; 37587.
+
+Strength-Steve, North Carolina A.: KS-0315.01; 17; 1; 3073; 10; 104686; C; 39; P; 10.

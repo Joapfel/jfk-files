@@ -1,0 +1,17 @@
+1. Salesman
+
+2. Supervisor
+
+3. Date/meeting
+
+4. Date/next mtg.
+
+5. Administrative
+
+6. Instructions to salesman
+
+7. Report by salesman
+
+8. Competition
+
+9. Supervisor's comments

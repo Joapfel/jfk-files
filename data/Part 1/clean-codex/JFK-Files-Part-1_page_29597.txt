@@ -1,0 +1,11 @@
+Section is continued from page 7.
+
+1. Inclusive dates (from and to—by month and year).
+2. Name of employing firm or agency.
+3. Address (number, street, city, state, country).
+4. Kind of business.
+5. Name of supervisor.
+6. Title of job.
+7. Salary or earnings: $ per.
+8. Description of duties.
+9. Reasons for leaving.

@@ -1,0 +1,5 @@
+Counterintelligence matters is as follows:
+
+6 agents at 5 percent; 5 agents at 10 percent; 4 agents at 15 percent; 2 agents at 30 percent; 2 agents at 35 percent; 1 agent at 45 percent; 2 agents at 60 percent; 1 agent at 85 percent.
+
+End.

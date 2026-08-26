@@ -1,0 +1,9 @@
+Office code: 37. Full name: Bagley Tennent H. Customer code: 056043.
+
+LLG: 31 October 1962.
+
+Notification of Personnel Action. Office code: SR, 75013. Customer code: station code 1; integer code 1; months code 11; date of birth: 11/25/1; date of grade: 1; date of LEI: 1. Retirement data: code. Separation data code: 31. Correction/cancellation data: Type. EOD data. Security requirement number: 33. CSC code. FEGLI/health insurance: 39. Health insurance code: code. D waiver: yes. PIC. None.
+
+Space below for exclusive use of the Office of Personnel.
+
+Action code: 37. Eavery code: 10. Office coding: 60080. Station code: SR. Integer code: 75013. Months code: 1. Date of birth: 11/11/25. Date of grade: 1. Date of LEI: 1. NTC expires: No. GA., 19. Special reference: CSC code; LARS. Retirement data. Separation data code. EOD data. PICA.

@@ -1,0 +1,23 @@
+4.01.04 ¿Tiene apodo? En caso afirmativo, ¿lo molesta que lo llamen por él? Sí / No.
+
+4.01.05 ¿Responde a un diminutivo (Juanito, Pepito, etc.)? Sí / No. No.
+
+4.01.06 ¿Tiene alguna cicatriz u otra marca distintiva? En caso afirmativo, describa.
+
+4.02 Cabello:
+
+4.02.01 Color: Muy claro / Claro / Mediano. Canoso o blanco / Oscuro / Muy oscuro.
+
+4.02.02 Onda: Rizado. Promedio / Lacio.
+
+4.02.03 Cantidad: Espeso / Promedio. Escaso / Tiende a la calvicie / Calvo.
+
+4.02.04 Cuidado: Bien cuidado / Reacio / Promedio / Desgrollado.
+
+4.02.05 ¿Hay algo poco corriente en su cabello o su peinado? En caso afirmativo, describa.
+
+4.03 Ojos:
+
+4.03.01 Color: Gris / Azul / Verde / Avellanado / Amarillento / Castaño / Castaño oscuro.
+
+4.03.02 Usa espejuelos: Sí / Siempre / Para leer / Nunca.

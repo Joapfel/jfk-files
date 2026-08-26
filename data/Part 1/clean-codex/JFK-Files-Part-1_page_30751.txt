@@ -1,0 +1,9 @@
+Verified Record of Overseas Service. Date: 201621 JUL 1761. To: Office of Personnel, Statistical Reporting Branch, Room 192 Carte Hall. Employee serial no.: 1-8 12775. Name of employee: Mile R Newton S. 32 5 N.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert appropriate code number in “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS Dates of Service. Type of data: 1 - PCS (Basic). Code: 27. Arrival: month 26-29, day 30-31, year 32-33. Departure: month 34-35, day 36-37, year 38-39. Country. Omit: 40-42. Type of data: 3 - Correction. Type of data: 5 - Cancellation.
+
+TDY Dates of Service. Type of data: 2 - TDY (Basic). Code: 27. Departure: month 28-29, day 30-31, year 32-33. Return: month 34-35, day 36-37, year 38-39. Area(s). Omit: 40-42. Type of data: 4 - Correction. Type of data: 8 - Cancellation. Code: 2. Departure: month 05, day 03, year 61. Return: month 05, day 13, year 61. Area: WEG. Omit: 801.
+
+Source of record.

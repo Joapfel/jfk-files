@@ -1,0 +1,7 @@
+Type of data: 1. PCS (Basic). Arrival: month 28-29, day 30-31. Departure: year 32-33. Country: Mexico. Omit: 40-42. 2. Correction. 3. Cancellation. Arrival: month 02, day 03. Departure: year 60.
+
+Type of data: 2. TDY (Basic), 3. Correction, 4. Cancellation. Departure code: 27; month: 28-29; day: 30-31; year: 32-33. Return month: 34-35; day: 30-37; year: 30-39. Area(s): 40-42.
+
+Source of record document: Cable (CADLE). Dispatch: Duty status or time and attendance report. Other (specify): Returnee Payroll Information. Document identification No.: 1400 C. Document date/period: 30 Nov 1964. Remarks.
+
+Prepared by: C O L Division. Report annotated on source document: date. Above data verified correct, based upon source document cited: signature. C A T Division.

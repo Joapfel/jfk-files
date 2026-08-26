@@ -1,0 +1,3 @@
+19 Action Code: 37. 20 Employ Code: 10. 21 Office Coding: Numeric 51500; Alphabetic LA. 22 Station Code: 75013. 24 Males Code: 1. 25 Date of Birth: (M) DA VB 08 04 35. 27 Date of LEI: MO DA VB 1; MO DA VB 1; MO DA VB 1.
+
+28 NTE Expires. 29 Special Reference. 30 Retirement Data. 31 Separation Data Code. 32 Correction / Cancellation Data. EOD Data. 33 Security Req No. 34 Sex. 35 Vet Preference. 36 Serv Comp Date. 37 Long Comp Date. 38 Career Category. 39 Reg/Health Insurance. 40 Social Security No. 41 Previous Civilian Government Service. 42 Leave Cat Code. 43 Federal Tax Data. 44 State Tax Data. Signature or Other Authentication.

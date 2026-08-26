@@ -1,0 +1,9 @@
+Document Transfer and Cross Reference.
+
+Subject of document. Document identification. R1 file no. Analyst. Date processed. Dispatch or source document symbol no. Date. Source cryptogram. Date of info. Evaluation. Disseminated in. Date. Document disposition. Cross referred to this file. Transferred to R1 file no.
+
+Pertinent information:
+
+14. Rodriguez Lopez, Rogelio. 201-332665. Sex M. DOB ?. CIT ?. OCC ?. Transmittal of photos. 201-858915. UNDA-04679. 21 Oct 69. UFA. R 6910311045. File in 201-332665.
+
+15. File this form in file no.

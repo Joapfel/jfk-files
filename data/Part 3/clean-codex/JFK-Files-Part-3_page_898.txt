@@ -1,0 +1,7 @@
+Memorandum to Mr. E. S. Miller
+
+Re: U.S. v. John William (Willi) Butenko and Igor A. Ivanov, appellant
+
+Judge Adams finds that the constitutional responsibility to conduct foreign affairs is vested in the President; that the gathering of foreign intelligence and the protecting against foreign intelligence activities is concerned with the very existence of the nation; that as a result, the President has great latitude in this area; and that to require a judicial warrant prior to his use of electronic surveillance presumes that a warrant could be denied, thus interjecting the courts into foreign affairs decisions, in effect overruling the President in a field where he has the responsibility and they do not.
+
+Thus concluding that the 4th Amendment does not and the courts cannot prohibit the President from utilizing electronic surveillance in foreign affairs, Judge Adams argues that a defendant's 4th Amendment rights can still be reconciled with the President's electronic surveillance power by a judicial post-surveillance review. If the court finds that the surveillance is related to the conduct of foreign affairs it would, ipso facto, be reasonable and therefore not in violation of the 4th Amendment. If unrelated, it would be unreasonable, and its results excluded from a criminal trial.

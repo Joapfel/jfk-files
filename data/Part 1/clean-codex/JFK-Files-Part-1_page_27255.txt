@@ -1,0 +1,11 @@
+Action Code. Employment Code. Office Coding: numeric 51050. Station Code: alphabetic WH. Date of birth: No. LA TN 08124113. Date of grade: No. DA. TN. Date of LEI: No. DA. TN.
+
+Resignation data: reordered; S. Fila; G. Nonp.
+
+Veteran preference: Core; 0. None; 1. Def. Ft.; 2. Def. Ft. Service compensation date: Mo. Da. Tn. Long compensation date: Mo. Da. Tn. Career category: code 1259, 3517, 1328. Duty state: code D. Water; 1. Yrs. Service period: code D. Watershed; 1. Yrs. EOD data.
+
+Previous government service data. Lifetime data: code; 0. No previous service; 1. No services in service; 2. Break in service less than 3 years; 3. Break in service more than 3 years. State tax data: code; No. tax exemptions. Posted: 7-6-65 A&H.
+
+Signature or other authentication. From FE: 2.
+
+Group I indicated from automatic processing and decalsystem.

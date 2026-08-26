@@ -1,0 +1,7 @@
+Qualifications System Record Change.
+
+Applicant Coding Data. ID. Applicant No. Name. Must contain 20 digits. Date of birth. Date coded. The data above (items 2 thru 5) will be filled in when coding an applicant for the first time. This form is then attached to the Master Qualifications Coding Record. Month. Day. Year. Number.
+
+Language Coding Data. ID. Employee No. Name. Language Data Code. Digit 1. Digit 2. Digit 3. Case Code. R. W. P. S. U. T. Year. 4. Name: 3-letters. 5. Date submitted. Date of birth. Month. Day. Year.
+
+Language Proficiency-Test Data.

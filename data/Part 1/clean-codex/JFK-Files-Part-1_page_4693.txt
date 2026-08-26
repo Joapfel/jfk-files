@@ -1,0 +1,29 @@
+55/21/68
+
+Action: LA-13 (IIII). Info: FILE, VR: DDD-4, CA-8, EPS/E6-2, 11D, 19C-8, COPD-D, PCS/1A1-5, (32/a).
+
+TO 0350012.
+
+TOR: 2316482 FEB 78.
+
+IN 0350012. CARACAS 35501.
+
+2316212 FEB 78. INTEL.
+
+Cite CARACAS (CANACAS) 35591.
+
+To Director, info LA/Miami.
+
+INTEL AMBSTONE.
+
+SUPDATA: Source: WKDIIZT/WKDIET-S directly, not for liaison.
+
+DD objective: J.I. No index. File deferred.
+
+CL by 035133.
+
+Filed: 2316212 XXXXX.
+
+HARES.
+
+Tel: Orlando BeSCD

@@ -1,0 +1,23 @@
+Continuation of Dispatch Indexing Information. Instructions: Insert “ASSIGN” after 201 if number needed.
+
+Surname: QUINTANA. Given name: Petronia. Document number: 201-.
+
+Sex: F. Date of birth: 1st January 1917. Country of birth: Cuba. City/town of birth: Pinar del Río.
+
+Additional information: Mother of VILLARINO Quintana, Jesus (201-282038). Husband's dependent payment is for this case.
+
+Surname: LORENZO Boffel, Maria. Middle name: L. Document number: 201-.
+
+Sex: F. Date of birth: 19 August 1903. City/town of birth: Havana.
+
+Additional information: Mother of PEREZ Lorenzo, Lorenzo R. (201-286860). Husband's dependent payment is for this case.
+
+Surname: GONZALEZ. Given name: Elena. Document number: 201-.
+
+Sex: F. Date of birth: 14 May 1908. Country of birth: Cuba. City/town of birth: Havana.
+
+Additional information: Widow of CABALLERO Gonzalez, Julio (201-285169). Husband's dependent payment is for this case.
+
+Surname: VILA. Given name: Nidin. Middle name: Rosa. Document number: 201-.
+
+Sex: F. Date of birth: 6 July 1937. Country of birth: Cuba. City/town of birth: Las Villas.

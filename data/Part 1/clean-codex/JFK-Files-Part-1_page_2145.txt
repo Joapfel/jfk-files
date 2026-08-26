@@ -1,0 +1,14 @@
+Position Control Register.
+
+Officer, grade CS 0136.0114, 3831, 0, C.21, 10.  
+Nelson Clenn, grade CS 0136.0114, 3832, 0, C.21, 10.  
+CS Officer, grade CS 0136.0113, 3111 * 0, C.13, 10.  
+Surota Kinji, grade CS 0136.0112, 3111, 0, C.19, 10.  
+Duncan James, grade CS 0136.0112, 3111, 0, C.19, 10.  
+UPD Officer, grade CS 0136.0111, 3113 * 0, C.19, 10.  
+Taramina Grandi, grade CS 0136.0111, 3113, 0, C.19, 10.  
+Farman Kani, grade CS 0136.0112, 3113, 0, C.19, 10.  
+Agave Satisci, grade CS 0136.0112, 3113, 0, C.16, 10.  
+UP Prelude, grade CS 0136.0111, 3113 * 0, C.16, 10.  
+Migration Assist, grade CS 1301.3833, 1 3128 * 0, C.19, 10.  
+Caara Arieva, grade CS 1301.3832.

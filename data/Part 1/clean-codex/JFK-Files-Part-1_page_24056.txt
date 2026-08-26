@@ -1,0 +1,17 @@
+Statement of Earnings and Deductions.
+
+Name: CRPHONE 1. Employee No.: 802799. Pay period date: 08/01–08/31. Roll: 20. Cost center: 1242930. STA: 000.
+
+Earnings: CD 09, normal 89000, other 2000, description: REG SAL.
+
+Note: This form is issued only when an employee enters on duty or there is any change in the pay account.
+
+Deductions: CD 73, normal 9000-, other 2000-, description: LIO PAYMT. CD 80, normal 89000, other 2000, description: CPA EX CR. CD 96, normal 9000, other 2000, description: FED TAX F.
+
+Remarks: Amendment for additional compensation and tax liability increased from $870.00 to $890.00 per month for free compensation at $800.00 per month, effective 1 July 1968. Actual amount of tax liability increased from $70.00 to $90.00 per month, for the July 1968 pay period.
+
+Employee number: CRPHONE 1, 802799.
+
+Additional compensation data. Remarks: 00.
+
+CO-SR: 1-.

@@ -1,0 +1,9 @@
+Verified Record of Overseas Service. To: Office of Personnel, Statistical Reporting Branch, Room 192, Curie Hall. Employee serial no.: 1-3, 007894. Name of employee: Smith Joseph B. Office/component: 24-28, 64.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert appropriate code number in “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS Dates of Service. Type of data: 1 - PCS (Basic). Code: 26. Arrival month: 27-28; day: 29-30; year: 31-32. Departure month: 33-34; day: 35-36; year: 37-38. Omit: 30-41. Type of data: 2 - Correction. Type of data: 3 - Cancellation.
+
+TDY Dates of Service. Type of data: 2 - TDY (Basic). Code: 20. Departure month: 27-28; day: 29-30; year: 31-32. Return month: 33-34; day: 35-36; year: 37-38. Area(s): WTT. Omit: 30-41. Type of data: 4 - Correction. Type of data: 5 - Cancellation.
+
+Source of Record Document: X Travel Voucher; Dispatch; Cable; Duty Status or Time and Attendance Report; Other (Specify).

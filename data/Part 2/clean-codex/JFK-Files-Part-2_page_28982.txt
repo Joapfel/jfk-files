@@ -1,0 +1,53 @@
+Form 1040 (1975)
+
+Other Dependents. Name; relationship; months lived in your home; whether dependent had income of $750 or more; amount you furnished for dependent's support; amount furnished by others including dependent.
+
+27. Total number of dependents listed in column (a). Enter here and on line 6c.
+
+Part I. Income other than Wages, Dividends, and Interest.
+
+28. Business income or (loss) (attach Schedule C).
+
+29a. Net gain or (loss) from sale or exchange of capital assets (attach Schedule D): 7559.
+
+29b. 50% of capital gain distributions (not reported on Schedule D—see page 9 of Instructions): 1000.
+
+30. Net gain or (loss) from Supplemental Schedule of Gains and Losses (attach Form 4797): 2313.
+
+31a. Pensions, annuities, rents, royalties, partnerships, estates or trusts, etc. (attach Schedule E).
+
+31b. Fully taxable pensions and annuities (not reported on Schedule E—see page 9 of Instructions).
+
+32. Farm income or (loss) (attach Schedule F).
+
+33. State income tax refunds (does not apply if refund is for year in which you took the standard deduction—others see page 9 of Instructions).
+
+34. Alimony received.
+
+35. Other (state nature and source—see page 9 of Instructions).
+
+36. Total (add lines 28 through 35). Enter here and on line 12: 8872.
+
+Part II. Adjustments to Income.
+
+37. “Sick pay.” (attach Form 2440 or other required statement).
+
+38. Moving expense (attach Form 3903).
+
+39. Employee business expense (attach Form 2106 or statement).
+
+40a. Payments to a Keogh (H.R. 10) retirement plan.
+
+40b. Payments to an individual retirement arrangement from attached Form 5329, Part III: 375.
+
+41. Forfeited interest penalty for premature withdrawal—see page 10 of Instructions.
+
+42. Total (add lines 37 through 41). Enter here and on line 14: 375.
+
+Part III. Tax Computation (Do not use this part if you use the Tax Tables to find your tax.)
+
+43. Adjusted gross income (from line 15): 8592.
+
+44a. If you itemize deductions, check here and enter total from Schedule A, line 41 and attach Schedule A: 5735.
+
+44b. If you do not itemize deductions and line

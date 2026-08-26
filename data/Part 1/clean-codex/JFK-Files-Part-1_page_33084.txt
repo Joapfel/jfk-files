@@ -1,0 +1,7 @@
+Originator: DCOS, WH/Miami, Lawrence Sternfield.
+
+Releasing: C/WH/COG, James E. Flannery.
+
+Distribution: RID; WH/COG Chrono; O-C/WH/COG Chrono; WH/COG/OPS; Signal Center; COS, Ottawa (pouched); EUR/BC; WH/COG/OPS.
+
+UFAW-671.

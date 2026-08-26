@@ -1,0 +1,49 @@
+(4) Number of statements submitted
+
+Combine total number of oral and written statements submitted and show only the total number.
+
+(5) Stability and reliability
+
+Check the positive box if the informant is considered stable and reliable. If not, or if there are any personal weaknesses, domestic difficulties, indications of untrustworthiness or unreliability, or any other similar problems presented by the informant, check the negative box and explain under “Miscellaneous.”
+
+(6) Indoctrination against disclosure
+
+If the informant has been indoctrinated against disclosure, check the positive box.
+
+(7) Percentage of information verified
+
+Show the percentage of information furnished by the informant which has been verified through other sources.
+
+(8) All necessary action taken on information furnished
+
+If all action has been taken, check the positive box. If not, check the negative box and explain under “Miscellaneous.”
+
+(9) Summary of information furnished
+
+This summary should be concise, highlighting the more pertinent information furnished by the informant. Do not attempt to summarize all information furnished by the informant.
+
+(10) Miscellaneous
+
+Furnish any change in the informant’s residence and employment, steps being taken to advance the informant, and any other pertinent information which should be brought to the Bureau’s attention. Include a statement that the source has been advised that all payments of money made to him for services rendered must be declared as income on his tax return and has agreed to do so.
+
+c. When payment to the informant has been authorized for a definite period of time, advise the Bureau at least two weeks in advance of expiration of the period as to whether the services of the informant are to be continued.
+
+d. Every six months submit FD-401 to the Bureau requesting continuation of payments. Follow the instructions set forth in item 3b, above.
+
+e. Submit letters requesting authority to continue, increase, or decrease payments to an informant in duplicate, except that the copy should consist only of the first page of the letter. When payments are approved, the single-page copy will be stamped “Approved” at the Bureau and returned. If the recommendation is not approved, the field will be advised by separate communication.
+
+f. When payments are authorized by the Bureau, it is the personal responsibility of each SAC definitely to assure that full value is being received.
+
+g. Discontinuance of payments
+
+If at any time it appears that the information being produced by the informant is not commensurate with the payments made to him, immediately discontinue payments or adjust accordingly and promptly advise the Bureau.
+
+h. If any extraordinary expenses are anticipated for which approval has not been given, obtain specific Bureau authority.
+
+4. Six-month evaluation of informants not paid on Bureau authority
+
+If the informant is not being paid on Bureau authorization, FD-401 must be transmitted to the Bureau every six months after the date of designation, containing the same information set out in item 3b, above, except those items concerning payments. The recommendation of the SAC regarding continuance of the informant should also be set forth UACB. In espionage and foreign nationality cases, comment is necessary regarding only applicable items.
+
+5. Receipts
+
+When payments are made either on SAC authority or prior Bureau approval, obtain receipts in every instance in which it is possible to do so. If a receipt cannot be obtained for a particular payment, set forth the complete circumstances on a blue slip at the time reimbursement is claimed.

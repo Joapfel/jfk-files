@@ -1,0 +1,5 @@
+Espionage Section.
+
+Front Office: Cases 0; Men 2; Average 0.  
+Four Soviet & Two: Cases 5099; Men 18; Average 283.  
+Satellite Units: Cases 5099; Men 20; Average 283.

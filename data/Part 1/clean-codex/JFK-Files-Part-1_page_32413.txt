@@ -1,0 +1,11 @@
+Serial No. 1-8 036130. Last: Flores. First: Daniel.
+
+Instructions: Use appropriate space below to report data for either PCS or TDY. Insert appropriate code number in the “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month and last two digits only for year. Refer to Off. No. 50, revised.
+
+PCS Dates of Service. Arrival O/S. Departure O/S. Type of data: 1 — PCS (Basic); 2 — Correction; 3 — Cancellation. Country code.
+
+TDY Dates of Service. Arrival O/S. Departure O/S. Type of data: 2 — TDY (Basic); 4 — Correction; 6 — Cancellation. TDY data: 10, 30, 9, 5, 11, 0, 4, 2, 8, 1.
+
+Office of Personnel Use Only — Punch Area.
+
+Source Document and Certification. Travel voucher. Dispatch. Cable. Duty status or time and attendance report. Other (specify). Document identification No. Document date/period: Oct. 30, MCGV 4-25. Remittals. Prepaid by. Date. Address specified expressly as described upon source document, city. Account number.

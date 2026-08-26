@@ -1,0 +1,3 @@
+Notification of Personnel Action.
+
+Office. Nom Number. Name—last, first, middle. Name—first, middle, surname. Relocation. City. State. ZIP Code. CCN. E-mail Address. Phone Number. Fax Number. Birth Date. Age. SSN. CC. Sex. DOD. Previous Service Group. Terms of Termination. Reason for Termination. Termination Date. Final Department State. Office Location.

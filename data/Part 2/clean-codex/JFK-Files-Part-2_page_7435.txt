@@ -1,0 +1,17 @@
+DOHB 70-1-1, Chapter III, Annex B. 15 November 1974.
+
+Desk blocks on the 201 Personality File Action Request (Form 831). The standard listings available are:
+
+1. Alphabetic by surname, leading to a 201 number.
+2. Alphabetic by given name, leading to a 201 number.
+3. Alphabetic by cryptonym, leading to a 201 number.
+4. Numerical, leading to a surname.
+5. Numerical, leading to a cryptonym.
+
+Name: CHEW, SHU-1. 201 numbers: 7115/1343/5039, 7115/1343/0001, 7115/1343/000301. Type name: A. Birthplace city: 17JUL14. Age: CHIN, KWANGTUNG. Occupation: 24JAN11, 90. Citizenship: CHIN, ANDY, 04JAN19. 201: CHIN, FUKIEN, PROV.; CHIN, PANCIMPIA, PORT ARTH. 01-1: 21OCT08. 01-2: CHIN, HUAN, 12NOV22. Activity city: CHIN, MUNAN. Location: DIPT. Pattern: CHIM. 201 identifiers: 0165401, 0230859, 0178653, 0234629, 0179620, 0069786, 09091340. 01-1: CHIN. Location: HK, CHIN.
+
+Name: CHEW, SHU-1. 201 numbers: 7115/1109/1, 7115/1109/2, 7115/1109/3. Type name: A. Birthplace city: C41. Age: CHIN, CANTON. Occupation: 02SEP28. Citizenship: CHIN, LIAOHENG PROV. 201: 12JAN18. 01-1: CHIN, FUKEIN. 01-2: 09JUN99. Activity city: CHIN, CANTON. Location: PROF. Pattern: CHIM. 201 identifiers: 0040249, 0052638. 01-1: CHIN. Location: MALT, CHIN.
+
+Name: CHEW, SHU-GAM. Type name: A. Birthplace city: 19DEC19. Age: CHIN, KWANGTUNG PEGV. Occupation: 07JUL30. Citizenship: CHIN, KWANGTUNG PEGV. 01-2: NOV30. Activity city: CHIN, YUAN TANG TS. Location: TSEA. Pattern: CHIM. 201 identifiers: 0124438, 0797335. 01-1: CHIN. Location: USA, CHIN.
+
+Name: CHEW, SHU-CHIH. Type name: L. Birthplace city: CIRC22. Age: CHIN, PFILIU. Pattern: CHIM. 201 identifiers: 0200223, 04PAS77. 01-1: CHIN.

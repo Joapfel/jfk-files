@@ -1,0 +1,17 @@
+Personality File Action Request.
+
+To: RID/201 Section. Tube Station: D6. Date. Action: Open; Closed; Branch. From: Name.
+
+201 request. Exclude true name from machine list. Restricted. Permanent charge. 201 No. IDN No. Source document. Date. Name: Last, First, Middle. Sex. Photo.
+
+Name variations: Type name; Last; First; Middle.
+
+Date of birth: Day, Month, Year. Country of birth. City/town of birth. Country of location. Code. Citizenship.
+
+Organization or intelligence affiliation.
+
+Occupation (clear text). Hard carry if true name appears above.
+
+Action desk / secondary desk / codes. Hand carry if true name appears above.
+
+Comments. Signature. IDN-201-.

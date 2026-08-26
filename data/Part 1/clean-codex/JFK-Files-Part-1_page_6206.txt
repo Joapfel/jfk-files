@@ -1,0 +1,45 @@
+Nombre; Edición; Caus; Los años; Provincia.
+
+M (continuación).
+
+MARTINEZ SARDINAS, Luis A.; Edición: No. 2; Caus: 31-63; Los años: 9; Provincia: Habana.
+
+MILIAN RIVERO, Manuel; Edición: No. 2; Caus: 31-63; Los años: 9; Provincia: Habana.
+
+MENENDEZ CONZALEZ, Rafael; Edición: No. 2; Caus: 31-63; Los años: 9; Provincia: Habana.
+
+HASTRI PEREZ, Raul; Edición: No. 2; Caus: 31-63; Los años: 6; Provincia: Habana.
+
+MARTINEZ D'OSABA, Nelson; Edición: No. 2; Caus: 31-63; Los años: 6; Provincia: Habana.
+
+MORENO CARRERA, Gerardo M.; Edición: No. 2; Caus: 31-63; Los años: 5; Provincia: Habana.
+
+MASPULEX LOPEZ, Antonio; Edición: No. 2; Caus: 31-63; Los años: 3; Provincia: Habana.
+
+MORALES ALVARO, Enrique; Edición: No. 2; Caus: 31-63; Los años: 3; Provincia: Habana.
+
+MARTINEZ PDRIGUEZ Gelso; Edición: No. 2; Caus: 31-63; Provincia: Habana.
+
+MARTINEZ GARCIA, Roberto; Edición: No. 2; Caus: 31-63; Provincia: Habana.
+
+MARTI, JOSE MENENDEZ CONZALEZ, Pablo; Edición: No. 2; Caus: 31-63; Provincia: Matanzas.
+
+MONTES DE OCA, Ignacio MARTINEZ, Juan Pedro; Edición: Dic.-2; Caus: 28-63; Los años: 9; Provincia: Habana.
+
+MARTINEZ JIMENEZ, Vicente; Edición: Dic.-2; Caus: 63; Los años: 1; Provincia: Camagüey.
+
+MELIAN CABALLERO, Angel MARTINEZ, RICARDO; Edición: Dic.-2; Caus: 15; Los años: 15; Provincia: Habana.
+
+MORALES, Jose MORALES, Reinaldo; Edición: Dic.-2; Caus: 15; Provincia: Habana.
+
+MITRE Luis MARQUES, Rafael; Edición: Dic.-2; Caus: 15; Provincia: Habana.
+
+N. NAUMAN IREDA, Manuel NUNEZ TRINCADO, Teresa NICIOLINI, Pedro; Edición: Dic.-2; Caus: 33-63; Provincia: Habana. Provincia: Oriente.
+
+B. O.PARRIL PEREZ, Agapito; Edición: Parrillo; Caus: 127-61; Los años: 3; Provincia: Oriente.
+
+P. PÉREZ CARBONELL, Manuel.
+
+PEREZ DÍAZ-ANGELLES Nicolás B.; Edición: abr.-11; Caus: 127-61; Los años: 3; Provincia: Oriente.
+
+PEGUENO VELC, Laureano PENA FERNANDEZ, Oberto; Edición: Sep.-2.

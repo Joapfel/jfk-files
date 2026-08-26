@@ -1,0 +1,3 @@
+Notification of Personnel Action. Action code: 45. Station code: 13. Name: AUTHORIZE. Date of birth: 01. Date of grade: 23. SDate: 24. C.: D. Serial number: OCT. Specific reference: GODDARD. Retirement data: GODDARD JAMES W JR. Separation data code: 19-28-70. Correlation data: Jun. Career data code: POSTED.
+
+Additional codes and references: NO; DA; REF; CODE; MC; DA; REF; CCU/C; MC; DA; REF; CCU/C.

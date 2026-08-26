@@ -1,0 +1,5 @@
+Type of data: 1. PCS (Basic), 2. Correction, 3. Cancellation. Arrival code: 28. Departure months: 27–28; departure days: 29–30; departure years: 31–32. Country months: 33–34; country days: 35–36; country years: 37–39.
+
+Type of data: 2 – TOY (Basic), 4 – Correction, 6 – Cancellation. Departure code: 26. Departure month: 27–28; departure day: 29–30; departure year: 31–32. Return month: 33–34; return day: 35–36; return year: 37–39. Omit: 39–41. Departure month: 04. Return month: 05. Omit: 801.
+
+Travel voucher. Dispatch. Cable. Duty status or time and attendance report. Other (specify). Document identification no. Document date/period. Prepared by. Report annotated on source document. Above data verified correct, based upon source document cited. Fiscal division. Date. Signature. Finance division.

@@ -1,0 +1,15 @@
+Person/Unit Identifier: Turksford. OSM 9970. CIS. CS/OP: CI/IC 2, CS/DO. DO S. FI O. FI/D. IN. DI/AN. Action Unit. File to be addp. CA 5. CA/PEC. CA/PROP. CI/OPS: CI/IC 2, CS/DO. DO S. FI O. FI/D. IN. DI/AN. Action No.: F-39. CI, SOD 3, WH/COG 4, WH/COG/R 4, EUR 9, DCI, D/DCI, DDP, CS/RF.
+
+121553Z April 72, CITE MADRID 0861.
+
+Director info WH/MIAMI.
+
+Intel typic ZRWAHOO TIMID.
+
+SUPDATA source: Paragraph two from 1 QUAXE-1 and from QUFLUTE-1. No index.
+
+Filed: 121553Z.
+
+IW comment: OPS data (true name) deleted from SUPDATA per CS#B-F-51-1, Chapter IV, para 29. Copy of original SUPDATA given to WH/COG, EUR/13, VR, file, ADDP, C/FI.
+
+10A=060346.

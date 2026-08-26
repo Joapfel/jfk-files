@@ -1,0 +1,9 @@
+Report of Service Abroad. To: Office of Personnel, Control Division, Statistical Reporting Branch.
+
+Serial No.: 1-0. Last: Flores. First: Daniel.
+
+Instructions: Use appropriate space below to report data for either PCS or TOY. Insert appropriate code number in the “Code” column to designate which submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year. Refer to OFI No. 58, revised.
+
+PCS dates of service. Arrival O/S: month, day, year. Departure O/S: month, day, year. Type of data: 1 — PCS (Basic); 3 — Correction; 5 — Cancellation. O/P use only. Country.
+
+TOY dates of service. Arrival O/S: month, day, year. Departure O/S: month, day, year. Type of data: 2 — TDY (Basic). O/P use only. Area(s).

@@ -1,0 +1,11 @@
+EC. 27561. Director: Leopoldville. C/AF 3. C/CA, C/CI, C/BELL 5, C/W 2, cable sequence. December 2, 22832, 61. S/C 2. Routine. IN 31778.
+
+DIR CITE LEAP 2541  
+PER GSH 43-43  
+PAYOFF WIROGUE  
+IMMEDIATE ACTION  
+REF ACLA 667
+
+1. COACID, in response to routine TPELIDE reporting requested per ODACID TEL 895, available information regarding WIROGUE (W) plane-purchasing mission to PBPRIME. COUNIT representative wrote reply to ODACID 2 December, which merely answered ODACID query. He previously reported to his HOS he believes W's trip okay and would be interesting for ODUNIT to debrief W. COUNIT representative also told W PBPRIME might allow sale of aircraft, even if lighter aircraft, if joint GOC/UN control of such aircraft were worked out. I interpreted this to mean PBPRIME would sell aircraft with no “ifs.” (V.A.1c1)
+
+2. W received conflicting orders from GOC to go to PBPRIME.

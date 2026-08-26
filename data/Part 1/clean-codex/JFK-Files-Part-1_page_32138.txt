@@ -1,0 +1,13 @@
+Qualifications System Record Change.
+
+Applicant Coding Data. 1. ID. 2. Appl. No. 3. Name. ID: <•>. Application number: 6-digits. Name: must contain 20-digits. 4. Date of birth: MO DA YR. 5. Date coded: MO DA YR.
+
+The data above (items 2 thru 5) will be filled in when coding an applicant for the first time. This form is then attached to Form 1962, Master Qualifications Coding Record.
+
+Language Coding Data—Form 444C. 1. ID. 2. Employee No. 3. Name. 4. Language Data Code: base code, R, W, P, S, U, T, YR. ID: <•>. Employee number: 3 •. Name: 3-letters. Language data code: A, ⁴B, C-A-D, E-L, F-L, G-O, H-I, K-J, L-M, N-R, T-T, Y-Z.
+
+When Form 444C denoted no language competence, enter the following in item 4: “NO++LANGUAGE” (12-digits).
+
+5. Date submitted: MO DA YR.
+
+Language Proficiency Test Data. 1. ID. 2. Employee No. 3. Name. ⁴B Code. 5. Language Data Before Test. Base Code. R. W. P. S. U.

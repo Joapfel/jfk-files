@@ -1,0 +1,11 @@
+201 Personality File Action Request.
+
+To: R.D./201. See Room GA-20. Tube address: DW-6.
+
+From. Office. Room. Phone. Tube address. Type action.
+
+File restricted. Permanent charge. True name. Last, first, middle. 201 No. Name variants and telecodes. Type, last, first, middle. Citizenship. Country of birth. City/town of birth. Occupation (clear text). Date. Residence. Comments (text for index cards). Country of location code. Action desk code. Secondary desk code. Information addresses. Cryptonym.
+
+Hand carry or forward by tube if true name appears above.
+
+Signature of requester. 201 No.

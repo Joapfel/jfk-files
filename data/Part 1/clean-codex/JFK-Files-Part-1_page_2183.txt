@@ -1,0 +1,9 @@
+Identity Title, ID Code Grade, Position No., SD, Facultyment, Occ. Code Grade, Position No., SD, as of 10 Dept 1964. Location, address, name, descriptors, date, status.
+
+Management Area: N-2030.11-08; position 1-3231; SL F; Gauvale Robert L; date 05-2020.01-08; code 3231; SD SL. Rochette Robert J; position 9; date 05-2020.01-09; code 3231; SD SL.
+
+Warehousing Unit. Address: N-2030.11-09; position 1-3207; SL F; Harris Richard T; date 05-2030.11-09; code 3209; SD SL. Phone Number: N-2030.11-07; position 2-3208; SL F; Williams C. M. Jr.; date 05-2030.11-09; code 3206; SD SL.
+
+Stock Control Unit. Address: N-2040.01-17; position 1-3206; SL F; Newlond Robert E. Sr.; date 05-2040.01-17; code 3208; SD SL. Management Area: G-2040.01-11; position 1-3207; SL F; Wilson Ivan J; date 05-2040.01-11; code 3209; SD SL. Accounting Area: G-2040.01-07; position 1-3213; SL F; Bentner Robert F; date 05-2040.06-06; code 3217; SD SL. Stock Controller: G-2032.01-06; position 1-3901; D.
+
+Department Store—Pharmaceuticals. Address: N-2040.06-09; position 1-3212; SL F; Reynolson Robert N; date 05-2040.06-07; code 3213; SD SL. Accounting Area: G-2036.11-07; position 1-3216; SL; R. Lash Raymond N. Village Center Amounting Section: G-2036.11-11; position 1-3220; SL F; Ryan John P; date 05-1178.01-12; code 3226; SD SL 52. General Accounting Area: G-1178.01-11; position 1-3220; SL F; Lash Raymond N; date 05-1178.01-11; code 32.

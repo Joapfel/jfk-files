@@ -1,0 +1,9 @@
+AFS: 29 August 1961.
+
+Action code: 13. Employee code: 10. Office code: 64530 WH. Station code: 99999. Month year code: 2. Date of December code: 08 25 25. Date of grade: 06 26 60. Date of leave: 06 26 60.
+
+NTE expires: NO DA 18. Special reference: 1. CRR; 2. PAG; 3. DME. Retirement data: COD. Separation data code. Correction or change-of-data data: type DQ 2A 1Y. EOD data: M1.
+
+Vet preference: code 1. Long comp. date: 04 16 146 05. Mil. service credit/COD: 05 152; 1. Yes; 2. No. Reg/health insurance: code 2; 1. Yes.
+
+Previous government service data: code 1. Leave category: code 8. Federal tax data: form executed, 2. Yes; 3. No; no tax exemptions. Signature or other authentication.

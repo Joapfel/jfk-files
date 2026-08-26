@@ -1,0 +1,11 @@
+19 Action: CDF. 20 Employment: 10. 21 Office Coding: 64350 WH. 22 Station: 75013. 23 Intrigue: Code. 24 Hdg.: (Code). 25 Date of Birth: 05.09.29. 26 Date of Grade: No. 27 Date of Let: Day Year.
+
+EOD Data.
+
+28 NTE Expires: No, Day, Year, Code. 29 Special Reference: Type, No. 30 Retirement Data: SA., YN.
+
+31 Separation Data Code. 32 Correction/Cancellation Data. 33 Vet. Preference: Code. 33 Serv Comp Date: Code, Name, Code. 34 Long Comp. Date: Code, Code.
+
+35 Career Category: Code, Name, Code. 36 FEGLI / Health Insurance: Code, Code.
+
+37 Serv Comp Date. 38 Social Security No. 41 Previous Government Service Data: Code. 42 Leave Cat Code: Code. 43 Federal Tax Data: Code. 44 State Tax Data. 43 Executive Code. 44 Tax Exemptions.

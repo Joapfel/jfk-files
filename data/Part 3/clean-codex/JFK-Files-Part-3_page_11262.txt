@@ -1,0 +1,1 @@
+Position. Per cent of time: Headquarters City Agent, working IS, CI: 80, 50; 80, 50; 20, 40; 0, 40; 5, 15; 20, 0; 10, 0; 5, 5; 5, 5. Resident Agent, working, IS, CI: 10, X0; 10, 0; 10, X0; 3, 3; 6, X0; 0, 6; 6, X0; 3, X0; 0, X2.

@@ -1,0 +1,15 @@
+Index: 19-120-26. Classified message. Total copies. Destroy, signature: Searle. Action: JMWAVE. WH/C 8. File: UR, WH8, CAZ, CALPROP, CILC2, NE6.
+
+291934Z. DIR INFO RIOD CTE WAVE 8123. TYPIC MHSPAWN.
+
+References: A. DIR 67579. B. TM 772926. C. UFCA 24163.
+
+Per paragraph two reference A request, JMWAVE pouched reference S bulky materials to HOS for forwarding to RIOD. Special AMSCROLL study and other selected materials pouched RIOD reference C.
+
+Requested WAVE cable material.
+
+CFN: 8123, 67579, 772926, 24163, A, JMWAVE, B, HOS, AMSCROLL, C.
+
+29 DEC 95 11:23371.
+
+A151-141

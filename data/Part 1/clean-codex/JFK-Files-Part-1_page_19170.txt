@@ -1,0 +1,11 @@
+FJT: 13 April 1967.
+
+Action code: 32. Employment code: 10. Office coding: 51620 WH. Station code: 45075. DOB: 3. Date of birth: 11 02/08.
+
+NTE expires. Special reference: 1—CSC; 2—CIA; 3—FICA; 4—NONE. Retirement data code. Separation data code. EOD data.
+
+Wet preference: 1—NONE; 2—SP; 3—TO PY. Service computation date. Long computation date. Career category: TYPE, PROV, CAN, FUNX, JMP. EOD data.
+
+Previous civilian government service. Leave category code. Federal tax data, form executed: 1—YES; 2—NO. State tax data, form executed: 1—YES; 2—NO.
+
+Signature or other authentication.

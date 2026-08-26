@@ -1,0 +1,31 @@
+Schedule A. Taxable 1973 year.
+
+Name as shown on Form 540: Samuel & Phyllis Ruby. Social Security Number: 322/12 7987.
+
+Itemized vs. Standard Deduction—You have a choice between two deduction methods. You can either itemize your deductions or take a standard deduction as explained in the 540 Instructions. On separate returns of a husband and wife, if one spouse itemizes deductions, the other may not use the Tax Table or claim the standard deduction. If you choose to itemize your deductions, complete the appropriate items below.
+
+Medical and dental expenses (not compensated by insurance or otherwise) for medicine and drugs, doctors, dentists, nurses, hospital care, insurance premiums for medical care, etc.
+
+1. One half (but not more than $150) of insurance premiums for medical care: 150.
+2. Medicine and drugs.
+3. Enter 1% of adjusted gross income shown on Form 540.
+4. Subtract line 3 from line 2. Enter difference (if line 3 is greater than line 2, enter zero).
+5. Enter balance of insurance premiums for medical care not entered on line 1: 475.
+6. Other medical and dental expenses:
+(a) Doctors, dentists, etc.: 730.
+(b) Hospitals.
+(c) Other (itemize): 60.
+7. Total—(Add lines 4, 5, 6a, b, and c): 1265.
+8. Enter 3% of adjusted gross income shown on Form 540: 499.
+9. Subtract line 8 from line 7. Enter difference (if line 8 is greater than line 7, enter zero): 766.
+10. Total—(Add lines 1 and 9. Enter here and on Form 540, page 2): 916.
+
+Interest Expense:
+22. Home mortgage.
+23. Installment purchases.
+24. Other (itemize).
+25. Total—(Add lines 22, 23 and 24. Enter here and on Form 540, page 2): 3169.
+
+Child Adoption Expense.
+
+Miscellaneous Deductions. Casualty or Theft Loss(es)—See Instructions. NOTE: If you had more than one loss, omit lines

@@ -1,0 +1,21 @@
+Outgoing message.
+
+Signal Center use of OMF. Message handling indicator: Staff. CONF.: LAG. INFO: File. Date-time group: 251731Z. CIT.: 251731Z. Director.
+
+Department of Encryption Code: 130272.
+
+Date: 23 November 1977. Time: 11:00 AM.
+
+Originator: ALBERT/AMORI:CK. Unit: AC/LAZYCE. Extension: -1033.
+
+AC7LA/VCE. Remitting office.
+
+Signal Center: Please insert DIR number.
+
+P.O. No.: 97023. Entered for frequently ordered by: Feb 25.
+
+SHL. PCS/LSN.
+
+Authenticating officer. E 2 IMPDET. Classified by 007667.
+
+Coordinating officer.

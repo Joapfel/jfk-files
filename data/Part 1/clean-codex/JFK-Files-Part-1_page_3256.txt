@@ -1,0 +1,28 @@
+<table>
+    <tr>
+        <td>✓</td>
+        <td>I CERTIFY, BY way of statement in writing, that I have read and understand the information set forth herein. In particular, but not limited to, the part concerning medical benefits and insurance available under the contract. I also acknowledge that I have read and understood the information set forth in the contract, particularly with respect to my rights as a consumer of health care services under Medicare and Medicaid, and further acknowledge that I have read and understood the terms and conditions of this policy. I also acknowledge that I have read and understood the disclosure statements set forth herein.</td>
+    </tr>
+    <tr>
+        <td>✓</td>
+        <td>I certify that I have read and fully understand the information set forth herein and specifically state that I voluntarily assume the risks of participation in the Medicare Part D Program. I also assume full responsibility for my own health care and am aware that I will be responsible for all costs incurred by me while participating in the program. Further, I hereby irrevocably authorize any authorized representative of me to act on my behalf in accordance with the provisions of this agreement. This authorization is made without regard to whether or not I am a resident of the United States. Further, I hereby irrevocably authorize any authorized representative of me to make all decisions relating to my coverage under the Medicare Part D Program, subject to my approval. The authorization will not take effect until the end of the current benefit period. I further authorize any authorized representative of me to apply for any necessary government benefits on my behalf.</td>
+    </tr>
+    <tr>
+        <td>✓</td>
+        <td>I certify that I have read and fully understand the information set forth herein and specifically state that I voluntarily assume the risks of participation in the Medicaid program. I also acknowledge that I will be responsible for all costs incurred by me while participating in the program. This authorization is made without regard to whether or not I am a resident of the United States. Further, I hereby irrevocably authorize any authorized representative of me to make all decisions relating to my coverage under the Medicaid program, subject to my approval. The authorization will not take effect until the end of the current benefit period. I further authorize any authorized representative of me to apply for any necessary government benefits on my behalf.</td>
+    </tr>
+    <tr>
+        <td>✓</td>
+        <td>I certify that I have read and fully understand the information set forth herein and specifically state that I voluntarily assume the risks of participation in the prescription drug assistance program. I also acknowledge that I will be responsible for all costs incurred by me while participating in the program. This authorization is made without regard to whether or not I am a resident of the United States. Further, I hereby irrevocably authorize any authorized representative of me to make all decisions relating to my coverage under the prescription drug assistance program, subject to my approval. The authorization will not take effect until the end of the current benefit period. I further authorize any authorized representative of me to apply for any necessary government benefits on my behalf.</td>
+    </tr>
+    <tr>
+        <td>✓</td>
+        <td>I certify that I have read and fully understand the information set forth herein and specifically state that I voluntarily assume the risks of participation in the dental care assistance program. I also acknowledge that I will be responsible for all costs incurred by me while participating in the program. This authorization is made without regard to whether or not I am a resident of the United States. Further, I hereby irrevocably authorize any authorized representative of me to make all decisions relating to my coverage under the dental care assistance program, subject to my approval. The authorization will not take effect until the end of the current benefit period. I further authorize any authorized representative of me to apply for any necessary government benefits on my behalf.</td>
+    </tr>
+    <tr>
+        <td>✓</td>
+        <td>I certify that I have read and fully understand the information set forth herein and specifically state that I voluntarily assume the risks of participation in the vision care assistance program. I also acknowledge that I will be responsible for all costs incurred by me while participating in the program. This authorization is made without regard to whether or not I am a resident of the United States. Further, I hereby irrevocably authorize any authorized representative of me to make all decisions relating to my coverage under the vision care assistance program, subject to my approval. The authorization will not take effect until the end of the current benefit period. I further authorize any authorized representative of me to apply for any necessary government benefits on my behalf.</td>
+    </tr>
+    <tr>
+        <td>✓</td>
+        <td>I certify that I have read and fully understand the information set forth herein and specifically state that I voluntarily assume the risks of participation in the hearing aid assistance program. I also acknowledge that I will be responsible for

@@ -1,0 +1,5 @@
+Qualifications System Record Change. Applicant Coding Data. ID. Applicant No. (6 digits). Name (must contain 20 digits). Date of birth: month, day, year. Date coded: month, day, year. The data above (items 2 through 5) will be filled in when coding an applicant for the first time. This form is then attached to Form 1962, Master Qualifications Coding Record.
+
+Language Coding Data—Form 444C. ID: <•3. Employee No.: *61164. Name: HAR. Language data code: base code, R, W, P, S, U, T, year. Date submitted: month, day, year. Date of birth: month, day, year. When Form 444C denotes no language competence, enter the following in item 4: “NO+LANGUAGE” (12 digits). 14. $2161. 1911315.
+
+Language Proficiency Test Data. ID. Employee No. Name. Code. Language data before test: base code, R, W, P, S, U, T, year. ID: <•5. Employee No. Name: 3-LETTERS. Code: C-A-D.

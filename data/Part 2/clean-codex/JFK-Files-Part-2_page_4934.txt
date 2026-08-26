@@ -1,0 +1,23 @@
+MHFNO: 97-6569968. SENS-IND: RYBAT.
+
+97 6569968 ASP. IN 6569968. BOGOTA 72820. TOR: 102355Z JAN 97.
+
+CITE BOGOTA 72820.
+
+To: Priority Director.
+
+For: LIMIT LA/CAGRR. Info: LA/CAGAB, CIC/LA, LA/RR, IID.
+
+Slugs: WNINTEL, INTEL, ZRWAHOO, LWDISSEM.
+
+Subject: Accompanying ops cable for HLB-15257.
+
+Reference: A. BOGOTA. B. BOGOTA 72819 97 6569966 (HLB-15257).
+
+1. Action required: Request upgrade of GIDARK/56's access description, per paragraph three below.
+
+2. GIDARK/56 (D/56) collected reference information in the course of her duties as personal assistant to Director of Colombian Army Intelligence Jairo Duran Pineda Nino. D/56 received the remarks on which the reference is based during late December conversations with Colonel Pineda, incoming intelligence chief Colonel Reynaldo Castellanos, and directly from General Manuel Bonett. D/56 heard Bonett's comment about DEA's involvement in the Kennedy assassination directly from him during a late December meeting. D/56 also spoke to Bonett's public relations advisor Monica Hara and to General Harold Bedoya. D/56 speaks to Hara and Pineda regularly in the course of her normal duties, and D/56 spoke to Bonett and Bedoya at late December holiday parties. D/56 passed the reference to C/O Stockmier on 8 January 1997 during a regularly scheduled ops meeting.
+
+3. The reference proposes upgrading D/56's source description access from indirect to good. D/56 told C/O Stockmier that she knows new Army Intelligence Director Castellanos, has spoken to him, and has accepted his offer to keep employing her after Pineda leaves for Moscow in coming weeks. Given this continued employment, we think her access is fairly described as good in reports about the Army. In reports about other non-Army topics, we propose continued use of “indirect” access in her source description.
+
+4. The reference is ORCON because it has remarks made privately by Bonett.

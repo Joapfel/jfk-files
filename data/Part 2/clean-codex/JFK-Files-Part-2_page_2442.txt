@@ -1,0 +1,19 @@
+Process Sheet for DCD Collections.
+
+Field/Resident Office: IMM. Organization Number: 154551. Case Number: 6,5,3,11. Forward to date: 12206. Released No.: 36564. Policy Code: 76.
+
+Subject and Area: Cover and related operational lead/US company contract with SORATRAC.
+
+Contact: Bruce Battista, Hackenhot Corporation, 1200 Ponce de Leon Boulevard, Coral Gables, Florida.
+
+Tape book: Graphics maps, publications, reports other.
+
+Brett: Data source—occupation; general; 3 documents required; exchange status 0.
+
+OSB: Data source—tri par report; 3 documents required; exchange status 0.
+
+OSA: Data source—other (specify below); 4 documents required; exchange status 0.
+
+Directed to: OSG, SREE, ICQ, ETF, desk officer.
+
+Field comments: Process sheet typed in OSG/OSB per MIAMI TX 13718. AIAA.

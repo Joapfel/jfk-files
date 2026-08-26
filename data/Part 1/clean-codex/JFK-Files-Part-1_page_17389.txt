@@ -1,0 +1,15 @@
+Orig: Bustos. Unit: 1619.
+
+Classified message.
+
+Routing. To: Mexico City. From: Director. Conf: C/WH 5. Info: ADDP, C/CI, C/FI 2, C/WE 2, C/FE 6, S/C 2. SIG CEN. Deferred. Routine.
+
+OUT80620. To: PRTY MEXI. Cite DIR: 38429. RYBAT: Info: 38428 (OUT OUT80619). REP DIR.
+
+IDEN A: Mr. Richard McNamara. IDEN B: Mr. Joseph Distefano.
+
+J. J. King, C/W/D.
+
+Releasing officer. Coordinating officers. Authenticating officer.
+
+Reproduction by other than the issuing office is prohibited.

@@ -1,0 +1,5 @@
+Applicant Coding Data. ID. Applicant No. Name. ID must contain 20 digits. The data above (items 2 through 5) will be filled in when coding an applicant for the first time. This form is then attached to Form 1962, Master Qualifications Coding Record. Date of birth. Date coded. Month. Day. Year.
+
+Language Coding Data. ID. Employee No. Name. Language Data Code. Base Code: R, W, P, S, U, T, YR. ID contains 3 digits. Employee No. 3 letters. When the form denotes no language competence, enter the following in Item 4: “NO LANGUAGE” (12 digits). Date submitted. Date of birth. Month. Day. Year.
+
+Language Proficiency Test Data. ID. Employee No. Name. Code. Language data before test.

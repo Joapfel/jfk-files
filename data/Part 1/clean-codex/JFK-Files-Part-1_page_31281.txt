@@ -1,0 +1,7 @@
+Qualifications System Record Change. Applicant Data. To. Applicant No. Name. C-words. Date of birth. New data added (items 2 through 5) will be filled in when C-words are an employee for the first time. This form is then attached to Form 1968, Master Qualified as subsequently being entered.
+
+Language Proficiency Data—Form 1782. ID. Employee No. Name. C-letters. Language Data Code. R. W. P. S. U. T. YR. New data added (not a language competence). Enter the following in Step 4: “NO-LANGUAGE” (12-words).
+
+Language Proficiency Test Data. ID: 3. Employee No.: 5. Name: WIG. C-letters: C. Language Data Code: BK5P. Language data before test: base code 3; R: 1; W: 3; P: 1; S: 1; U: 4; T: 57. Language data after test: DAC: BK5P; R: 3; W: 1; P: 7; S: 6; U: 6; T: 4; YR: 65; MO: 69; DA: 3D; YN: 65. Data for items 2 through 7 is extracted from Form 1273, Language Proficiency and Awards Data.
+
+The authorization to process this employee's disclaim of

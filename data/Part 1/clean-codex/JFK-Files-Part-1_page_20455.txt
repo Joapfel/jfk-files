@@ -1,0 +1,11 @@
+Personnel Qualification Questionnaire.
+
+Serial No.: 513942. Name: E. Made. Date of Birth. Sex: male (1), female (2). Marital Status. Number of Dependents. Citizenship: U.S. Acquired by: birth (1), marriage (2), naturalization (3), other (4). Year U.S. citizenship acquired, if not by birth.
+
+Section I. Education.
+
+Extent: less than high school; high school graduate; trade, business or commercial school graduate; two years college or less; over two years, no degree; bachelor degree; post-graduate study (minimum 8 semester hours); master’s degree; doctor’s degree.
+
+College or University Study. Name and location of College or University; Major; Minor; Dates attended, from and to; Years completed, day and night; Degree received and title; Semester hours.
+
+Brown University, 1941–1944. Major: Literature. Dates attended: from 1935 to 1940. Degree received: AB. 1940.

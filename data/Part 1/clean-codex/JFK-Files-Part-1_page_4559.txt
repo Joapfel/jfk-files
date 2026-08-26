@@ -1,0 +1,19 @@
+Classified message.
+
+From: JMWAVE. Action: SODL. Info: FILE, UR, AF7, WH/C8, C10A.
+
+152331Z.
+
+DIR CITE WAVE 6607.
+
+CHAPPIE WYTHRUSH PBRUMEN.
+
+Reference WAVE 3062, GUN92924.
+
+LORENTZ MIAMI sends:
+
+Request information clearance status of Francisco (BARTES) Clarens.
+
+Requested POA re subject.
+
+CFN 6607 3062 LORENTZ FRANCISCO BARTES CLARENS.

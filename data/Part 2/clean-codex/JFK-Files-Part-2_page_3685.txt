@@ -1,0 +1,9 @@
+NLJ 94-484 (#8).
+
+Routing: CIA/IPC.
+
+Action. Direct reply. Prepare reply. Approval. Dispatch. Recommendation. Comment. File. Return. Concurrence. Information. Signature.
+
+Handle via COMINT channels.
+
+Access to this document will be restricted to those approved for the following specific activities.

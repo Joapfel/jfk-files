@@ -1,0 +1,29 @@
+Schedule D-1. Taxable year 1973.
+
+Supplemental Schedule of Gains and Losses (Sales or Exchanges Including Involuntary Conversions). Attach to Form 540, 540NR, 541 or 565.
+
+Name as shown on tax return.
+
+Identifying number as shown on return.
+
+Part I. Gain from disposition of property under Sections 18211, 18212-18, 18219, 18220.
+
+Lines 9 and 10 should be omitted if there are no dispositions of farm property or farm land; or, if this form is filed by a partnership.
+
+Description: 1. Description of Sections 18211, 18212-18, 18219, and 18220 property.
+
+Property (A): Snack Bar. Date acquired: 4/70. Date sold: 8/13/73.
+
+Gross sales price: 28000-.
+
+Cost or other basis and expense of sale: 28138-.
+
+Depreciation allowed (or allowable): 12386-.
+
+Adjusted basis, line 3 less line 4: 15752-.
+
+Total gain, subtract line 5 from line 2: 12248-.
+
+If Section 18211 property: Depreciation allowed (or allowable) after applicable date: 12386-. See Instruction D-3. Line 6 or line 7(a), whichever is smaller: 12248-.
+
+If Section 18212-18 property: Enter additional depreciation after 12-31-63 and before 1-1-71: 1-9. Enter additional depreciation after 12-31-70. Enter line 6 or line 8(b), whichever is smaller.

@@ -1,0 +1,5 @@
+Notification of Personnel Action.
+
+Serial number. Name (last, first, middle). Effective date. Category of employment. Nature of personnel action: Classified and change of service designation. Closing center number chargeable. CISC or other legal authority. Funds. Cost center number. Organizational designations. Location of official station: Mar., D.C. Position title: Jr. of trained. Position number. Service designation: SJ. Classification schedule (S, L, W, O, P): R. Occupational series. Grade and step: D, O, T. Remarks.
+
+Action code: 32. Employees code: 19. Office coding. Station code. Intercept code: NO, DA, TO. Next Int'l code: 18. Date of birth: 12/18/35. Date of grade. Date of LEI. Hire expires. Special reference. Retirement data. Separation data code.

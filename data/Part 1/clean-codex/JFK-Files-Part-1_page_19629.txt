@@ -1,0 +1,13 @@
+Action code: 39. Employ code: 10. Office code: numeric 141831. Station code: alphabetic S.C. Interpret code: 75013. Hours code: 1. Date of birth: 06/19/19.
+
+No. due expires: M.O.; S.A. Special reference. EOD data. Retirement data: 1-18, 1-18A, 1-80B. Separation data code: CODE. Correction cancellation data: TYPE; M.O.; DA.; 1; 19.
+
+Net prestage: CODE; D.M.; DA; VS. September comp date: NO.; DA.; 19. Long comp date.
+
+D-mobile: 1-17 P; 2-13 PM. Code. Car type from temp. Code. Code. 0-driver; 1-MPS. Health ins. code.
+
+Previous citizen government service: CODE. Leave cat code: FORM EXECUTED; CODE. Federal tax data: FEDERAL TAX DATA; CODE NO-TAX EXEMPTIONS.
+
+Previous service: 1-02 previous service; 1-00 deceived 1980; 2-dead in service less than 3 years; 3-dead in service greater than 1 year. 1-RMS; 2-80.
+
+Position control certification. 1-26-67. Office. 07/16/87. Approval: By.

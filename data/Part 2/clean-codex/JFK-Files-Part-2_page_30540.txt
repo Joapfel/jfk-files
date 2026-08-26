@@ -1,0 +1,26 @@
+Only 1 copy of a 201 file; may be a working field copy.
+
+Subject files:
+Project files:
+Policy & management files.
+
+Project file: operational management record of a given project.
+
+A. Administration  
+B. Support  
+C. Production
+
+201 would have information on the asset involved in the project; the project file's information is on the operation itself.
+
+See Gregg Operational Details.
+
+Central list of cryptonyms—where they're registered—you can match the cryptonym with the true name. The more sensitive the asset in the operation, the more difficult it will be to get to the true name.
+
+Hard file: official information.  
+Soft file: includes working papers—anything of record value in the soft file would be included in the hard file.
+
+Project files: where are approval and decision-making records filed?
+
+Employee file contains: when worked; supervisor's name; type of work done; evaluations.
+
+Does not contain specific operations in which the employee was involved.

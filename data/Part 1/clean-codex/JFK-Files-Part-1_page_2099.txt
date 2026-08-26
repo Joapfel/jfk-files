@@ -1,0 +1,1 @@
+Position Control Register. Programming Data: Component A, Component B, Component C, Component D. Current Comp. Amps. Voltage, Highest. Voltage, Lowest. Time (msec).

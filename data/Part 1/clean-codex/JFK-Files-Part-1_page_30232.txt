@@ -1,0 +1,7 @@
+Notification of Personnel Action.
+
+Serial number. Name (last, first, middle). Present date. DA. TD. CTR. RGRS. Category of employment. Number of analysis no. charged by: 1771. C/C or other legal authority: 0501 (OFC-11-0343).
+
+Nature of personnel action. Designation / partition ID. Cation / relocation / transfers / departure / Italy/Slovacan. Funding: V 10 V; V 10 CF; C/10 V; C/10 CF. Organizational designations: DOS 'SEC. Location of official station: WAS., D... Position title: T... T... T... Position number. Service designation: SS. Classification (GS, 1B, etc.). Grade and step: 16. Salary or rate. Remarks.
+
+Space below for exclusive use of the Office of Personnel. Action code. Employee code. Office coding: numeric, alphabetic. Station code. Integrity code. Months employed. Date of birth. Date of graduation. Date of leave. NTE expires.

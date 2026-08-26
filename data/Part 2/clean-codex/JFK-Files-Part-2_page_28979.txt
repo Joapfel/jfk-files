@@ -1,0 +1,7 @@
+Schedule C-1: Depreciation claimed on line 13. Group and guideline class or description of property; date acquired; cost or other basis; depreciation allowed (or allowable) in prior years; method of computing depreciation; life or rate; depreciation for this year.
+
+Schedule C-2: Explanation of lines 6, 14, 16, and 26. Line No.; explanation; amount.
+
+Schedule F on reverse. Line No.; explanation; amount.
+
+Schedule C-1: Explanation of lines claimed on line 13. Line No.; explanation. One row contains marked fields.

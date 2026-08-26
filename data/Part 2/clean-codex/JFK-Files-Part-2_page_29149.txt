@@ -1,0 +1,24 @@
+Name as shown on Form 540 or 540NR: Samuel and Phyllis Ruby. Social Security Numbers.
+
+Short-term—assets held not more than 6 months.
+
+1. Schedule attached. Gain or loss: (1,248.00).
+2. Enter your share of net short-term gain (or loss) from partnerships and fiduciaries.
+3. Enter net gain (or loss), combine lines 1 and 2.
+4. Enter unused short-term capital loss carryover from preceding taxable years (attach statement).
+5. Net short-term gain (or loss), combine lines 3 and 4.
+
+Long-term—assets held more than 6 months.
+
+6.
+7. Enter gain if applicable from line 4, Schedule D-1 (Form 540) (attach copy).
+8. Enter your share of net long-term gain (or loss) from partnerships and fiduciaries.
+9. Net gain (or loss), combine lines 6 through 8.
+10. Enter unused long-term capital loss carryover from preceding taxable years (attach statement): (14,274.00).
+11. Net long-term gain (or loss), combine lines 9 and 10.
+12. Combine the amounts shown on lines 5 and 11, and enter the net gain (or loss) here: (15,522.00).
+13. If line 12 shows a gain—
+(a) Enter 50% of line 11 or 50% of line 12, whichever is smaller. Enter zero if there is a loss or no entry on line 11.
+(b) Subtract line 13(a) from line 12. Enter here and on line 32, Form 540 (line 33, Form 540NR).
+14. If line 12 shows a loss—
+(a) Add lines 4 and 10 (if lines 4 and 10 are blank, enter a zero here and on lines 14(b) and 14(c) and go to line 14(d)).

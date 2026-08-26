@@ -1,0 +1,15 @@
+Continuation of Dispatch Indexing Information. Document symbol and number: UFGA-27514. Instructions: Insert “ASSIGN” after 201 if number needed.
+
+Surname: Rorelego. Given name: Gladys.
+
+Sex: F. Date of birth: 3 September 1931. Country of birth: Cuba. City/town of birth: Havana.
+
+Additional information: Widow of Geirra Gutierrez, Omar (201-272267). Receives a monthly payment for this care.
+
+Surname: Martinez. Given name: Elsa.
+
+Sex: F. Date of birth: 30 June 1934. Country of birth: Cuba. City/town of birth: Manaias, L. V.
+
+Additional information: Widow of Galvez Lopez, Mario R. (201-297112). Receives a monthly payment for this care.
+
+Surname: Rojas. Given name: Blanco.

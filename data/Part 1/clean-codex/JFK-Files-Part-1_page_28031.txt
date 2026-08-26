@@ -1,0 +1,13 @@
+RCS: 14 January 1974.
+
+Notification of Personnel Action.
+
+Note: This action corrects Form 115D effective date 11/21/73 as follows: Item No. 7, FAN number, which read 4229 #269 #001, to read 4229 #249 #001.
+
+Space below for exclusive use of the Office of Personnel.
+
+19 Action Code. 20 Enquiry Code. 31 State Coding. Names: 433.J FRD 75515. N:1; N: DTC. N:11; N:20 26. N:11; N:21 73. 37. 19 Date of Death. 11. 19 Date of Grade. 11. 19 Date of Leave. 20. N:11; N:28 26.
+
+20 Salary Code. 21 Special Employee Data Code. 20 Special Employee Data Codes. N:3; N:4; N:5. N:11; N:21 73. IOD Data. 37. 19 Date of Death. 11. 19 Date of Grade. 11. 19 Date of Leave. N:11; N:28 26.
+
+21 Job Reference. 22 Salary Code (If 10K) Comp Data Code. 23 Job Reference. N:3; N:4; N:5. N:11; N:21 73. IOD Data. 37. 19 Date of Death. 11. 19 Date of Grade. 11. 19 Date of Leave.

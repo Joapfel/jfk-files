@@ -1,0 +1,19 @@
+Office of the Chief. Position Control Register. Date: 12/8/71.
+
+Actuator: No. 05-0301.03; name 13; position I; rank 3188; 1st.
+
+Transmitter: No. 08-0301.03; name 07; position I; rank 3191; 1st.
+
+Encoder: No. 08-0312.01; name 09; position I; rank 8086; 2nd.
+
+Distributor.
+
+Salut and File Stop: No. 08-0305.17; name 07; position I; rank 3193; 1st.
+
+Copier: No. 08-0302.09; name 08; position 2; rank 8194; 3rd.
+
+Copy Unit.
+
+Steering: No. 08-0067.01; name 11; position I; rank 3229; 1st.
+
+Finance Section.

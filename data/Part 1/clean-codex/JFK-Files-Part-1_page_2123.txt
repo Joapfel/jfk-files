@@ -1,0 +1,9 @@
+Position Control Register. Department: ROD PILE SUP; name/code: CS-0309,17; age: 79; height: I; weight: 3009; rank: 1D; department code: C; grade: 18; daily station: *10; first name: 08/12/66; last name: 37557. Name/code: RS-0309,17; age: 64; weight: 3009; rank: D.
+
+Department: MILLER FRED A; name/code: AS-0301,78; age: 77; height: 2; weight: 3064; rank: *D; shift: C; employee number: 25; department code: *10; grade: 12/1/67; daily station: 37387. Name/code: AS-0301,78; age: 67; weight: 3064; rank: D.
+
+Department: PARKSON JOSH; name/code: CS-0301,78; age: 67; weight: 3064; rank: D; shift: C; employee number: 14; department code: *10; grade: 05/29/69; daily station: 37547. Name/code: CS-0305,17; age: 77; height: I; weight: 3010; rank: 1D.
+
+Department: SHELD PILE SUP; name/code: CS-0305,17; age: 77; height: I; weight: 3010; rank: 1D; shift: C; employee number: 14; department code: *10; grade: 05/29/69; daily station: 37547. Name/code: CS-0309,17; age: 78; weight: 3010; rank: D.
+
+Department: HARRIS PILE C EGY; name/code: CS-0309,03; age: 75; height: I; weight: 3011; rank: *D.

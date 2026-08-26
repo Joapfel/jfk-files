@@ -1,0 +1,14 @@
+Format for Abstract of Material Submitted to the Senate (House) Select Committee Investigating Intelligence Activities.
+
+1. Subject.
+2. Originating organization.
+3. Nature of material (report, briefing, chart, etc.).
+4. Title.
+5. Summary of contents.
+6. Requestor.
+7. Date of request.
+8. Date of submission.
+9. Location of file copy/copies.
+10. Does material relate to an intelligence community problem? If so, identify.
+
+62-116 395-68

@@ -1,0 +1,17 @@
+Position Control Register. Columns: Name, position and employee number; since date of graduation; plan income fund number; graduation year; employee code A, SD; date of graduation; new employee number; birthday; type F, M, O, U, Y; program MO, DU, Y; status MO, Y; station code; title/direct reporter; company office; mailing address; phone number.
+
+Glockley Justin J; GS 0201.0111; 3159; SP; C; 23; 10.
+
+Corinty-Sterbach; GS 0318.0706; 1; 3843 * D; C; 36; 10.
+
+Marcavage A. G.; GS 0318.0105; 3893; D.
+
+Finance Officer; GS 0510.1414; 1; 3104 * SF; C; 23; 10.
+
+Agent Clarence P.; GS 0510.1414; 3164; SF; 563800-3601.
+
+August Officer; GS 0510.1411; 1; 3165 * SF; C; 26; 10.
+
+Martin Elwood C.; GS 0510.1412; 3166; SF; 563800-3602; 82.
+
+Luli At T. ASGT; GS 0501.0

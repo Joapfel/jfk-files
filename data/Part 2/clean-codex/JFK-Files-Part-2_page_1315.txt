@@ -1,0 +1,3 @@
+Action Code: 45. Employment Code: 10. Office Coding: Numeric; Alphabetic. Station Code: 22. Integration Code: 24. Date of Birth: 26. Date of Graduation: 28. Special Reference: 1—SC; 2—SCDM; 3—PICA; 4—DORI. Retirement Data: type and code. Separation Data Code. Correction/Cancellation Data: type and code. Service Computation Date; Long Computation Date: code, month, day, year. Veteran Preference: code, month, day, year. Carrier Category: CAB/RES, code. Regular/Health Insurance: type, code. Carrier: code, number. Previous Civilian Government Service: code, month, day, year. Leave Category Code: form executed, code. General Tax Data: code, number. State Tax Data: code, board, tax claim. Position Control Certification: date approved, code.
+
+JAN 12-27-73. JER. 12-27-73.

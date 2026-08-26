@@ -1,0 +1,9 @@
+13. Relatives (Continued).
+
+Complete name, including middle name (no initials); complete address. Occupation and name and address of firm where employed. Naturalization or alien registration number, date and place of naturalization, if applicable.
+
+e. Brothers. Address. Birth date. Place of birth. Name. Address. Birth date. Place of birth. Name. Address. Birth date. Place of birth.
+
+f. Sisters. Address. Birth date. Place of birth. Name. Address. Birth date. Place of birth. Name. Address. Birth date. Place of birth.
+
+g. Wives (including maiden names) and husbands of brothers and sisters. Address. Birth date. Place of birth. Name. Address. Birth date. Place of birth.

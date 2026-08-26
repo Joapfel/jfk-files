@@ -1,0 +1,37 @@
+Part II
+
+Pre-1970 and Post-1969 Capital Loss Carryovers
+
+Section A—Short-term Capital Losses Identified
+
+1. Enter loss from line 5, Schedule D (Form 1040) for 1972; however, if such line is blank or shows a gain, check this block.
+
+2. Enter gain from line 13, Schedule D (Form 1040) for 1972; however, if such line is blank or shows a loss, enter a zero.
+
+3. Reduce the loss on line 1 to the extent of the gain, if any, on line 2.
+
+Note: If line 4(a), Schedule D (Form 1040) for 1972 is blank, omit lines 4 through 11, enter a zero on line 12—then go to line 13.
+
+4. Combine lines 3 and 11, Schedule D (Form 1040) for 1972 and, if gain, enter gain; if zero or a loss, enter a zero.
+
+Note: If line 4 is zero, omit lines 5 through 11, enter on line 12 the loss from line 4(a), Schedule D (Form 1040) for 1972—then go to line 13.
+
+5. Enter gain, if any, from line 3, Schedule D (Form 1040) for 1972.
+
+6. Enter smaller of amount on line 4 or line 5.
+
+7. Enter excess of gain on line 4 over amount on line 6.
+
+8. Enter loss from line 12(a), Schedule D (Form 1040) for 1972; otherwise, enter a zero.
+
+9. Reduce the gain, if any, on line 7 to the extent of the loss, if any, on line 8.
+
+10. Enter loss from line 4(a), Schedule D (Form 1040) for 1972; otherwise, enter a zero.
+
+11. Add the gain(s) on line(s) 6 and 9.
+
+12. Reduce the loss on line 10 to the extent of the gain, if any, on line 11.
+
+13. Pre-1970 short-term capital loss (enter smaller of amount on line 3 or on line 12).
+
+14. Short-term capital loss attributable to years beginning after 1969 (excess of line 3 over line 13).

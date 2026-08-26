@@ -1,0 +1,13 @@
+Position Control Register.
+
+Taggart, K. A.: age year 58-136.01; graduation date 12; clients C.A. 3113; employee number D; name/title G81848; age year C; degree date 16; PC's O/S code M; station code 10; division due date 040143.
+
+Requisite Service and Removal for Reason Other (See Note): age year 33-0302.88; graduation date 09; clients C.A. 3124; employee number 40; name/title 000370; age year C; degree date 19; PC's O/S code F; station code 10; division due date 041780; case number 0659; division compared with 37587.
+
+Williamson, Ray; Knoch, Raleigh J.: age year 59-0301.88; graduation date 08; clients C.A. 3324; employee number D.
+
+Kurker, B. H.: age year 58-0136.01; graduation date 14; clients C.A. 3447; employee number 10; name/title 063704; age year O; degree date 19; PC's O/S code N; station code 10; division due date 090758; case number 37587.
+
+Jobber, D.: age year 68-0136.02; graduation date 13; clients C.A. 3447; employee number D.
+
+Jackson, H. M.

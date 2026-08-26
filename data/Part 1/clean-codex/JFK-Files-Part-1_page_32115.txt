@@ -1,0 +1,11 @@
+Verified Record of Overseas Service. To: Office of Personnel, Statistical Reporting Branch, Room 192, Curie Hall.
+
+Employee serial no.: 1-8, 25-638. Employee name: Piccolo; first name: Jazzed S; middle: S. Office/component: 25-70, 46. Code: (Print). Month: 28-29. Day: 30-31. Year: 32-33. Country: Mexico. Omit: 40-42, 450.
+
+Instructions: Use appropriate space below to report data for either PCS only. Insert appropriate code number in the “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month and last two digits only for year.
+
+PCS dates of service. Type of data: 1. Arrival code: 7; month: 18; day: 60; year: 01. Departure code: 18; day: 60; year: Mexico. Omit: 450.
+
+TDY dates of service. Type of data: 2. Departure code: 1; month: 7; day: 18; year: 60. Return code: 01; day: 18; year: 60. Area: Mexico. Omit: 40-42, 450.
+
+Source of record commitment: Travel voucher; dispatch; cable; duty status or time and attendance report; other (specify): X PTN POS:OHL 12F0; PSTN POS:OHL.

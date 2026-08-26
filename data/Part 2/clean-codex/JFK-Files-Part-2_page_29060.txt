@@ -1,0 +1,65 @@
+Part I—Head of Household—If claimed, answer the following questions.
+
+Check one: Never married; Widow(er), date; Legal separation (interlocutory decree does not qualify); Final divorce/dissolution, date.
+
+Individual who qualified you as head of household: Name, relationship, age, gross income. Is this person married? If yes, did he or she file a joint return with spouse? Did this person qualify as your dependent for calendar year 1971? If not, explain circumstances. Total amount necessary to maintain household; how much did you contribute?
+
+Part II—Other Income
+
+31. Business income (or loss) (attach Schedule C (540)): $7,350.
+
+32. Net gain (or loss) from sale or exchange of capital assets (attach Schedule D (540)): ($1,000) (0).
+
+33. Net gain (or loss) from Supplemental Schedule of Gains and Losses (attach Schedule D-1 (540)).
+
+34. Pensions and annuities.
+
+35. Rents and royalties (attach Schedule E (Form 540)).
+
+36. Partnerships.
+
+37. Estates and trusts.
+
+38. Farm income (or loss) (attach Schedule F (540)).
+
+39. Miscellaneous income: (a) Fully taxable pensions and annuities (not reported on Schedule E); (b) Alimony; (c) Other (state nature and source); (d) Total miscellaneous income, add lines 39(a), (b), and (c).
+
+40. Total (add lines 31 through 39). Enter here and on page 1, line 11: $6,350.
+
+Part III—Adjustments to Income
+
+41. “Sick pay” if included in line 8 (see instructions—attach statement).
+
+42. Moving expenses (see instructions—attach statement).
+
+43. Employee business expense (see instructions—attach statement).
+
+44. Military exclusion (see instructions for line 8).
+
+45. Payments as a self-employed person to a retirement plan, etc. (attach Federal Form 2950SE).
+
+46. Total adjustments (add lines 41 through 45). Enter here and on page 1, line 13.
+
+Part IV—Tax Computation—Do not use this part if you use the Tax Table to find your tax.
+
+47. Adjusted gross income (from page 1, line 14): $6,571.69.
+
+48. (a) If you itemize deductions, enter total from Schedule A (540), line 32, and attach Schedule A. (b) If you do not itemize deductions, and line 14 is $10,000 or more, enter: (1) $1,000, if single or married person filing separate return; (2) $2,000, if head of household or married couple filing joint return: $4,010.99.
+
+49. Taxable income (subtract line 48 from line 47). Figure your tax on this amount by using the appropriate Tax Rate Schedule in the instructions. Enter tax on page 1, line 15: $2,560.70.
+
+Part V—Tax Forgiveness
+
+Complete all lines below. However, if you used the income averaging method to compute your tax on line 15, omit lines 50, 51, and 52; enter on line 53 the amount shown on line 41 of Schedule G (540), and complete lines 54, 55, and 56.
+
+50. Taxable income from line 49 above, or page 1, line 14 if Tax Table used.
+
+51. Amount, if any, entered on Schedule D (540), line 13(a).
+
+52. Adjusted taxable income (subtract line 51 from line 50).
+
+53. Adjusted tax (use same method as used for determining tax on page 1, line 15).
+
+54. Add lines 18 and 20, page 1, and enter total here.
+
+55.

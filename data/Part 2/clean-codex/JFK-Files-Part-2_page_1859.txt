@@ -1,0 +1,5 @@
+Type of Data: PCS (Basic), 3. Correction, 8. Cancellation. Arrival: 27, 28–29, 30–31, 32–33. Departure: 34–35, 36–37, 38–39; 03, 19, 59. Country: Philippines. O.M.I.: 40–42, 575.
+
+TDY Dates of Service. Type of Data: 2. TDY (Basic), 4. Correction, 6. Cancellation. Departure: codes 27, 28–29, 30–31, 32–33; year 32–33; month and day 34–35, 36–37, 38–39. Area(s): 40–42.
+
+Source of Record Document: L/ Travel Voucher; Dispatch; Cable; Duty Status or Time and Attendance Report; Other (Specify). Document Identification No. Document Date/Period.

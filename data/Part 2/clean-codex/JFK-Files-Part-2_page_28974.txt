@@ -1,0 +1,23 @@
+Gains on Installment Sales.
+
+Description of property: Coffee shop. Date acquired: 2/11/74. Date sold: 9/12/75.
+
+Type of asset: Capital; Sec. 1245; Sec. 1250.
+
+1. Selling price: cash — Sec. 1245: $20148.
+2. Notes — Sec. 1245: 48152.
+5. Gross sales price (1 + 2 + 3 + 4) — Sec. 1245: 68300.
+6. Cost or basis — Sec. 1245: $45228.
+8. Prior to 1-1-62 — Sec. 1250: 2313.
+14. Adjusted basis (6-7 thru 13) — Sec. 1245: 42915.
+15. Expenses of sale — Sec. 1245: 238.
+16. Total adjusted basis (14 + 15) — Sec. 1245: 43153.
+18. Total gross profit—ordinary — Sec. 1245: $2313.
+19. Total gross profit—other — Sec. 1245: $22834.
+20. Contract price (1 + 2 + 4) — Sec. 1245: $683072.
+21. Gross profit % — Sec. 1245: 36.82%; Sec. 1250: 1.9%.
+22. Payments received year of sale.
+23. Cash (1) — Sec. 1245: 20148.
+24. Principal collections — Sec. 1245: -0-.
+25. Excess mortgage over basis — Sec. 1245: -0-.
+26. Other (4).

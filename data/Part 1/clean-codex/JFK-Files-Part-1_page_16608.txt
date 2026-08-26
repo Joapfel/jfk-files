@@ -1,0 +1,47 @@
+ORIG: A.D. Rohlfing  
+UNIT: NH/C/CA/EW  
+EXT: 4550  
+DATE: 2 June 65
+
+No index. File in CS file no.
+
+Message form.
+
+From: Director
+
+CONF: W/H/C P
+
+To (PARI): Paris, Brussels, Madrid, JAWAVE, 15-4, 15-5, 15-2
+
+Info (BRUS/MADR): WAVE, 15-5, 15-2
+
+Cite DIR
+
+TYPIC KEYWAY MHVIPER 20-4
+
+Refs: A. (PARI) 1448 (IN 80372)  
+B. (PARI) 0299 (IN 38992)
+
+1. Presume candidate mentioned Ref A not for purposes travel to Havana as per Ref B but rather for contact with PACETTE only. AMWHIP-1 unable come up with candidate in time for Havana trip mentioned Ref B.
+
+2. NO S will defer involving AMWHIP-1 with PACETTE pending outcome (STATION) attempts at contact.
+
+End of message.
+
+WE/3 Silsby (phone)  
+WE/20 Walzahn (phone)  
+WE/5 Rati (phone)  
+WH/C/NO Cini (phone)  
+WH/C/F1 Webster (phone)  
+WH/C/CA G-S
+
+Desmond Fitzgerald  
+C/WH
+
+C/WE 10PM
+
+Coordinating officer
+
+Releasing officer
+
+Authentication officer

@@ -1,0 +1,15 @@
+Continuation of dispatch.
+
+Security
+
+11. LIEMPTY-10 and -11 were afforded a SURVRL interview on 8 December 1966. There were no outstanding problems indicated in the results of the interview of LIEMPTY-11. The results of LIEMPTY-10's interview were discussed in Reference B.
+
+12. A general security review of the LIEMPTY Project was forwarded in Reference D.
+
+13. There were no known security problems or incidents during this period which may have jeopardized the operation or the assets involved in the Project. FISTEAL interest in LIEMPTY-O/LIMITED was discussed in Reference D and apparently is a continuing matter.
+
+Plans
+
+14. During the coming period no significant operational or administrative changes are planned, since the Project is producing in a timely and satisfactory manner.
+
+For, Willard C. CURTIS

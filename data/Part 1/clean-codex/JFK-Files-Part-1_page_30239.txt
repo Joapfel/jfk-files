@@ -1,0 +1,9 @@
+Office Code: 37. Employee Code: 10. Office Number: 16360. Alphabetic Code: SEC. Station Code: 75013. Director's Code: 1. Date of Birth: 01/26/24.
+
+22. NTE Expires. 32. Correction/Cancellation Data. 33. Security Req. No. EOD Data.
+
+25. Vet. Preference: Code; 0 - None; 1 - Yes. 36. Service Comp. Date: No.; Da. 37. Long Comp. Date: TN; DC; SA. 39. Career Category: Newly Emp; Temp; Emp; Exp; Code. 40. Social Security No.: Code.
+
+41. Previous Government Service Data: Code. 42. Leave Cat. Code. 43. Federal Tax Data: Form Executed: 1 - Yes; 2 - No; No Tax Remittents. 44. State Tax Data: Form Executed: 1 - Yes; 2 - No; Code; No Tax Expense; State Code.
+
+Signature or Other Authentication.

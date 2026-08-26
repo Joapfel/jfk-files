@@ -1,0 +1,11 @@
+Section IX: Marital (Marrial) Status.
+
+19. Check No. Name of deceased.
+
+Between two years married. Giving data required below for all previous marriages.
+
+Name of spouse: first, middle, last. Date of marriage. Place of marriage. Date of birth. Place of birth. Nationality at birth. Subsequent citizenships. Previous residence (last residence, if married).
+
+Section X: Children.
+
+Full name. Sex: F or M. Year of birth. Place of birth. Nationality at birth.

@@ -1,0 +1,7 @@
+Received, Teletype Unit.
+
+Theodent.
+
+FORT 8 reports all points in distance to Teletype Unit. STV 10 MTS. STV is 10 meters in Teletype Unit. TFT 10 meters if it wasn't present. CO collects I 1 TUS.
+
+62-116395-56

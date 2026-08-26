@@ -1,0 +1,15 @@
+Classified message.
+
+Action: R ID copy. Info: FILE, V.K. WINE, C.I./C.Z., C.I./N., FI., FI./INTZ, CAZ, CAPTOR, LH/AS.
+
+Secret 141654Z.
+
+DIR info Lima. QUIT CITE WAVE 0167.
+
+Typic AMMOP.
+
+Ref: WAVE 0132 (C-94) 8*.
+
+AMCRIB-1 received air ticket thru IDEN efforts and will depart 0245 hours 14 April for Lima. He instructed monitor all events for debriefing on return.
+
+CFN: 0167 0132 AMCRIB-1 0245 14 Lima.

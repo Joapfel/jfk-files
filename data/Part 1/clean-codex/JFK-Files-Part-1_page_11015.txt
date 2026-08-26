@@ -1,0 +1,16 @@
+Classified message.
+
+Action: WH 8. Info: DDP, CI/CA, WE 4, SAS 5, S/C 2.
+
+171750Z  
+MADR DIR CITE MEXI 4622  
+PBRUMEN LITAMIL  
+Ref MEXI 4621 (IN 41326)
+
+IDEN A — Mariluz Alberu Souto — Consul, Vigo.  
+IDEN B — Xenia Alberu Souto — about 38 years old. Born Cuba.  
+ATTACTIF. Will be delivered, accomplished violinist.
+
+18 May 1963
+
+IN4:344

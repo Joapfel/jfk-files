@@ -1,0 +1,19 @@
+Position Control Register.
+
+Gosner, Robert L., Caretaker; service code SS 0136.1109; service years 2; age 2452; sex * D.
+
+Millward, Eugenie M., Assistant Dept. Supervisor; service code CS 0307.2807; service years 1; age 3718; sex * D.
+
+Harris, Geraldine M., Clerk; service code CS 0301.2007; age 3718; sex D.
+
+Farahan, Patricia M., Technical Assistant; service code CS 0312.0106; service years 1; age 3380; sex * D.
+
+LLA, L; service years 4; predecessor 1.
+
+Internal Operations Branch.
+
+Powers, David R., Officer; service code GS 0136.0115; age 3074; sex 1 O.
+
+Thomson, William S., Officer; service code CS 0136.0115; age 3074; sex D; predecessor C 11.
+
+Powers, Donald H., Officer; service code GS 0136.0114; service years 4; age 3075; sex * D.

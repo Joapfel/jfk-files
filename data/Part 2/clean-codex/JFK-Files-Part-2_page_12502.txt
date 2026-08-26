@@ -1,0 +1,43 @@
+Do not defer recommendation for ADEX because subject is missing, temporarily out of the country, or in prison.
+
+If FBIHQ approves recommendation, ADEX cards will be prepared, including two copies for the field. A copy of FD-122 will be returned stamped “ADEX card approved, copies attached.” Check cards for accuracy. Place one in the alphabetical section of the field office ADEX and the other in either the geographical section or unavailable section.
+
+When subject is approved for ADEX, submit Security Flash Notice (FD-165) to check records of the Identification Division and post the flash notice if fingerprints of the subject are on file. FD-165 will be returned if positive identification cannot be made. In the latter event, FD-165 should be submitted every two years as long as the subject remains on ADEX and no fingerprint record has been located. These submissions should be timed to coincide with the biennial review of the case.
+
+4. Format of ADEX Card
+
+a. Data to appear on face of card
+
+Itemized below are descriptive categories in which the subject may be classified and corresponding abbreviations for use on FD-122 and the ADEX card.
+
+(1) Full name and aliases.
+
+(2) Date and place of birth.
+
+(3) Race: White (W); Black (B); Other (O).
+
+(4) Sex: Male (M); Female (F).
+
+(5) Citizenship: U.S. Citizen (CT); Alien (AL).
+
+(6) Residence address.
+
+(7) Employment, including occupation and address.
+
+(8) Type of activity: Black Extremist (BEX); Communist (pro-Chinese) (CMC); Communist (pro-Soviet) (CMS); Communist (Trotskyist) (CMT); Foreign Nationality (FRN); Puerto Rican Nationalist (PRN); Revolutionary (REV); Miscellaneous (MSC).
+
+Activities connected with “New Left” or anarchistic elements should be shown as “Revolutionary.” The term “Foreign Nationality” covers foreign-directed subversion, e.g., Soviet or Chicom espionage and Arab terrorism. The abbreviation FRN should be followed by the nationality involved, e.g., FRN-Arab, FRN-Cuban.
+
+(9) Special Interest: Espionage Subjects (ESP); Foreign Government Employees (FGE); U.S. Government Employees (GOV).
+
+(10) Unavailable section: Missing (MI); Out of country (OC); Imprisoned (PR).
+
+(11) Key facility geographical reference number, obtained from the Department of Defense Key Facilities List, if applicable, and agency having security responsibility, which is Army.
+
+(12) Field office and FBIHQ file numbers.
+
+b. Data to appear on separate card attached to ADEX card in geographical or unavailable section.
+
+(1) Physical description.
+
+(2) Photograph, with date taken. It should be the most current or best likeness of the subject available.

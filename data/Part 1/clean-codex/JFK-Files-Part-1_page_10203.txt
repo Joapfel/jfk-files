@@ -1,0 +1,13 @@
+Classified message.
+
+Date: 11 August 62 DJM. To: Director. From: Mexico City. Action: TFW 10. Info: DOP, CI/OA, WH 7, S/C 2.
+
+Routing.
+
+Routine. IN 37787. To: DIR WAVE INFO CITE MEXI 1570. GYROSE/LITAMIL 7. Re A MEXI 0444 (IN 12825). B MEXI 1560 (IN 37258)*.
+
+Please disregard Iden Ref A, who assigned crypt LITAMIL-7.
+
+C/S comment: *Requested POA contact and assessment Fedora Capdevila.
+
+End of message.

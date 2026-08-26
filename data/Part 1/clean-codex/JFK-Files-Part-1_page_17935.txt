@@ -1,0 +1,20 @@
+Date: 09 August 1957
+
+To: Director  
+From: Mexico City  
+Action: TSS 4  
+Info: CI, CI/OPS, CI/IC, FI, FI/OPS, FI/RI 2, WH 4, S/C 2
+
+Classified message. Routing.
+
+IN 36956
+
+To DIR, info CTE MEXI 918.
+
+SUBS! Request 10 Revere T-700 recorders, 60 cycles, for use on LIFEAR.
+
+End of message.
+
+CS comment: Action unit determined as though indicator techs used.
+
+August 1957

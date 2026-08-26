@@ -1,0 +1,5 @@
+Action code: 37/10. Office coding: Numeric, Alphabetic; NW, S/SCE. Due expires: month, day, year. Integ(e)e code: 5. Adopt code: 1. Date of birth: month, day, year. Date of grade: month, day, year. Date of LEI: month, day, year.
+
+Special reference: 1—CS; 2—ORGN; 3—FICA; 5—NONE. Vet preference: Code 0—None; 1—5 PT; 2—10 PT. Service completion date: month, day, year. Long completion date: month, day, year. Career category: CAR DEP; PROV TEMP. Legal health insurance: Code 0—MATER; 1—YES. Social Security No.
+
+Previous civilian government service: Code 0—No previous service; 1—No break in service; 2—Break in service (less than 3 years); 3—Break in service (more than 3 years). Leave category: Code. Federal tax data: Form executed—1 YES; 2 NO. State tax data: Form executed—1 YES; 2 NO; no tax exemptions; state code. Position control certification: Approved; Pilot/Controller. OP approval.

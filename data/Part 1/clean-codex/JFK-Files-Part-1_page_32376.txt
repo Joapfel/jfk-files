@@ -1,0 +1,20 @@
+Gross words: 45, errors: 5, net words: 40; gross words: 63, errors: 14, net words: 49.  
+Gross words: 46, errors: 6, net words: 40; gross words: 64, errors: 14, net words: 50.  
+Gross words: 47, errors: 6, net words: 41; gross words: 65, errors: 15, net words: 50.  
+Gross words: 48, errors: 7, net words: 41; gross words: 66, errors: 15, net words: 51.  
+Gross words: 49, errors: 7, net words: 42; gross words: 67, errors: 16, net words: 51.  
+Gross words: 50, errors: 7, net words: 43; gross words: 68, errors: 16, net words: 52.  
+Gross words: 51, errors: 8, net words: 43; gross words: 69, errors: 16, net words: 53.  
+Gross words: 52, errors: 9, net words: 43; gross words: 70, errors: 16, net words: 54.  
+Gross words: 53, errors: 9, net words: 44; gross words: 71, errors: 17, net words: 54.  
+Gross words: 54, errors: 9, net words: 45; gross words: 72, errors: 18, net words: 54.  
+Gross words: 55, errors: 10, net words: 45; gross words: 73, errors: 18, net words: 55.  
+Gross words: 56, errors: 10, net words: 46; gross words: 74, errors: 19, net words: 55.  
+Gross words: 57, errors: 10, net words: 47; gross words: 75, errors: 19, net words: 56.  
+Gross words: 58, errors: 10, net words: 48; gross words: 76, errors: 20, net words: 56.  
+Gross words: 59, errors: 11, net words: 48; gross words: 77, errors: 20, net words: 57.  
+Gross words: 60, errors: 12, net words: 48; gross words: 78, errors: 20, net words: 58.  
+Gross words: 61, errors: 12, net words: 49; gross words: 79, errors: 21, net words: 58.  
+Gross words: 62, errors: 13, net words: 49; gross words: 80, errors: 21, net words: 59.
+
+This scale conforms to that used by the Civil Service Commission. The number of errors indicated after the gross is the maximum permissible for that specific number of gross words typed; i.e., an individual who types 60 words per minute would be allowed no more than 10 errors in a 10-minute typewriting test.

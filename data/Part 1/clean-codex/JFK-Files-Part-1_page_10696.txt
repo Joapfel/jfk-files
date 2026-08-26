@@ -1,0 +1,3 @@
+Document Transfer and Cross Reference.
+
+Subject of document. Received No. Document reference No. P.O. Box. Date. Document type. Document status. Document dated. Document form. Document number. Document date of invoice. Document amount paid. Document date of order. Document amount obliged on. Document date of payment. Document amount paid in full. Document due date. Document amount due. Document total due. Document net due. Document total net due. Document cash disbursement number. Document cash disbursement date. Document check number. Document check date. Document check amount. Document payee.

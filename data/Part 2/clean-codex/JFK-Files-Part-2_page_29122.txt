@@ -1,0 +1,41 @@
+Schedule D (Form 1040). U.S. Treasury Department, Internal Revenue Service.
+
+Gains and Losses From Sales or Exchanges of Property. Attach this schedule to your income tax return, Form 1040.
+
+Name and address as shown on page 1 of Form 1040.
+
+Part I—Capital Assets—Short-term capital gains and losses—assets held not more than 6 months.
+
+Stock; description: Zero Mfg, Pike Corp; how acquired: A; date acquired: 9-29-67; date sold: 10-16-67; gross sales price: 3,935.92; depreciation: -; cost or other basis: 4483.26; gain or loss: (547.34).
+
+Stock; how acquired: A; date acquired: 9-27-67; date sold: 10-16-67; gross sales price: 2,600.25; depreciation: -; cost or other basis: 2,694.81; gain or loss: (99.56).
+
+2. Enter your share of net short-term gain (or loss) from partnerships and fiduciaries.
+
+3. Enter unused short-term capital loss carryover from preceding taxable years (attach statement).
+
+4. Net short-term gain (or loss) from lines 1, 2, and 3: (644.90).
+
+Long-term capital gains and losses—assets held more than 6 months (12 months or more for certain livestock).
+
+5. Enter gain from Part II, line 3.
+
+Stock; Beth Steel; how acquired: A; date acquired: 2-65; date sold: 9-67; gross sales price: 5,538.52; cost or other basis: 5,504.07; gain or loss: 34.49.
+
+Stock; AMF; how acquired: A; date acquired: 6-63; date sold: 9-67; gross sales price: 2,269.95; cost or other basis: 1,873.50; gain or loss: 396.45.
+
+Stock; Jupiter; how acquired: A; date acquired: 4-63; date sold: 10-67; gross sales price: 559.73; cost or other basis: 537.25; gain or loss: 22.48.
+
+Total long-term gross sales price: 453.42.
+
+6. Enter the full amount of your share of net long-term gain (or loss) from partnerships and fiduciaries.
+
+7. Enter unused long-term capital loss carryover from preceding taxable years (attach statement).
+
+8. Capital gain dividends (see Form 1040 Instructions, page 6).
+
+9. Net long-term gain (or loss) from lines 5, 6, 7, and 8: (188.48).
+
+10. Combine the amounts shown on lines 4 and 9, and enter the net gain (or loss) here.
+
+11. If line 10 shows a GAIN—Enter

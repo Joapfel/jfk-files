@@ -1,0 +1,25 @@
+New Contracts.
+
+To: Sanders Associates, Inc., Nashua, N.H. From: CAE Electronics, Montreal, Canada. For: Display system segment of Canadian Joint En-route Terminal System (JETS) Program: first phase consists of seven Enroute and two Terminal Systems for air traffic control. Amount: 18.6 million.
+
+To: ITT Creed Limited, Great Britain. From: British Post Office. For: 6000 machines—teleprinters and associated equipment—to be used mainly for Telex customer-to-customer teleprinter system. Amount: $11 million.
+
+To: Univac Div., Sperry Rand Corp., Blue Bell, Pa. From: Auto Tell Services, Inc., Villanova, Pa. For: 1100 Univac DCT-515 Data Communications Terminals to be used by automobile dealers who subscribe to ATS services on-line computerized services. Amount: $7 million.
+
+To: Computer Sciences Corp., El Segundo, Calif. From: National Aeronautics and Space Administration (NASA). For: Computer services support to Simulator Computer System Branch at Ames Research Center, Mountain View, Calif. Amount: $6.7 million.
+
+To: Honeywell, Inc., Wellesley Hills, Mass. From: State of Arizona, Phoenix, Ariz. For: A Honeywell Multics (Multiplexed Information and Computing Service) system, for use by 13 state agencies. Amount: $5+ million.
+
+To: Computer Sciences Corp., El Segundo, Calif. From: National Aeronautics and Space Administration (NASA). For: Engineering and related services to NASA's Wallops Station, Wallops Island, Va. Amount: $5 million (approximate).
+
+To: Philco-Ford Corp., Willow Grove, Pa. From: U.S. Army Electronics Command, Fort Monmouth, N.J. For: Improving computerized communications network, identified as '73 AEP for AUTODIN Enhancement Program, at 10 overseas AUTODIN sites, Ft. Monmouth, N.J., and Fort Detrick, Md. Amount: $4.6 million.
+
+To: Raytheon Data Systems, Norwood, Mass. From: Eastern Air Lines, Miami, Fla. For: Data display terminals and associated equipment as part of expansion of EAL's Automated Passenger Processing and Reservation System. Amount: $2+ million.
+
+To: National Cash Register Co., Dayton, Ohio. From: Publix Super Markets, Inc., Lakeland, Fla. For: 30 NCR 255 supermarket checkout systems involving a total of 357 NCR 255 terminals and 30 NCR 726 in-store minicomputers plus 120 NCR 250 free-standing electronic cash registers. Amount: $2 million (approximate).
+
+To: Computer Sciences Corp., El Segundo, Calif. From: National Aeronautics and Space Administration (NASA). For: Analysis and programming services to Langley Research Center, Hampton, Va. Amount: $1.2 million.
+
+To: Interdata, Inc., Oceanport, N.J. From: DATRAN (Data Transmission Co.), Vienna, Va. For: Dual processor Model 55 data communications concentrators, with software and technical support, for an information network DATRAN is designed and installing on a turnkey basis for International Brotherhood of Teamsters. Amount: $1+ million.
+
+To: McDonnell Douglas Automation Co. (MCAUTO), St. Louis, Mo. From: Buffalo, New York, New York Southern California. For: Computer processing of all company data; includes accounts payable, receivables, sales analyses, payroll, inventory control and statistics. Amount: $725,000 (approximate).

@@ -1,0 +1,30 @@
+Part I — Renter's Credit — All questions must be answered
+
+35. Did you, on March 1, 1975, live in rented property which was your principal residence? [ ] Yes [x] No. If no, you may not claim this credit.
+
+36. Was the property you rented exempt from property tax? [ ] Yes [ ] No. If yes, you may not claim this credit.
+
+37. Did you live with any other person who claimed you as a dependent for income tax purposes? [ ] Yes [ ] No. If yes, you may not claim this credit.
+
+38. Did you or your spouse claim the homeowners' property tax exemption or receive public assistance? [ ] Yes [ ] No. If yes, see page 6 of instructions.
+
+Part II — Other Income
+
+39. Business income (or loss) (attach Schedule C(540)).
+40. Net gain (or loss) from sale or exchange of capital assets (attach Schedule D(540)).
+41. Net gain (or loss) from supplemental schedule of gains and losses (attach Schedule D-1(540)).
+42. Pensions and annuities.
+43. Rents and royalties.
+44. Partnerships.
+45. Estates and trusts.
+46. Farm income (or loss) (attach Schedule F(540)).
+47. Miscellaneous income:
+(a) Fully taxable pensions and annuities (not reported on Schedule E(540)).
+(b) Alimony.
+(c) Other (state nature and source). Enter total of lines 47(a), 47(b), and 47(c).
+48. Total (add lines 39 thru 47). Enter here and on line 13.
+
+Part III — Adjustments to Income
+
+49. “Sick pay,” if included in line 10 (see instructions — attach statement).
+50. Moving expenses (see instructions — attach statement).

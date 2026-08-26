@@ -1,0 +1,17 @@
+11 May 1973
+
+Memorandum for: Director, Central Intelligence Agency
+
+Through: Deputy Director for Management and Services
+
+Subject: Activities which might be considered sensitive issues.
+
+I have listed below computer processing projects which the Office of Joint Computer Support has participated in or is aware of and which might be considered sensitive issues.
+
+Most Sensitive Projects. OJCS Project Identification: HYDRA. Project officer organization and telephone: Richard Ober, CI Staff, Red 1465. Nature of project: A special project initiated by DCI. OJCS reason for listing: Type of data being collected.
+
+OJCS Project Identification: SANCA. Project officer organization and telephone: Iden 48, OS, Red 9298. Nature of project: Machine index to security files. OJCS reason for listing: Type of data in index.
+
+OJCS Project Identification: ORDSTAT. Project officer organization and telephone: John Hutchings, ORD, 3061. Nature of project: Information storage and retrieval of drug-related data (ORD's project—OFTEN). OJCS reason for listing: Type of data in files.
+
+Sensitive Projects. OJCS Project Identification: DRUGGS. Project officer organization and telephone: Iden 18, OMS, 7792. Nature of project: Computer file of drug data. OJCS reason for listing: Type of data in file.

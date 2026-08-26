@@ -1,0 +1,54 @@
+Position Control Register. Accounts Received.
+
+2004-16: AMTS, C181.20  
+2005-2: GUY F  
+2006-7: JUNI  
+2007-1: MAY  
+2008-2: MAR  
+2009-2: APR  
+2010-3: MAY  
+2011-1: FEB  
+2012-1: FEB  
+2013-1: FEB  
+2014-1: MAR  
+2015-1: MAR  
+2016-1: JUN  
+2017-1: AUG  
+2018-1: SEPT  
+2019-1: SEP  
+2020-1: OCT  
+2021-1: NOV  
+2022-1: DEC. Total: $2,114.00
+
+2023-1: MAR. Total: $4,017.00  
+2024-1: JUN. Total: $6,130.00  
+2025-1: AUG. Total: $8,197.00  
+2026-1: SEPT. Total: $10,384.00  
+2027-1: OCT. Total: $12,495.00  
+2028-1: JUN. Total: $14,989.00  
+2029-1: AUG. Total: $17,978.00  
+2030-1: SEP. Total: $20,956.00  
+2031-1: OCT. Total: $23,912.00  
+2032-1: NOV. Total: $26,824.00  
+2033-1: DECE. Total: $29,648.00  
+2034-1: FEB. Total: $33,296.00  
+2035-1: MAR. Total: $36,592.00  
+2036-1: APR. Total: $40,184.00  
+2037-1: MAY. Total: $44,368.00  
+2038-1: JUN. Total: $48,736.00  
+2039-1: JUN. Total: $52,472.00  
+2040-1: JUN. Total: $56,944.00  
+2041-1: JUN. Total: $61,888.00  
+2042-1: JUN. Total: $66,876.00  
+2043-1: JUN. Total: $72,752.00  
+2044-1: JUN. Total: $77,504.00  
+2045-1: JUN. Total: $83,008.00  
+2046-1: JUN. Total: $88,516.00  
+2047-1: JUN. Total: $93,932.00  
+2048-1: JUN. Total: $98,818.00  
+2049-1: JUN. Total: $104,636.00  
+2050-1: JUN. Total: $110,472.00  
+2051-1: JUN. Total: $116,344.00  
+2052-1: JUN. Total: $122,288.00  
+2053-1: JUN. Total: $128,112.00  
+2054-1: JUN.

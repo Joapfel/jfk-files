@@ -1,0 +1,48 @@
+Monthly Computer Census
+
+Neil Macdonald  
+Survey Editor
+
+Computers and Automation
+
+The following is a summary made by Computers and Automation of reports and estimates of the number of general-purpose digital computers manufactured and installed, or to be manufactured and on order. These figures are mailed to individual computer manufacturers quarterly for their information and review, and for any updating or comments they may care to provide. Please note the variation in dates and reliability of the information. A few manufacturers refuse to give out, confirm, or comment on any figures.
+
+Part 1 of the Monthly Computer Census contains reports for United States manufacturers, A to H, and is published in January, April, July, and October. Part 2 contains reports for United States manufacturers, I to Z, and is published in February, May, August, and November. Part 3 contains reports for manufacturers outside of the United States and is published in March, June, September, and December.
+
+Our census seeks to include all digital computers manufactured anywhere. We invite all manufacturers located anywhere to submit information that would help make these figures as accurate and complete as possible.
+
+The following abbreviations apply:
+
+(A)—authoritative figures, derived essentially from information sent by the manufacturer directly to Computers and Automation.
+
+C—figure is combined in a total.
+
+(D)—acknowledgment is given to DP Focus, Marlboro, Mass., for their help in estimating many of these figures.
+
+E—figure estimated by Computers and Automation.
+
+(N)—manufacturer refuses to give any figures on number of installations or of orders, and refuses to comment in any way on those numbers stated here.
+
+(R)—figures derived all or in part from information released indirectly by the manufacturer, or from reports by other sources likely to be informed.
+
+(S)—sale only, and sale (not rental) price is stated.
+
+X—no longer in production.
+
+—Information not obtained at press time and/or not released by manufacturer.
+
+Summary as of October 15, 1973
+
+Part 2. United States Manufacturers I–Z
+
+IBM, White Plains, N.Y. (N) (D) (October 1973).
+
+Computer 305: date of first installation 12/57; average or range of monthly rental $3.6 thousand; installations in U.S.A. 40, outside U.S.A. 15, in world 55; unfilled orders—.
+
+Computer 650: date of first installation 10/67; average or range of monthly rental $4.8 thousand; installations in U.S.A. 50, outside U.S.A. 18, in world 68; unfilled orders—.
+
+Computer 1130: date of first installation 2/66; average or range of monthly rental $1.5 thousand; installations in U.S.A. 2,580, outside U.S.A. 1,227, in world 3,807; unfilled orders—.
+
+Computer 1401: date of first installation 9/60; average or range of monthly rental $5.4 thousand; installations in U.S.A. 2,210, outside U.S.A. 1,836, in world 4,046; unfilled orders—.
+
+Computer 1401-G: date of first installation 5/6.

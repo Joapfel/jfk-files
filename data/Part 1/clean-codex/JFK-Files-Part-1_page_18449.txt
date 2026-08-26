@@ -1,0 +1,9 @@
+Position Control Certification.
+
+Action code; Employ code; Office coding: numeric, alphabetic; Station code; Integ ree code; Hootes code; Date of birth; Date of grade; Date of leave; Rate expires; Retirement date; Separation data code; Correction/cancellation data; EOD data; Security requirement number; Sex; Yes preference; Service computation date; Long service computation date; Career category; Legal/health insurance; Social Security number; Health insurance code; Previous civilian government service; Leave cap (schedule); Federal tax data; State tax data; Operational approval; Date approved.
+
+Previous civilian government service codes: no previous service; no break in service; break in service (less than 3 years); break in service (more than 2 years).
+
+Form executed: 1—yes; 2—no. Number of tax exemptions. Number of tax exemptions, state code.
+
+28 December 1967.

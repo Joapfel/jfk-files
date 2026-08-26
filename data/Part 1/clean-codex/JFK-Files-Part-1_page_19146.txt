@@ -1,0 +1,11 @@
+Items 1 through 7 and Items 9 through 18a: The initiating office should fill in each of the referenced items. Items 3 through 7 and 9 through 18 require information which pertains only to the action requested, and not to the current status of the employee unless specific items remain unchanged.
+
+Item 5: “Category of Employment” should show one of the following entries: Regular; Summer; WAB; Part Time; Detail Out; Consultant; Temporary; Detail In; Military; Temporary – Part Time.
+
+Item 9: “Organizational Designations” should show all levels of organization pertinent to identifying the location of the position: First line; Major Component (Director, Deputy Director, etc.); Office, Major Staff, etc.; Division or Staff (subordinate to first line); Branch; Section; Unit.
+
+Item 11: “Position Title” should reflect the standard abbreviated title given in the most current edition of the Position Control Register or reported on Form 261, Staffing Complement Change Authorization.
+
+Item 18b: Signature should be that of the official authorized to approve for the Career Service to which the employee belongs. If more than one Career Service is involved, the gaining Career Service should approve and the other Career Service should concur in Item 13, Remarks.
+
+Routing: The original only of this form will be forwarded to the Office of Personnel through the appropriate Career Service official(s). In the case of requests specified in HB 20-500-1, which require advance approval or notification to the Office of Security or the Office of the Comptroller, one copy only will be sent to the Office(s) concerned.

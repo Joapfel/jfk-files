@@ -1,0 +1,14 @@
+Format for abstract of material submitted to the Senate (House) Select Committee investigating intelligence activities.
+
+1. Subject.
+2. Originating organization.
+3. Nature of material: report, briefing, chart, etc.
+4. Title.
+5. Summary of contents: a brief narrative statement describing the content of the material provided, problems addressed, and any conclusions or recommendations.
+6. Requestor.
+7. Date of request.
+8. Date of submission.
+9. Location of file copy or copies.
+10. Does material relate to an intelligence community problem? If so, identify.
+
+All information contained herein is unclassified. Herein is a sample document. Date: 6-17-66. By: SP-2 ALP. SP-2 ALM-66.

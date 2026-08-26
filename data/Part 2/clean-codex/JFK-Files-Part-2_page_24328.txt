@@ -1,0 +1,35 @@
+Common Stock.
+
+Date of purchase: 3/31/71. Stock: Combustion Engineering. Shares: 1000. Purchased at per share: 61-3/4. Amount: 62,201.18. Per share: 62-1/8. Amount: 62,125.
+
+Date of purchase: 4/5/71. Stock: Combustion Engineering. Shares: 500. Purchased at per share: 61-3/4. Amount: 31,115.90. Per share: 62-1/8. Amount: 31,062.
+
+Date of purchase: 4/5/71. Stock: Combustion Engineering. Shares: 500. Purchased at per share: 61-5/8. Amount: 31,038.30. Per share: 62-1/8. Amount: 31,063.
+
+Date of purchase: 4/23/71. Stock: Combustion Engineering. Shares: 100. Purchased at per share: 69-3/4. Amount: 7,020.98. Per share: 62-1/8. Amount: 6,212.
+
+Date of purchase: 4/23/71. Stock: Combustion Engineering. Shares: 2900. Purchased at per share: 69-7/8. Amount: 203,810.21. Per share: 62-1/8. Amount: 180,163.
+
+Total and average price: 5000 shares; purchased at per share 66-3/4; amount 335,186.57; per share 62-1/8; amount 310,625; P/E ratio 18.
+
+Date of purchase: 6/9/71. Stock: McGraw Edison. Shares: 3500. Purchased at per share: 43. Amount: 151,597.50. Per share: 34-1/4. Amount: 119,875.
+
+Date of purchase: 6/10/71. Stock: McGraw Edison. Shares: 1000. Purchased at per share: 43-1/4. Amount: 43,496.30. Per share: 34-1/4. Amount: 34,250.
+
+Date of purchase: 6/10/71. Stock: McGraw Edison. Shares: 500. Purchased at per share: 42-3/4. Amount: 21,576.90. Per share: 34-1/4. Amount: 17,125.
+
+Total and average price: 5000 shares; purchased at per share 43; amount 216,670.70; per share 34-1/4; amount 171,250; P/E ratio 14.
+
+Insurance.
+
+Date of purchase: 10/21/71. Stock: Crum and Forster. Shares: 5000. Purchased at per share: 29-7/8. Amount: 149,375.00. Per share: 31-1/2. Amount: 157,500. P/E ratio 11.
+
+Date of purchase: 11/1/71. Stock: Hanover Insurance. Shares: 1000. Purchased at per share: 36-7/8. Amount: 36,800.00. Per share: 41-1/4. Amount: 41,250.
+
+Date of purchase: 12/7/71. Stock: Hanover Insurance. Shares: 1000. Purchased at per share: 38-5/8. Amount: 38,650.00. Per share: 41-1/4. Amount: 41,250.
+
+Total and average price: 2000 shares; purchased at per share 37-3/4; amount 75,450.00; per share 41-1/4; amount 82,500; P/E ratio 7.
+
+Date of purchase: 11/1/71. Stock: Ohio Casualty. Shares: 1000. Purchased at per share: 43-3/4. Amount: 43,750.00. Per share: 48. Amount: 48,000. P/E ratio 13.
+
+Office & Business Equipment.

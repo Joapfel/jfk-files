@@ -1,0 +1,15 @@
+Verified Record of Overseas Service.
+
+To: Office of Personnel, Statistical Reporting Branch, Room 192, Curie Hall.
+
+Employee Serial No.: 1-0 24345W. Name of employee: Last: (Print); First: 7-24 Ph. Hips; Middle: Divid. Office/Component: 75-28 A; 35-6-1.
+
+Instructions: Use appropriate space below to report data for either PCS or TOY. Insert appropriate code number in “Code” column to designate whether submission is of basic data, correction, or cancellation (one only). Report dates by using the number for the month, and last two digits only for year.
+
+PCS Dates of Service. Type of data: 1 — PCS (Basic); 2 — Correction; 3 — Cancellation. Code: 27. Arrival month: 29-29; day: 30-31; year: 32-33. Departure month: 34-35; day: 36-37; year: 38-39. Country: Mexico. Omit: 40-42.
+
+Type of data: 4 — TOY (Basic); 5 — Correction; 6 — Cancellation. Code: 1. Arrival month: 09; day: 25; year: 61. Omit: 450.
+
+TDY Dates of Service. Type of data: 7 — TDY (Basic); 8 — Correction; 9 — Cancellation. Code: 27. Departure month: 29-29; day: 30-31; year: 32-33. Return month: 34-35; day: 36-37; year: 38-39. Area(s): WH. Omit: 40-42.
+
+Source of Record Document. Travel voucher: X. Dispatch. Cable. Duty status or time and attendance report. Other (Specify). Document identification No. Document date period.

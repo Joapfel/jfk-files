@@ -1,0 +1,24 @@
+Classified Message. DEC.68. Director. From: Bern. To: C/AF, S/C 2. Outgoing.
+
+DEC 12 2246Z 60
+
+Operational immediate.
+
+IN 19973
+
+OPEN DIR LEOP CITE BERN-659  
+BYCAT WIRGCUS  
+REF DIR 13116 (NOT SENT LEOP) (at 95707)  
+BERN 6537 (IN 49449)
+
+PAR CSH 43-43
+
+1. By chance during visit Graham with INTEGRITY 1, latter's office 1530 hours Monday 12 Dec, INTEGRITY 1 received phone call from Leopoldville from a FNU Hofhuis.
+
+2. Hofhuis told INTEGRITY 1 he had in his possession check signed by Georg F. Reiner for Swiss francs 12,000. Also has letter of credit payable to Reiner and said Reiner gave it to him for security until check paid. Hofhuis asked INTEGRITY 1 if he would pay check. While holding Hofhuis on other end of phone, INTEGRITY 1 asked Graham for instructions.
+
+3. Under circumstances Graham told INTEGRITY 1 to stall Hofhuis by telling Hofhuis he would phone him at LEOP 2839 (which number supplied by Hofhuis) and say if he would pay check. Hofhuis said he would wait exactly 24 hours for INTEGRITY 1 phone call.
+
+4. Hofhuis would not tell INTEGRITY 1 why he had Reiner's
+
+Reproduction by other than the issuing office is prohibited.

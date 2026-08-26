@@ -1,0 +1,15 @@
+Routine 201 criteria:
+
+- Recruitment
+- High-level foreign officer
+- There are written regulations governing these criteria
+
+Some operations are run from HP, are not the field, so the HP officer would initiate the 201 file.
+
+PRO I: Biographical information.
+
+PRO II: Biographical data, assessment, surveillance results (may be filed after contact with the individual).
+
+They would be located in the 201 file. Sometimes PRO II is not made, so it will not necessarily be included with PRO I.
+
+There is dual filing: pseudonym or cryptonym will not be filed with the rare file. PRO II will usually use the cryptonym, so it would be stored elsewhere. You can run an index check to locate all files. The original file should refer to other files.

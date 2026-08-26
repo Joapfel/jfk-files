@@ -1,0 +1,39 @@
+MHFNO: 95-1435429
+
+SENSIND: RYBAT
+
+FRP: STAFF
+
+CONF: EUR/PLANS. INFO: EUORECORD, EUR/CA, EUR/CGT, EUR/RIB, EUR/TECH, LIMITO, MDSX, NR/OPSB, NR/ORG, OCC/CRG, OCC/RB, ODPD, FILE, DC/EURTNO (2/P).
+
+95 1435429 ASR.
+
+TOT: 221736Z AUG 95.
+
+DIRECTOR 415240.
+
+221736Z DIRECTOR 415240.
+
+To: STAMFORD, NEWARK.
+
+From: LIMIT EUR/PLANS. Info: EUR/CGT, EUR/CA, EUR/TECH, OCC/CRG, NR/OPSB, NR/ORG.
+
+Slugs: WNINTEL, RYBAT, FASTTRACK, LPAVERT.
+
+Subject: LPAVERT principal as e-mail cover provider.
+
+Ref: A. STAMFORD 17619 95 1221202. B. STAMFORD 17640 95 1241611.
+
+Text:
+
+1. Action required: FYI only.
+
+2. This cable supplements info contained in refs. It has been delayed while HQs weighed the significance of the luncheon conversation reported below and decided how best to use the president of LPAVERT (subject) in EUR Division's e-mail COVCOM program.
+
+3. After the Ref A's successful ops meeting with subject, the latter and EUR I.C. MacDonald E. Zappley had a late lunch together at a local male restaurant. Over lunch subject voiced some opinions which merit recording here:
+
+A. After some general conversation, subject asked Zappley if he had ever done anything for NWBOLTON that later had given him pain or shame. After a moment's reflection, Zappley replied, “No.”
+
+Subject continued talking of NWBOLTON and eventually said he was convinced that there had been some form of NWBOLTON involvement in the assassination of President Kennedy. To Zappley's rejoinder that this was pure fantasy, subject admitted that he couldn't point to hard evidence for his belief but held to it nonetheless. He added that NWBOLTON's role in Allende's ouster and death was another black mark.
+
+B. When Zappley asked why he would cooperate with an organization that he felt was so tainted, subject answered without hesitation: “I believe your organization must exist to help us combat current evils.” I simply also believe that NWBOLTON—or elements of it, perhaps out of control—has itself done evil.

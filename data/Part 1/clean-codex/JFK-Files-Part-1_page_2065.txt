@@ -1,0 +1,15 @@
+Position Control Register.
+
+African (Affrican) Chrysler. Mill William F — program G3-6136.81, number 14, invoice number S, due date 3854, office city 10. Program G3 0136.81, number 14, invoice number 3876, due date 0, office city 805717, ZIP C, bank balance 23, municipal debt N, state debt 10, 078183, 0780, 37367.
+
+Officer. Robble Jo and B — program G5-9132.88, number 25, invoice number L, due date 3846, office city 48, ZIP 805468, bank balance O, municipal debt 28, state debt F, 18, 123482, 37587.
+
+Young Amelia Belle — program G8 0132.88, number 12, due date 3816, office city 3, ZIP 881289, bank balance O, municipal debt 19, state debt F, 18, 041780, 37587.
+
+Officer. Koch P — program G5-8132.88, number 12, invoice number L, due date 4498, office city *0.
+
+Koch Winnifred — program G5 0132.88, number 18, due date 4497, office city D.
+
+Officer. Watkin Stanley — program G5-8130.81, number 67, invoice number L, due date 3848, office city 38, ZIP 817569, bank balance O, municipal debt 16, state debt F, 10, 121359, 0263, 37587.
+
+Translation Section. Wilford-Non — program G8-2826.81, number 25, invoice number L, due date 4668, office city 10, ZIP 834824.

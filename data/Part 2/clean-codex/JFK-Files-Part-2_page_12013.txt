@@ -1,0 +1,37 @@
+4. Currency and Security
+
+All indices shall be maintained in a current status at all times in a manner which provides tight security of the information and yet makes it easily available to agents having a need thereof.
+
+L. Index Cards
+
+1. Index cards (FD-348) shall be executed for the alphabetical name index.
+
+2. Use form FD-348 for the symbol number index. Execute only the following items:
+
+Symbol: Informant, potential informant, or confidential source
+
+File No.:
+
+Name:
+
+3. Contacts with informants should not be posted on index cards since this information is shown in the informant's administrative file.
+
+M. Informant Files
+
+1. Opening
+
+a. When active investigation is initiated relative to an individual who has potential as an informant or confidential source and he is not the subject of a security-type file, a 134 classification file should be opened and maintained in a pending status until efforts to develop the subject are discontinued.
+
+b. If an individual is the subject of a security case and after being interviewed with Bureau authority he indicates he is cooperative and has potentiality as an informant, a 134 file should be opened and maintained in a pending status while under development as a potential informant. In espionage and foreign nationality matters the existing file may be used rather than open a new 134 file if this is practical and will reduce paperwork.
+
+c. Individual files on all informants should be maintained and carried as pending active cases.
+
+2. Monthly Administrative Report
+
+Files on potential informants and informants shall be included in the tabulations and calculations of delinquencies in the monthly administrative report.
+
+3. Assignment and Tickler Cards
+
+a. Assignment and tickler cards should be maintained.
+
+b. The true name of the informant is not to appear on the assignment and tickler cards.

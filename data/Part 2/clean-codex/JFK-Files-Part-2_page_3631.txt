@@ -1,0 +1,5 @@
+Routing. To: CIA/IPC.
+
+Action. Direct reply. Prepare reply. Approval. Dispatch. Recommendation. Comment. File. Return. Concurrence. Information. Signature.
+
+Handle via COMINT channels.

@@ -1,0 +1,15 @@
+Position Control Register.
+
+Paolo D'Ascevet. ID/Personnel code: GS-0126.01. Title/Type: 12. Name: 3113. Rank: D. Position: Senior Corporate Officer. SSN: 09. Date of birth: Female. Marital status: age 47. Type of income: Submariner. Station: Office. Department: DCD. Department head: On Active Duty. Age: 11/16/1972. Personnel code: Male.
+
+Palliotissime Asse. ID/Personnel code: GS-0301.28. Title/Type: 09. Name: 3124. Rank: CS. Position: Cooperative. SSN: 06. Date of birth: Male. Marital status: age 51. Type of income: Swaper. Station: Office. Department: DCD. Department head: On Active Duty. Age: 11/16/1972. Personnel code: Male.
+
+Kohara, Tetsu. ID/Personnel code: GS-0301.28. Title/Type: 08. Name: 3124. Rank: MS. Position: Senior Senior Corporate Officer. SSN: 09. Date of birth: Male. Marital status: age 51. Type of income: Swaper. Station: Office. Department: DCD. Department head: On Active Duty. Age: 11/16/1972. Personnel code: Male.
+
+Liam Arangel. ID/Personnel code: GS-0136.01. Title/Type: 14. Name: 32.23. Rank: 10. SSN: 09. Date of birth: Male. Marital status: age 35. Department: DCD. Department head: On Active Duty. Age: 11/16/1972. Personnel code: Male.
+
+Milanos Charires A. ID/Personnel code: GS-0136.01. Title/Type: 19. Name: 3126. Rank: D. Position: Secretary. SSN: 09. Date of birth: Male. Marital status: age 29. Type of income: Clerk. Station: Office. Department: DCD. Department head: On Active Duty. Age: 11/16/1972. Personnel code: Male.
+
+Candido Asse. ID/Personnel code: GS-0301.28. Title/Type: 07. Name: 4084. Rank: *D. SSN: 09. Date of birth: Male. Marital status: age 40. Department: DCD. Department head: On Active Duty. Age: 11/16/1972. Personnel code: Male.
+
+Lia Chan. ID/Personnel code: GS-0136.01. Title/Type: 14. Name: 3247. Rank: 10. SSN: 09. Date of birth: Male. Marital status: age 4.

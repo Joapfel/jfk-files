@@ -1,0 +1,29 @@
+File Content List CF File No. 201-CL9109R.
+
+Reference A; document type IN.
+
+Reference A; date 10/C7/57; symbol and number DFB-879C5; document type IN; serial number and/or subject: Richard Cyril Frank security matter-C.
+
+Reference A; date 10/C8/57; symbol and number CFE-87904; document type IN.
+
+Reference A; date 26/11/58; symbol and number CBF-14398; document type AO; routing IP.
+
+Reference A; date 30/12/59; symbol and number ESEA-C8833; document type IN.
+
+Reference C; date 12/04/60; symbol and number CBF-46377; document type IN; routing IP; filed in 100-008-017; document: Two Continents Commodity Corporation.
+
+Reference A; date 02/07/62; symbol and number CBA-14983; document type AO; routing CI; subject: 1 Susan Heiligman Frank.
+
+Reference A; date 02/07/62; symbol and number CBA-14982; document type IN; routing CI; subject: 1 Richard Cyril Frank.
+
+Reference A; date 26/06/63; symbol and number CBA-44692; document type AO; routing CI/LS; subject: 1 Richard Cyril Frank security matter-C.
+
+Reference A; date 02/C7/63; symbol and number CBA-45538; document type AO; routing CI/LS; subject: 1 Susan Heiligman Frank.
+
+Reference A; date 30/C8/63; symbol and number DEA-52730; document type AO; routing CI/LS; subject: 1 Susan Heiligman Frank.
+
+Reference A; date 10/09/63; symbol and number CBA-50303; document type AO; routing CI/LS; subject: 1 Susan Heiligman Frank, AKA Susan Warren.
+
+Reference A; date 12/09/63; symbol and number CBA-50326; document type AO; routing CI/LS; subject: 1 Susan Heiligman Frank internal security-CH.
+
+Reference A; date 12/09/63; symbol and number CBA-50385.
